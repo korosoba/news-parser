@@ -1,3 +1,300 @@
+# Amazon Developing The First Movie Adaptation For Squishmallows Franchise
+
+Movies
+
+Sat, 15 Aug 2026 04:51:38 GMT
+
+https://screenrant.com/squishmallows-movie-amazon-development/
+
+After becoming one of the most wildly popular toys in modern history, Squishmallows are officially heading to the big screen in a major way.
+---------
+
+# Disney Officially Announces Zootopia 3 & Returning Character
+
+Movies, Zootopia, Disney
+
+Sat, 15 Aug 2026 04:38:15 GMT
+
+https://screenrant.com/zootopia-3-development-character-return-disney-confirmed/
+
+Following the huge success of Zootopia 2, Disney announces that Zootopia 3 is in development and confirms a returning character.
+---------
+
+# Fallout: Breach Is The Alien Crossover We Never Knew We Needed
+
+Gaming, Fallout, Fallout 4
+
+Sat, 15 Aug 2026 04:30:11 GMT
+
+https://screenrant.com/fallout-meets-alien-breach-mod/
+
+Fallout has always had some extra-terrestrial elements, and this new download draws on one of the greatest examples of the genre.
+---------
+
+# Ryan Gosling Escapes From Troopers On The Fastest Starfighter In First Star Wars Footage
+
+Movies, Star Wars: Starfighter, D23
+
+Sat, 15 Aug 2026 04:28:47 GMT
+
+https://screenrant.com/star-wars-starfighter-footage-description-d23/
+
+New footage has been released for Shawn Levy's upcoming movie Star Wars: Starfighter ahead of its 2027 release, with Ryan Gosling taking flight.
+---------
+
+# Ahsoka Season 2 Release Date Officially Revealed For Disney+, Anakin Skywalker Returns In First Trailer
+
+TV, Ahsoka, Star Wars, D23
+
+Sat, 15 Aug 2026 04:22:31 GMT
+
+https://screenrant.com/ahsoka-season-2-trailer-release-date/
+
+Three years after season 1, the Ahsoka season 2 release date has been announced, and the first trailer shows Anakin Skywalker's return to Star Wars.
+---------
+
+# New Disney Series Based On Classic Mickey Mouse Is Officially Releasing Next Year
+
+TV, Oswald
+
+Sat, 15 Aug 2026 04:13:45 GMT
+
+https://screenrant.com/disney-oswald-series-release-plot-details-first-image/
+
+New details about Disney's Oswald series reveal its release window, episode count, animation style, and Jon Favreau's personal connection.
+---------
+
+# Adam Driver Officially Cast In MCU’s X-Men Reboot As Release Date & Villain Are Finally Revealed
+
+Movies, Marvel's X-Men, D23, Marvel Cinematic Universe, X-Men
+
+Sat, 15 Aug 2026 04:12:57 GMT
+
+https://screenrant.com/marvel-studios-xmen-movie-adam-driver-title-villain-casting-details-confirmation/
+
+Marvel Studios' X-Men reboot is going forward, as casting has finally been officially revealed for the upcoming ensemble film with the iconic mutants.
+---------
+
+# Robert Downey Jr.’s Doctor Doom Unleashes Hell On The MCU In New Avengers: Doomsday Trailer
+
+Movies, Avengers: Doomsday, D23, The Avengers, Marvel Cinematic Universe
+
+Sat, 15 Aug 2026 04:09:33 GMT
+
+https://screenrant.com/avengers-doomsday-movie-trailer-marvel-studios/
+
+The next Avengers: Doomsday trailer has officially been released by Marvel Studios, giving the world a brand new look at the upcoming Phase 6 movie.
+---------
+
+# Marvel’s VisionQuest Trailer Reveals Vision Racing To Save His Son As Ultron Takes Over
+
+TV, VisionQuest, D23, Marvel Cinematic Universe
+
+Sat, 15 Aug 2026 04:00:59 GMT
+
+https://screenrant.com/visionquest-show-trailer-marvel-studios/
+
+The first official VisionQuest trailer for the upcoming WandaVision TV spinoff series on Disney+ has finally been released by Marvel Studios.
+---------
+
+# Star Wars: Starfighter Unveils Official Poster and New Plot Details at D23
+
+Movies, Star Wars: Starfighter, D23
+
+Sat, 15 Aug 2026 04:45:25 GMT
+
+https://www.cbr.com/star-wars-starfighter-d23-2026-update/
+
+New details about Ryan Gosling's character were revealed along with the official poster.
+---------
+
+# Inde Navarrette as Rogue Among 4 Major Cast Members Announced for X-Men Reboot
+
+Movies, X-Men, D23
+
+Sat, 15 Aug 2026 04:23:54 GMT
+
+https://www.cbr.com/marvel-xmen-reboot-cast-inde-navarrette-rogue-d23-2026/
+
+Along with Obsession star Inde Navarrette as Rogue, the X-Men reboot has also cast Professor X, Storm, and Mr. Sinister.
+---------
+
+# The X-Men & Avengers Stand No Chance Against Doctor Doom in New Avengers: Doomsday Trailer
+
+Movies, Avengers: Doomsday, D23
+
+Sat, 15 Aug 2026 04:16:28 GMT
+
+https://www.cbr.com/avengers-doomsday-disney-d23-2026-update/
+
+An all-new trailer for Avengers: Doomsday reveals just how much trouble the Avengers and pals are in.
+---------
+
+# VisionQuest Gets New Trailer Revealing First Look at Ultron's MCU Return
+
+TV, VisionQuest
+
+Sat, 15 Aug 2026 04:07:25 GMT
+
+https://www.cbr.com/visionquest-trailer-d23-2026/
+
+The first official look at James Spader's return as Ultron can be seen in the new trailer for VisionQuest.
+---------
+
+# Disney Reveals First Official Look at Live-Action Tangled's Rapunzel, Release Date Set
+
+Movies, Tangled (Live Action), D23
+
+Sat, 15 Aug 2026 04:00:26 GMT
+
+https://www.cbr.com/tangled-live-action-remake-release-date-first-look/
+
+The live-action version of Rapunzel has formally been introduced.
+---------
+
+# 'Star Wars: Starfighter’ Trailer Officially Reveals Ryan Gosling’s New Galaxy Far, Far Away
+
+Movie News, Star Wars, Star Wars: Starfighter, Shawn Levy, Ryan Gosling
+
+Sat, 15 Aug 2026 04:34:18 GMT
+
+https://collider.com/star-wars-starfighter-first-trailer-ryan-gosling-d23/
+
+The first Star Wars: Starfighter trailer has finally arrived at D23, revealing Ryan Gosling and Shawn Levy’s new Star Wars adventure.
+---------
+
+# Anakin Skywalker Officially Returns in First ‘Ahsoka’ Season 2 Trailer
+
+TV News, Ahsoka, Star Wars, Disney+, Rosario Dawson
+
+Sat, 15 Aug 2026 04:29:42 GMT
+
+https://collider.com/ahsoka-season-2-trailer-anakin-skywalker-thrawn/
+
+Watch the first Ahsoka Season 2 trailer featuring Anakin Skywalker, Grand Admiral Thrawn and Ezra Bridger ahead of the Disney+ return on January 20, 2
+---------
+
+# The Wait for Marvel’s ‘X-Men’ Reboot Officially Has an End Date
+
+Movie News, X-Men, Marvel Studios, MCU, D23
+
+Sat, 15 Aug 2026 04:28:47 GMT
+
+https://collider.com/x-men-reboot-movie-release-date-may-2028/
+
+Marvel has officially set a 2028 release date for the new X-Men reboot movie as Adam Driver, Inde Navarrette, Maya Boyd, and more join the cast.
+---------
+
+# Meet the MCU’s New X-Men as Marvel Officially Reveals the Cast
+
+Movie News, Marvel Studios, MCU, X-Men, D23
+
+Sat, 15 Aug 2026 04:18:30 GMT
+
+https://collider.com/mcu-x-men-cast-official-confirmed/
+
+Marvel has officially confirmed the cast of the MCU’s new generation of X-Men. See who’s joining Samara Weaving, Sadie Sink, and Kit Connor.
+---------
+
+# Marvel Officially Reveals New Professor X
+
+Movie News, Christopher Abbott, X-Men, Jake Schreier, D23
+
+Sat, 15 Aug 2026 04:18:25 GMT
+
+https://collider.com/x-men-reboot-professor-x-cast-christopher-abbott/
+
+Christopher Abbott is set to play Professor X in Marvel’s X-Men reboot as the MCU prepares to introduce its new generation of mutants.
+---------
+
+# Adam Driver Is Officially Trading Star Wars for 'X-Men'
+
+Movie News, Cailee Spaeny, X-Men, Jake Schreier, MCU
+
+Sat, 15 Aug 2026 04:15:41 GMT
+
+https://collider.com/adam-driver-x-men-mister-sinister-casting/
+
+Adam Driver has officially been cast as the villain, Mister Sinister, in Marvel Studios' X-Men reboot.
+---------
+
+# The Greatest Sci-Fi Video Game of the 2010s Is Perfect From Start to Finish
+
+Gaming, Portal, Video Game, Valve, Science Fiction
+
+Sat, 15 Aug 2026 04:08:14 GMT
+
+https://collider.com/portal-2-2011-valve-best-sci-fi-game-2010s/
+
+Valve's Portal 2 is arguably the best sci-fi video game of the 2010s, and it's a singular experience unlike anything else we've seen before or since.
+---------
+
+# Ultron Is Officially Back in Marvel’s First ‘VisionQuest’ Trailer
+
+TV News, VisionQuest, Paul Bettany, James Spader, MCU
+
+Sat, 15 Aug 2026 04:03:28 GMT
+
+https://collider.com/marvel-visionquest-trailer-release-date/
+
+Marvel released the first trailer for VisionQuest at D23, confirming the return of James Spader as Ultron in the new Disney+ series.
+---------
+
+# Ewan McGregor’s 6-Episode Sci-Fi Series Is the Most Underrated Space Opera of the Decade
+
+TV Features, Star Wars, Obi-Wan Kenobi, Ewan McGregor, Disney+
+
+Sat, 15 Aug 2026 04:03:14 GMT
+
+https://collider.com/ewan-mcgregor-obi-wan-kenobi-series-underrated-space-opera/
+
+Ewan McGregor's compelling return to Star Wars for Disney+'s Obi-Wan Kenobi helped deliver a must-watch miniseries.
+---------
+
+# 'Star Wars: Starfighter' Trailer Officially Reveals New Era for Franchise
+
+Movie News, Star Wars: Starfighter
+
+Sat, 15 Aug 2026 04:48:29 GMT
+
+https://movieweb.com/star-wars-starfighter-trailer-d23/
+
+Star Wars shared the first full look into the next movie from the galaxy far, far, away: Shawn Levy and Ryan Gosling's 'Star Wars: Starfighter.'
+---------
+
+# 'Vision Quest' Trailer Unleashes First Look at Ultron's Long-Awaited Return
+
+TV News, Vision Quest, Disney+
+
+Sat, 15 Aug 2026 04:15:32 GMT
+
+https://movieweb.com/vision-quest-trailer-disney-plus/
+
+Marvel and Disney released the first official trailer for 'Vision Quest,' including a look at James Spader's return as Ultron.
+---------
+
+# 'X-Men' Cast Officially Announced by Marvel Studios
+
+Movie News, X-Men
+
+Sat, 15 Aug 2026 04:13:29 GMT
+
+https://movieweb.com/x-men-cast-mcu-marvel-studios-d23/
+
+After years of casting rumors, Marvel Studios has officially revealed the cast of the upcoming ensemble.
+---------
+
+# 'Avengers: Doomsday' Trailer Unleashes Robert Downey Jr.'s Doctor Doom Magical Powers
+
+Movie News, Avengers: Doomsday
+
+Sat, 15 Aug 2026 04:10:36 GMT
+
+https://movieweb.com/avengers-doomsday-trailer-d23/
+
+'Avengers: Doomsday' just unleashed a brand-new trailer at D23.
+---------
+
 # 5 Free Steam Games Like Blade Runner
 
 Gaming, Blade Runner, Steam
