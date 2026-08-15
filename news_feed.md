@@ -1,3 +1,289 @@
+# Star Trek Actor Addresses Captain Kirk Spinoff Return & Reveals Where Strange New Worlds Ending Leaves Uhura
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 15 Aug 2026 00:37:56 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-celia-rose-gooding-uhura-ending-kirk-spinoff-return/
+
+Exclusive: Star Trek: Strange New Worlds star Celia Rose Gooding talks about Uhura's ending and if she'd return for a possible Year One spinoff.
+---------
+
+# Prime Video's Ballard Will Take A Darker Turn In Season 2
+
+Streaming TV, Ballard, Bosch
+
+Sat, 15 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/prime-video-ballard-season-2-darker-storyline/
+
+When Prime Video's Ballard returns for its second season, the story will take a darker turn by adapting Michael Connelly's bleakest Ballard book.
+---------
+
+# 6 Anime Heroes Much Stronger Than Jujutsu Kaisen’s Gojo
+
+Anime, Jujutsu Kaisen
+
+Sat, 15 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/anime-heroes-stronger-jujutsu-kaisen-gojo/
+
+Satoru Gojo is a powerhouse in his verse, but there are many anime heroes outside it who have him completely beaten in terms of pure strength.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (August 15-16)
+
+Movies, Prime Video, Recommendation
+
+Sat, 15 Aug 2026 00:18:57 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-august-15/
+
+The best movies on Prime Video this weekend are led by a Kurt Russell R-rated cult classic sci-fi thriller, with a recent horror, and a drama.
+---------
+
+# 13 Years Ago, The Greatest Needle Drop In TV History Concluded Breaking Bad
+
+Classic TV, Breaking Bad
+
+Sat, 15 Aug 2026 00:15:11 GMT
+
+https://screenrant.com/breaking-bad-needle-drop-greatest-tv-history/
+
+Just about 13 years ago, Breaking Bad dropped one of the most hard-hitting and memorable closing needle drop moments in the history of television.
+---------
+
+# 10 Twilight Zone Episodes That Have Aged Like Fine Wine
+
+Classic TV, The Twilight Zone
+
+Sat, 15 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/twilight-zone-episodes-aged-like-fine-wine/
+
+Some of the best episodes of The Twilight Zone have timeless themes and stories that have only gotten better with time and every rewatch.
+---------
+
+# 7 Marvel Heroes Stronger Than Thanos
+
+Comics, Marvel, Thanos
+
+Sat, 15 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/marvel-heroes-stronger-thanos/
+
+The Mad Titan is neither invincible nor unbeatable and has been defeated multiple times by multiple characters in Marvel Comics.
+---------
+
+# 5 Dragon Ball Characters Stronger Than Broly
+
+Anime, Dragon Ball, Akira Toriyama
+
+Sat, 15 Aug 2026 00:45:15 GMT
+
+https://www.cbr.com/dragon-ball-characters-stronger-than-broly/
+
+Broly, the Legendary Super Saiyan, possesses prolific power, yet there are still some deadly Dragon Ball characters who could beat him in battle!
+---------
+
+# Crunchyroll Reveals the 'Next Chapter' for Jujutsu Kaisen Is Coming on August 22
+
+Anime, Jujutsu Kaisen, Crunchyroll, Chainsaw Man, The Apothecary Diaries, merchandise
+
+Sat, 15 Aug 2026 00:35:14 GMT
+
+https://www.cbr.com/crunchyroll-jujutsu-kaisen-next-chapter/
+
+Crunchyroll just unveiled the 'next chapter' for Jujutsu Kaisen and two of the decade's other hottest anime, and it's making its debut soon.
+---------
+
+# The Game of Thrones Movie Will Reveal Balerion the Black Dread
+
+Movies, Game Of Thrones
+
+Sat, 15 Aug 2026 00:30:14 GMT
+
+https://www.cbr.com/game-of-thrones-aegon-conquest-movie-balerion-dragon/
+
+The latest Game of Thrones prequel is about to unleash the true power that built House Targaryen--and it's going to be epic.
+---------
+
+# It's Official, Amazon Is Saying Goodbye to Gaming
+
+Games, Gaming, Video Games, Amazon Games
+
+Sat, 15 Aug 2026 00:30:14 GMT
+
+https://www.cbr.com/amazon-officially-saying-goodbye-to-gaming/
+
+As a studio, Amazon has potential, but in the current gaming climate, the risks seem to far outweigh the rewards.
+---------
+
+# 7 Forgotten '90s Anime That Have Aged Like Milk
+
+Anime, Garzey's Wing, Ninja Resurrection
+
+Sat, 15 Aug 2026 00:15:14 GMT
+
+https://www.cbr.com/forgotten-90s-anime-aged-like-milk/
+
+The '90s were a groundbreaking decade for anime, but obscure titles like D-1 Devastator and Landlock stand as some of the medium's worst series.
+---------
+
+# Cult Horror Franchise's 'Stylish But Bleak' Reboot Finds Streaming Redemption 5 Years Later
+
+Movies, Wrong Turn, Horror, Prime Video
+
+Sat, 15 Aug 2026 00:01:14 GMT
+
+https://www.cbr.com/wrong-turn-reboot-horror-prime-video-success-august-2026/
+
+The reboot that won over critics but divided fans finds a new home.
+---------
+
+# Netflix’s The Last House Made 1 Huge Mistake
+
+Movies, The Last House, Netflix
+
+Sat, 15 Aug 2026 00:01:14 GMT
+
+https://www.cbr.com/netflix-the-last-house-creature-feature-mistake/
+
+The newest sci-fi thriller on Netflix had huge potential, but has been poorly received partly because of one major mistake.
+---------
+
+# M.A.S.K Officially Confirms Major Villain's Return
+
+Comics, M.A.S.K., Skybound Entertainment, skybound, image comics
+
+Sat, 15 Aug 2026 00:01:14 GMT
+
+https://www.cbr.com/mask-3-baron-karza-tease/
+
+The latest issue of M.A.S.K. just confirmed another franchise's big bad is making his way into the Energon Universe, and he's a serious problem.
+---------
+
+# 10 Greatest FPS Games of All Time, Offically Ranked
+
+Games, Video Games, Call of Duty, Nintendo, Halo
+
+Sat, 15 Aug 2026 00:01:14 GMT
+
+https://www.cbr.com/official-best-fps-games-of-all-time/
+
+The greatest FPS games ever made include classic titles like Metroid Prime and Halo.
+---------
+
+# 5 Greatest Hard Sci-Fi Anime of the 2000s, Ranked
+
+Anime, Ghost in the Shell: Stand Alone Complex, Planetes
+
+Fri, 14 Aug 2026 23:45:15 GMT
+
+https://www.cbr.com/best-hard-sci-fi-anime-2000s-ranked/
+
+The 2000s were packed with ambitious sci-fi anime. These five delivered the most compelling takes on scientific realism.
+---------
+
+# 6 Best Soft Sci-fi Movies Released Since 2000
+
+Movie, Science Fiction, Dune 2, Christopher Nolan, Inception
+
+Sat, 15 Aug 2026 00:45:15 GMT
+
+https://collider.com/best-soft-sci-fi-movies-since-2000-ranked/
+
+Inception, Children of Men, and Dune: Part Two are among the best soft sci-fi movies released since the year 2000.
+---------
+
+# 25 Upcoming Releases Everyone Should Be Excited About
+
+Movie, The Social Reckoning, The Dog Stars, Werwulf, Resident Evil
+
+Sat, 15 Aug 2026 00:44:14 GMT
+
+https://collider.com/upcoming-movie-releases-2026/
+
+The biggest movies still coming in 2026, including major sequels, franchise releases and must see films hitting theaters through December.
+---------
+
+# One of the Greatest Cult Shows of the 2010s Finally Arrives on Disney+
+
+TV Features, Nirvana the Band the Show, Neon, Disney+, Sitcom
+
+Sat, 15 Aug 2026 00:39:14 GMT
+
+https://collider.com/nirvanna-the-band-the-show-2010s-streaming-disney/
+
+Nirvanna the Band the Show is full of inventive humor and unique storytelling, making it a fantastic hidden gem that's now streaming on Disney+.
+---------
+
+# 10 Best Satires in Film History
+
+Movie, Comedy, Jojo Rabbit, Get Out, Network
+
+Sat, 15 Aug 2026 00:11:14 GMT
+
+https://collider.com/best-satire-movies-film-history/
+
+Bitingly hilarious movies like Get Out, Dr. Strangelove, and Young Frankenstein are among the best satire movies in cinema history.
+---------
+
+# 13 Most Shocking Deaths in 'House of the Dragon'
+
+TV, House of the Dragon, Game Of Thrones, HBO, Fantasy
+
+Sat, 15 Aug 2026 00:02:14 GMT
+
+https://collider.com/house-of-the-dragon-deaths-shocking-ranked/
+
+HBO's House of the Dragon features no shortage of bloodshed, and we highlight the most shocking deaths in the Game of Thrones prequel series.
+---------
+
+# Marvel Officially Reveals Apocalypse’s Fate After the ‘X-Men ’97’ Season 2 Finale [Exclusive]
+
+TV News, X-Men '97, Marvel Animation, Brad Winderbaum, Disney+
+
+Sat, 15 Aug 2026 00:01:14 GMT
+
+https://collider.com/x-men-97-season-3-apocalypse-future-marvel-brad-winderbaum-explains/
+
+Marvel boss Brad Winderbaum explains whether fans will see Apocalypse again after the events of the X-Men '97 Season 2 finale.
+---------
+
+# 48 Years Later, Beloved Cult-Classic Thriller Gets New Release
+
+Movie News, Magic, Blu-ray
+
+Sat, 15 Aug 2026 00:26:21 GMT
+
+https://movieweb.com/magic-movie-anthony-hopkins-4k-blu-ray/
+
+Anthony Hopkins' 'Magic' is getting a 4K Ultra HD Blu-ray upgrade in October.
+---------
+
+# James Cameron's $2 Billion Sci-Fi Action Epic Was Just Toppled by 2026's Breakout Sequel
+
+Movie News, Spider-Man: Brand New Day, Avatar: The Way of Water, Box Office Milestones, James Cameron
+
+Sat, 15 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-avatar-way-of-water-box-office/
+
+2026's billion-dollar hit just dethroned James Cameron's epic sequel.
+---------
+
+# J.J. Abrams and James Wan Join Netflix Supernatural Thriller 'Sid & Zoey'
+
+TV News, J.J. Abrams, James Wan, Netflix
+
+Fri, 14 Aug 2026 23:44:36 GMT
+
+https://movieweb.com/netflix-sid-and-zoey-jj-abrams-james-wan/
+
+'Lost' co-creator J.J. Abrams and 'Conjuring' creator James Wan will team up for Netflix's new gothic romance series 'Sid & Zoey.'
+---------
+
 # 52 Years Later, Stephen King's Iconic Debut Novel Is Getting The Update It Deserves
 
 Streaming TV, Masked Recs
