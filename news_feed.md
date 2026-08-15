@@ -1,3 +1,36 @@
+# Frozen 3's Royal Wedding Crashed & Villain Revealed In First Disney Sequel Footage
+
+Movies, Frozen III, D23
+
+Sat, 15 Aug 2026 05:04:23 GMT
+
+https://screenrant.com/frozen-3-logo-image-footage-disney/
+
+Frozen isn't letting it go just yet, as new details emerge for Frozen III ahead of its release, and fans are eagerly awaiting what's in store.
+---------
+
+# Game Of Thrones: Into The North Releases On August 23
+
+Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: War for Westeros, PC, House of the Dragon
+
+Sat, 15 Aug 2026 05:00:12 GMT
+
+https://screenrant.com/game-of-thrones-legends-into-the-north-august-23/
+
+Game of Thrones: Into the North is a limited-time event that sees the return of the franchise's most iconic villain, The Night King.
+---------
+
+# ‘Frozen 3’ Officially Reveals First Story Details as Elsa and Anna Begin Their Next Adventure
+
+Movie News, Frozen, Frozen II, Frozen III
+
+Sat, 15 Aug 2026 05:01:29 GMT
+
+https://collider.com/frozen-3-plot-details-elsa-anna-d23/
+
+Frozen 3 has officially revealed new story details at D23 as Elsa and Anna prepare to return for another adventure in 2027.
+---------
+
 # Amazon Developing The First Movie Adaptation For Squishmallows Franchise
 
 Movies
