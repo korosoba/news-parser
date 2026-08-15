@@ -1,3 +1,190 @@
+# Joel Kinnaman's New Series Coming Next Month Is Mindhunter Meets Zero Dark Thirty
+
+Streaming TV, Masked Recs
+
+Sat, 15 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/joel-kinnaman-high-value-target-mindhunter-meets-zero-dark-thirty/
+
+Joel Kinnaman is on top drama form as he takes on a different kind of action role from his previous in a new series based on an incredible true story
+---------
+
+# Disney's 2026 D23 Showcase: Every Announcement & Reveal [UPDATING LIVE]
+
+New Movies, D23, Disney
+
+Sat, 15 Aug 2026 02:00:19 GMT
+
+https://screenrant.com/disney-d23-2026-showcase-announcement-reveals/
+
+D23 2026 sees Lucasfilm, Marvel Studios, Pixar, and more assemble for a Disney showcase panel. Here's every announcement and reveal Disney made.
+---------
+
+# The Wait Is Almost Over With Train To Busan's Terrifying Successor Only 2 Weeks Away
+
+Movies, Train to Busan, Colony, Masked Recs
+
+Sat, 15 Aug 2026 01:30:11 GMT
+
+https://screenrant.com/colony-train-to-busan-successor-august-28/
+
+Following his breakout hit Train to Busan, director Yeon Sang-ho finally returns to claustrophobic survival horror this August 2026.
+---------
+
+# 6 Years Later, John Dutton's Best Line Is Still The Greatest Quote In Yellowstone History
+
+Classic TV, Yellowstone, Kevin Costner
+
+Sat, 15 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/john-dutton-best-quote-yellowstone/
+
+Kevin Costner had some great lines as John Dutton III in Yellowstone, but this quote remains the show's absolute best even after six years.
+---------
+
+# Every Announcement and Reveal at Disney Entertainment's D23 2026 Showcase (UPDATED LIVE)
+
+Movies, Disney, D23
+
+Sat, 15 Aug 2026 02:01:14 GMT
+
+https://www.cbr.com/every-disney-announcement-d23-entertainment-showcase-2026/
+
+Disney had plenty of exciting updates about its upcoming films and shows at the annual D23 fan event.
+---------
+
+# 5 Overpowered Anime Villains Stronger Than Sung Jinwoo
+
+Anime, Solo Leveling
+
+Sat, 15 Aug 2026 02:01:14 GMT
+
+https://www.cbr.com/anime-villains-stronger-sung-jinwoo/
+
+Solo Leveling's Sung Jinwoo may be strong, but he is no match for these five omnipotent anime villains.
+---------
+
+# 10 Greatest Psychological Thriller Books Of All Time, Ranked
+
+Movies, Thriller
+
+Sat, 15 Aug 2026 02:01:14 GMT
+
+https://www.cbr.com/best-psychological-thriller-books-ranked-list/
+
+These are the most grotesque and grim psychological thriller novels you will ever dare to read.
+---------
+
+# 5 Classic Adult Swim Anime That Aren't As Good As You Remember
+
+Anime, Adult Swim, Wolf's Rain, Trigun, Inuyasha, The Big O, Witch Hunter Robin
+
+Sat, 15 Aug 2026 01:45:15 GMT
+
+https://www.cbr.com/adult-swim-anime-not-as-good-as-you-remember/
+
+Adult Swim helped make these anime classics, but revisiting them reveals flaws that nostalgia made easier to overlook.
+---------
+
+# 5 Perfect GameCube Games No One Remembers
+
+Games, Video Games, Nintendo, Resident Evil
+
+Sat, 15 Aug 2026 01:26:14 GMT
+
+https://www.cbr.com/perfect-gamecube-games-no-one-remembers/
+
+The Nintendo GameCube is more fondly remembered now than ever, but there are still some perfect games for the system that don't get their due.
+---------
+
+# NBC's Forgotten Creature Feature Is a 2-Season Stealth Masterpiece for Horror Fans
+
+TV, Midnight, Texas, Horror, NBC
+
+Sat, 15 Aug 2026 01:00:15 GMT
+
+https://www.cbr.com/midnight-texas-underrated-horror-masterpiece/
+
+Midnight, Texas is an overlooked NBC supernatural series and one of television's best creature features of the last decade.
+---------
+
+# ‘Ahsoka’ Season 2 Officially Sets Disney+ Release Date
+
+TV News, Ahsoka, Disney Plus, Rosario Dawson, Star Wars
+
+Sat, 15 Aug 2026 01:47:01 GMT
+
+https://collider.com/ahsoka-season-2-release-date-january-2027-star-wars-disney-plus/
+
+Ahsoka Season 2 officially sets a release date for Rosario Dawson’s Star Wars series, over 3 years after Season 1 ended.
+---------
+
+# 'Reacher' Season 4 Is Officially Breaking Tradition for Prime Video's #1 Action Thriller
+
+TV Features, Reacher, Alan Ritchson, Prime Video, Action
+
+Sat, 15 Aug 2026 01:14:14 GMT
+
+https://collider.com/reacher-season-4-story-mystery-formula-change/
+
+Reacher Season 4 is breaking tradition for Prime Video's best action thriller by focusing on a case with no personal ties to its lead.
+---------
+
+# The 98% Rated 8-Part Crime Thriller Series That's Now Taken Over Disney+
+
+TV News, Furious, Disney+, Hot on Streaming
+
+Sat, 15 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/furious-disney-plus-stream-august-2026/
+
+One of the bleakest shows of 2026 is a breakout hit on streaming.
+---------
+
+# 6 Perfect HBO Shows That Get More Intense With Every Episode
+
+TV Lists, HBO Max
+
+Sat, 15 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/perfect-hbo-shows-intense/
+
+From intense crime dramas to war thrillers and historical miniseries, these HBO shows ramp up the tension and suspense as they go.
+---------
+
+# All 8 Episodes of 'House of the Dragon' Season 3, Ranked
+
+TV Lists, House of the Dragon, Game of Thrones
+
+Sat, 15 Aug 2026 01:30:12 GMT
+
+https://movieweb.com/house-of-the-dragon-season-3-episodes-ranked/
+
+Not every episode of 'House of the Dragon' Season 3 is equal, and the strongest of this outing benefit from the same strengths as 'Game of Thrones.'
+---------
+
+# 5 Weeks Later, Netflix's 8-Part Reboot of a Western Classic Is Still Dominating Streaming
+
+TV News, Little House on the Prairie, Netflix, Hot on Streaming
+
+Sat, 15 Aug 2026 01:00:12 GMT
+
+https://movieweb.com/little-house-prairie-netflix-biggest-stream-august-2026/
+
+This modern adaptation of the classic frontier saga is a great companion piece to the original.
+---------
+
+# Jason Segel & John C. Reilly's Mysterious New Movie Has Finished Filming
+
+Movie News, Jason Segel
+
+Sat, 15 Aug 2026 00:52:29 GMT
+
+https://movieweb.com/sponsor-movie-jason-segel-john-c-reilly-filming-complete/
+
+'Sponsor' is Apple's upcoming thriller with Jason Segel and John C. Reilly exploring recovery and manipulation.
+---------
+
 # Star Trek Actor Addresses Captain Kirk Spinoff Return & Reveals Where Strange New Worlds Ending Leaves Uhura
 
 TV, Star Trek, Star Trek: Strange New Worlds
