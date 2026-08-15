@@ -1,3 +1,124 @@
+# The Best Shark Movie Since Jaws Is Now Streaming On Netflix
+
+Movies, Masked Recs, The Shallows
+
+Sat, 15 Aug 2026 18:34:21 GMT
+
+https://screenrant.com/the-shallows-movie-streaming-netflix/
+
+One of the best shark thrillers of the last decade has arrived on Netflix, delivering intense survival drama and suspenseful action for Jaws fans.
+---------
+
+# Stephen King's 8-Part Sci-Fi Thriller On Netflix Breaks The Rules Of Time Travel
+
+Classic TV, Masked Recs, Stephen King
+
+Sat, 15 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/11-22-63-stephen-king-netflix-series-break-time-travel-rules/
+
+This adaptation of Stephen King’s sci-fi novel is a tense time slip drama where reset mechanics become emotional traps, and it's available on Netflix.
+---------
+
+# Gillian Anderson’s New R-Rated Horror Movie Debuts To Solid Rotten Tomatoes Audience Score
+
+Movies, Masked Recs
+
+Sat, 15 Aug 2026 18:27:01 GMT
+
+https://screenrant.com/teenage-sex-death-camp-miasma-gillian-anderson-rotten-tomatoes-audience-score/
+
+After becoming a science-fiction icon as Dana Scully in The X-Files, Gillian Anderson now has a new horror movie that's being well-received.
+---------
+
+# Only Murders in the Building Confirms Season 6 Breaks Long-Running Tradition
+
+TV, Only Murders in the Building
+
+Sat, 15 Aug 2026 18:51:23 GMT
+
+https://www.cbr.com/only-murders-in-the-building-confirms-season-6-retitle/
+
+The series will soon return with even more murders, and a major twist.
+---------
+
+# Bruce Campbell Breaks Down What's Wrong With Modern Evil Dead Movies
+
+Movies, Evil Dead
+
+Sat, 15 Aug 2026 18:23:32 GMT
+
+https://www.cbr.com/bruce-campbell-problem-evil-dead-movies/
+
+Bruce Campbell shares what the newer Evil Dead movies are missing that made the originals special.
+---------
+
+# 10 Heaviest Coming-of-Age Movies
+
+Movie, Stand by Me, The Last Picture Show, I Saw the TV Glow, Badlands
+
+Sat, 15 Aug 2026 18:53:14 GMT
+
+https://collider.com/heaviest-coming-of-age-movies-ranked/
+
+Some of the most heavy-going coming-of-age movies ever made include the likes of Stand by Me, Mysterious Skin, and The Last Picture Show.
+---------
+
+# ‘House of the Dragon’ Officially Proves George R.R. Martin’s Biggest Targaryen Quote Wrong
+
+TV Features, House of the Dragon, George R.R. Martin, Game Of Thrones, A Song of Ice and Fire
+
+Sat, 15 Aug 2026 18:38:14 GMT
+
+https://collider.com/house-of-the-dragon-season-3-george-rr-martin-targaryen-madness/
+
+House of the Dragon's Season 3 finale shows that the old adage about Targaryens and madness is not exactly true; the problem lies deeper than that.
+---------
+
+# This Sleeper Hit Thriller Is Now Officially a Prime Video Streaming Smash
+
+Movie Features, Primate, Horror, Paramount, Johannes Roberts
+
+Sat, 15 Aug 2026 18:28:14 GMT
+
+https://collider.com/primate-movie-streaming-prime-video-august-2026/
+
+The 2026 creature feature Primate, which was a modest success at the box office, is one of Prime Video's most-streamed films.
+---------
+
+# ‘1883’s Best Quote Is Still the Most Devastating Line in the Yellowstone Universe
+
+TV Features, 1883, Yellowstone, Isabel May, Taylor Sheridan
+
+Sat, 15 Aug 2026 18:27:14 GMT
+
+https://collider.com/1883-best-quote-isabel-may-yellowstone-universe/
+
+Elsa Dutton's most haunting words in 1883 reflect the Dutton family's biggest struggles in the Yellowstone universe.
+---------
+
+# 8 Actors Cast In Life-Changing Roles Who Were Replaced
+
+TV Lists
+
+Sat, 15 Aug 2026 18:45:12 GMT
+
+https://movieweb.com/actors-replaced-life-changing-roles/
+
+Actors on the cusp of career-defining moments, only to watch the opportunity slip between their fingers and into someone else's grasp.
+---------
+
+# The Hidden Gem Sci-Fi Series You'll Spend All Weekend Watching on Netflix
+
+Features, Resident Alien
+
+Sat, 15 Aug 2026 18:30:12 GMT
+
+https://movieweb.com/resident-alien-underrated-netflix-binge/
+
+Netflix has a sci-fi TV series that is underrated and so memorable that you'll binge watch it in one weekend.
+---------
+
 # Elden Ring: The Tree Sentinel Officially Unveiled
 
 Gaming, Elden Ring, Elden Ring: Tarnished Edition, Elden Ring: Shadow of the Erdtree, PC
