@@ -1,3 +1,168 @@
+# 9 Years Ago, Fox Killed Ghosted Before Canceling It For Good
+
+Network TV, Ghosted, FOX
+
+Sat, 15 Aug 2026 16:45:11 GMT
+
+https://screenrant.com/ghosted-fox-change-cancel-comedy-series/
+
+Fox retooled a fresh paranormal comedy led by Adam Scott and Craig Robinson on the fly, and the delayed episodes returned in a disrupted rollout.
+---------
+
+# DreamWorks' History-Making How To Train Your Dragon 2 Is Something Disney Can Never Do
+
+Movies, How To Train Your Dragon 2
+
+Sat, 15 Aug 2026 16:40:11 GMT
+
+https://screenrant.com/dreamworks-how-to-train-your-dragon-2-disney-live-action-sequels/
+
+The live-action version of How to Train Your Dragon is getting a sequel, and it is a painful lesson for Disney's slate of live-action remakes.
+---------
+
+# Brandon Sanderson's Stormlight: Heroes Of The Lost Desolation Officially Announced
+
+Gaming, Brandon Sanderson, PC, The Stormlight Archive, The Cosmere RPG, Mistborn
+
+Sat, 15 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/stormlight-heroes-of-the-lost-desolation-announcement/
+
+Brandon Sanderson's Stormlight returns with Heroes of the Lost Desolation, a brand-new adventure in his sprawling Cosmere universe.
+---------
+
+# Why Star Trek: Strange New Worlds Season 4 Episode 4’s Klingon Replacement Actor Looks So Familiar
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 15 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-episode-4-klingon-guest-star-delmore-barnes/
+
+Star Trek: Strange New Worlds reintroduces Commander Kor, the first Klingon seen in Star Trek. Here's the actor under Kor's Klingon prosthetics.
+---------
+
+# A24's Hereditary Star Marks First Movie In 8 Years With Shudder's New Horror Releasing This October
+
+Movies, Horror, Shudder
+
+Sat, 15 Aug 2026 16:28:53 GMT
+
+https://screenrant.com/hallowarrior-movie-shudder-release-date/
+
+The breakout star of A24's horror hit Hereditary is finally making their return to the genre in a new post-apocalyptic Halloween fright film.
+---------
+
+# DC Has Officially Crowned A New Era With Its Latest Green Lantern Cast Reveal
+
+Movies, DC Universe, Green Lantern
+
+Sat, 15 Aug 2026 16:20:11 GMT
+
+https://screenrant.com/dc-universe-green-lantern-mister-miracle-guy-gardner-cast-reveal/
+
+The exciting Green Lantern cast addition to one of the DC Universe's most intriguing upcoming releases cements a major change and new era for DC.
+---------
+
+# Kyle Chandler's Return To TV Is Finally Here
+
+Streaming TV, Kyle Chandler, Masked Recs
+
+Sat, 15 Aug 2026 16:15:11 GMT
+
+https://screenrant.com/kyle-chandler-lanterns-show-tv-return/
+
+Years after Friday Night Lights, Kyle Chandler is about to return to television with his role as Hal Jordan in HBO's new superhero show Lanterns.
+---------
+
+# New Bosch Star Confirms if Crime Franchise Is Required Viewing as Amazon Replaces Titus Welliver
+
+TV, Bosch, Bosch: Start of Watch
+
+Sat, 15 Aug 2026 16:46:19 GMT
+
+https://www.cbr.com/bosch-start-of-watch-required-viewing-cameron-monaghan/
+
+The hit police franchise keeps expanding.
+---------
+
+# Jeffrey Dean Morgan's New 8-Part Prime Video Show Gets Almost Everything Right
+
+TV, Sterling Point, jeffrey dean morgan, Prime Video, Mystery
+
+Sat, 15 Aug 2026 16:30:15 GMT
+
+https://www.cbr.com/prime-video-sterling-point-mystery-drama/
+
+Megan Park's new coming-of-age mystery drama on Prime Video is one of the greatest examples of its genre and includes some career-best performances.
+---------
+
+# 5 Movies to Watch If You Love The Searchers
+
+Movies, Western
+
+Sat, 15 Aug 2026 16:30:15 GMT
+
+https://www.cbr.com/must-watch-movies-for-fans-of-the-searchers-list/
+
+The Searchers is one of the greatest Westerns of all time, and there are plenty of other films people should watch if they love it.
+---------
+
+# 5 Attack on Titan Characters Who Deserved Better
+
+Anime, Attack On Titan
+
+Sat, 15 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/attack-on-titan-characters-who-deserved-better/
+
+Attack on Titan put its characters through hell, but these five deserved far better than the tragic fates they ultimately received.
+---------
+
+# 6 Best Tomb Raider Games, Ranked
+
+Gaming, Games, Rise of the Tomb Raider, Tomb Raider II, Lara Croft
+
+Sat, 15 Aug 2026 16:37:15 GMT
+
+https://collider.com/best-tomb-raider-games-ranked/
+
+From Shadow of the Tomb Raider to Tomb Raider II, these are Lara Croft’s finest adventures, ranked from great to legendary.
+---------
+
+# 6 Best Thriller TV Shows Released Since 2020
+
+TV, Thriller, The Last of Us, Paradise, Squid Game
+
+Sat, 15 Aug 2026 16:21:15 GMT
+
+https://collider.com/best-thriller-shows-since-2020-ranked/
+
+From Severance to Squid Game, these modern thrillers master suspense, mystery, and tension without wasting a single episode.
+---------
+
+# 10 Best Rom-Coms in Film History
+
+Movie, romantic comedies, Romance, Comedy, Some Like It Hot
+
+Sat, 15 Aug 2026 16:18:15 GMT
+
+https://collider.com/best-rom-coms-film-history/
+
+Hilarious and swoon-worthy movie classics like Some Like It Hot, When Harry Met Sally, and The Apartment are among the best rom-coms ever made.
+---------
+
+# One of the All-Time Best 'X-Men' Scenes Was Barely Filmed by the Movie's Director
+
+Movie News, X-Men
+
+Sat, 15 Aug 2026 16:30:12 GMT
+
+https://movieweb.com/x-men-days-of-future-past-quicksilver-scene/
+
+A lot of what we saw wasn't in the script.
+---------
+
 # 3 Years After Henry Cavill's Exit, The Witcher Finally Returns To Its Roots For Next Major Release
 
 Comics, The Witcher
