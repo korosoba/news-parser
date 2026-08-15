@@ -1,3 +1,146 @@
+# Kingdom Hearts 4 Release Window & Platforms Revealed
+
+Gaming, Kingdom Hearts 4, Kingdom Hearts, Triple-A Games, PC
+
+Sat, 15 Aug 2026 15:12:06 GMT
+
+https://screenrant.com/kingdom-hearts-4-release-window-platforms-announced/
+
+A new trailer for Kingdom Hearts 4 has a lot of fresh details, including when and where to expect the franchise's long-awaited next installment.
+---------
+
+# Spider-Man: Brand New Day Box Office Pulls Ahead Of Avengers: Endgame In Week 3
+
+Movies, Spider-Man: Brand New Day, Box Office, Marvel Cinematic Universe
+
+Sat, 15 Aug 2026 15:05:32 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-week-3-domestic-chart-report/
+
+During its neck-and-neck box office race with the MCU smash hit Avengers: Endgame, Spider-Man: Brand New Day pulls ahead with a week 3 record.
+---------
+
+# The Wrong Girls Interview with Kristen Stewart, Alia Shawkat & Dylan Meier
+
+Interviews, The Wrong Girls, Kristen Stewart, Alia Shawkat
+
+Sat, 15 Aug 2026 15:02:32 GMT
+
+https://screenrant.com/video/the-wrong-girls-kristen-stewart-alia-shawkat-dylan-meyer-interview/
+
+The Wrong Girls Interview director Dylan Meyer and stars Alia Shawkat & Kristen Stewart explain why the movie was in development so long and reveal what they would say to their pets if the latter could speak.
+---------
+
+# Ash Williams' Evil Dead Return Fate Officially Sealed By Bruce Campbell 4 Years After Revival Announcement
+
+Movies, Evil Dead, Bruce Campbell, Horror
+
+Sat, 15 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/ash-williams-evil-dead-return-fate-sealed-bruce-campbell/
+
+Exclusive: Bruce Campbell officially seals Ash Williams' Evil Dead return chances four years after initial plans for an animated revival series.
+---------
+
+# Netflix's New Psychological Thriller Is Like If Stephen King Wrote Yellowjackets
+
+Streaming TV, Masked Recs
+
+Sat, 15 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/netflix-the-body-series-stephen-king-yellowjackets/
+
+Netflix's upcoming psychological thriller series takes Yellowjackets' dark approach to teenage girlhood and gives it a Stephen King-esque twist.
+---------
+
+# The Expanse Officially Returns Spring 2027, 4 Years After The Finale
+
+Gaming, The Expanse, PC
+
+Sat, 15 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/expanse-osiris-reborn-game-adaptation-spring-2027/
+
+Four years after the finale aired, The Expanse fans are finally getting a brand-new project that looks utterly incredible, titled Osiris Reborn.
+---------
+
+# Pokémon's Official New Charizard Redesign Is Absolutely Beautiful
+
+Gaming, Pokemon
+
+Sat, 15 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/pokemon-charizard-redesign-30-years/
+
+Explore the latest Pokémon collaboration courtesy of some stunning plushies.
+---------
+
+# Tom Hardy's 10/10 Gangster Show Is Returning as 2026's Undisputed Crime TV Event
+
+TV, MobLand, Paramount Plus, Crime
+
+Sat, 15 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/paramount-mobland-season-2-tom-hardy-return/
+
+Despite rumors that its leading actor was fired, Paramount+'s gangster series, starring Tom Hardy and directed by Guy Ritchie, will dominate 2026.
+---------
+
+# 10 Best Anime to Watch Before Dragon Ball Super: Beerus
+
+Anime, Dragon Ball, Jujutsu Kaisen, Bleach
+
+Sat, 15 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/best-anime-to-watch-before-dragon-ball-super-beerus/
+
+Before Dragon Ball Super: Beerus hits streaming platforms, anime viewers can get themselves ready with these incredible action anime.
+---------
+
+# Jason Statham’s ‘Mad Max’ Replacement Is Officially Back on Streaming Charts
+
+Movie News, Jason Statham, Death Race, Mad Max, Action
+
+Sat, 15 Aug 2026 15:00:15 GMT
+
+https://collider.com/death-race-jason-statham-streaming-success-august-2026/
+
+Jason Statham’s Death Race surges up the streaming charts 18 years after the dystopian action thriller first hit theaters.
+---------
+
+# The 10 Best Dinosaur Movies That Aren't 'Jurassic Park'
+
+Features, The End of Oak Street
+
+Sat, 15 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/10-best-dinosaur-movies-not-jurassic-park/
+
+With David Robert Mitchell's 'The End of Oak Street' tearing through cinema screens, we examined some of the other best alternative dinosaur movies.
+---------
+
+# 'The Acolyte' Season 2 Was Unlike Anything 'Star Wars' Has Seen Before
+
+Interviews, The Acolyte, Dafne Keen, Star Wars, Sci-Fi
+
+Sat, 15 Aug 2026 15:00:00 GMT
+
+https://movieweb.com/dafne-keen-acolyte-season-2-plans/
+
+'Acolyte' star Dafne Keen tells MovieWeb that Season 2 was going to be "incredible."
+---------
+
+# The 5 Biggest Marvel Reveals From D23 2026
+
+Movie Lists, D23, Avengers: Doomsday, X-Men, VisionQuest, Marvel Cinematic Universe
+
+Sat, 15 Aug 2026 14:46:00 GMT
+
+https://movieweb.com/biggest-reveals-from-marvel-at-d23/
+
+Marvel is dishing out nostalgia with some massive, exciting reveals at Disney's big 2026 event.
+---------
+
 # Agatha Christie Meets The Parent Trap In The BBC's Bingeable 6-Part Detective Drama
 
 Streaming TV, Masked Recs
