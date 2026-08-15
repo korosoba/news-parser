@@ -1,3 +1,124 @@
+# All 9 Seasons Of Suits, Ranked
+
+Classic TV, Suits
+
+Sat, 15 Aug 2026 14:00:13 GMT
+
+https://screenrant.com/suits-seasons-ranked-worst-best/
+
+Suits is a memorable legal drama that has made a huge mark on TV and streaming, but some seasons and storylines were much better than others.
+---------
+
+# Bruce Campbell Is Back To Directing After 19 Years With Ernie & Emma, And He Doesn't Want To Go Back
+
+Movies, Ernie & Emma, Bruce Campbell
+
+Sat, 15 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/bruce-campbell-ernie-emma-directorial-return-lessons-future/
+
+Bruce Campbell talks his directorial return for Ernie & Emma, lessons learned from other filmmakers and why he now only wants to make his own stuff.
+---------
+
+# 10 Sitcoms With A Better Ensemble Cast Than Friends
+
+Classic TV, Friends
+
+Sat, 15 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/sitcoms-better-cast-than-friends/
+
+Friends is the gold standard for the sitcom ensemble, but there are some TV comedies with an even more stacked and well-developed cast of characters.
+---------
+
+# Terminator Meets Blade Runner In New Sci-Fi Detective Adventure
+
+Gaming, Terminator, Blade Runner, PC, Xbox Game Pass, Xbox
+
+Sat, 15 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/terminator-meets-blade-runner-artificial-detective/
+
+This new sci-fi adventure puts players in the detective's shoes in a neo-noir-style retro-futuristic world inspired by 1930s Art Deco design.
+---------
+
+# Marvel Television’s VisionQuest   Official Trailer
+
+TV, VisionQuest
+
+Sat, 15 Aug 2026 14:01:49 GMT
+
+https://www.cbr.com/video/visionquest-official-trailer/
+
+Marvel unveiled the VisionQuest official trailer at D23
+---------
+
+# Agatha Christie Meets Paddington in Hugh Jackman's 109 Minute Comedy Thriller
+
+Movies, The Sheep Detectives
+
+Sat, 15 Aug 2026 14:01:15 GMT
+
+https://www.cbr.com/hugh-jackman-sheep-detectives-combines-agatha-christie-paddington/
+
+Hugh Jackman's comedy manages to combine the mystery mechanics of an Agatha Christie novel with the warmth of a Paddington movie.
+---------
+
+# Transformers Officially Creates a Massive New Autobot Titan in Exclusive Release
+
+Anime, Transformers, merchandise, toys
+
+Sat, 15 Aug 2026 14:01:15 GMT
+
+https://www.cbr.com/transformers-powerplex-yolopark-toy-comic/
+
+The official Transformers store in the UK is set to receive its own exclusive model kit based on an original Autobot created by franchise legends.
+---------
+
+# Jennifer Morrison Officially Reveals 'Star Trek's Bonkers Fake Scene That Landed Her the Role Immediately [Exclusive]
+
+Movie News, Star Trek, J.J. Abrams, Chris Pine, Ladies Night
+
+Sat, 15 Aug 2026 14:00:15 GMT
+
+https://collider.com/star-trek-jennifer-morrison-audition-winona-kirk/
+
+Jennifer Morrison recalls the intense Star Trek audition that landed her the role of Winona Kirk before she had even made it back to her car.
+---------
+
+# Disney Unveils New Stitch Design For Live-Action 'Lilo & Stitch 2'
+
+Movie News, Lilo & Stitch 2
+
+Sat, 15 Aug 2026 14:01:39 GMT
+
+https://movieweb.com/lilo-stitch-2-new-stitch-design-d23/
+
+'Lilo & Stitch 2' has its first major reveal, with Disney debuting a new live-action Stitch during D23 2026.
+---------
+
+# Russell Crowe's Sadistic R-Rated Action Thriller Crashes Onto Streaming
+
+Movie News, Russell Crowe, Unhinged, Coming/Leaving Streaming, Action, Tubi
+
+Sat, 15 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/russell-crowe-unhinged-action-thriller-streaming-tubi-september-2026/
+
+Before he appears in the 'Highlander' reboot with Henry Cavill, Crowe's violent 2020 action thriller can now be seen for free.
+---------
+
+# Guy Ritchie's Two Best Crime Thrillers Return for September Streaming Showdown
+
+Features, The Gentlemen, MobLand, Guy Ritchie, Crime, Thriller, Paramount Plus, Netflix, Snatch
+
+Sat, 15 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/guy-ritchie-mobland-the-gentlemen-season-2-september/
+
+September 2026 will be a wild one, with Guy Ritchie's 'MobLand' and 'The Gentlemen' both returning for their respective second seasons.
+---------
+
 # 10 Movies To Watch If You Love Jurassic Park
 
 Movies, Jurassic Park
