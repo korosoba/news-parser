@@ -1,3 +1,146 @@
+# 10 Greatest Far Side Comics With No Words
+
+Comics, The Far Side
+
+Sat, 15 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/greatest-far-side-comics-no-words/
+
+We need your vote to decide #1!
+---------
+
+# Apple TV's Neuromancer Needs At Least 2 Extra Seasons
+
+Streaming TV, Neuromancer
+
+Sat, 15 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/neuromancer-apple-tv-need-3-seasons/
+
+Apple TV's upcoming cyberpunk TV show could be the best in the genre since Altered Carbon, and it is so exciting that we already want more of it.
+---------
+
+# 5 Anime Heroes Who Would Absolutely Crush Solo Leveling’s Sung Jinwoo In A Fight
+
+Anime
+
+Sat, 15 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/anime-heroes-beat-solo-leveling-sung-jinwoo/
+
+Sung Jinwoo is definitely the strongest Hunter in Solo Leveling, but anime is home to a few other powerhouses that would decimate him one-on-one.
+---------
+
+# 10 Biggest Missing MCU Heroes Who Must Surely Be In Avengers: Doomsday, Ranked By Power
+
+Movies, Avengers: Doomsday
+
+Sat, 15 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/avengers-doomsday-missing-mcu-characters-actors-ranked-power/
+
+Avengers: Doomsday has a massive cast of Marvel heroes, but some of the most powerful MCU characters have surprisingly yet to be announced.
+---------
+
+# 5 PlayStation 3 Games That Have Aged Beautifully
+
+Gaming, PlayStation 3, Portal 2, BioShock Infinite, Batman: Arkham City, Red Dead Redemption, Grand Theft Auto 5
+
+Sat, 15 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/playstation-ps3-games-aged-beautifully/
+
+The PlayStation 3 had a lot of great games for its time, but only a few of those games have actually managed to age well over the past 15+ years.
+---------
+
+# The End Of Oak Street's Original Darker Ending Revealed By Star Ewan McGregor
+
+Movies, The End of Oak Street
+
+Sat, 15 Aug 2026 22:53:06 GMT
+
+https://screenrant.com/the-end-of-oak-street-original-ending-ewan-mcgregor/
+
+Ewan McGregor revealed that the new science fiction thriller, The End of Oak Street, originally had a much darker ending for its characters.
+---------
+
+# Robert Duvall's Star-Studded 4-Part Western Is A Forgotten Masterpiece
+
+Classic TV, Masked Recs
+
+Sat, 15 Aug 2026 22:45:11 GMT
+
+https://screenrant.com/robert-duvall-lonesome-dove-cbs-western-forgotten-masterpiece/
+
+Not all Western TV shows have aged well, but Robert Duvall's star-packed classic is still a Western TV masterpiece that holds up today.
+---------
+
+# CBS' Classic 14-Season Neo-Western That Made Landman Look Tame Returns as a PVOD Sensation
+
+TV, Dallas
+
+Sat, 15 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/cbs-dallas-pvod-success-august-2026/
+
+One of the biggest, most glamorous television dramas of all time is officially lighting up the premium video-on-demand charts.
+---------
+
+# This Aslan Quote Is the Best in The Chronicles of Narnia
+
+Movies, The Chronicles of Narnia, The Chronicles of Narnia: The Lion, the Witch and the Wardrobe, Fantasy
+
+Sat, 15 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/chronicles-of-narnia-aslan-quote-best-in-fantasy-history/
+
+Disney's live-action adaptation of The Chronicles of Narnia: The Lion, the Witch and the Wardrobe included one of the genre's best lines of dialogue.
+---------
+
+# Every Christopher Nolan Batman Movie, Ranked
+
+Movie, The Dark Knight, Christopher Nolan, Batman Begins, The Dark Knight Rises
+
+Sat, 15 Aug 2026 23:12:14 GMT
+
+https://collider.com/christopher-nolan-batman-movies-ranked/
+
+From Batman Begins to The Dark Knight Rises, we've definitively ranked every Christopher Nolan Batman movie from worst to best.
+---------
+
+# Jon Bernthal’s Brutal WWII Epic Officially Finds a New Generation on Streaming
+
+Movie News, Jon Bernthal, Brad Pitt, World War II, Fury
+
+Sat, 15 Aug 2026 23:00:14 GMT
+
+https://collider.com/jon-bernthal-brad-pitt-ww2-movie-fury-streaming-digital-august-2026/
+
+Jon Bernthal and Brad Pitt’s acclaimed WWII epic Fury remains one of the most visceral modern war movies more than a decade later.
+---------
+
+# 5 Fantasy Books More Influential Than The Lord of the Rings
+
+Books and Comics, Fantasy, Books, The Lord of the Rings, J.R.R. Tolkien
+
+Sat, 15 Aug 2026 22:51:14 GMT
+
+https://collider.com/fantasy-books-more-influential-than-the-lord-of-the-rings/
+
+From Alice’s Adventures in Wonderland to One Thousand and One Nights, these fantasy books shaped storytelling beyond Middle-earth.
+---------
+
+# Christopher Nolan's Trojan Horse Change Creates a Glaring Odyssey Plot Hole
+
+Features, The Odyssey, Christopher Nolan
+
+Sat, 15 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/the-odyssey-trojan-horse-plothole/
+
+Christopher Nolan takes the audience into the belly of the infamous Trojan Horse in 'The Odyssey', but that sequence opens up a significant plot hole.
+---------
+
 # Avatar Aang: The Last Airbender Finally Told The Original Show's One Missing Story
 
 Streaming TV, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
