@@ -1,3 +1,25 @@
+# Red Dead Redemption 2 Free August 2026 DLC Officially Available Now
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2
+
+Sat, 15 Aug 2026 10:30:11 GMT
+
+https://screenrant.com/red-dead-redemption-2-free-august-2026-dlc-online/
+
+Red Dead Redemption 2 is still going strong thanks to diligent maintenance of the game's multiplayer modes.
+---------
+
+# Guy Ritchie’s Netflix Crime Thriller Officially Returns in 1 Month
+
+TV News, The Gentlemen, Guy Ritchie, Netflix, Theo James
+
+Sat, 15 Aug 2026 10:30:14 GMT
+
+https://collider.com/guy-ritchie-netflix-crime-thriller-the-gentlemen-season-2-release-date-september-2026/
+
+Guy Ritchie's binge-worthy Netflix crime saga starring Theo James officially returns for Season 2 in less than one month.
+---------
+
 # Animal Crossing: Happy Room 2 Officially Arrives November 2026
 
 Gaming, Animal Crossing, Animal Crossing New Horizons
