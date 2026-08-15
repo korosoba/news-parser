@@ -1,3 +1,25 @@
+# Star Trek Is Officially Doing the 1 Thing Paramount+ Failed to Do
+
+Books and Comics, Star Trek, Star Trek: Picard, Terry Matalas, Comics
+
+Sat, 15 Aug 2026 08:15:14 GMT
+
+https://collider.com/star-trek-legacy-comic-fixing-paramount-plus-mistake/
+
+'Star Trek' arrives in comic shops next month.
+---------
+
+# Mark Wahlberg's Gritty Crime Thriller Is Officially a Netflix Hit
+
+Movie News, Contraband, Mark Wahlberg, Action, Crime
+
+Sat, 15 Aug 2026 08:00:14 GMT
+
+https://collider.com/mark-wahlberg-crime-thriller-contraband-streaming-success-netflix-august-2026/
+
+Mark Wahlberg headlines Contraband, the underrated crime thriller that’s quietly becoming one of streaming’s biggest sleeper hits.
+---------
+
 # Every Actor Cast In The MCU's New X-Men Movie (So Far)
 
 Superheroes, Marvel's X-Men, Marvel Cinematic Universe
