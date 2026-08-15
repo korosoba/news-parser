@@ -1,3 +1,168 @@
+# Batman Just Gave Fans The Best Supervillain Introduction Since Galactus
+
+DC Comics, Batman
+
+Sat, 15 Aug 2026 20:04:18 GMT
+
+https://screenrant.com/batman-clayface-introduction-best-snyder/
+
+DC's redesign of an iconic Batman villain is arguably the best the character has ever looked, and their debut is nothing short of exceptional.
+---------
+
+# This Spider-Man Villain Team Is Closer To An MCU Debut Than The Sinister Six
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 15 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/spider-man-mcu-sinister-syndicate-setup-future-villains/
+
+After Spider-Man: Brand New Day, this 1980s supervillain team looks like it's one step closer to a live-action debut in the MCU.
+---------
+
+# The Game Of Thrones RPG Nobody Remembers Is Actually Kind Of Awesome
+
+Gaming, Game of Thrones, Triple-A Games
+
+Sat, 15 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/game-of-thrones-rpg-nobody-remembers/
+
+What is dead may never die, and that includes Game of Thrones, which got an RPG that nobody actually remembers, and is worth playing.
+---------
+
+# Reacher Meets Max Payne In Brutal New Shooter You Can Play Free Now
+
+Gaming, Steam, PC, Max Payne, Reacher
+
+Sat, 15 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/reacher-meets-max-payne-new-free-demo/
+
+Reacher fans looking for a brutal Max Payne experience can play this intense new retro shooter for free on Steam right now.
+---------
+
+# 5 Fantasy Books With Better Magic Systems Than Lord of the Rings
+
+Movies, The Lord of the Rings, Fantasy
+
+Sat, 15 Aug 2026 20:01:14 GMT
+
+https://www.cbr.com/fantasy-books-better-magic-than-lord-of-the-rings-list/
+
+The Lord of the Rings shaped modern fantasy, but the genre has continued exploring magic through countless unique systems and traditions.
+---------
+
+# Nightwing Has Officially Become DC’s Best Hero
+
+Comics, Nightwing, Titans, DC Comics, Batman
+
+Sat, 15 Aug 2026 20:01:14 GMT
+
+https://www.cbr.com/nightwing-dc-best-hero-confirmed/
+
+The one-time sidekick, Nightwing, has emerged over the decades as one of the brightest stars in the DC pantheon of heroes.
+---------
+
+# Frieren Officially Returns With Himmel, Heiter and Eisen for a New Mission on September 10
+
+Anime, Frieren: Beyond Journey's End, Crunchyroll
+
+Sat, 15 Aug 2026 20:01:14 GMT
+
+https://www.cbr.com/frieren-real-escape-game-collaboration-event/
+
+Frieren and her old party are returning next month to save a village being controlled by demons -- with a unique twist.
+---------
+
+# Every Batman Movie of the '80s and '90s, Ranked
+
+Movie, Batman, Batman Returns, Batman: Mask of the Phantasm, Batman & Robin
+
+Sat, 15 Aug 2026 20:11:14 GMT
+
+https://collider.com/batman-movies-80s-90s-ranked/
+
+From Tim Burton's blockbuster duology to the animated Mask of the Phantasm, we've definitively ranked every Batman movie of the '80s and '90s.
+---------
+
+# The Most Unsettling ‘SNL UK’ Sketch Is Even Funnier Once You Know the Real Story Behind It
+
+TV Features, Saturday Night Live UK, Saturday Night Live, Comedy, Series
+
+Sat, 15 Aug 2026 20:06:14 GMT
+
+https://collider.com/snl-uk-british-pork-sketch-original-commercial-meaning/
+
+The real 1984 British Pork commercial makes SNL UK’s unsettling sketch starring George Fouracres even funnier.
+---------
+
+# Michael B. Jordan’s Knockout Trilogy Is Officially Fighting Its Way Off Netflix
+
+Movie News, Creed III, Michael B. Jordan, Netflix, Creed II
+
+Sat, 15 Aug 2026 20:01:14 GMT
+
+https://collider.com/michael-b-jordan-creed-movies-leaving-netflix-august-31-last-day-to-watch/
+
+All three of Michael B. Jordan's Creed movies are being removed from Netflix at the end of this month before Creed 4 hits theaters.
+---------
+
+# Disney+ Version Of 24-Year-Old Fantasy Video Game Officially Announced
+
+TV News, kingdom hearts, Disney+
+
+Sat, 15 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/disney-plus-kingdom-hearts-tv-show/
+
+Disney is finally bringing its beloved action-adventure game franchise to television.
+---------
+
+# 7 Spider-Man Arcs Marvel Needs To Adapt After 'Brand New Day'
+
+Movie Lists, Spider-Man: Brand New Day, Spider-Man
+
+Sat, 15 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/spider-man-5-stories-after-brand-new-day/
+
+From iconic villains to large-scale team-ups, these are the stories we would like to see in 'Spider-Man 5.'
+---------
+
+# Brad Pitt's Forgotten Action Thriller Is Making a Comeback on Streaming
+
+Movie News, Wolfs, Apple TV, Hot on Streaming, Action
+
+Sat, 15 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/wolfs-action-streaming-success-apple-august-2026/
+
+Brad Pitt's forgotten 2024 action thriller is finally getting the attention it deserves.
+---------
+
+# Future of DC's 'Lanterns' Revealed as First Season 1 Reviews Land Online
+
+TV News, Lanterns, HBO Max
+
+Sat, 15 Aug 2026 19:46:19 GMT
+
+https://movieweb.com/lanterns-renewed-season-2/
+
+DC Studios made its decision on whether to continue the story coming in 'Lanterns' ahead of its debut on HBO Max.
+---------
+
+# 'The End of Oak Street's Fascinating Time Travel Rules, Explained
+
+Features, The End of Oak Street
+
+Sat, 15 Aug 2026 19:45:13 GMT
+
+https://movieweb.com/the-end-of-oak-street-time-travel-rules/
+
+Time travel rules can vary from movie to movie, and 'The End of Oak Street' is no exception. Read on for more.
+---------
+
 # HBO Has Finally Found The True Successor To Succession
 
 TV, Masked Recs
