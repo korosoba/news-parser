@@ -1,3 +1,47 @@
+# Love, Death & Robots Meets Inception In Huge New RPG
+
+Gaming, Love, Death & Robots, Inception, Control Resonant
+
+Sat, 15 Aug 2026 11:00:12 GMT
+
+https://screenrant.com/love-death-robots-meets-inception-control-resonant/
+
+Discover what to expect from Control Resonant, the sequel to the hit game set in a warped Manhattan.
+---------
+
+# 20 Hilarious The Far Side Comics About Historical Events, Ranked
+
+CBR Exclusives, The Far Side
+
+Sat, 15 Aug 2026 11:00:15 GMT
+
+https://www.cbr.com/best-historical-far-side-comics-ranked/
+
+Creator Gary Larson often used historical humor in his classic Far Side cartoons, occasionally lampooning known events with humorous observations.
+---------
+
+# Netflix Is Officially Removing Denzel Washington’s Forgotten Supernatural Crime Thriller
+
+Movie News, Denzel Washington, Fallen, Se7en, Netflix
+
+Sat, 15 Aug 2026 11:00:15 GMT
+
+https://collider.com/denzel-washington-horror-fallen-leaving-netflix-september-2026/
+
+The oldest in a trio of movies Denzel Washington starred in that were modelled on David Fincher's Se7en is about to be removed from Netflix.
+---------
+
+# 10 Most Watched Netflix Shows of 2026 So Far
+
+TV, Netflix, Stranger Things, Bridgerton, His & Hers
+
+Sat, 15 Aug 2026 10:52:14 GMT
+
+https://collider.com/netflix-most-watched-shows-2026-so-far-hours-watched-ranked/
+
+From the Harlan Coben miniseries I Will Find You to the final season of Stranger Things, which show is the most watched Netflix series of 2026 so far?
+---------
+
 # Red Dead Redemption 2 Free August 2026 DLC Officially Available Now
 
 Gaming, Red Dead Redemption, Red Dead Redemption 2
