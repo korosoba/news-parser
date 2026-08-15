@@ -1,3 +1,135 @@
+# Marvel's VisionQuest Trailer Sparks Frustration Over 1 Comic Inaccuracy For New Character
+
+TV, VisionQuest, Marvel Cinematic Universe
+
+Sat, 15 Aug 2026 19:13:16 GMT
+
+https://screenrant.com/visionquestion-trailer-tommy-white-hair-missing-reaction/
+
+Marvel fans are taking to social media to share their frustration at one key character design decision showed off in the new trailer for VisionQuest.
+---------
+
+# Game of Thrones Meets Lord of the Rings In The 12-Part Dark Fantasy Epic That's Aging Perfectly
+
+Comics, Masked Recs, The Last God
+
+Sat, 15 Aug 2026 19:08:47 GMT
+
+https://screenrant.com/the-last-god-game-of-thrones-meets-lord-rings/
+
+DC's Black Label quietly delivered a 12-issue dark fantasy masterpiece that perfectly combines political betrayals with a classic fellowship quest.
+---------
+
+# Harry Potter Controversy Rallies Fans To Protect Dobby's Gravesite From Multimillion Undersea Project
+
+Movies, Harry Potter
+
+Sat, 15 Aug 2026 19:02:03 GMT
+
+https://screenrant.com/harry-potter-dobby-gravesite-cable-controversy/
+
+Harry Potter fans successfully protected Dobby's gravesite after a £430 million undersea cable project threatened the beloved location.
+---------
+
+# Resident Evil: Can Survival Horror Save the Movies?
+
+Movies, Originals, Resident Evil
+
+Sat, 15 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/video/resident-evil-can-survival-horror-save-the-movies/
+
+Resident Evil: The Real Reason This Reboot Could Work. Zach Cregger’s new Resident Evil movie isn’t giving fans the faithful video game adaptation many expected, but its controversial approach could finally crack the franchise’s biggest cinematic problem.
+---------
+
+# Netflix's 12-Episode Historical Fantasy Series Deserves Its 95% Score On Rotten Tomatoes
+
+TV, Masked Recs
+
+Sat, 15 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/bon-appetit-your-majesty-deserves-rotten-tomatoes-score/
+
+Netflix's playful mashup of Outlander's fantasy time travel romance and The Bear level kitchen chaos delivers sumptuous visuals, humor, and heart.
+---------
+
+# Back To The Future Is Officially Returning
+
+Gaming, Back to the Future
+
+Sat, 15 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/back-to-the-future-stuntman-hollywood/
+
+Discover how Back to the Future inspires the Stuntman: Hollywood game with iconic scenes and stunts from the film.
+---------
+
+# 5 Jedi Stronger Than Luke Skywalker, Ranked
+
+Movies, Star Wars
+
+Sat, 15 Aug 2026 19:15:15 GMT
+
+https://www.cbr.com/jedi-more-powerful-than-luke-skywalker-list/
+
+Luke Skywalker is the most famous Jedi in Star Wars, but there are still some others who outrank him in power.
+---------
+
+# 5 Cowboy Bebop Episodes That Hit Harder as an Adult
+
+Anime, Cowboy Bebop
+
+Sat, 15 Aug 2026 19:15:15 GMT
+
+https://www.cbr.com/cowboy-bebop-episodes-hit-harder-as-an-adult/
+
+Cowboy Bebop is an evergreen anime triumph, but there are certain episodes that resonate more strongly when they're viewed as an adult.
+---------
+
+# Netflix's Trending Western Celebrates Major Streaming Success Despite Divisive Reviews
+
+TV, Ransom Canyon
+
+Sat, 15 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/ransom-canyon-netflix-streaming-milestone-us-august-2026/
+
+Netflix's divisive Yellowstone replacement series is making major waves on the streaming charts, even if the critics can't stand it.
+---------
+
+# Master and Commander Has the Greatest Quote In War Movie History
+
+Movies, War, Master and Commander: The Far Side of the World, Russell Crowe
+
+Sat, 15 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/russell-crowe-master-commander-best-quote-war-movie-history/
+
+23 years ago, Russell Crowe delivered one of the smartest quotes in war movie history, and it's from the most essential epic of the decade.
+---------
+
+# Forget 'Obsession,' the Best Horror Movie of 2026 Is Officially Crushing the Competition on HBO Max
+
+Movie News, HBO Max, 28 Years Later: The Bone Temple, Streaming, Ralph Fiennes
+
+Sat, 15 Aug 2026 19:00:14 GMT
+
+https://collider.com/ralph-fiennes-28-years-later-the-bone-temple-streaming-success-hbo-max-august-2026/
+
+The sequel to 28 Years Later, The Bone Temple is scaring the competition and rising up the charts on streaming. Find out more here.
+---------
+
+# A Once-Banned Horror Masterpiece Gets New Release Dubbed a "Holy Grail"
+
+Features, The Devils, Horror
+
+Sat, 15 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/ken-russell-the-devils-4k-restoration/
+
+Buried and then censored, this controversial 1970s film is finally getting the proper release it deserves in a 4k theatrical restoration.
+---------
+
 # The Best Shark Movie Since Jaws Is Now Streaming On Netflix
 
 Movies, Masked Recs, The Shallows
