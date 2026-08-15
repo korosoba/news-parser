@@ -1,3 +1,102 @@
+# The Odyssey Box Office Hits Rare Box Office Milestone That Only 1 Other Nolan Movie Has Reached
+
+Movies, Box Office Milestone, The Odyssey
+
+Sat, 15 Aug 2026 15:34:41 GMT
+
+https://screenrant.com/the-odyssey-2026-box-office-500-million-domestic-milestone/
+
+As The Odyssey closes out its first month, it hits a major box office milestone so rare that only one other Christopher Nolan movie has crossed it.
+---------
+
+# Terminator Returns To Its Horror Roots In The Best Sequel Since Judgment Day
+
+Classic TV, Terminator Zero
+
+Sat, 15 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/terminator-zero-horror-roots-franchise-judgment-day/
+
+The Terminator was a horror movie that became an action movie franchise, but this entry in the Terminator universe returns the series to its roots.
+---------
+
+# 22 Years Later, Half-Life 2 Has One Of Gaming's Most Villainous Quotes
+
+Gaming, Half-Life 2, Half-Life, PC, Valve
+
+Sat, 15 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/half-life-2-greatest-quote/
+
+Half-Life 2 is packed with quotable moments, but this sinister line is one of gaming's most iconic moments of all time.
+---------
+
+# 2026 Is In A Secret $4.8 Billion Box Office Battle With 2025
+
+Movies, Box Office
+
+Sat, 15 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/2026-2025-4-billion-box-office-battle-animated-movies/
+
+2026's box office roster has some fierce competition to come up against from the prior year of cinema, including one impressive $4.8 billion record.
+---------
+
+# Nimrods Interview with Green Day's Billie Joe Armstrong, Tré Cool & Mike Dirnt
+
+Movies, Nimrods, Green Day
+
+Sat, 15 Aug 2026 15:18:48 GMT
+
+https://screenrant.com/video/nimrods-green-day-billie-joe-armstrong-tre-cool-mike-dirnt-interview/
+
+Green Day's Billie Joe Armstrong, Mike Dirnt, and Tré Cool explain how their new movie Nimrods mixes fact with fiction for a music-filled spectacular.
+---------
+
+# 10 Greatest Anime Movies of the Last 25 Years, Ranked
+
+Anime, Studio Ghibli, Your Name
+
+Sat, 15 Aug 2026 15:15:15 GMT
+
+https://www.cbr.com/official-greatest-anime-movies-21st-century/
+
+From Ponyo to Your Name, the 21st century has produced some of the greatest anime movies of all time.
+---------
+
+# Anya Taylor-Joy’s Luck Refuses to Run Out on the Streaming Charts
+
+TV News, Anya Taylor-Joy, Lucky, Apple TV, The Super Mario Galaxy Movie
+
+Sat, 15 Aug 2026 15:30:15 GMT
+
+https://collider.com/lucky-anya-taylor-joy-apple-tv-streaming-success-august-2026/
+
+Anya Taylor-Joy’s Lucky remains a major Apple TV streaming hit as the 7-part crime thriller holds strong on global charts.
+---------
+
+# 31 Years Later, This ‘Calvin and Hobbes’ Quote Is Still a 10/10 Take on Life
+
+Books and Comics, Peanuts
+
+Sat, 15 Aug 2026 15:29:15 GMT
+
+https://collider.com/calvin-and-hobbes-31-years-later-best-quote-meaning/
+
+A single Calvin and Hobbes strip offers one of the best outlooks on life, and the comic's lasting impact.
+---------
+
+# Netflix Reversed a Renewal for This 10/10 Drama, but It’s Still a Perfect Weekend Binge
+
+TV Features, GLOW, Netflix, Alison Brie, Betty Gilpin
+
+Sat, 15 Aug 2026 15:23:14 GMT
+
+https://collider.com/netflix-glow-series-perfect-weekend-binge/
+
+GLOW might have ended too soon, but it's still one of the best weekend binges on Netflix.
+---------
+
 # Kingdom Hearts 4 Release Window & Platforms Revealed
 
 Gaming, Kingdom Hearts 4, Kingdom Hearts, Triple-A Games, PC
