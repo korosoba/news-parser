@@ -1,3 +1,58 @@
+# Avengers: Doomsday D23 Trailer Breakdown: 7 Biggest Reveals And Exciting Moments
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe, D23
+
+Sat, 15 Aug 2026 09:33:46 GMT
+
+https://screenrant.com/avengers-doomsday-d23-trailer-breakdown-biggest-reveals-exciting-moments/
+
+Marvel Studios just released a brand-new trailer for Avengers: Doomsday at D23, featuring major reveals about Robert Downey Jr.'s Doctor Doom and more
+---------
+
+# Pokémon Legends: Z-A Free August 2026 DLC Confirmed
+
+Gaming, Pokemon Legends Z-A, Pokemon
+
+Sat, 15 Aug 2026 09:30:11 GMT
+
+https://screenrant.com/pokemon-legends-za-season-15-free-rewards/
+
+Pokémon Legends: Z-A is still going strong, and August is bringing a whole new batch of rewards for players who put the time in.
+---------
+
+# Clint Eastwood's Final Crime Thriller Is a Must-Watch for 'Lincoln Lawyer' Fans
+
+Movie News, Juror #2, HBO Max, Clint Eastwood, The Lincoln Lawyer
+
+Sat, 15 Aug 2026 09:40:14 GMT
+
+https://collider.com/clint-eastwood-juror-number-2-streaming-success-hbo-max-august-2026/
+
+Clint Eastwood's final movie with shades of The Lincoln Lawyer and A Few Good Men is officially streaming on HBO Max for all subscribers.
+---------
+
+# Netflix Officially Says Goodbye to the Ultimate Horror Cult Classic Ahead of the Sequel
+
+Movie News, Jennifer's Body, Megan Fox, Amanda Seyfried, Netflix
+
+Sat, 15 Aug 2026 09:20:14 GMT
+
+https://collider.com/megan-fox-horror-jennifers-body-leaving-netflix-september-2026/
+
+A cult classic horror comedy that impressed Roger Ebert in 2009 is about to be removed from Netflix. Find out when.
+---------
+
+# The 10 Best Horror Books of All Time, Ranked
+
+TV, Horror, Stephen King, Dracula, The Haunting of Hill House
+
+Sat, 15 Aug 2026 09:18:14 GMT
+
+https://collider.com/best-horror-books-all-time-ranked/
+
+Explore the best horror books ever written that continue to shape the genre's legacy, from The Haunting of Hill House to Dracula.
+---------
+
 # 3 10/10 PlayStation 2 Games Turning 20 This Year
 
 Gaming, PlayStation 2, Bully, Final Fantasy
