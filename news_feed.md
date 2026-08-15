@@ -1,3 +1,179 @@
+# Dune 3 Is Officially Releasing Early Ahead Of Avengers: Doomsday Clash, But There's A Catch
+
+Movies, Dune: Part Three, Dune
+
+Sat, 15 Aug 2026 12:10:11 GMT
+
+https://screenrant.com/dune-3-early-release-date-imax-insider-screenings/
+
+Ahead of the clash with Avengers: Doomsday, Dune: Part Three is officially releasing early, with the next wave of tickets ready to drop.
+---------
+
+# After 141 Episodes, John Nolan's Best Line From The Rookie Is Still The Show's Best
+
+Network TV, The Rookie
+
+Sat, 15 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/the-rookie-john-nolan-best-quote/
+
+John Nolan's iconic quote from The Rookie's first season may be an old line, but it highlights the show's themes of good vs. evil and idealism.
+---------
+
+# Gundam: Silent Barrage Officially Arrives September 2026
+
+Gaming, Gundam, PC
+
+Sat, 15 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/gundam-silent-barrage-september-2026/
+
+Finally, after a long wait, Gundam is back with a brand-new project that is set to officially launch in September 2026.
+---------
+
+# Wolverine Game Confirms 5 Essential Pieces of Backstory Ahead of Launch
+
+Comics, Marvel's Wolverine
+
+Sat, 15 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/wolverine-game-lore-backstory/
+
+Playstation's upcoming exclusive Marvel's Wolverine game has confirmed five important pieces of backstory for Logan and the game ahead of release.
+---------
+
+# Robert De Niro & The Russo Brothers Are Teaming Up For August Thriller The Whisper Man
+
+Movies, The Whisper Man, Netflix
+
+Sat, 15 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/the-whisper-man-robert-de-niro-russo-brothers-movie-august-netflix/
+
+The stage is already majorly set for Robert De Niro's upcoming 2026 thriller movie to make a big splash when it debuts in the next few weeks.
+---------
+
+# New Barney Meets Five Nights At Freddy's Is Officially An R-Rated Horror Movie
+
+Movies, Masked Recs
+
+Sat, 15 Aug 2026 11:53:02 GMT
+
+https://screenrant.com/buddy-movie-mpa-rating-confirmed/
+
+There is a new mascot horror film coming out later this months, but it takes one major departure from Five Nights at Freddy's: it will be rated R.
+---------
+
+# 10 Genuinely Perfect Sci-Fi Movies
+
+Movie, Sci-Fi, Solaris, 2001: A Space Odyssey, Stalker
+
+Sat, 15 Aug 2026 12:21:15 GMT
+
+https://collider.com/perfect-sci-fi-movies/
+
+From Arrival to The Matrix, these sci-fi masterpieces prove great ideas outlast technology, effects, and changing eras.
+---------
+
+# ‘Tracker’ Season 4 Can’t Complete Its Biggest Story Without Jensen Ackles
+
+TV Features, Tracker, CBS, Jensen Ackles, Series
+
+Sat, 15 Aug 2026 12:17:15 GMT
+
+https://collider.com/tracker-season-4-jensen-ackles-russell-shaw-colter-mystery/
+
+Tracker Season 4 needs Jensen Ackles’ Russell Shaw to solve the mystery surrounding Colter, Ashton Shaw and the experiments.
+---------
+
+# 'The Pitt's Tal Anderson on Sharing Her First Emmy Nomination With Taylor Dearden and Patrick Ball
+
+Collider Signature, The Pitt, Tal Anderson, HBO Max, Television
+
+Sat, 15 Aug 2026 12:03:15 GMT
+
+https://collider.com/the-pitt-season-2-tal-anderson-becca-emmy-nomination-interview/
+
+Tal Anderson discusses her Emmy-nominated guest spot in The Pitt Season 2 and reveals the biggest lessons from Taylor Dearden and Patrick Ball.
+---------
+
+# Glen Powell's Villain Era Gets a Second Chance on Streaming
+
+Movie Features, How to Make a Killing, Margaret Qualley, Glen Powell, Alec Guinness
+
+Sat, 15 Aug 2026 12:03:15 GMT
+
+https://collider.com/glen-powell-how-to-make-a-killing-streaming-hbo-max-august-2026/
+
+2026's How to Make a Killing, which gave big screen good guy Glen Powell a chance to show off his evil side, is now streaming on HBO Max.
+---------
+
+# Quentin Tarantino Meets Agatha Christie in the 10/10 Western Classic Streaming for Free
+
+Movie News, The Hateful Eight, Quentin Tarantino, Agatha Christie, Kurt Russell
+
+Sat, 15 Aug 2026 12:00:15 GMT
+
+https://collider.com/quentin-tarantino-agatha-christie-the-hateful-eight-streaming-free-fawesome-tv-august-2026/
+
+Quentin Tarantino's Agatha Christie-style Western is officially streaming for free on one of the most underrated streaming platforms.
+---------
+
+# 6 Best Thriller Movies Released Since 2010
+
+Movie, Thriller, Parasite, Uncut Gems, The Handmaiden
+
+Sat, 15 Aug 2026 11:53:15 GMT
+
+https://collider.com/best-thriller-movies-since-2010/
+
+From Nightcrawler to The Handmaiden, these thrillers prove that the 2010s delivered some of the smartest suspense cinema.
+---------
+
+# 'Cruel Intentions' Meets 'You' in Ryan Murphy's New 9-Part Psychological Thriller
+
+TV Features, The Shards, FX, Ryan Murphy, Kaia Gerber
+
+Sat, 15 Aug 2026 11:47:15 GMT
+
+https://collider.com/the-shards-fx-ryan-murphy-psychological-thriller-series/
+
+Ryan Murphy and Bret Easton Ellis' new FX psychological thriller The Shards is a dark blend of coming-of-age drama and horror.
+---------
+
+# 24 Years Later, Karl Urban's Chilling Thriller Has Aged Like Fine
+
+Movie Features, Ghost Ship, Karl Urban, Horror, Robert Zemeckis
+
+Sat, 15 Aug 2026 11:47:15 GMT
+
+https://collider.com/karl-urban-ghost-ship-streaming-free-tubi-august-2026/
+
+Ghost Ship, the campy, bloody thriller that marked Karl Urban's film debut, is now streaming for free on Tubi.
+---------
+
+# 'Training Day' Meets 'Extraction' in the Chadwick Boseman Crime Thriller Officially Leaving Netflix
+
+Movie News, Chadwick Boseman, 21 Bridges, Taylor Kitsch, Netflix
+
+Sat, 15 Aug 2026 11:45:14 GMT
+
+https://collider.com/chadwick-boseman-thriller-21-bridges-leaving-netflix-september-2026/
+
+The final theatrical release of Chadwick Boseman's career is currently streaming on Netflix, but it's about to be removed from the platform soon.
+---------
+
+# Jason Statham's 127-Minute Action Epic Sets New Streaming Release Date
+
+Movie News, Jason Statham, In the Name of the King: A Dungeon Siege Tale, Coming/Leaving Streaming, Action
+
+Sat, 15 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/jason-statham-in-the-name-of-the-king-action-stream-tubi-september-2026/
+
+Jason Statham's wild turn in a bizarre video game action epic directed by Uwe Boll has just landed a new streaming release date.
+---------
+
 # 5 Most Perfect Comfort Shows of the 2020s So Far
 
 TV, Ted Lasso, Abbott Elementary, Innovation
