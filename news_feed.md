@@ -1,3 +1,201 @@
+# Kingdom Hearts Officially Getting First-Ever Series Adaptation In 24 Years
+
+Movies, Kingdom Hearts, D23
+
+Sat, 15 Aug 2026 03:00:57 GMT
+
+https://screenrant.com/kingdom-hearts-disney-adaptation-d23/
+
+Disney is officially moving forward with the first-ever adaptation of the Kingdom Hearts franchise after prior attempts were quietly scrapped.
+---------
+
+# My Hero Academia's Ending Confirmed The Decade's Best Shonen Villain (Exclusive)
+
+Anime, My Hero Academia
+
+Sat, 15 Aug 2026 03:00:11 GMT
+
+https://screenrant.com/my-hero-academia-shigaraki-best-shonen-villain/
+
+One of the most memorable anime villains of the decade grew considerably, with his original voice actor discussing what stood out in his evolution.
+---------
+
+# Coco 2 Confirms 2029 Release & First Look At Miguel All Grown Up
+
+Movies, Coco 2, Coco, D23
+
+Sat, 15 Aug 2026 02:56:52 GMT
+
+https://screenrant.com/coco-2-release-date-miguel-first-image-villain-details/
+
+After Disney shared the surprise confirmation of Coco 2, the studio revealed the release window and a first look at Miguel all grown up.
+---------
+
+# The Incredibles 3 First Images Revealed As Parr Family, Edna & Frozone Return
+
+Movies, Incredibles 3, The Incredibles
+
+Sat, 15 Aug 2026 02:54:58 GMT
+
+https://screenrant.com/the-incredibles-3-first-images-d23/
+
+The first images for The Incredibles 3 have been revealed, showing the Parr family, Edna, and Frozone back for the long-awaited Pixar sequel.
+---------
+
+# The Simpsons Movie 2 Title Change Confirmed As Homer Destroys Springfield In First Footage
+
+Movies, The Simpsons 2, The Simpsons, D23
+
+Sat, 15 Aug 2026 02:47:32 GMT
+
+https://screenrant.com/the-simpsons-movie-2-d23-announcement/
+
+20th Century Studios unveils the first proper look at The Simpsons Movie 2 and reveals the official new title for the long-awaited sequel.
+---------
+
+# A24's Upcoming Time Travel Series Adapts One Of The 21st Century's Best Sci-Fi Novels
+
+Streaming TV, Masked Recs
+
+Sat, 15 Aug 2026 02:30:16 GMT
+
+https://screenrant.com/the-ministry-of-time-a24-tv-series-novel-adaptation/
+
+An exciting new time travel series is being developed under the A24 banner, and it is based on one of the greatest sci-fi novels of the 21st century.
+---------
+
+# Apple's Upcoming 10/10 Fantasy Masterpiece Adaptations Can Make LOTR & GOT Look Small
+
+Movies, Masked Recs
+
+Sat, 15 Aug 2026 02:16:49 GMT
+
+https://screenrant.com/mistborn-stormlight-archive-cosmere-world-bigger-lord-of-the-rings-game-of-thrones/
+
+Apple TV's new fantasy shared universe has set a few major adaptations, and they are coming to challenge Game of Thrones and The Lord of the Rings.
+---------
+
+# 1 Year Later, Demon Slayer: Infinity Castle Breaks a Major New Record Even Disney Can't Match
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Sat, 15 Aug 2026 03:05:15 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-new-sales-record-break/
+
+Demon Slayer: Infinity Castle breaks another major sales record in Japan, knocking Disney out of the top three in the process.
+---------
+
+# The Simpsons Movie Sequel Gets Official Title, First Footage Unveiled at D23
+
+Movies, The Simpsons 2, The Simpsons, D23
+
+Sat, 15 Aug 2026 03:00:01 GMT
+
+https://www.cbr.com/the-simpsons-movie-2-disney-d23-expo-update/
+
+The Simpsons Movie sequel gets a big update at D23.
+---------
+
+# 10 Most Controversial 2000s Anime, Ranked
+
+Anime, Gantz, Welcome to the N.H.K., Please Teacher!
+
+Sat, 15 Aug 2026 02:46:14 GMT
+
+https://www.cbr.com/most-controversial-2000s-anime-ranked/
+
+Whether criticized for excessive brutality, controversial subject matter or unconventional narratives, these retro anime challenged viewers.
+---------
+
+# Disney Lorcana Illuminates The Future At D23 2026
+
+Games, Disney Lorcana, TCG, Tabletop, Disney
+
+Sat, 15 Aug 2026 02:30:15 GMT
+
+https://www.cbr.com/disney-lorcana-d23-announcements-ravensburger/
+
+Friday, August 14, Ravensburger steps into Disney Lorcana's future at D23, and the horizon is absolutely stunning.
+---------
+
+# Star Wars: Ahsoka Season 2 Finally Gets Disney+ Release Date
+
+TV, Ahsoka, D23
+
+Sat, 15 Aug 2026 02:23:37 GMT
+
+https://www.cbr.com/star-wars-ahsoka-season-2-disney-plus-d23-update/
+
+A release date is finally announced three years after the first season arrived on Disney+.
+---------
+
+# 21 Years Before Nolan's 'The Odyssey', This Fantasy Epic Reimagined the Trojan War
+
+Books and Comics, Books, The Odyssey, Fantasy, History
+
+Sat, 15 Aug 2026 03:09:15 GMT
+
+https://collider.com/troy-lord-of-the-silver-bow-david-gemmell-book-the-odyssey/
+
+David Gemmell's Lord of the Silver Bow, the first book in the Troy trilogy, creatively reinvents the Trojan War by combining mythology and adventure.
+---------
+
+# 'Kingdom Hearts' Is Officially Getting a TV Series
+
+TV News, Kingdom Hearts III, Disney+, Animation, D23
+
+Sat, 15 Aug 2026 03:06:14 GMT
+
+https://collider.com/kingdom-hearts-tv-series/
+
+Disney+ is officially launching a Kingdom Hearts animated tv series 25 years after the game launched.
+---------
+
+# 20 Years Later, 'The Simpsons' Officially Return to Theaters
+
+TV News, The Simpsons, Matt Groening, D23, Disney
+
+Sat, 15 Aug 2026 03:03:58 GMT
+
+https://collider.com/the-new-simpsons-movie-sneak-peek/
+
+We got a new sneak peek at The New Simpsons Movie as Homer Simpson and the family prepare to return to the big screen.
+---------
+
+# 'Incredibles 3' First Look Officially Revealed by Pixar Ahead of Release
+
+Movie News, Incredibles 3, D23 Expo, Pixar, Animation
+
+Sat, 15 Aug 2026 03:02:34 GMT
+
+https://collider.com/incredibles-3-first-look-plot-details/
+
+Incredibles 3 got a first look at D23 which revealed new concept art and first plot details.
+---------
+
+# 25 Greatest Horror Movies of the 21st Century
+
+Movie, Horror, The Substance, Sinners, Hereditary
+
+Sat, 15 Aug 2026 02:58:15 GMT
+
+https://collider.com/best-horror-movies-21st-century-ranked/
+
+From recent masterpieces like Sinners to early 00's nightmares like 28 Days Later, these movies are the highlights of horror in 21st century cinema.
+---------
+
+# HBO’s 8-Episode Southern Gothic Thriller Is Still a Masterpiece Almost a Decade Later
+
+TV Features, HBO, Thriller, Sharp Objects, Amy Adams
+
+Sat, 15 Aug 2026 02:44:15 GMT
+
+https://collider.com/hbo-masterpiece-southern-gothic-series-sharp-objects/
+
+Sharp Objects is HBO’s dark 8-part Southern Gothic thriller, led by Amy Adams in one of Gillian Flynn’s most disturbing stories.
+---------
+
 # Joel Kinnaman's New Series Coming Next Month Is Mindhunter Meets Zero Dark Thirty
 
 Streaming TV, Masked Recs
