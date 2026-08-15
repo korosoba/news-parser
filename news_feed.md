@@ -1,3 +1,91 @@
+# Animal Crossing: Happy Room 2 Officially Arrives November 2026
+
+Gaming, Animal Crossing, Animal Crossing New Horizons
+
+Sat, 15 Aug 2026 10:00:11 GMT
+
+https://screenrant.com/animal-crossing-happy-room-2-november-2026/
+
+Animal Crossing is still one of the most beloved franchises that Nintendo controls, and any new release is bound to please fans.
+---------
+
+# 5 Major Mutants Still Missing From X-Men '97 After Season 2
+
+TV, X-Men '97, X-Men, Marvel, Innovation
+
+Sat, 15 Aug 2026 10:00:15 GMT
+
+https://www.cbr.com/x-men-97-major-missing-characters-list/
+
+X-Men: The Animated Series and its recent continuation have included many iconic X-Men heroes and villains, but some have yet to appear.
+---------
+
+# 10 Movies To Watch If You Love Harry Potter
+
+Movies, Harry Potter, Fantasy
+
+Sat, 15 Aug 2026 10:00:15 GMT
+
+https://www.cbr.com/best-movies-like-harry-potter-list/
+
+These 10 fantasy movies are the perfect follow-up for any Harry Potter fan looking to recapture that sense of discovery.
+---------
+
+# 'Doctor Who’ Reunion Is Officially Happening in Steven Moffat’s New 6-Part Series
+
+TV Features, Doctor Who, Steven Moffat, Jenna Coleman, Rafe Spall
+
+Sat, 15 Aug 2026 10:07:14 GMT
+
+https://collider.com/doctor-who-reunion-number-10-series-steven-moffat-jenna-coleman/
+
+Doctor Who alums Steven Moffat and Jenna Coleman reunite in Number 10, a workplace comedy-drama poised to be the British answer to The West Wing.
+---------
+
+# '70s Movie Masterpieces That Get Better With Every Single Rewatch
+
+Movie, 1970s, Best Movies Of The 1970s, Young Frankenstein, Rocky
+
+Sat, 15 Aug 2026 10:05:14 GMT
+
+https://collider.com/1970s-movies-better-every-rewatch/
+
+Jaws, Alien, Rocky, Network, Carrie, Star Wars: Episode IV - A New Hope, and more make up our list of '70s movies that get better with every rewatch.
+---------
+
+# Peter Jackson's Genius, Wacked-Out Sci-Fi Debut Is Streaming Free Today
+
+Movie Features, Bad Taste, Peter Jackson, Sci-Fi, The Lord of the Rings
+
+Sat, 15 Aug 2026 10:03:14 GMT
+
+https://collider.com/peter-jackson-lord-of-the-rings-bad-taste-streaming-free-plex-august-2026/
+
+Over a decade before the first Lord of the Rings movie, Peter Jackson released Bad Taste, his gory debut, which is streaming free on Plex.
+---------
+
+# 10 Addictive Thriller Shows That Are Impossible To Stop Watching
+
+TV, Thriller, Severance, The Pitt, Twin Peaks
+
+Sat, 15 Aug 2026 10:02:14 GMT
+
+https://collider.com/addictive-thriller-shows-impossible-to-stop-watching/
+
+Explore binge-worthy thriller series that keep you glued to your screen with gripping plots and compelling characters, from Severance to Fargo.
+---------
+
+# Netflix Is Officially Removing One of the Most Intense Thrillers of the 2010s
+
+Movie News, Hotel Mumbai, Netflix, Jason Isaacs, Armie Hammer
+
+Sat, 15 Aug 2026 10:00:14 GMT
+
+https://collider.com/dev-patel-hotel-mumbai-leaving-netflix-september-2026/
+
+A nail-biting thriller inspired by tragic real-life events is about to be removed from Netflix. Find out when.
+---------
+
 # Avengers: Doomsday D23 Trailer Breakdown: 7 Biggest Reveals And Exciting Moments
 
 Superheroes, Avengers: Doomsday, Marvel Cinematic Universe, D23
