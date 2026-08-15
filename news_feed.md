@@ -1,3 +1,25 @@
+# 3 10/10 PlayStation 2 Games Turning 20 This Year
+
+Gaming, PlayStation 2, Bully, Final Fantasy
+
+Sat, 15 Aug 2026 09:00:11 GMT
+
+https://screenrant.com/best-ps2-games-released-2006/
+
+Sony's PlayStation 2 has a massive library of games, but these masterpieces are all turning 20 this year, and you should definitely play them.
+---------
+
+# ‘Bosch’ Meets ‘True Detective’ in Taylor Sheridan’s 10/10 Crime Thriller Officially Streaming on Netflix
+
+Movie News, Wind River, Taylor Sheridan, Netflix, True Detective
+
+Sat, 15 Aug 2026 09:00:15 GMT
+
+https://collider.com/taylor-sheridan-wind-river-streaming-netflix-august-2026/
+
+Taylor Sheridan's 10/10 crime thriller with shades of Bosch and True Detective is officially streaming on Netflix.
+---------
+
 # Chris Pratt’s 116-Minute Sci-Fi Flop Is Officially Leaving Netflix
 
 Movie News, Chris Pratt, Jennifer Lawrence, Passengers, Netflix
