@@ -1,3 +1,157 @@
+# Peter Parker Is Taken Over By Venom In First Footage From Disney+’s Hit Spider-Man Series Returning In January
+
+TV, Your Friendly Neighborhood Spider-Man
+
+Sat, 15 Aug 2026 21:08:42 GMT
+
+https://screenrant.com/your-friendly-neighborhood-spider-man-season-2-villains-preview-release/
+
+Your Friendly Neighborhood Spider-Man season 2 has a new release window as D23's anniversary panel releases new footage of the upcoming chapter.
+---------
+
+# The End Of Oak Street Rotten Tomatoes Score Gets Official Audience Verdict For 21st Century Dinosaur Movie
+
+Movies, The End of Oak Street
+
+Sat, 15 Aug 2026 21:06:55 GMT
+
+https://screenrant.com/the-end-of-oak-street-rotten-tomatoes-audience-score/
+
+The new dinosaur thriller, The End of Oak Street, gets the official audience verdict on Rotten Tomatoes as the movie releases in theaters.
+---------
+
+# Denzel Washington's New "Unconventional" Netflix Heist Thriller Is A Perfect Follow-Up To His 2006 Hit
+
+Movies, Masked Recs
+
+Sat, 15 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/denzel-washington-here-comes-the-flood-movie-inside-man/
+
+Denzel Washington's heist movie Here Comes the Flood arrives in 2027, which feels like a spiritual sequel to one of his most underrated thrillers.
+---------
+
+# Halo Meets The Lord Of The Rings In Upcoming Amazon Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Sat, 15 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/warhammer-40k-series-halo-meets-the-lord-of-the-rings/
+
+Halo perfectly blends sci-fi spectacle with military action, and two upcoming Prime Video shows will drop that tone into fiction's deepest setting.
+---------
+
+# 6 Decisions That Sunk Marvel’s Worst Game Of The Last Decade
+
+Gaming, Marvel's Avengers, Marvel, Triple-A Games
+
+Sat, 15 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/marvels-avengers-worst-failures-marvel-games/
+
+Marvel games should forever live in fear of making this game's mistakes again, as it will surely be the outlier from now on what not to do.
+---------
+
+# The Lord of the Rings: War in the North - Legacy Edition - A Warm Embrace From An Old Friend
+
+Gaming, The Lord of the Rings: War in the North - Legacy Edition, The Lord of the Rings
+
+Sat, 15 Aug 2026 20:58:38 GMT
+
+https://screenrant.com/the-lord-of-the-rings-war-in-the-north-legacy-edition-review/
+
+The Lord of the Rings: War in the North is back with a new Legacy Edition that has come out of left field, but should service fans nicely.
+---------
+
+# The MCU’s 4 Highest-Grossing Movies Confirm The Franchise’s Most Popular Character
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 15 Aug 2026 20:45:11 GMT
+
+https://screenrant.com/mcu-biggest-movies-most-popular-character-spiderman/
+
+The MCU has made plenty of massive box office hits, but there is one character whose popularity really shines when looking at the top 4.
+---------
+
+# Hulu's New 9-Part '80s Crime Show Is the Most-Watched Show on Streaming
+
+TV, The Shards, Crime, Hulu
+
+Sat, 15 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/the-shards-crime-thriller-hulu-success-august-2026/
+
+Hulu's latest crime thriller based on a book, The Shards, is one of the most-watched shows worldwide.
+---------
+
+# The 8 Greatest Adventure Movie Battles Of All Time, Ranked
+
+Movies, Adventure, Seven Samurai, Lawrence of Arabia
+
+Sat, 15 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/best-adventure-movie-battles-of-all-time-list/
+
+Adventure movies have a plethora of impressive scenes, but battles are the mecca of intensity, and these eight battles are the greatest in the genre.
+---------
+
+# Agatha Christie’s 13-Part Classic Mystery Crime Series Is Still the Greatest of All Time
+
+TV Features, Poirot, Being Poirot, Agatha Christie, Mystery
+
+Sat, 15 Aug 2026 21:10:14 GMT
+
+https://collider.com/agatha-christie-poirot-crime-series-greatest-of-all-time/
+
+Forget Knives Out, Agatha Christie's Poirot gives us a detective with a penchant for solving even the most confounding of mysteries.
+---------
+
+# DC's Forgotten Sci-Fi Superhero Officially Says Goodbye to Netflix
+
+TV News, Black Lightning, Netflix, DC, CW
+
+Sat, 15 Aug 2026 21:00:14 GMT
+
+https://collider.com/dc-black-lightning-leaving-netflix-august-2026/
+
+One of the most underrated sci-fi shows from the 2010 is officially being removed from Netflix at the end of this month. Find out exactly when here.
+---------
+
+# 10 Best American Books of the 21st Century
+
+Books and Comics, The Hunger Games, The Dark Tower, No Country for Old Men, The Disaster Artist
+
+Sat, 15 Aug 2026 20:53:15 GMT
+
+https://collider.com/best-american-books-21st-century-ranked/
+
+The 21st century has seen the publication of some great books by American authors, including 11/22/63, Empire of Pain, and No Country for Old Men.
+---------
+
+# 10 Classic HBO Shows That Are 10/10 Masterpieces
+
+TV Lists, HBO Max
+
+Sat, 15 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/hbo-best-tv-shows/
+
+HBO has released some of the most popular and also critically acclaimed TV series of the past few decades, including these dramas and comedies.
+---------
+
+# Ridley Scott’s $173 Million War Epic Hits Even Harder
+
+Features, Black Hawk Down, Ridley Scott, Holds Up
+
+Sat, 15 Aug 2026 20:45:12 GMT
+
+https://movieweb.com/black-hawk-down-ridley-scott-war-holds-up/
+
+Ridley Scott's war epic movie is still powerful and memorable, several decades after the film was released.
+---------
+
 # Jean Grey Officially Returns In 1 Month After Spider-Man: Brand New Day
 
 Movies, Spider-Man: Brand New Day, Marvel's Wolverine
