@@ -1,3 +1,201 @@
+# 5 Free Steam Games Like Halo You Can Play Now
+
+Gaming, Halo
+
+Sat, 15 Aug 2026 13:04:16 GMT
+
+https://screenrant.com/5-free-steam-games-like-halo-you-can-play-now/
+
+There's no replacing Halo, but there are a few Steam games that will scratch a similar itch.
+---------
+
+# Star Wars Force Unleashed Remastered Is A Thing Of Beauty
+
+Gaming, Star Wars, Star Wars: The Force Unleashed
+
+Sat, 15 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/star-wars-force-unleashed-fan-remaster/
+
+Star Wars: The Force Unleashed is one of the best games in the franchise to date, even if it has started to show its age somewhat.
+---------
+
+# Marvel Has Finally Given Spider-Man A New Love Interest, And They're Perfect
+
+Marvel Comics, Spider-Man, Miles Morales, Marvel
+
+Sat, 15 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/spider-man-miles-morales-new-love-interest-perfect/
+
+In a shocking twist, Spider-Man breaks up with his girlfriend off-screen, only for a suspiciously interested woman to arrive in his life just in time.
+---------
+
+# After 48 Years, One Masterpiece Nancy Strip Has Finally Gone Viral
+
+Comics
+
+Sat, 15 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/viral-nancy-comic-strip-explained/
+
+Nancy's best pal Sluggo needs to get a better job.
+---------
+
+# James Gunn's First Superman Movie Is An Underrated Sci-Fi Thriller
+
+Movies, Superman, Masked Recs
+
+Sat, 15 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/james-gunn-brightburn-superman-sci-fi-thriller/
+
+Before James Gunn spearheaded a new DC Universe with the real Superman, he produced a horror version of the Superman story called Brightburn.
+---------
+
+# The Amount Spider-Man: Brand New Day Already Beats Every Other 2026 Movie’s Box Office By Makes It An Even Bigger Success
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 15 Aug 2026 12:55:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-2026-movies-box-office-comparison/
+
+Spider-Man: Brand New Day's results so far have already skyrocketed it far above the box office totals of every other movie released in 2026.
+---------
+
+# Forget The Beekeeper, Jason Statham's Most Rewatchable Deep Cut Is Streaming Now
+
+Movies, Masked Recs
+
+Sat, 15 Aug 2026 12:46:23 GMT
+
+https://screenrant.com/jason-statham-working-man-movie-mgm-plus-stream-august-2026/
+
+Jason Statham is one of the most celebrated action stars of this century, and one of his overlooked but very rewatchable 2025 films is streaming now.
+---------
+
+# Simpsons Hit & Run Return Teased By Matt Groening
+
+Gaming, The Simpsons, PC
+
+Sat, 15 Aug 2026 12:40:20 GMT
+
+https://screenrant.com/simpsons-hit-run-returning-matt-groening-tease/
+
+Talk of a Simpsons: Hit & Run comeback has been circulating rampantly online lately, and creator Matt Groening just teased its return.
+---------
+
+# 6 Best Sydney Sweeney Movies Available To Stream Right Now
+
+Movies, Sydney Sweeney
+
+Sat, 15 Aug 2026 12:39:34 GMT
+
+https://screenrant.com/best-sydney-sweeney-movies-watch-on-streaming/
+
+The 6 best Sydney Sweeney movies streaming right now include Reality, Immaculate, Anyone But You, and more.
+---------
+
+# Every Tracker Episode Featuring Jensen Ackles' Russell Shaw, Ranked
+
+Network TV, Tracker
+
+Sat, 15 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/tracker-episodes-jensen-ackles-russell-shaw-ranked/
+
+Each of the episodes of CBS' Tracker that Jensen Ackles' character, Russell Shaw, appears in with Justin Hartley's Colter Shaw, ranked by quality.
+---------
+
+# Final Fantasy 7's Aerith Officially Returns With $2,400 New Release Coming in 2027
+
+Games, Final Fantasy VII
+
+Sat, 15 Aug 2026 13:05:15 GMT
+
+https://www.cbr.com/ff7-aerith-official-return-2027-new-release-statue/
+
+Fans and collectors are about to get the chance to bring home one of Final Fantasy VII's most beloved characters with a brand-new Aerith sculpture.
+---------
+
+# 5 Things to Watch Before The Legend of Zelda Movie
+
+Movies, The Legend of Zelda, The Lord of the Rings, House of the Dragon
+
+Sat, 15 Aug 2026 13:00:16 GMT
+
+https://www.cbr.com/movies-series-watch-before-legend-of-zelda-list/
+
+These projects are perfect for those looking forward to Wes Ball's live-action film adaptation of Nintendo's The Legend of Zelda video game series.
+---------
+
+# Netflix Quietly Dropped a 6-Episode Spy Show That Will Go Down as a Modern Crime Classic
+
+TV, Netflix, Crime, Legends
+
+Sat, 15 Aug 2026 12:30:15 GMT
+
+https://www.cbr.com/netflix-legends-spy-crime-modern-classic/
+
+Netflix released a nail-biting British crime drama based on a true story that is stranger than fiction.
+---------
+
+# Absolute Batman Writer Calls Out Viral Batman Meme: 'Delete This'
+
+Comics, Batman
+
+Sat, 15 Aug 2026 12:30:15 GMT
+
+https://www.cbr.com/scott-snyder-batman-meme-joke-tweet/
+
+Scott Snyder joins the meme parade as a viral Batman stunt sparks playful replies.
+---------
+
+# Netflix Officially Says Goodbye to Vin Diesel’s 119-Minute Sci-Fi Epic
+
+Movie News, Riddick, Vin Diesel, Netflix, The Chronicles of Riddick
+
+Sat, 15 Aug 2026 12:46:15 GMT
+
+https://collider.com/vin-diesel-riddick-movies-leaving-netflix-august-31-2026/
+
+Netflix has announced that Vin Diesel's 119-minute sci-fi epic is leaving streaming at the same time as two other franchise installments.
+---------
+
+# Say Goodbye to Gerard Butler’s Cult-Classic Crime Thriller Before It Leaves Netflix
+
+Movie News, Den of Thieves, Gerard Butler, Pablo Schreiber, Netflix
+
+Sat, 15 Aug 2026 12:30:15 GMT
+
+https://collider.com/gerard-butler-den-of-thieves-leaving-netflix-september-2026/
+
+Gerard Butler's franchise-spawning action movie inspired by Heat is about to be removed from Netflix. Find out when.
+---------
+
+# 10 Mystery Book Masterpieces So Great They Became the Blueprint
+
+Books and Comics, Books, The Silence of the Lambs, Mystery, The Talented Mr. Ripley
+
+Sat, 15 Aug 2026 12:29:14 GMT
+
+https://collider.com/mystery-book-masterpieces-became-blueprint/
+
+Books like And Then There Were None and The Talented Mr. Ripley are so influential that they became foundational entries in the mystery genre overall.
+---------
+
+# 'Ahsoka' Season 2 Trailer Brings Back 2 Versions of Anakin Skywalker
+
+Features, Ahsoka, Star Wars
+
+Sat, 15 Aug 2026 12:32:22 GMT
+
+https://movieweb.com/ahsoka-season-2-trailer/
+
+After having a small role in Season 1, 'Ahsoka' is gearing up to bring back Anakin Skywalker with a bang. Read on for more.
+---------
+
 # Dune 3 Is Officially Releasing Early Ahead Of Avengers: Doomsday Clash, But There's A Catch
 
 Movies, Dune: Part Three, Dune
