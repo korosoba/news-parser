@@ -1,3 +1,69 @@
+# As A Doctor Who Fan, These Are The 6 Things I'd Change About The Modern Era
+
+Streaming TV, Doctor Who
+
+Sun, 16 Aug 2026 10:00:11 GMT
+
+https://screenrant.com/doctor-who-modern-era-things-change/
+
+Doctor Who stands out as one of the best TV shows ever, with the fact that it has endured for so long proving this idea, but there have been mistakes.
+---------
+
+# A 2001 PlayStation 1 Disney Classic Officially Returns August 18
+
+Gaming
+
+Sun, 16 Aug 2026 10:00:11 GMT
+
+https://screenrant.com/playstation-ps1-disney-game-official-return/
+
+PlayStation Plus Premium welcomes Disney's Atlantis classic with enhancements for PS4 and PS5.
+---------
+
+# The 5 Strongest Fantasy Novel Villains, Ranked
+
+Movies, Fantasy, books, The Lord of the Rings
+
+Sun, 16 Aug 2026 10:00:14 GMT
+
+https://www.cbr.com/strongest-fantasy-book-villains-list/
+
+From wicked spellcasters to wrathful gods, these are the most powerful villains to ever appear within the pages of fantasy novels.
+---------
+
+# Stephen King's Returning HBO Horror Show Is Already His Best
+
+TV, It: Welcome to Derry, Stephen King, Horror, Innovation
+
+Sun, 16 Aug 2026 10:00:14 GMT
+
+https://www.cbr.com/it-welcome-to-derry-best-stephen-king-tv-adaptation/
+
+After one season, with more to come, HBO's horror series has a strong claim to being Stephen King's best TV adaptation.
+---------
+
+# 7 Most Heartbreaking Books of All Time, Ranked
+
+Books and Comics, Books, The Diary of Anne Frank, Hamnet, The Fault in Our Stars
+
+Sun, 16 Aug 2026 10:01:14 GMT
+
+https://collider.com/most-heartbreaking-books-all-time-ranked/
+
+The Book Thief, Hamnet, Kafka on the Shore, The Diary of a Young Girl, and more make up our list of the most heartbreaking books of all time.
+---------
+
+# Netflix Officially Revives Dwayne Johnson’s $393M Superhero Disaster
+
+Movie News, Dwayne Johnson, Superhero, Netflix, Black Adam
+
+Sun, 16 Aug 2026 10:00:14 GMT
+
+https://collider.com/dwayne-johnson-black-adam-streaming-success-netflix-august-2026/
+
+Dwayne Johnson's $393 million superhero flop alongside Pierce Brosnan and Aldis Hodge is Netflix's unlikely new hit. Find out more here.
+---------
+
 # Russell Crowe’s 104-Minute War Thriller Is Officially Exploding on Streaming
 
 Movie News, Eye in the Sky, Black Hawk Down, Land of Bad, Russell Crowe
