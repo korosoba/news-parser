@@ -1,3 +1,47 @@
+# 399 Episodes Later, Leroy Jethro Gibbs' Best Quote Is Still An NCIS Franchise Best
+
+Network TV, NCIS
+
+Sun, 16 Aug 2026 11:30:11 GMT
+
+https://screenrant.com/ncis-leroy-jethro-gibbs-best-quote/
+
+Leroy Jethro Gibbs' most iconic quote on NCIS is a franchise best, showcasing his deep wisdom and capacity to care for others as a character.
+---------
+
+# Red Dead Redemption 2 Meets Skyrim In New Free Open-World PS Plus RPG
+
+Gaming, PlayStation Plus
+
+Sun, 16 Aug 2026 11:30:11 GMT
+
+https://screenrant.com/red-dead-redemption-meets-skyrim-free-playstation-plus-rpg/
+
+Play Kingdom Come: Deliverance 2 for free on PS Plus Extra this August—an epic medieval RPG adventure awaits!
+---------
+
+# The Strongest Dragons in House of the Dragon, Ranked
+
+TV, House of the Dragon, Game Of Thrones
+
+Sun, 16 Aug 2026 11:31:15 GMT
+
+https://www.cbr.com/hotd-strongest-dragons-ranked/
+
+House of the Dragon's winged beasts are powerful, but who among them is the strongest dragon in Westeros?
+---------
+
+# Henry Cavill’s 116-Minute James Bond Replacement Is Officially Back on Streaming
+
+Movie News, The Man From U.N.C.L.E., Henry Cavill, Guy Ritchie, Alicia Vikander
+
+Sun, 16 Aug 2026 11:30:14 GMT
+
+https://collider.com/henry-cavill-spy-movie-the-man-from-uncle-streaming-netflix-august-2026/
+
+Henry Cavill’s stylish spy adventure The Man from U.N.C.L.E. is back on streaming, and it’s still one of the biggest missed franchise opportunities.
+---------
+
 # Antony Starr's Banshee Deserved To Be As Big As The Rookie
 
 Classic TV, Banshee, Antony Starr, The Rookie
