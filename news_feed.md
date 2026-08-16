@@ -1,3 +1,135 @@
+# 5 Free Steam Games With Mistborn Vibes
+
+Gaming, Steam
+
+Sun, 16 Aug 2026 15:36:41 GMT
+
+https://screenrant.com/free-steam-games-like-mistborn/
+
+These five free Steam games capture different parts of Mistborn, from fast combat and clever powers to rebellion, danger, and discovery.
+---------
+
+# Tom Holland's Brand New Day Is Officially The First Spider-Man Movie In Box Office History To Reach $2 Billion
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe, Tom Holland
+
+Sun, 16 Aug 2026 15:30:22 GMT
+
+https://screenrant.com/spider-man-brand-new-day-two-billion-history-box-office-record/
+
+2026 brings more success for Spider-Man: Brand New Day as the latest Peter Parker adventure officially hits $2 billion at the worldwide box office.
+---------
+
+# NCIS’s New Series Is Poised For Success Thanks To CBS’s Difficult Decision
+
+Network TV, NCIS, NCIS: New York
+
+Sun, 16 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/ncis-new-york-on-location-filming-success-cbs/
+
+2026 fall will see the arrival of a brand new NCIS expansion series. Admittedly, the move is risky, but CBS's tough decision sets it up for success.
+---------
+
+# 5 Perfect Spider-Man Stories To Follow Up Brand New Day
+
+Movies, Spider-Man: Brand New Day, Spider-Man
+
+Sun, 16 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/5-perfect-spider-man-stories-to-follow-up-brand-new-day/
+
+These classic Spider-Man stories are ready for the big time.
+---------
+
+# Spider-Man: Beyond The Spider-Verse’s Newest Release Date Gives It 2 Major Box Office Rivals
+
+Movies, Spider-Man: Beyond the Spider-Verse
+
+Sun, 16 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/spider-man-beyond-the-spider-verse-release-date-box-office-rivals/
+
+The current release date of Spider-Man: Beyond The Spider-Verse gives the upcoming Marvel movie some major films as its competition in 2027.
+---------
+
+# Spider-Man: Brand New Day Smashes All-Time Franchise Box Office Record
+
+Movies, Marvel Cinematic Universe, Box Office, Spider-Man: Brand New Day, Spider-Man
+
+Sun, 16 Aug 2026 15:16:38 GMT
+
+https://screenrant.com/spider-man-brand-new-day-highest-grossing-spider-man-movie-record/
+
+During its third weekend in theaters, the smash hit Spider-Man: Brand New Day breaks an all-time global box office record for the franchise.
+---------
+
+# 10 Perfect Attack on Titan Plot Twists That Hit Even Harder on a Rewatch
+
+Anime, Attack on Titan, Attack On Titan, shonen anime
+
+Sun, 16 Aug 2026 15:30:15 GMT
+
+https://www.cbr.com/best-attack-on-titan-plot-twists-better-on-rewatch/
+
+Attack on Titan's story has more rewatch value than any other modern shonen anime, all thanks to every perfect plot twist throughout the story.
+---------
+
+# 40 Years Ago, Megatron Delivered the Greatest Quote in Transformers History With Just 3 Words
+
+Anime, Transformers, The Transformers: The Movie, mecha
+
+Sun, 16 Aug 2026 15:15:15 GMT
+
+https://www.cbr.com/megatron-greatest-transformers-quote/
+
+Megatron's most notorious line in The Transformers: The Movie symbolized that the film had a far more dangerous tone compared to the main cartoon.
+---------
+
+# 'The Odyssey' Overtakes the Most Celebrated Lord of the Rings Movie at the Worldwide Box Office
+
+Movie News, The Lord of the Rings: The Return of the King, The Odyssey, Box Office, Christopher Nolan
+
+Sun, 16 Aug 2026 15:40:55 GMT
+
+https://collider.com/the-odyssey-box-office-overtakes-lord-of-the-rings-return-of-the-king/
+
+The Odyssey officially passes the best Lord of the Rings movie at the box office as Christopher Nolan’s epic continues its record-setting run.
+---------
+
+# New Will Ferrell Netflix Series Soars on Streaming After Divisive Reactions
+
+TV News, The Hawk, Netflix, Hot on Streaming, Will Ferrell
+
+Sun, 16 Aug 2026 15:30:12 GMT
+
+https://movieweb.com/the-hawk-netflix-stream-august-2026/
+
+Will Ferrell's latest sports comedy is hot on the streaming charts.
+---------
+
+# 'House of the Dragon' Creator Reveals Which Targaryen Story He Wants to See Next
+
+TV News, House of the Dragon, HBO Max, Game of Thrones
+
+Sun, 16 Aug 2026 15:27:45 GMT
+
+https://movieweb.com/house-of-dragon-targaryen-history-next/
+
+It probably isn't the one you're expecting.
+---------
+
+# Disney Officially Confirms an 'Outlander' Star as Its Live-Action Queen
+
+Movie News, Tangled, Outlander
+
+Sun, 16 Aug 2026 15:18:05 GMT
+
+https://movieweb.com/tangled-live-action-caitriona-balfe/
+
+Caitriona Balfe will play Queen Arianna in Disney's live-action 'Tangled', joining Teagan Croft, Milo Manheim, and Kathryn Hahn.
+---------
+
 # I Think Star Trek’s Enterprise Crew Are Why Klingons Abandoned Their Deadliest Weapon
 
 TV, Star Trek, Star Trek: Strange New Worlds, Star Trek: The Original Series, Op-Ed
