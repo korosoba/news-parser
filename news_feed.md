@@ -1,3 +1,113 @@
+# 12 Best PS2 Horror Games Of All Time
+
+Gaming, PlayStation 2
+
+Sun, 16 Aug 2026 23:00:12 GMT
+
+https://screenrant.com/best-ps2-horror-games-of-all-time/
+
+The PlayStation 2 remains one of the greatest platforms for horror games, and the best of the best have definitely stood the test of time.
+---------
+
+# VisionQuest's Major Daredevil Connection Revealed
+
+Streaming TV, VisionQuest
+
+Sun, 16 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/visionquest-todd-stashwick-paladin-daredevil-villain/
+
+A surprising character from comic canon making their live-action debut creates an unlikely link between to polar opposite corners of the MCU.
+---------
+
+# 7 Superhero Universes Better Than Marvel And DC
+
+Comics
+
+Sun, 16 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/superhero-universes-better-marvel-dc/
+
+The Marvel and DC universes are beloved, but here are seven alternate superhero universes that are arguably better than Marvel and DC could ever be.
+---------
+
+# Steven Spielberg’s $797M Sci-Fi Masterpiece Shoots Up the Streaming Charts on Apple TV
+
+Movies, E.T. the Extra-Terrestrial
+
+Sun, 16 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/steven-spielberg-et-the-extra-terrestrial-sci-fi-apple-tv-success-august-2026/
+
+Steven Spielberg’s genre-defining sci-fi is a hit again.
+---------
+
+# 10 Most Important Teen Rom-Coms That Define the Genre
+
+Movies, 10 Things I Hate About You, Clueless, Easy A, She's the Man, To All the Boys I've Loved Before
+
+Sun, 16 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/best-teen-rom-coms-of-all-time-list/
+
+Teen rom-coms have long been in vogue, and these 10 just define their respective tropes.
+---------
+
+# Sydney Sweeney Officially Reunites With a 'Euphoria' Co-Star in the Neo-Western Dominating HBO Max
+
+Movie News, Sydney Sweeney, Americana, HBO Max, Streaming
+
+Sun, 16 Aug 2026 23:00:14 GMT
+
+https://collider.com/sydney-sweeney-americana-streaming-success-hbo-max-august-2026/
+
+Sydney Sweeney's biggest box office disaster is a streaming hit a year later. The film also features the late Eric Dane. Find out more here.
+---------
+
+# 10 Years Later, Bosch’s Best Quote Still Perfectly Defines Titus Welliver’s Detective
+
+TV Features, Bosch, Titus Welliver, Prime Video, Series
+
+Sun, 16 Aug 2026 22:49:15 GMT
+
+https://collider.com/bosch-everybody-counts-nobody-quote-titus-welliver/
+
+Ten years later, Harry Bosch’s most famous quote still explains exactly what makes Titus Welliver’s detective so compelling.
+---------
+
+# 'Ghosts' UK Has One Big Advantage Over the US Remake
+
+TV Features
+
+Sun, 16 Aug 2026 22:46:14 GMT
+
+https://collider.com/ghosts-uk-original-creator-cast-members/
+
+The original UK version of Ghosts has one distinct advantage over the American remake, and it goes back to the creators of the series, Them There.
+---------
+
+# Netflix Officially Has Its Next Global Sci-Fi Sensation With New Thriller
+
+Movie News, The Last House, Netflix, Sci-Fi, Streaming
+
+Sun, 16 Aug 2026 22:45:14 GMT
+
+https://collider.com/the-last-house-streaming-success-netflix-august-2026/
+
+A timely sci-fi thriller, starring Toy Story 5's Greta Lee and Oscar nominee Wagner Moura, is Netflix's new global phenomenon. Read on for more.
+---------
+
+# 24 Years Later, Henry Cavill’s Forgotten Historical Epic Still Holds Up
+
+Features, Henry Cavill, The Count of Monte Cristo
+
+Sun, 16 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/count-of-monte-cristo-henry-cavil-holds-up/
+
+Early in his career, Henry Cavill starred in The Count of Monte Cristo, which still stands out as one of his best movies.
+---------
+
 # After 19 Years, Marvel Can Finally Fix Their Longest Lasting Spider-Man Mistake
 
 Movies, Spider-Man: Brand New Day, Spider-Man, Marvel
