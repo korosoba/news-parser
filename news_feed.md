@@ -1,3 +1,14 @@
+# House Of The Dragon's Tyland Lannister Returns In New Game Of Thrones Release
+
+Gaming, House of the Dragon, House of the Dragon - Season 1, House of the Dragon - Season 2, House of the Dragon - Season 3, Game of Thrones, PC
+
+Sun, 16 Aug 2026 05:00:11 GMT
+
+https://screenrant.com/game-of-thrones-legends-tyland-lannister-champion-reveal/
+
+House of the Dragon's Tyland Lannister just doesn't know when to quit, and he's back again in a new Game of Thrones release available now.
+---------
+
 # Mistborn Meets Diablo In New Dark Fantasy RPG You Can Play Free Now
 
 Gaming, Steam, Triple-A Games
