@@ -1,3 +1,146 @@
+# Home Alone 3 “Was Just A Total Mistake”, Says OG Star
+
+Movies, Home Alone 3, Home Alone
+
+Sun, 16 Aug 2026 18:42:28 GMT
+
+https://screenrant.com/home-alone-3-mistake-gerry-bamman-response/
+
+One of the Home Alone franchise's original stars explains why 29 years later he believes that the third movie "was just a total mistake."
+---------
+
+# 15 Essential Items For Rangers In Baldur's Gate 3 (& Where To Find Them)
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC
+
+Sun, 16 Aug 2026 18:30:12 GMT
+
+https://screenrant.com/baldurs-gate-3-best-items-ranger-location/
+
+With keen survival instincts, rangers are a ton of fun to play in Baldur's Gate 3, and these items will help bring out their very best for the party.
+---------
+
+# NYT Connections Solution And Hints For August 16, 2026
+
+Gaming, Connections, Mobile
+
+Sun, 16 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-16-2026/
+
+Today's Connections puzzle is all about relationships and roles, with some clues to where those bonds form or the history of human development.
+---------
+
+# 10 Creepiest Episodes Of Grimm, Ranked
+
+Classic TV, Grimm
+
+Sun, 16 Aug 2026 18:30:11 GMT
+
+https://screenrant.com/grimm-scariest-episodes-ranked/
+
+What’s the creepiest episode of Grimm? From scary children to frightening Wesen to dark themes, here are the ten most unsettling episodes.
+---------
+
+# Tom Holland & Zendaya Fan Cast By Disney Legend For Live-Action Remake
+
+Movies, Tom Holland
+
+Sun, 16 Aug 2026 18:25:56 GMT
+
+https://screenrant.com/hercules-live-action-tom-holland-zendaya-susan-egan-cast/
+
+Tom Holland & Zendaya get the green light from this Disney legend, as Hollywood's It couple bask in a legendary box office run this year.
+---------
+
+# Spider-Man: Brand New Day Writer Argues Whether Jean Grey Killed Civilians Amid Heated Debate
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sun, 16 Aug 2026 18:23:47 GMT
+
+https://screenrant.com/spider-man-brand-new-day-jean-grey-kill-civilians-debate-sommers-mckenna/
+
+After Jean Grey's actions in Spider-Man: Brand New Day, the writers behind Tom Holland's film respond to if Sadie Sink's character got people killed.
+---------
+
+# Robert Downey Jr. Returns as Iron Man After Avengers: Doomsday & Secret Wars
+
+Movies, D23, Avengers, Iron Man
+
+Sun, 16 Aug 2026 18:50:23 GMT
+
+https://www.cbr.com/robert-downey-jr-iron-man-avengers-infinity-defense-disneyland/
+
+There's still more to see of Robert Downey Jr. as Tony Stark following the actor taking on a different role as Doctor Doom in Avengers: Doomsday.
+---------
+
+# The Wheel of Time Officially Returns With New Story Next Year
+
+Games, The Wheel of Time
+
+Sun, 16 Aug 2026 18:28:15 GMT
+
+https://www.cbr.com/wheel-of-time-official-return-2027-new-story-game/
+
+Wheel of Time officially returns next year with the new game War of the Dragon.
+---------
+
+# Netflix Slams Tyra Banks’ America’s Next Top Model Defamation Lawsuit
+
+TV, Netflix, America's Next Top Model, Reality Check: Inside America's Next Top Model
+
+Sun, 16 Aug 2026 18:27:12 GMT
+
+https://www.cbr.com/netflix-slams-tyra-banks-americas-next-top-model-lawsuit/
+
+Tyra Banks just saw Netflix's scathing reply to her defamation lawsuit.
+---------
+
+# Harrison Ford Confirms Unexpected Indiana Jones Return for New Disney Project
+
+Movies, Disney World, Indiana Jones, D23
+
+Sun, 16 Aug 2026 18:18:50 GMT
+
+https://www.cbr.com/indiana-jones-harrison-ford-disney-world-animal-kingdom/
+
+Harrison Ford's Indiana Jones gets one last adventure.
+---------
+
+# 5 'It's Always Sunny in Philadelphia' Episodes That Are Hilarious From Start to Finish
+
+TV, It's Always Sunny in Philadelphia, FX, Comedy, Sitcom
+
+Sun, 16 Aug 2026 18:33:15 GMT
+
+https://collider.com/its-always-sunny-in-philadelphia-episodes-hilarious-start-to-finish/
+
+It's Always Sunny in Philadelphia has survived this long thanks to its strong humor, found in episodes like Season 8's "The Gang Gets Analyzed."
+---------
+
+# 'Avengers: Doomsday' Theory Suggests RDJ Is Actually a Cover for the Real Doom
+
+Features, Avengers: Doomsday
+
+Sun, 16 Aug 2026 18:45:12 GMT
+
+https://movieweb.com/avengers-doomsday-theory-two-doctor-doom/
+
+A new fan theory suggests Robert Downey Jr. is not playing the real Doctor Doom, but is that just wishful thinking?
+---------
+
+# Every Book In Brandon Sanderson's 'Mistborn' Series, Ranked
+
+TV Lists, Mistborn, Fantasy, Brandon Sanderson
+
+Sun, 16 Aug 2026 18:30:12 GMT
+
+https://movieweb.com/every-mistborn-book-ranked/
+
+Seven books, two eras, and a lot to argue about. Brandon Sanderson's popular fantasy series ranges significantly in quality.
+---------
+
 # Sydney Sweeney's R-Rated Erotic Thriller That's An HBO Max Global Hit Continues 2026 Genre Trend
 
 Movies, Masked Recs
