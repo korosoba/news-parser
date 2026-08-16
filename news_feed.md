@@ -1,3 +1,102 @@
+# A Gentleman In Moscow Ending Explained
+
+Classic TV, A Gentleman in Moscow
+
+Sun, 16 Aug 2026 14:30:12 GMT
+
+https://screenrant.com/a-gentleman-in-moscow-ending-explained/
+
+A Gentleman in Moscow's final episode ends the story in the only way it really could, with Alexander's journey drawing to an artful conclusion.
+---------
+
+# Power Rangers Officially Returns With New Live-Action Series & You Can Watch It For Free
+
+Streaming TV, Power Rangers
+
+Sun, 16 Aug 2026 14:30:11 GMT
+
+https://screenrant.com/power-rangers-ninjakidz-webseries-mighty-morphin-youtube/
+
+After the collapse of the reboot on Disney+, a group of plucky creators have delivered an officially endorsed live-action Power Rangers series.
+---------
+
+# NBC Starts Chicago Fire’s Painful Course-Correction Before Its Too Late
+
+Network TV, Chicago Fire, One Chicago
+
+Sun, 16 Aug 2026 14:30:11 GMT
+
+https://screenrant.com/chicago-fire-course-correction-painful-start-nbc/
+
+After a couple of direction-less seasons, NBC has started Chicago Fire's course-correction ahead of season 15 with some difficult decisions.
+---------
+
+# Marvel’s Record-Breaking Spider-Man Show Is Officially Returning For Season 7
+
+TV, Masked Recs
+
+Sun, 16 Aug 2026 14:27:15 GMT
+
+https://screenrant.com/marvel-spidey-and-his-amazing-friends-season-7-renewed/
+
+Marvel's hit Spider-Man TV show just keeps coming back for more, as the series sets a season 7 return, which will feature many heroes and villains.
+---------
+
+# 10 Best Forgotten Detective Novels Of All Time
+
+Books
+
+Sun, 16 Aug 2026 14:25:11 GMT
+
+https://screenrant.com/best-forgotten-detective-books-all-time/
+
+Deep-cut detective novels genre fans must rediscover.
+---------
+
+# Disney's Live-Action Remake of $592M Animated Hit Casts Outlander Star in Key Role
+
+Movies, Tangled
+
+Sun, 16 Aug 2026 14:33:20 GMT
+
+https://www.cbr.com/disney-tangled-caitriona-balfe-queen-arianna/
+
+One day after unveiling the first look, the highly anticipated live-action remake has cast another big star.
+---------
+
+# 3 Anime Magic Systems Even Better Than Black Clover
+
+Anime, Black Clover, Mushoku Tensei: Jobless Reincarnation
+
+Sun, 16 Aug 2026 14:15:16 GMT
+
+https://www.cbr.com/anime-magic-systems-better-than-black-clover/
+
+Black Clover set a high standard for anime magic, but these three series offer systems that are even more impressive.
+---------
+
+# 'The Boys' Star Shares Reaction to Season 5's Ending and Homelander's Fate
+
+TV News, The Boys, Aya Cash
+
+Sun, 16 Aug 2026 14:30:12 GMT
+
+https://movieweb.com/the-boys-aya-cash-ending-reaction/
+
+'The Boys' star Aya Cash shares her behind-the-scenes insight into Homelander's death scene.
+---------
+
+# 10 Best Fantasy Movies That Are Full of Action From Start to Finish
+
+Movie Lists, Fantasy, Action
+
+Sun, 16 Aug 2026 14:30:12 GMT
+
+https://movieweb.com/best-fantasy-full-action-movies/
+
+Every so often, a fantasy movie rises to the occasion by combining a magical narrative with pulse-pounding action.
+---------
+
 # Robert Downey Jr. Officially Returns As Tony Stark After 7 Years
 
 Movies, Marvel Cinematic Universe, D23
