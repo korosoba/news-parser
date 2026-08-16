@@ -1,3 +1,179 @@
+# Indiana Jones Meets Mission: Impossible In Prime Video's 18-Part Conspiracy Series
+
+Classic TV, Masked Recs
+
+Sun, 16 Aug 2026 03:19:25 GMT
+
+https://screenrant.com/hunters-prime-video-series-indiana-jones-mission-impossible/
+
+Prime Video's over-the-top action TV show with historically rooted thrills and covert-operation intensity might have gone under your radar.
+---------
+
+# The Diplomat Season 4's "Doozy" Marriages & Politics Teased For Netflix's Hit Series
+
+TV, The Diplomat
+
+Sun, 16 Aug 2026 03:00:49 GMT
+
+https://screenrant.com/netflix-the-diplomat-season-4-marriage-politics-trouble-story-tease-allison-janney/
+
+The Diplomat's upcoming fourth installment will see its characters facing the consequences of their actions following the messy third season.
+---------
+
+# 3 Years Later, Stranger Things' Eddie Came Back For A New Spinoff Series, And It's 10/10 Perfect
+
+Comics, Stranger Things
+
+Sun, 16 Aug 2026 03:00:11 GMT
+
+https://screenrant.com/stranger-things-dungeons-dragons-eddie-return/
+
+The unforgettable season 4 character returned, and not nearly enough people are discussing it.
+---------
+
+# Reacher's Next Show Is Not Based On Any Lee Child Book
+
+Streaming TV, Reacher
+
+Sun, 16 Aug 2026 02:30:11 GMT
+
+https://screenrant.com/reacher-neagley-spinoff-not-based-on-lee-child-book/
+
+Reacher has followed the trend of basing several seasons on Lee Child's Jack Reacher books, but the show's next installment is an original story.
+---------
+
+# DC Unveils Dark New Origin For Batman’s Name, And It Completely Redefines The Hero
+
+DC Comics, Batman
+
+Sun, 16 Aug 2026 02:30:11 GMT
+
+https://screenrant.com/batman-name-new-origin-absolute/
+
+Absolute Batman is diving incredibly deep into Bruce Wayne's psychology and the etymology of the 'Batman' with a much broader origin story.
+---------
+
+# 10 Incredible Kids' Movies From The 2000s That Deserve More Love
+
+Classic Movies, Animation
+
+Sun, 16 Aug 2026 02:30:11 GMT
+
+https://screenrant.com/kids-movies-2000s-deserve-more-love/
+
+There were some amazing kids movies released in the 2000s that no one talks about and these movies deserve much more respect in history.
+---------
+
+# 7 Strongest Spider-Man Powers Nobody Talks About
+
+Comics, Spider-Man
+
+Sun, 16 Aug 2026 02:30:11 GMT
+
+https://screenrant.com/genius-batman-villains-smart/
+
+Spider-Man has a larger skill set than many fans know about. Some of these powers rarely surface, both in the comics and on film, for good reason.
+---------
+
+# Disney Is Releasing A Lilo & Stitch Movie in 2026, & The Poster Reveals New Character
+
+Movies, Lilo & Stitch
+
+Sun, 16 Aug 2026 02:25:53 GMT
+
+https://screenrant.com/disney-lilo-and-stitch-movie-short-poster-new-character/
+
+Disney's upcoming Lio & Stitch movie just unleashed a brand-new poster with a sneak peek at a new character who will be joining its cast.
+---------
+
+# 10 Games to Play If You Love the PS1 Era
+
+Games, PlayStation (Original), Resident Evil 7, Metal Gear Solid V: The Phantom Pain
+
+Sun, 16 Aug 2026 03:15:15 GMT
+
+https://www.cbr.com/best-games-fans-original-playstation-era-list/
+
+Those who grew up with Crash Bandicoot and Resident Evil should give these games a try.
+---------
+
+# HBO Max Quietly Scraps Cop Drama Pilot From Supernatural Showrunner
+
+TV, HBO Max, milo ventimiglia
+
+Sun, 16 Aug 2026 02:52:25 GMT
+
+https://www.cbr.com/hbo-max-drops-cop-drama-american-blue-pilot-warner-bros/
+
+The Supernatural showrunner's latest project gets a disappointing update from HBO, but hope is not lost for the series...
+---------
+
+# 10 Greatest RPG Worlds of All Time, Ranked
+
+Games, Bloodborne, The Elder Scrolls, Dark Souls, RPG
+
+Sun, 16 Aug 2026 02:45:14 GMT
+
+https://www.cbr.com/greatest-rpg-worlds-ever-ranked-list/
+
+The RPG in gaming has delivered some of the most breathtaking and immersive worlds, dominated in large part by these ten fantastic video games.
+---------
+
+# Scrubs Season 2 Preview Reveals Another Character From Original Show's Return
+
+TV, Scrubs
+
+Sun, 16 Aug 2026 02:37:22 GMT
+
+https://www.cbr.com/scrubs-season-2-trailer-scott-foley-return/
+
+Another familiar face returns in the new look at Scrubs Season 2.
+---------
+
+# 5 Forgotten Shonen Anime That Have Aged Like Milk
+
+Anime, Medaka Box, Toriko, Shonen
+
+Sun, 16 Aug 2026 02:30:14 GMT
+
+https://www.cbr.com/forgotten-shonen-anime-aged-poorly-list/
+
+Anime's shonen genre is full of groundbreaking hits, but forgotten titles like Orient and Medaka Box are better left in the past.
+---------
+
+# 5 Greatest Moments From Fire & Blood that Game of Thrones' Aegon's Conquest Movie Needs to Adapt
+
+Movies, Game Of Thrones, George R.R. Martin
+
+Sun, 16 Aug 2026 02:20:14 GMT
+
+https://www.cbr.com/fire-and-blood-game-of-thrones-aegons-conquest-best-scenes-list/
+
+House of the Dragon has made some divisive changes with its adaptations, but Aegon's Conquest needs an accurate depiction of these moments.
+---------
+
+# After ‘House of the Dragon’ Season 3, Read These 5 Palace Intrigue-Style Fantasy Books
+
+TV Features, House of the Dragon, George R.R. Martin, A Song of Ice and Fire, HBO
+
+Sun, 16 Aug 2026 03:07:15 GMT
+
+https://collider.com/5-palace-intrigue-style-fantasy-books-to-read-after-house-of-the-dragon-season-3/
+
+House of the Dragon balances palace intrigue and political drama with war and magic. These five book series are similar, and fans might enjoy them.
+---------
+
+# Ryan Reynolds Shares D23 Hugh Jackman Video To Combat Deadpool Leaks
+
+Movie News, Hugh Jackman, Ryan Reynolds, Avengers: Doomsday, D23
+
+Sun, 16 Aug 2026 02:27:21 GMT
+
+https://movieweb.com/hugh-jackman-ryan-reynolds-d23-video/
+
+Deadpool star Ryan Reynolds posted a hilarious new video of Hugh Jackman on social media that had been leaked from Disney's D23 panel.
+---------
+
 # Silo Season 3 Has Quietly Teased The Truth About Silo 1
 
 Streaming TV, Silo, Silo - Season 3
