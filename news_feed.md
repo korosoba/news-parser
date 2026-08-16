@@ -1,3 +1,25 @@
+# Stormlight World Guide Is A Must-Have Book For Brandon Sanderson Fans
+
+Gaming, Brandon Sanderson, The Cosmere RPG, The Stormlight Archive
+
+Sun, 16 Aug 2026 09:00:12 GMT
+
+https://screenrant.com/brandon-sanderson-stormlight-world-guide-book/
+
+Brandon Sanderon fans will want to check out the Stormlight World Guide, even if you don't plan on playing the Cosmere RPG, for lore secrets and more.
+---------
+
+# Joel Kinnaman’s 113-Minute Crime Thriller Is Officially a Streaming Must-Watch
+
+Movie News, Joel Kinnaman, The Informer, Rosamund Pike, Clive Owen
+
+Sun, 16 Aug 2026 09:00:15 GMT
+
+https://collider.com/joel-kinnaman-the-informer-streaming-prime-video-august-2026/
+
+Joel Kinnaman’s underrated crime thriller alongside Rosamund Pike, Ana de Armas, and Clive Owen is streaming now. Here's everything you should know.
+---------
+
 # The Superhero Blockbuster Robert Downey Jr. Called "the Best Marvel Movie" Is a Hit Ahead of 'Doomsday'
 
 Movie News, Avengers: Age of Ultron, MCU, Robert Downey Jr, Avengers: Doomsday
