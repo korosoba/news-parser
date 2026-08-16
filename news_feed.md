@@ -1,3 +1,47 @@
+# 9 Years Later, Rick Sanchez' Best Line Is Still The Greatest Quote In Rick & Morty History
+
+Streaming TV, Rick and Morty
+
+Sun, 16 Aug 2026 10:30:11 GMT
+
+https://screenrant.com/rick-and-morty-best-quote-rick-sanchez/
+
+Rick and Morty is one of the most innovative TV shows ever made, but it also has some outstanding dialog that manages to go under the radar.
+---------
+
+# Stephen King's Sci-Fi Series Surged Past 71M Hours Watched in the First Half of 2026
+
+TV Features, 11.22.63, Stephen King, James Franco, Chris Cooper
+
+Sun, 16 Aug 2026 10:44:14 GMT
+
+https://collider.com/stephen-king-11-22-63-sci-fi-series-hours-watched-2026/
+
+11.22.63, Hulu's miniseries adaptation of Stephen King's sci-fi time travel thriller, is still finding audiences 10 years after its premiere.
+---------
+
+# Quentin Tarantino’s Wild ’90s Vampire Western Is Officially Back on Streaming
+
+Movie News, From Dusk Till Dawn, Quentin Tarantino, Yellowstone, True Blood
+
+Sun, 16 Aug 2026 10:30:14 GMT
+
+https://collider.com/quentin-tarantino-vampire-from-dusk-till-dawn-streaming-paramount-plus-august-2026/
+
+Quentin Tarantino’s From Dusk Till Dawn is back on streaming, blending Western crime, vampires and full-throttle action into one cult classic.
+---------
+
+# 10 Greatest Digital Exclusive Video Games Right Now
+
+Gaming, Video Game, Pokémon, Valve, Marvel Comics
+
+Sun, 16 Aug 2026 10:22:14 GMT
+
+https://collider.com/best-digital-exclusive-video-games-august-2026/
+
+Palworld, Marvel Rivals, Meccha Chameleon, and Pokémon Champions are among the best digital-exclusive video games currently available for purchase.
+---------
+
 # As A Doctor Who Fan, These Are The 6 Things I'd Change About The Modern Era
 
 Streaming TV, Doctor Who
