@@ -1,3 +1,168 @@
+# Hulu's New Thriller From New Girl Creator Is Already One Of The Best Crime Dramas Of 2026
+
+Streaming TV, Masked Recs
+
+Sun, 16 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/new-girl-creator-furious-show-best-crime-drama-2026/
+
+Hulu's Furious, a gripping drama by New Girl's creator, features Emmy Rossum as an FBI agent investigating the dark case of a female serial killer.
+---------
+
+# Bruce Campbell's Evil Dead Burn Cameo & Future Involvement In Sam Raimi's Franchise Clarified
+
+Movies, Evil Dead Burn, Evil Dead, Horror, Bruce Campbell
+
+Sun, 16 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/evil-dead-burn-cameo-franchise-future-clarified-bruce-campbell/
+
+Exclusive: Bruce Campbell offers some clarification on his Evil Dead Burn cameo and the nature of his franchise involvement going forward.
+---------
+
+# 3 Nintendo Wii Games Everyone Owned In The 2000s
+
+Gaming, Wii, Wii Sports, Mario Kart
+
+Sun, 16 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/most-popular-nintendo-wii-games-everyone-owned-2000s/
+
+The Nintendo Wii was an incredibly popular console with some incredibly popular games, but there were a few games that everyone owned in the 2000s.
+---------
+
+# 6 Character Match-Ups We Need from New Star Wars vs Marvel Crossover
+
+Comics, Star Wars, Marvel
+
+Sun, 16 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/star-wars-marvel-crossover-characters/
+
+Six characters from Marvel and Star Wars that need to meet each other in the upcoming Star Wars/Marvel: Hope Assembles crossover series.
+---------
+
+# The Major Record Netflix’s Most-Watched Horror Movie Broke Makes It Even More Worth Watching Now
+
+Movies, Netflix, Bird Box
+
+Sun, 16 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/netflix-bird-box-horror-movie-oldest-most-watched-record/
+
+Netflix's most-watched horror movie has also achieved another notable record on the platform that cements its film success even further.
+---------
+
+# Midnight Fantastic Four's Blatant Homage to John Carpenter's The Thing
+
+Comics, Fantastic Four, The Thing
+
+Sun, 16 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/midnight-fantastic-four-variant-cover-john-carpenter-the-thing-homage/
+
+Here's The Thing about Midnight Fantastic Four...
+---------
+
+# The 10 Best JRPGs of All Time, Ranked
+
+TV, Video Game, Persona 5, Final Fantasy, Pokémon
+
+Sun, 16 Aug 2026 12:21:14 GMT
+
+https://collider.com/best-jrpgs-all-time-ranked/
+
+Explore the greatest JRPGs ranked by gameplay, story, and innovation, including Persona 5, Xenogears, and Chrono Trigger.
+---------
+
+# Anne Hathaway's Most Overlooked 2026 Performance Gets a Second Chance on Streaming
+
+Movie Features, Anne Hathaway, David Lowery, Mother Mary, A24
+
+Sun, 16 Aug 2026 12:18:14 GMT
+
+https://collider.com/anne-hathaway-mother-mary-streaming-hbo-max-august-2026/
+
+Anne Hathaway's Mother Mary underperformed in theaters, but the 2026 drama will get a second chance when it streams on HBO Max beginning August 21.
+---------
+
+# ‘Cyberpunk 2077’ Officially Expands With a Stylish New Release
+
+Gaming News, Cyberpunk 2077, Keanu Reeves, Video Game, Sci-Fi
+
+Sun, 16 Aug 2026 12:00:15 GMT
+
+https://collider.com/cyberpunk-2077-gunnar-glasses-collection/
+
+Cyberpunk 2077 officially expands with new GUNNAR glasses inspired by Dexter DeShawn and Militech. Here's everything you should know.
+---------
+
+# 'House of the Dragon' Showrunner Ryan Condal Confirms He Is Done With "Dragons, Targaryens, and Thrones" [Exclusive]
+
+TV, House of the Dragon, Ryan Condal, HBO, A Song of Ice and Fire
+
+Sun, 16 Aug 2026 11:57:15 GMT
+
+https://collider.com/house-of-the-dragon-season-3-finale-showrunner-ryan-condal/
+
+Showrunner Ryan Condal dives deep into House of the Dragon's Season 3 finale and what to expect from the final season ahead.
+---------
+
+# 4 Years Later, This 10/10 Thriller Is Officially Finding New Life on Streaming
+
+Movie Features, Zach Cregger, Barbarian, Resident Evil, Weapons
+
+Sun, 16 Aug 2026 11:57:15 GMT
+
+https://collider.com/zach-cregger-resident-evil-barbarian-streaming-hbo-max-august-2026/
+
+While fans await the September release of Zach Cregger's Resident Evil, his solo directorial debut, Barbarian, is currently streaming on HBO Max.
+---------
+
+# Jon Bernthal’s Forgotten Crime Western Officially Finds New Life on Streaming
+
+Movie News, Jon Bernthal, Sweet Virginia, Western, Paramount Plus
+
+Sun, 16 Aug 2026 11:45:14 GMT
+
+https://collider.com/jon-bernthal-sweet-virginia-streaming-paramount-plus-august-2026/
+
+Jon Bernthal’s acclaimed neo-Western thriller is one of streaming’s best hidden gems, boasting an impressive 79% Rotten Tomatoes score.
+---------
+
+# 10 Best Pirate Video Games
+
+Gaming, Video Game, Assassin's Creed IV: Black Flag, Far Cry 3, Uncharted 4
+
+Sun, 16 Aug 2026 11:44:14 GMT
+
+https://collider.com/best-pirate-games-ranked/
+
+Piracy remains one of the most enduring themes in mainstream entertainment, and video games like Assassin's Creed IV and Sea of Thieves prove it.
+---------
+
+# ‘Ted Lasso’ Season 4 Is Already Crushing Season 3 in One Major Way
+
+TV Features, Ted Lasso, Jason Sudeikis, Brett Goldstein, Apple TV
+
+Sun, 16 Aug 2026 11:43:14 GMT
+
+https://collider.com/ted-lasso-season-4-rotten-tomatoes-score/
+
+Ted Lasso Season 4 returns with an 89% on Rotten Tomatoes, a substantial increase from Season 3's 81%.
+---------
+
+# Kurt Russell's 132-Minute Modern Western Epic Shoots Onto New Streaming Home
+
+Movie News, Bone Tomahawk, Kurt Russell, Coming/Leaving Streaming, Western, Horror
+
+Sun, 16 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/bone-tomahawk-kurt-russell-western-horror-stream-tubi-september-2026/
+
+Kurt Russell's modern Western classic is known for having one of the hardest scenes to watch in any movie.
+---------
+
 # 399 Episodes Later, Leroy Jethro Gibbs' Best Quote Is Still An NCIS Franchise Best
 
 Network TV, NCIS
