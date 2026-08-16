@@ -1,3 +1,124 @@
+# Robert Downey Jr. Officially Returns As Tony Stark After 7 Years
+
+Movies, Marvel Cinematic Universe, D23
+
+Sun, 16 Aug 2026 14:11:38 GMT
+
+https://screenrant.com/robert-downey-jr-tony-stark-marvel-return/
+
+While he will be playing Doctor Doom in Avengers: Doomsday later this year, Robert Downey Jr. is officially returning as Tony Stark after many years.
+---------
+
+# Halo: First Rain Officially Sets The Stage For Halo 7
+
+Gaming, Halo
+
+Sun, 16 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/halo-first-rain-infinite-halo-7-tease/
+
+Halo's lore has come a long way since the early days of a simple conflict with the Covenant, and a new novel could set the stage for the next game.
+---------
+
+# 6 Pokémon Regions That Need To Be Revisited
+
+Gaming, Pokemon, Nintendo, Nintendo Switch 2
+
+Sun, 16 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/best-pokemon-regions-remake-spinoff/
+
+These Pokémon regions didn't really get their chance to shine and absolutely deserve a second chance in the spotlight.
+---------
+
+# 33 Years After Cheers, Sitcoms Are Still Learning The Wrong Lesson From Sam & Diane
+
+Classic TV, Cheers
+
+Sun, 16 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/cheers-sam-diane-romance-sitcoms-wrong-lesson/
+
+Every sitcom has tried to recapture the magic of Cheers' Sam and Diane, but they take the wrong lessons from the ultimate will they, won’t they pair.
+---------
+
+# All 3 Eras Of Star Trek Movies, Ranked
+
+Movies, Star Trek, Ranking
+
+Sun, 16 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/star-trek-movie-eras-ranked/
+
+There have been three distinct eras of the Star Trek franchise on the big screen, but which of them best represents the final frontier?
+---------
+
+# Star Wars' Marvel Crossover Will Be Wasted If 1 Antihero Doesn't Appear
+
+Star Wars, Marvel
+
+Sun, 16 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/star-wars-marvel-crossover-jaxxon/
+
+Star Wars' upcoming crossover with Marvel is the perfect opportunity to bring back one long-forgotten comic anti-hero who debuted in the comics.
+---------
+
+# 8 Years Later, Transformers Brings Back One of Optimus Primal's Ultimate Forms
+
+Anime, Transformers, Beast Wars: Transformers, merchandise, hasbro, action figures, toys
+
+Sun, 16 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/transformers-optimal-optimus-action-figure-re-release/
+
+Almost a decade later, a convention-exclusive Transformers toy is set to be reissued, making a Maximal leader more widely available than ever.
+---------
+
+# The Best WWII Movie of the Year Is Officially Dominating Streaming
+
+Movie News, Pressure, Brendan Fraser, Andrew Scott, Peacock
+
+Sun, 16 Aug 2026 14:00:15 GMT
+
+https://collider.com/pressure-brendan-fraser-ww2-peacock-streaming-success-august-2026/
+
+Brendan Fraser’s WWII drama Pressure finds a new audience on Peacock, spending nearly two weeks inside the streaming service’s Top 10.
+---------
+
+# 10 MCU Movie Endings That Are Genuine Masterpieces
+
+Movie, MCU, Spider-Man: Brand New Day, Avengers: Endgame, Black Panther
+
+Sun, 16 Aug 2026 13:55:15 GMT
+
+https://collider.com/mcu-movie-endings-masterpieces/
+
+Spider-Man: Brand New Day, Black Panther, and Avengers: Endgame are not only among the best endings to MCU movies, but they are also masterpieces.
+---------
+
+# 'The Simpsons Movie 2' Teaser Includes 15 Classic Characters
+
+Movie News, The Simpsons 2
+
+Sun, 16 Aug 2026 14:00:18 GMT
+
+https://movieweb.com/simpsons-movie-2-footage-15-classic-characters/
+
+Disney's first look at 'The New Simpsons Movie' turns a stray baseball into a Springfield chase scene packed with a bunch of familiar faces.
+---------
+
+# The 7 Greatest Actors That Guy Ritchie Can't Stop Working With
+
+Movie Lists, Guy Ritchie, Jason Statham, Tom Hardy, Henry Cavill, Action, Crime, Thriller
+
+Sun, 16 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/guy-ritchie-movies-tv-greatest-actors/
+
+Throughout his career, Guy Ritchie has worked with a lot of actors, but only some are lucky enough to collaborate with the director several times.
+---------
+
 # Harry Potter: Veiled By Pride Officially Announced
 
 Gaming, Harry Potter, PC
