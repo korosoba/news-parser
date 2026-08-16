@@ -1,3 +1,124 @@
+# Simu Liu’s Adaptation Of Hit Action Video Game Gets Best Update Yet
+
+Movies, Sleeping Dogs, Simu Liu
+
+Sun, 16 Aug 2026 21:37:20 GMT
+
+https://screenrant.com/sleeping-dogs-movie-adaptation-simu-liu-update/
+
+Simu Liu offers fans a very encouraging update regarding his upcoming live-action video game adaptation and thanks fans for their patience.
+---------
+
+# Avengers' Dark Marvel Introduction In The Incredible Hulk Revealed By Director
+
+Movies, The Incredible Hulk, Hulk, Marvel Cinematic Universe, The Avengers
+
+Sun, 16 Aug 2026 21:32:37 GMT
+
+https://screenrant.com/the-incredible-hulk-dark-avengers-cut-louis-leterrier/
+
+Nearly two decades after its release in theaters, The Incredible Hulk director shares how a different cut had a larger Avengers presence in it.
+---------
+
+# 10 Comedy Sequels That Were Better Than The Original Movies
+
+Classic Movies, Comedy
+
+Sun, 16 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/comedy-sequels-better-than-originals/
+
+It is hard to create a successful comedy sequel, but there are some comedy releases that prove that things often get better the second time.
+---------
+
+# The Lord Of The Rings' Real Villain Isn't Sauron (It Isn't Even Morgoth)
+
+Movies, The Lord of the Rings
+
+Sun, 16 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/lord-of-the-rings-real-villain-not-sauron-corruption/
+
+While many would assume The Lord of the Rings' real villain is Sauron, the real antagonist of Tolkien's story is a very different form of evil.
+---------
+
+# After Spider-Man: Brand New Day, Zendaya's Next Role Should Be A Villain
+
+Movies, Marvel Cinematic Universe, Spider-Man, Spider-Man: Brand New Day, Zendaya
+
+Sun, 16 Aug 2026 21:15:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-zendaya-villain-role/
+
+Zendaya's chilling performance as the possessed MJ in Spider-Man: Brand New Day proves she's more than ready to take on a major villain role next.
+---------
+
+# Brandon Sanderson Officially Returns With Stormlight: Tidebreakers October 2027
+
+Games, The Stormlight Archive, The Cosmere
+
+Sun, 16 Aug 2026 21:35:14 GMT
+
+https://www.cbr.com/brandon-sanderson-stormlight-official-return-october-2027-tidebreakers/
+
+Fans of Brandon Sanderson's Stormlight Archive series have another major release to look forward to in 2027, and it might just be the best yet.
+---------
+
+# 10 Strongest Legendary Pokémon, Officially Ranked
+
+Anime, Pokemon
+
+Sun, 16 Aug 2026 21:15:15 GMT
+
+https://www.cbr.com/strongest-legendary-pokemon-officially-ranked/
+
+The most powerful Legendary Pokémon are godlike beings that tower over all others.
+---------
+
+# Anya Taylor-Joy's Billion Dollar Sci-Fi Hit Officially Overtakes 'Obsession' on Streaming
+
+Movie News, Obsession, The Super Mario Galaxy Movie, Peacock, Streaming
+
+Sun, 16 Aug 2026 21:30:15 GMT
+
+https://collider.com/the-super-mario-galaxy-movie-streaming-success-peacock-august-2026/
+
+The first billion-dollar movie of 2026 just sent a blue turtle shell to obliterate Obsession on the streaming charts. Find out more here.
+---------
+
+# Samara Weaving's 2026 Murder Mystery Officially Takes Over the World
+
+Movie News, Samara Weaving, Over Your Dead Body, Jason Segel, Timothy Olyphant
+
+Sun, 16 Aug 2026 21:15:14 GMT
+
+https://collider.com/samara-weaving-over-your-dead-body-streaming-success-amc-plus-august-2026/
+
+Samara Weaving and Timothy Olyphant star in a Ready or Not-meets-Knives Out dark action comedy that's blowing up on streaming. Read on for more.
+---------
+
+# This Near-Perfect 4-Part Fantasy Series Is the Best Weekend Binge You Haven't Seen
+
+TV Features, Wellington Paranormal, Taika Waititi, Jemaine Clement, What We Do in the Shadows
+
+Sun, 16 Aug 2026 21:14:14 GMT
+
+https://collider.com/wellington-paranormal-fantasy-series-weekend-binge/
+
+Wellington Paranormal is the ultimate fantasy comedy series that's perfect for your weekend binge.
+---------
+
+# Every Canceled Project in James Gunn's DCU Explained
+
+TV Lists, DCU
+
+Sun, 16 Aug 2026 21:30:12 GMT
+
+https://movieweb.com/james-gunn-dcu-every-cancelled-project/
+
+Since announcing the DCU slate in January 2023, multiple titles in James Gunn's DCU have been scrapped.
+---------
+
 # Supernatural Totally Abandoned One Of Its Oldest Stories Halfway Through The Show
 
 Classic TV, Supernatural
