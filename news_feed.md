@@ -1,3 +1,36 @@
+# Russell Crowe’s 104-Minute War Thriller Is Officially Exploding on Streaming
+
+Movie News, Eye in the Sky, Black Hawk Down, Land of Bad, Russell Crowe
+
+Sun, 16 Aug 2026 09:40:14 GMT
+
+https://collider.com/russell-crowe-land-of-bad-streaming-success-netflix-august-2026/
+
+Russell Crowe’s modern war thriller Land of Bad is enjoying a major streaming resurgence after becoming one of 2024’s surprise action hits.
+---------
+
+# 10 HBO Shows That Are the Perfect Weekend Binge
+
+TV, HBO, Band of Brothers, DTF St. Louis, Chernobyl
+
+Sun, 16 Aug 2026 09:26:14 GMT
+
+https://collider.com/hbo-shows-perfect-weekend-binge/
+
+Explore great HBO shows ideal for weekend binges thanks to rich storytelling and compelling characters, from Chernobyl to Band of Brothers.
+---------
+
+# HBO Wins Big With $21M Horror Sleeper Hit on Streaming
+
+Movie News, HBO Max, Horror, The Strangers: Chapter 2, Streaming
+
+Sun, 16 Aug 2026 09:20:15 GMT
+
+https://collider.com/the-strangers-chapter-two-streaming-success-hbo-max-august-2026/
+
+The Night Agent's Gabriel Basso takes on The Strangers in the sequel to the horror film, now blowing up streaming charts. Read on for more.
+---------
+
 # Stormlight World Guide Is A Must-Have Book For Brandon Sanderson Fans
 
 Gaming, Brandon Sanderson, The Cosmere RPG, The Stormlight Archive
