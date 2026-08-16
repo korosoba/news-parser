@@ -1,3 +1,113 @@
+# Hogwarts Legacy 2 Move Over, A New Harry Potter RPG Officially Launches Spring 2027
+
+Gaming, Harry Potter, Triple-A Games
+
+Sun, 16 Aug 2026 19:15:11 GMT
+
+https://screenrant.com/harry-potter-defenders-hogwarts-new-rpg-spring-2026/
+
+While Harry Potter is set to come back in a big way thanks to the debut of the HBO TV show later this year, something is coming right after it.
+---------
+
+# Johnny Depp's Pirates Of The Caribbean Return Is Finally Moving Forward
+
+Movies, Pirates of the Caribbean
+
+Sun, 16 Aug 2026 19:01:38 GMT
+
+https://screenrant.com/johnny-depp-pirates-of-the-caribbean-return/
+
+Captain Jack Sparrow's return to Pirates of the Caribbean becomes a reality, as Jerry Bruckheimer gives a clear answer about Johnny Depp's return.
+---------
+
+# George Clooney's Forgotten 6-Part War Series Has An Impressively Stacked Cast
+
+Classic TV, Masked Recs
+
+Sun, 16 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/george-clooney-catch-22-miniseries-impressive-cast/
+
+George Clooney made a rare appearance on a streaming service with Hulu's Catch-22, and the cast list is even more impressive now than it was in 2019.
+---------
+
+# 5 Impressive Details About Dungeons & Dragons' New Psion Class
+
+Tabletop, Dungeons and Dragons, Dungeons & Dragons, tabletop games
+
+Sun, 16 Aug 2026 19:00:11 GMT
+
+https://screenrant.com/dungeons-dragons-psion-class-release-2027-dark-sun/
+
+The release of the Psion class for Dungeons and Dragons is closer than ever, and its arrival may represent a brand-new dawn for the popular TTRPG.
+---------
+
+# 10 Most Overpowered Anime Heroes, Officially Ranked
+
+Anime, Jujutsu Kaisen, Dragon Ball, Goku, Sailor Moon
+
+Sun, 16 Aug 2026 19:15:14 GMT
+
+https://www.cbr.com/most-op-anime-heroes-officially-ranked/
+
+Truly overpowered anime characters are about more than blowing up planets or winning a tough fight.
+---------
+
+# 10 Shows to Watch if You Like Suits
+
+TV, Suits, Boston Legal, How to Get Away With Murder
+
+Sun, 16 Aug 2026 19:01:15 GMT
+
+https://www.cbr.com/shows-watch-like-suits/
+
+Suits made a major impact during it's 9-season run, and fans looking for similar series have several great options
+---------
+
+# Daniel Radcliffe & Paul Dano's 97-Minute Surrealist Drama Lands on Netflix in Just 3 Days
+
+Movies, Swiss Army Man
+
+Sun, 16 Aug 2026 19:01:14 GMT
+
+https://www.cbr.com/swiss-army-man-drama-netflix-release-august-2026/
+
+One of the most absurd drama films of the past decade is finally heading to the biggest streaming platform, and it's only days away.
+---------
+
+# 10 X-Men Characters We Need Jean Grey to Meet in the MCU After Her Spider-Man Debut
+
+Movies, Marvel Cinematic Universe
+
+Sun, 16 Aug 2026 19:01:14 GMT
+
+https://www.cbr.com/x-men-characters-mcu-needs-with-jean-grey-list/
+
+Jean Grey has finally made her first appearance in the MCU, opening the door for some of her closest friends and enemies to follow suit.
+---------
+
+# Say Goodbye to Brad Pitt’s Chaotic Spy Thriller Before It Leaves Netflix
+
+Movie News, Burn After Reading, George Clooney, Brad Pitt, Netflix
+
+Sun, 16 Aug 2026 19:00:15 GMT
+
+https://collider.com/brad-pitt-spy-comedy-burn-after-reading-leaving-netflix-september-2026/
+
+The Coen Brothers' zany spy comedy film Burn After Reading is about to be removed from Netflix. Find out when.
+---------
+
+# 7 Jason Statham Revenge Thrillers To Watch Before 'Mutiny' That Are 10/10
+
+Movie Lists, Jason Statham, Thriller, Action, Mutiny
+
+Sun, 16 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/jason-statham-revenge-thrillers-watch-mutiny/
+
+With 'Mutiny' on the way, these are the perfect Jason Statham revenge thriller movies to watch in preparation.
+---------
+
 # Home Alone 3 “Was Just A Total Mistake”, Says OG Star
 
 Movies, Home Alone 3, Home Alone
