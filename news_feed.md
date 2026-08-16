@@ -1,3 +1,135 @@
+# After 34 Years, DC Kills Off Iconic Teen Titans Hero
+
+Comics, Teen Titans
+
+Sun, 16 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/teen-titans-hero-ravager-dead/
+
+The Teen Titans have existed in the DC Comics lore for over 60 years, and one of the superhero team's older members has just been killed off.
+---------
+
+# X-Men's Kitty Pryde Debuts Her Darkest Redesign Of All Time
+
+Marvel Comics, X-Men
+
+Sun, 16 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/x-men-kitty-pryde-dark-redesign-costume/
+
+Marvel reveals Kitty Pryde's new design, the most dramatic of all the X-Men, which makes her look ripped straight out of a horror movie.
+---------
+
+# Palpatine's Clone Wars Plan Would Have Failed Without Star Wars' Most Underrated Villain
+
+Movies, Star Wars, Star Wars: The High Republic
+
+Sun, 16 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/palpatine-clone-wars-plan-fail-without-marchio-ro-star-wars-high-republic/
+
+One underrated Star Wars villain paved the way for Palpatine to destroy the Jedi and the Republic, centuries before the Sith Lord was even born.
+---------
+
+# The 1999 PlayStation 1 Classic That Inspired Stardew Valley Is Free Now With PS Plus
+
+Gaming, PlayStation Plus, Triple-A Games, Stardew Valley, PlayStation (Original), Harvest Moon
+
+Sun, 16 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/playstation-ps1-free-stardew-valley-like-ps-plus/
+
+You can play the 1999 PlayStation 1 classic game that inspired the creation of Stardew Valley decades later entirely for free on PlayStation Plus.
+---------
+
+# Stephen King’s IT Sets New Release With The Duffer Brothers
+
+Books, IT, Matt Duffer, Ross Duffer
+
+Sun, 16 Aug 2026 16:58:48 GMT
+
+https://screenrant.com/stephen-king-it-40th-anniversary-edition-duffer-brothers-intro/
+
+Stranger Things and IT have many parallels, and now the two stories are further connected with a new IT release that involves the Duffer Brothers.
+---------
+
+# 8 Greatest Movie Epics Of The 1960s, Ranked
+
+Movies, Cleopatra, War and Peace, Once Upon a Time in the West, The Good, the Bad and the Ugly, Lawrence of Arabia, Spartacus, Doctor Zhivago, The Great Escape
+
+Sun, 16 Aug 2026 16:55:11 GMT
+
+https://screenrant.com/best-movie-epics-1960s-ranked/
+
+Elizabeth Taylor, Clint Eastwood, and Peter O'Toole headline this ranking of the greatest movie epics of the 1960s, from Cleopatra to Spartacus.
+---------
+
+# 16 Years Later, Disney+'s New Legacy Sequel Is an Instant Global Hit Despite 42% Audience Score
+
+Movies, Camp Rock 3
+
+Sun, 16 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/camp-rock-3-musical-disney-plus-success-august-2026/
+
+The third installment of the long-running musical franchise didn't impress audiences.
+---------
+
+# 5 Near-Perfect 1990s Westerns Nobody Remembers Today
+
+Movies, Western
+
+Sun, 16 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/best-1990s-westerns-no-one-remembers-list/
+
+Between epic films like Dances with Wolves and Tombstone, these almost flawless 1990s Westerns became forgotten gems in the genre.
+---------
+
+# 63 Years Later, Marvel’s Original X-Men Comics Could Save the MCU’s Mutants
+
+Comics, X-Men
+
+Sun, 16 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/original-x-men-comics-could-save-mcu-xmen/
+
+MCU's best movies tend to honor the original source material, and a new X-Men adaptation should be no different.
+---------
+
+# Tom Hardy's 104-Minute Crime Thriller Is Officially a Free Streaming Gem
+
+Movie News, The Code, Tom Hardy, Morgan Freeman, Antonio Banderas
+
+Sun, 16 Aug 2026 17:01:15 GMT
+
+https://collider.com/tom-hardy-crime-thriller-the-code-streaming-prime-video-free-tubi-august-2026/
+
+Tom Hardy's 104-minute crime thriller with shades of Heat and The Departed is officially streaming for free.
+---------
+
+# ‘Stranger Things’ Is Returning at the Perfect Time for Netflix’s Sci-Fi Surge
+
+TV Features, Stranger Things, Stranger Things: Tales from '85, Netflix, Series
+
+Sun, 16 Aug 2026 16:55:15 GMT
+
+https://collider.com/stranger-things-tales-from-85-season-2-netflix-sci-fi-surge/
+
+Stranger Things: Tales From ’85 Season 2 is returning amid Netflix’s biggest sci-fi surge yet, giving the animated spinoff a major boost.
+---------
+
+# Taylor Sheridan's Game-Changing Masterpiece Continues to Get More Popular
+
+Features, Yellowstone, Taylor Sheridan
+
+Sun, 16 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/yellowstone-taylor-sheridan-still-popular/
+
+Love it or hate it, you can't ignore the greats. Taylor Sheridan's opus continues to shine in every capacity.
+---------
+
 # 5 Best Shows Like Dungeon Crawler Carl
 
 Streaming TV, Dungeon Crawler Carl
