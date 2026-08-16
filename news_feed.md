@@ -1,3 +1,14 @@
+# Apple TV’s 4-Part Crown Jewel Is Officially Topping the Charts Again
+
+TV News, Ted Lasso, Apple TV, Streaming, Jason Sudeikis
+
+Sun, 16 Aug 2026 08:00:25 GMT
+
+https://collider.com/ted-lasso-season-4-streaming-success-apple-tv-august-2026/
+
+Apple TV's most important series is back at the top of the streaming charts. Here's everything you should know about Ted Lasso Season 4.
+---------
+
 # House Of The Dragon's Tyland Lannister Returns In New Game Of Thrones Release
 
 Gaming, House of the Dragon, House of the Dragon - Season 1, House of the Dragon - Season 2, House of the Dragon - Season 3, Game of Thrones, PC
