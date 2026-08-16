@@ -1,3 +1,80 @@
+# Antony Starr's Banshee Deserved To Be As Big As The Rookie
+
+Classic TV, Banshee, Antony Starr, The Rookie
+
+Sun, 16 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/banshee-deserves-the-rookie-success/
+
+Before The Boys and Homelander, Antony Starr was in four seasons of a crime drama that deserved to be as big as ABC's and Nathan Fillion's The Rookie.
+---------
+
+# Mighty Morphin Power Rangers Original Team Returns December 2027 For Collectors
+
+Gaming, Mighty Morphin Power Rangers, Mighty Morphin Power Rangers: The Movie, PC
+
+Sun, 16 Aug 2026 11:00:11 GMT
+
+https://screenrant.com/mighty-morphin-power-rangers-return-december-2027/
+
+Might Morphin Power Rangers' iconic rangers still hold a unique place at the top of the franchise, and the OG lineup officially returns in 2027.
+---------
+
+# Disney's Wreck-It Ralph Cut Controversial Joke After 1 Screening
+
+Movies, Wreck-It Ralph
+
+Sun, 16 Aug 2026 11:00:14 GMT
+
+https://www.cbr.com/disney-wreck-it-ralph-controversial-race-riot-joke-revealed/
+
+At a D23 panel, stars of Wreck-It Ralph revealed some of the darker jokes from the film that were nixed after audiences reacted.
+---------
+
+# Who Is Gary Larson, Creator of The Far Side?
+
+Comics, The Far Side
+
+Sun, 16 Aug 2026 11:00:14 GMT
+
+https://www.cbr.com/who-is-gary-larson-the-far-side-creator/
+
+The Far Side is a beloved and well-known single-panel comic strip that has enamored readers for decades, but Gary Larson is not quite as well-known.
+---------
+
+# 10 Essential Sci-Fi Books for Beginners
+
+Books and Comics, Sci-Fi, Science Fiction, Jurassic Park, Project Hail Mary
+
+Sun, 16 Aug 2026 11:09:14 GMT
+
+https://collider.com/essential-sci-fi-books-beginners/
+
+For readers exploring the sci-fi genre for the first time, books like Jurassic Park, Fahrenheit 451, and Project Hail Mary are a great place to start.
+---------
+
+# ‘Yellowstone’ Fans Officially Turn Netflix’s 3-Part YA Series Into a Streaming Hit
+
+TV News, Netflix, My Life with the Walter Boys, Dutton Ranch, Streaming
+
+Sun, 16 Aug 2026 11:01:14 GMT
+
+https://collider.com/my-life-with-the-walter-boys-streaming-success-netflix-august-2026/
+
+Netflix's teen answer to Dutton Ranch, My Life With the Walter Boys, is topping the American streaming charts. Here's everything you should know.
+---------
+
+# The 12 Best Video Games of the 2020s (So Far), Ranked
+
+TV, Video Game, Elden Ring, Cyberpunk 2077, Baldur's Gate 3
+
+Sun, 16 Aug 2026 10:59:17 GMT
+
+https://collider.com/best-games-2020s-ranked/
+
+Dive into the best 2020s video games that offer engaging gameplay and have made their mark in their genres, from Elden Ring to Cyberpunk 2077.
+---------
+
 # 9 Years Later, Rick Sanchez' Best Line Is Still The Greatest Quote In Rick & Morty History
 
 Streaming TV, Rick and Morty
