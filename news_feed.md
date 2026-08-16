@@ -1,3 +1,146 @@
+# Strange New Worlds Has Solved Its Biggest Star Trek Problem In Season 4
+
+Streaming TV, Star Trek: Strange New Worlds, Star Trek, Star Trek: The Original Series
+
+Sun, 16 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-solves-problem-original-series/
+
+The latest season of Star Trek: Strange New Worlds faced some massive challenges, but it's adapting accordingly, for the benefit of the franchise.
+---------
+
+# The Conjuring Meets Among Us In Wild New Multiplayer Horror
+
+Gaming, Steam, Triple-A Games
+
+Sun, 16 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/conjuring-meets-among-us-we-are-so-dead/
+
+If you need to get a crew together to play a new unique multiplayer experience, this one works even if you're not a horror fan.
+---------
+
+# 6 DC Villains Even Batman With Prep Time Could Never Beat
+
+Comics, DC Comics
+
+Sun, 16 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/dc-villains-beat-batman-prep-time/
+
+While Batman is the king of preparing to fight his enemies, he could not beat these six DC villains, no matter how much prep time he is given.
+---------
+
+# Honkai: Star Rail Announces Zenless Zone Zero Crossover for 2026
+
+Anime, RPG, action rpg, Genshin Impact
+
+Sun, 16 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/honkai-star-rail-zenless-zone-zero-crossover/
+
+Zenless Zone Zero characters are officially coming to hit sci-fi RPG Honkai: Star Rail in a new crossover launching in 2026.
+---------
+
+# The Best Medical Sitcom Ever Made Is 1 of the Most-Watched Titles on PVOD Ahead of Revival Return
+
+TV, Scrubs
+
+Sun, 16 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/scrubs-medical-sitcom-pvod-success-august-2026/
+
+The show will return soon, and its recent popularity on digital is encouraging.
+---------
+
+# 10 Underrated Marvel Crossover Runs You’ve Probably Never Read
+
+Comics, Marvel
+
+Sun, 16 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/underrated-marvel-crossover-runs-nobody-talks-about/
+
+These major and minor events have served as fantastic crossover tales that bring together some of Marvel's most interesting characters.
+---------
+
+# 5 Greatest Fantasy Books With Upcoming Movie Adaptations, Ranked
+
+Movies, Fantasy
+
+Sun, 16 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/best-upcoming-fantasy-book-movie-adaptations-list/
+
+The Lord of the Rings and Harry Potter are epic fantasy book adaptations, but these are the next amazing novels to go from the page to the screen
+---------
+
+# The 16 Funniest Ted Lasso Quotes
+
+TV, Ted Lasso, Apple TV
+
+Sun, 16 Aug 2026 22:00:14 GMT
+
+https://www.cbr.com/funniest-ted-lasso-quotes-list/
+
+Ted Lasso is known for its hilarious and inspirational quotes, but these 16 are among the funniest in the series.
+---------
+
+# 10 Perfect Horror Movies That Nobody Remembers
+
+Movie, Horror, Queens of the Dead, The Incredible Shrinking Man, White Dog
+
+Sun, 16 Aug 2026 22:03:14 GMT
+
+https://collider.com/best-horror-movies-nobody-remembers/
+
+Queens of the Dead, White Dog, Premutos: The Fallen Angel, and more make up our list of perfect horror movies that nobody remembers.
+---------
+
+# One of the Greatest World War II Epics Ever Made Is Leaving Netflix
+
+Movie News, Schindler's List, Steven Spielberg, Netflix, World War II
+
+Sun, 16 Aug 2026 22:00:14 GMT
+
+https://collider.com/schindlers-list-steven-spielberg-ww2-epic-leaving-netflix-september-2026/
+
+One of the greatest World War 2 epics ever made, Schindler's List, is about to be removed from Netflix. Find out when.
+---------
+
+# 10 Greatest Classic American Horror Movies
+
+Movie, Psycho, The Omen, The Shining, The Exorcist
+
+Sun, 16 Aug 2026 21:55:15 GMT
+
+https://collider.com/best-classic-american-horror-movies-ranked/
+
+Terrifying classics like Psycho, Halloween, and A Nightmare on Elm Street rank among the best American horror movies ever made.
+---------
+
+# 10 Best Oscar-Winning Period Movies
+
+Movie, Amadeus, Lawrence of Arabia, Titanic, Saving Private Ryan
+
+Sun, 16 Aug 2026 21:42:14 GMT
+
+https://collider.com/best-oscar-winning-period-movies-ranked/
+
+Amadeus, Barry Lyndon, and Lawrence of Arabia are among the best Oscar-winning period movies of all time.
+---------
+
+# 10 Marvel Superheroes Who Need to Appear in 'Spider-Man 5'
+
+Movie Lists, Spider-Man, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home)
+
+Sun, 16 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/spider-man-5-characters/
+
+From established heroes to characters who haven't made their MCU debut, there are several characters Spider-Man should team up with next time.
+---------
+
 # Simu Liu’s Adaptation Of Hit Action Video Game Gets Best Update Yet
 
 Movies, Sleeping Dogs, Simu Liu
