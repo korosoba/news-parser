@@ -1,3 +1,157 @@
+# HBO Officially Fixed Game Of Thrones By Making A 94% RT Prequel With No Dragons
+
+Streaming TV, Game of Thrones, Masked Recs
+
+Sun, 16 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/hbo-a-knight-seven-kingdoms-prequel-fixed-game-of-thrones/
+
+A Knight of the Seven Kingdoms proved that Game of Thrones doesn't need dragons or magic or a fight for the throne; it just needs a good story.
+---------
+
+# Constantine Meets Megabonk In Wild New Co-Op Roguelike You Can Play Free On August 21
+
+Gaming, Megabonk, Steam, PC, Constantine
+
+Sun, 16 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/constantine-megabonk-send-them-to-hell-demo-announcement/
+
+Megabonk fans looking for something to scratch the same itch need look no further, as this new co-op roguelike improves on the formula in every way.
+---------
+
+# Star Wars: Maul - Shadow Season 2 Release Window Officially Revealed
+
+TV, Star Wars: Maul - Shadow Lord, Star Wars, D23
+
+Sun, 16 Aug 2026 19:45:31 GMT
+
+https://screenrant.com/star-wars-maul-shadow-lord-season-2-release-2027-confirmed/
+
+Star Wars: Maul - Shadow Lord received an early season 2 renewal, and now the release window for the new season has been officially revealed.
+---------
+
+# CBS' Hit Police Procedural Gets Fantastic Streaming News Ahead of Return
+
+TV, NCIS, Paramount Plus
+
+Sun, 16 Aug 2026 20:01:15 GMT
+
+https://www.cbr.com/cbs-ncis-police-procedural-paramount-streaming-success-august-2026/
+
+CBS' fan-favorite police procedural and one of the longest-running American shows, NCIS, hits a new milestone ahead of new episodes.
+---------
+
+# Cassandra Cain Receives Manga-Style Variant Cover Absolute Universe One-Shot
+
+Comics, Absolute Universe, Cassandra Cain
+
+Sun, 16 Aug 2026 20:01:15 GMT
+
+https://www.cbr.com/absolute-cassandra-cain-the-shadows-hand-1-manga-style-variant-cover/
+
+This beloved Bat-Family member gets a whole new look.
+---------
+
+# Adult Swim Returns to 2001 With a Major Cowboy Bebop Problem
+
+Anime, Cowboy Bebop
+
+Sun, 16 Aug 2026 20:01:15 GMT
+
+https://www.cbr.com/cowboy-bebop-misses-adult-swim-anniversary/
+
+Cowboy Bebop is notably missing as Adult Swim recreates their iconic 2001 lineup.
+---------
+
+# 10 Movies To Watch If You Love The Terminator
+
+Movies, The Terminator
+
+Sun, 16 Aug 2026 20:01:15 GMT
+
+https://www.cbr.com/must-watch-movies-for-fans-of-the-terminator-list/
+
+From sleek thrillers to sci-fi slashers, there's something for every type of fan of the iconic franchise.
+---------
+
+# It's Official, Disney Lorcana TCG Is Going Digital
+
+Games, Disney Lorcana
+
+Sun, 16 Aug 2026 19:50:15 GMT
+
+https://www.cbr.com/disney-lorcana-tcg-digital-official-announcement/
+
+Disney Lorcana is finally getting the digital platform that fans have been waiting on for years, and it might be the biggest release of 2027.
+---------
+
+# Jon Bernthal Channels John Wick in This 10/10 Action Hit Officially Surging on Prime Video
+
+Movie News, The Accountant 2, Jon Bernthal, John Wick, The Equalizer
+
+Sun, 16 Aug 2026 20:01:14 GMT
+
+https://collider.com/jon-bernthal-the-acccountant-2-streaming-success-prime-video-august-2026/
+
+Jon Bernthal's action sleeper hit with shades of John Wick and The Equalizer is climbing the streaming charts on Prime Video.
+---------
+
+# ‘Peanuts’ Understood This Better Than Most Comics Ever Have
+
+Books and Comics, Peanuts, Peanuts Motion Comics, The Peanuts Movie
+
+Sun, 16 Aug 2026 19:55:15 GMT
+
+https://collider.com/peanuts-charlie-brown-legacy-exploration-of-loneliness/
+
+Peanuts seems to be the rare comic strip that never gives its lead a break, but that's helped it stand the test of time.
+---------
+
+# This 4-Part Series is HBO’s Best Crime Saga Since 'The Sopranos'
+
+TV Features, Barry, HBO, Bill Hader, Crime
+
+Sun, 16 Aug 2026 19:41:15 GMT
+
+https://collider.com/barry-hbo-best-crime-saga-since-sopranos/
+
+Barry blends comedy and crime, redefining HBO's legacy post-The Sopranos with its unique storytelling and dark humor.
+---------
+
+# Johnny Depp Reportedly in Talks for 'Pirates of the Caribbean 6'
+
+Movie News, Johnny Depp, Pirates of the Caribbean, Pirates of the Caribbean 6
+
+Sun, 16 Aug 2026 20:07:59 GMT
+
+https://movieweb.com/johnny-depp-pirates-caribbean-6/
+
+Johnny Depp, the man behind Captain Jack Sparrow, is reportedly on his way back to the 'Pirates of the Caribbean' franchise for its sixth movie.
+---------
+
+# It’s Officially the End of an Era for ‘Jurassic Park’ After 31 Years
+
+Features, The End of Oak Street, Jurassic Park
+
+Sun, 16 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/the-end-of-oak-street-jurassic-park-competition/
+
+No sequel or stand-alone movie has ever matched the original 'Jurassic Park' from either a quality standpoint or in tense dino action until now.
+---------
+
+# Jeremy Renner’s 10/10 Sci-Fi Thriller Masterpiece Is Essential Viewing After Becoming Streaming Smash Hit
+
+Movie News, Arrival, Jeremy Renner, Hot on Streaming
+
+Sun, 16 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/arrival-streaming-hit-apple-tv-august-2026/
+
+At 116 minutes, it's hardly a short movie, but time works... differently here.
+---------
+
 # Star Wars Retcons The Force Awakens With New Return Of The Jedi Sequel
 
 Streaming TV, Star Wars
