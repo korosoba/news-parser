@@ -1,3 +1,25 @@
+# The Superhero Blockbuster Robert Downey Jr. Called "the Best Marvel Movie" Is a Hit Ahead of 'Doomsday'
+
+Movie News, Avengers: Age of Ultron, MCU, Robert Downey Jr, Avengers: Doomsday
+
+Sun, 16 Aug 2026 08:40:14 GMT
+
+https://collider.com/avengers-age-of-ultron-streaming-success-disney-plus-august-2026/
+
+The superhero blockbuster Robert Downey Jr. called "the Best Marvel movie" is a streaming hit. Here's everything you should know before Doomsday.
+---------
+
+# ‘Reservoir Dogs’ Meets ‘John Wick’ in Cillian Murphy’s Wild Cult Action Sleeper Hit
+
+Movie News, Free Fire, Cillian Murphy, Brie Larson, Netflix
+
+Sun, 16 Aug 2026 08:20:15 GMT
+
+https://collider.com/cillian-murphy-free-fire-streaming-netflix-august-2026/
+
+Cillian Murphy, Brie Larson and Sharlto Copley’s chaotic action comedy Free Fire is one of streaming’s most entertaining hidden gems.
+---------
+
 # Apple TV’s 4-Part Crown Jewel Is Officially Topping the Charts Again
 
 TV News, Ted Lasso, Apple TV, Streaming, Jason Sudeikis
