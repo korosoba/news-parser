@@ -1,3 +1,146 @@
+# I Think Star Trek’s Enterprise Crew Are Why Klingons Abandoned Their Deadliest Weapon
+
+TV, Star Trek, Star Trek: Strange New Worlds, Star Trek: The Original Series, Op-Ed
+
+Sun, 16 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-uhura-spock-beat-klingon-mind-scanner/
+
+Commander Kor raved about his Klingon mind scanner, but Star Trek: Strange New Worlds and TOS hint at why this much-hyped device was a failure.
+---------
+
+# 10 Best Fantasy Books With Perfect Elemental Magic Systems if you love ATLA
+
+Books
+
+Sun, 16 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/fantasy-books-elemental-magic-system-avatar-last-airbender-recommendations/
+
+Here are ten amazing fantasy books with strong elemental magic systems and worldbuilding that are perfect for fans of Avatar: The Last Airbender.
+---------
+
+# Marvel’s Most Iconic X-Men Couple Is Getting Their Own Standalone
+
+Books, X-Men, Marvel, Rogue, Gambit
+
+Sun, 16 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/rogue-gambit-romance-novel-xmen-marvel/
+
+An upcoming moody supernatural romance spinoff sets Marvel's most iconic X-Men couple at center stage, and fans will not want to miss this story.
+---------
+
+# Paradise Season 3 Wraps Filming As EP Promises Episodes “Will Answer Every Question”
+
+TV, Paradise, Paradise - Season 3
+
+Sun, 16 Aug 2026 15:00:04 GMT
+
+https://screenrant.com/paradise-season-3-filming-wrap-all-questions-answered-john-hoberg/
+
+Paradise executive producer and writer John Hoberg promises that all questions will be answered as the third and final season wraps production.
+---------
+
+# Life Is Strange Live-Action Adaptation's Season 2 Plans Revealed
+
+TV, Life Is Strange
+
+Sun, 16 Aug 2026 14:53:32 GMT
+
+https://screenrant.com/life-is-strange-adaptation-season-2-plans/
+
+Amazon's Life is Strange could be sticking around, as producers and executives reveal plans for season 2 as production remains underway in Canada.
+---------
+
+# 5 Fall 2026 Anime That Could Become the Year's Biggest Hits
+
+Anime, Dragon Ball Super: Beerus, Black Clover
+
+Sun, 16 Aug 2026 15:01:15 GMT
+
+https://www.cbr.com/fall-2026-anime-biggest-hits/
+
+Fall 2026 is looking to be a sensational anime season, with titles like Psyren, Tank Chair, and Dragon Ball Super: Beerus set to dominate.
+---------
+
+# ABC Officially Confirms Bad News for High Potential Season 3 After Historic Renewal Decision
+
+TV, High Potential
+
+Sun, 16 Aug 2026 15:01:15 GMT
+
+https://www.cbr.com/abc-2026-2027-schedule-high-potential-season-3/
+
+ABC revealed its 2026-2027 lineup, including a major change to Kaitlin Olson's High Potential Season 3.
+---------
+
+# Moneyball leaving Netflix
+
+Movies, Moneyball, Netflix
+
+Sun, 16 Aug 2026 15:01:15 GMT
+
+https://www.cbr.com/moneyball-leaving-netflix-september-2026/
+
+One of the most critically acclaimed sports dramas of the past decade is officially eyeing its exit from the Netflix streaming library.
+---------
+
+# ‘Spider-Man: Brand New Day’ Officially Becomes Third MCU Movie to Cross $2 Billion
+
+Movie News, Spider-Man: Brand New Day, MCU, Tom Holland, Box Office
+
+Sun, 16 Aug 2026 15:12:35 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-2-billion/
+
+Spider-Man: Brand New Day officially crosses $2 billion worldwide, making Tom Holland’s sequel the 3rd MCU movie ever to do so.
+---------
+
+# Prime Video’s 4-Season Sci-Fi Series Is ‘Black Mirror’ With a Colossal Twist
+
+TV Features, Upload, Prime Video, Sci-Fi, Robbie Amell
+
+Sun, 16 Aug 2026 15:09:15 GMT
+
+https://collider.com/black-mirror-replacement-series-comedy-prime-video-upload/
+
+Upload is Prime Video’s sci-fi series about a digital afterlife that turns technology, class inequality, and corporate greed into a nightmare.
+---------
+
+# Zendaya's Rumored Takeover of $1.6 Billion Action Franchise Would Flip Hollywood Upside Down
+
+Movie News, Bourne
+
+Sun, 16 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/bourne-6-zendaya-hollywood-impact/
+
+A rumored Zendaya-led 'Bourne' reboot has drawn a blunt endorsement from 'John Wick' producer Basil Iwanyk.
+---------
+
+# Apple's 127-Minute Sci-Fi Action Hit Is Officially One of the Biggest Movies on Streaming
+
+Movie News, The Gorge, Apple TV, Hot on Streaming, Sci-Fi, Action
+
+Sun, 16 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/the-gorge-scifi-apple-streaming-success-august-2026/
+
+Apple TV's original sci-fi action thriller is taking no prisoners on streaming.
+---------
+
+# Stephen King's Near-Perfect 10-Part Thriller Remains Essential Viewing
+
+Features, Stephen King
+
+Sun, 16 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/the-outsider-stephen-king-hbo-binge-watch/
+
+HBO needs to become King's official home.
+---------
+
 # A Gentleman In Moscow Ending Explained
 
 Classic TV, A Gentleman in Moscow
