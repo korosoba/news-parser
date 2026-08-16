@@ -1,3 +1,102 @@
+# 6 Biggest Events House Of The Dragon Season 4 Must Include To Follow A Book-Accurate Ending
+
+Streaming TV, House of the Dragon
+
+Sun, 16 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/house-of-the-dragon-season-4-book-scenes/
+
+House of the Dragon's fidelity to Fire & Blood has been shaky, though this can be resolved by adapting six key events from the latter in season 4.
+---------
+
+# 10 Near-Perfect 2000s Thriller Movies No One Remembers Today
+
+Classic Movies, Thriller
+
+Sun, 16 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/great-2000s-thriller-movies-no-one-remembers/
+
+There were some incredible thriller movies that hit in the 2000s that not enough people talk about and these are all perfect thrillers to revisit.
+---------
+
+# These 7 Sci-Fi Movie Endings Are So Good, They Turned Their Movies Into Masterpieces
+
+Movies, Sci-Fi
+
+Sun, 16 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/sci-fi-movie-endings-masterpieces/
+
+These sci-fi movies have endings so powerful they are highlights of the project and may just stay with you long after the credits roll.
+---------
+
+# 10 Greatest Gundam Series of All Time, Officially Ranked
+
+Anime, mecha, Gundam, Turn A Gundam, Mobile Suit Gundam
+
+Sun, 16 Aug 2026 23:15:14 GMT
+
+https://www.cbr.com/greatest-gundam-series-all-time-officially-ranked/
+
+Gundam played a vital role in anime, both in Japan and across the world by revolutionizing fan perception of mecha anime.
+---------
+
+# Russell Crowe’s Franchise-Killing Superhero Flop Is Officially Leaving Netflix
+
+Movie News, Kraven the Hunter, Aaron Taylor-Johnson, Russell Crowe, Netflix
+
+Sun, 16 Aug 2026 23:30:14 GMT
+
+https://collider.com/russell-crowe-kraven-the-hunter-leaving-netflix-september-2026/
+
+The critically panned box-office disaster Kraven the Hunter, starring Aaron Taylor-Johnson, is about to be removed from Netflix. Find out when.
+---------
+
+# Peacock's 8-Part Sci-Fi Series Is So Good, There's Nothing Else Like It in Hollywood
+
+TV Features, Mrs. Davis, Betty Gilpin, Damon Lindelof, Peacock
+
+Sun, 16 Aug 2026 23:27:14 GMT
+
+https://collider.com/peacock-sci-fi-mrs-davis-nothing-else-in-hollywood/
+
+Peacock's Mrs. Davis, starring Betty Gilpin as an AI-fighting nun, is a must-watch miniseries that blends humor with a bold sci-fi premise.
+---------
+
+# 'X-Men's Original Storm Officially Reacts to New MCU Star
+
+TV News, X-Men '97, X-Men, Marvel TV
+
+Sun, 16 Aug 2026 23:23:23 GMT
+
+https://collider.com/x-men-storm-actress-cast-maya-boyd-alison-sealy-smith-reaction/
+
+Original X-Men: The Animated Series actress Alison Sealy-Smith shares her praise for new Storm actress Maya Boyd.
+---------
+
+# Netflix Is Officially Grounding Liam Neeson’s 106-Minute Action Thrill-Ride
+
+Movie News, Non-Stop, Liam Neeson, Netflix, Julianne Moore
+
+Sun, 16 Aug 2026 23:15:14 GMT
+
+https://collider.com/liam-neeson-non-stop-leaving-netflix-august-31/
+
+Netflix is officially removing Liam Neeson's Non-Stop from its streaming library at the end of August. Find out more details here.
+---------
+
+# 10 Ongoing Netflix Shows Perfect for Binge-Watching
+
+TV Lists, Netflix, One Piece, Wednesday
+
+Sun, 16 Aug 2026 23:30:12 GMT
+
+https://movieweb.com/ongoing-netflix-shows-to-binge-watch/
+
+There's something special about watching ongoing shows as they come out, and these unfinished Netflix series are ideal binge fodder.
+---------
+
 # 12 Best PS2 Horror Games Of All Time
 
 Gaming, PlayStation 2
