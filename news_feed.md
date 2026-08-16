@@ -1,3 +1,58 @@
+# Gilmore Girls' 10 Most Controversial Episodes
+
+Classic TV, Gilmore Girls
+
+Sun, 16 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/gilmore-girls-most-controversial-episodes/
+
+Even a cozy comfort show like Gilmore Girls has a few controversial episodes, from Rory dropping out of Yale to Lorelai and Christopher's wedding.
+---------
+
+# Tangled Live-Action Adds Major Royalty To The Remake's Cast
+
+Movies, Tangled
+
+Sun, 16 Aug 2026 17:23:00 GMT
+
+https://screenrant.com/tangled-live-action-cast-elliot-cowan-caitriona-balfe/
+
+Tangled is getting the royal treatment, as two royal casting choices have been made for both King Frederic and Queen Arianna for the Disney remake.
+---------
+
+# FX's Sitcom Masterpiece Returns With Another Perfect Rotten Tomatoes Score
+
+TV, It's Always Sunny in Philadelphia
+
+Sun, 16 Aug 2026 17:32:58 GMT
+
+https://www.cbr.com/its-always-sunny-in-philadelphia-season-18-rotten-tomatoes-score/
+
+That's yet another perfect score on Rotten Tomatoes for the beloved series.
+---------
+
+# The Legend of Zelda Goes Multiplayer for Its 40th Anniversary
+
+Games, The Legend of Zelda, Nintendo
+
+Sun, 16 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/zelda-multiplayer-cooperative-mod-40th-anniversary/
+
+Zelda fans can now celebrate Link’s 40 year anniversary by teaming up with a friend for co-op in the original 1986 NES title.
+---------
+
+# John Wayne’s Western That Spawned a Great Remake Hits Harder Than Ever
+
+Features, True Grit, John Wayne
+
+Sun, 16 Aug 2026 17:30:12 GMT
+
+https://movieweb.com/true-grit-john-wayne-western-holds-up/
+
+John Wayne won his lone Oscar for True Grit, a landmark western that inspired an even better remake from Joel and Ethan Coen
+---------
+
 # After 34 Years, DC Kills Off Iconic Teen Titans Hero
 
 Comics, Teen Titans
