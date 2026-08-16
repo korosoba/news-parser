@@ -1,3 +1,168 @@
+# Sydney Sweeney's R-Rated Erotic Thriller That's An HBO Max Global Hit Continues 2026 Genre Trend
+
+Movies, Masked Recs
+
+Sun, 16 Aug 2026 18:05:11 GMT
+
+https://screenrant.com/sydney-sweeney-hbo-max-the-voyeurs-erotic-thriller-trend/
+
+Sydney Sweeney's R-rated erotic thriller has become a global hit on HBO Max, and the intense film continues a genre trend from 2026's releases.
+---------
+
+# The West Wing Meets The Office In 3-Part HBO Masterpiece Praised By Quentin Tarantino
+
+TV, Masked Recs
+
+Sun, 16 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/the-newsroom-hbo-aaron-sorkin-west-wing-the-office/
+
+Not many TV shows manage to catch the attention of Quentin Tarantino, but this forgotten masterpiece on HBO had the movie director hooked.
+---------
+
+# 25 Years Later, This Nintendo GameCube 10/10 Masterpiece Changed Gaming Forever
+
+Gaming, Super Smash Bros., Nintendo GameCube
+
+Sun, 16 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/nintendo-gamecube-2001-masterpiece-changed-gaming/
+
+Discover how one Nintendo GameCube title defined gaming in a way that even 25 years later, it's still beloved for its iconic gameplay.
+---------
+
+# Brand New Day Is The MCU's Best Spider-Man Movie, But This Critique Is Still True
+
+Movies, Spider-Man: Brand New Day
+
+Sun, 16 Aug 2026 17:45:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-mcu-mj-ned-character-critique/
+
+There's no question that Spider-Man: Brand New Day is an excellent movie, but this issue with a few of the main characters remains true regardless.
+---------
+
+# 10 Greatest Shonen Anime Arcs of All Time, Officially Ranked
+
+Anime, Hunter X Hunter, Attack on Titan
+
+Sun, 16 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/greatest-shonen-anime-arcs-officially-ranked/
+
+The Shonen genre is filled with exciting storylines, but these arcs stand out as the greatest in anime history.
+---------
+
+# Michael Fassbender's Overlooked Spy Series Quietly Returns as a Streaming Hit
+
+TV, The Agency
+
+Sun, 16 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/michael-fassbender-the-agency-paramount-plus-overall-success-august-2026/
+
+One of the most critically underrated and criminally under watched spy shows of the decade is making its way up the streaming charts.
+---------
+
+# Pokémon Gives Dragonite an Official New Design in Exclusive Release
+
+Anime, Pokemon, merchandise, Funko Pop
+
+Sun, 16 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/pokemon-dragonite-new-design-pearlescent-funko-pop/
+
+Pokémon fans can officially bring home a whole new kind of Dragonite alongside two other beloved Generation One Pokémon as part of a new merch line.
+---------
+
+# Bergerac: Every Case Targets Jim’s Deepest Weaknesses | Set Stories
+
+TV, Bergerac
+
+Sun, 16 Aug 2026 18:15:15 GMT
+
+https://collider.com/video/bergerac-every-case-targets-jim-s-deepest-weaknesses-set-stories/
+
+Damien Molony reveals why Jim Bergerac’s iconic car is more than a nostalgic callback — it’s a physical connection to the wife he lost.
+---------
+
+# ‘X-Men ’97’ Officially Sets Up the Perfect Villain for Season 3 [Exclusive]
+
+Exclusives, X-Men '97, Marvel, Animation, Disney+
+
+Sun, 16 Aug 2026 18:00:15 GMT
+
+https://collider.com/x-men-97-season-3-mystique-return/
+
+X-Men ’97 creators officially confirm Mystique’s return as a dangerous new wild card heading into Season 3.
+---------
+
+# Denzel Washington’s Overlooked Boxing Classic Is Officially Leaving Netflix
+
+Movie News, The Hurricane, Denzel Washington, Netflix, Rocky
+
+Sun, 16 Aug 2026 18:00:15 GMT
+
+https://collider.com/denzel-washington-the-hurricane-leaving-netflix-august-31-2026/
+
+Denzel Washington's Rocky meets The Shawshank Redemption drama is officially leaving Netflix at the end of this month.
+---------
+
+# Netflix’s Forgotten 7-Episode Sci-Fi Show Still Hits Like a Punch to the Gut
+
+TV Features, I Am Not Okay with This, Netflix, Sophia Lillis, Sci-Fi
+
+Sun, 16 Aug 2026 17:59:15 GMT
+
+https://collider.com/netflix-i-am-not-okay-with-this-best-sci-fi-show/
+
+In one season, Netflix's I Am Not Okay With This rewrites the classic powered-teen premise with a phenomenal performance from Sophia Lillis.
+---------
+
+# Amazon's New Smash Hit Assassin Series Dethroned by Streaming's Best Action Thriller
+
+TV News, Ride or Die, Streamer Comparisons, Prime Video
+
+Sun, 16 Aug 2026 18:04:24 GMT
+
+https://movieweb.com/ride-or-die-reacher-prime-video-august-2026/
+
+Prime Video's flagship action thriller reclaims the Top 10 streaming chart with an explosive season premiere.
+---------
+
+# 10 Things Christopher Nolan Undeniably Got Right About 'The Odyssey'
+
+Features, The Odyssey, Christopher Nolan
+
+Sun, 16 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/christopher-nolan-got-right-the-odyssey/
+
+Christopher Nolan brought his entirely unique vision of Homer's epic poem to the big screen, and so many of his choices wound up working perfectly.
+---------
+
+# Quentin Tarantino's 108-Minute Fantasy Action Hit Officially Returns to Streaming
+
+Movie News, From Dusk Till Dawn, Paramount Plus, Hot on Streaming, Quentin Tarantino, Action
+
+Sun, 16 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/from-dusk-till-dawn-stream-paramount-august-2026/
+
+He might not have directed it, but this feels like a Tarantino movie through-and-through.
+---------
+
+# 'Romy and Michele' Star Explains Why Original Has Endured Ahead of Sequel
+
+Movie News, Romy and Michele's High School Reunion, Mira Sorvino, Lisa Kudrow
+
+Sun, 16 Aug 2026 17:47:17 GMT
+
+https://movieweb.com/romy-and-michele-reunion-endures-sequel/
+
+Romy and Michele are getting ready for another reunion.
+---------
+
 # Gilmore Girls' 10 Most Controversial Episodes
 
 Classic TV, Gilmore Girls
