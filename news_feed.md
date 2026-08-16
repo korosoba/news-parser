@@ -1,3 +1,179 @@
+# Harrison Ford Confirms Indiana Jones Return In The Most Unexpected Way
+
+Movies, Indiana Jones
+
+Sun, 16 Aug 2026 13:07:10 GMT
+
+https://screenrant.com/harrison-ford-indiana-jones-return-disney-theme-park/
+
+Harrison Ford has officially confirmed that he is returning to the Indiana Jones IP, but his next appearance is not what you would think it is.
+---------
+
+# 10 Fantasy Books To Devour After House Of The Dragon Season 3
+
+Books
+
+Sun, 16 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/best-fantasy-books-read-after-house-dragon-season-3/
+
+Missing House of the Dragon Season 3 this Sunday? Here are 10 fantasy books that are perfect for HOTD fans to read while waiting for Season 4.
+---------
+
+# Dragon Ball Meets Demon Slayer In Stylish New Co-Op Anime Action Game
+
+Gaming, Steam, Triple-A Games
+
+Sun, 16 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/dragon-ball-meets-demon-slayer-kemuri/
+
+If you're looking for a new co-op romp, and something that really aims for anime inspiration, you're in luck with this action game.
+---------
+
+# Sherlock Holmes Meets MacGyver In This Hit 300-Episode Murder Mystery Series
+
+Network TV, Masked Recs
+
+Sun, 16 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/murdoch-mysteries-sherlock-holmes-meets-macgyver/
+
+This 300-episode (and counting) series features one of the best TV detectives of all time, a perfect blend between Sherlock Holmes and MacGyver.
+---------
+
+# Spider-Man: Brand New Day Has Officially Made History With Its New Box Office Win
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sun, 16 Aug 2026 12:55:11 GMT
+
+https://screenrant.com/spider-man-brand-new-day-mcu-movie-box-office-top-10/
+
+Spider-Man: Brand New Day's box office total means big things for the MCU, thanks to how it updates one of the franchise's biggest records.
+---------
+
+# The Bluey Movie's Bold Change Divides Fans After New Teaser
+
+Movies, The Bluey Movie
+
+Sun, 16 Aug 2026 12:54:21 GMT
+
+https://screenrant.com/bluey-the-movie-teaser-animation-change-reaction/
+
+Oh, biscuits! Fans aren't happy about The Bluey Movie's big change, as social media lights up with mixed reactions following a new teaser.
+---------
+
+# The End Of Oak Street Sets Up A New Jurassic Park
+
+Movies, The End of Oak Street, Jurassic Park
+
+Sun, 16 Aug 2026 12:49:21 GMT
+
+https://screenrant.com/the-end-of-oak-street-movie-sequel-setup/
+
+Jurassic Park's replacement is here, as Anne Hathaway's The End of Oak Street has the perfect ending to mimic the iconic dinosaur movie franchise.
+---------
+
+# Life Is Strange Live-Action Adaptation Recreates Iconic Location In New Set Photos
+
+TV, Life Is Strange
+
+Sun, 16 Aug 2026 12:35:29 GMT
+
+https://screenrant.com/life-is-strange-adaptation-arcadia-bay-set-photos/
+
+Life is Strange just got even stranger, as new set photos have revealed the recreation of an iconic location for Amazon's upcoming adaptation.
+---------
+
+# Bosch Will Change Forever After Ballard Season 2
+
+Streaming TV, Bosch, Ballard
+
+Sun, 16 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/bosch-future-after-ballard-season-2/
+
+Prime Video's Ballard season 2 marks the end of an era, as the onscreen Bosch franchise will change forever after its release.
+---------
+
+# Storm's New Costume Is a Gift to X-Men Cosplayers
+
+Comics, X-Men
+
+Sun, 16 Aug 2026 12:30:11 GMT
+
+https://screenrant.com/x-men-storm-new-costume-midnight/
+
+Storm is going to dominate the rest of 2026.
+---------
+
+# 10 Greatest Supernatural Thrillers of All Time, Ranked
+
+Movies, Thriller, The Sixth Sense, Longlegs
+
+Sun, 16 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/best-supernatural-thrillers-of-all-time-list/
+
+From haunted houses to demonic killers, these supernatural thrillers offer some of cinema's most unsettling mysteries.
+---------
+
+# Samuel L. Jackson's New Paramount+ Show Confirms a Major Taylor Sheridan Strategy Shift
+
+TV, Frisco King, Tulsa King, Paramount Plus, Innovation
+
+Sun, 16 Aug 2026 12:30:15 GMT
+
+https://www.cbr.com/taylor-sheridan-tulsa-king-spinoff-frisco-king/
+
+Sylvester Stallone and Samuel L Jackson's new Paramount+ series confirms a major strategic shift in Taylor Sheridan's television universe.
+---------
+
+# 10 Years Before The Punisher, Jon Bernthal’s First TV Role Was Nothing Like You’d Expect
+
+TV Features, Jon Bernthal, The Punisher, MCU, The Class
+
+Sun, 16 Aug 2026 12:51:15 GMT
+
+https://collider.com/jon-bernthal-the-class-cbs/
+
+Jon Bernthal is known for playing masculine and violent characters but The Punisher actor started his career in a sitcom from the creator of Friends.
+---------
+
+# Netflix Officially Removes A24's Dark Fantasy Masterpiece Next Month
+
+Movie News, The Green Knight, Dev Patel, Netflix, David Lowery
+
+Sun, 16 Aug 2026 12:45:15 GMT
+
+https://collider.com/the-green-knight-fantasy-epic-leaving-netflix-september-2026/
+
+The underrated fantasy film The Green Knight, starring Dev Patel, is about to be removed from Netflix. Find out when.
+---------
+
+# Rebecca Ferguson’s Dark Murder Mystery Is Officially Getting the Boot From Netflix
+
+Movie News, Rebecca Ferguson, The Girl on the Train, Netflix, Emily Blunt
+
+Sun, 16 Aug 2026 12:31:15 GMT
+
+https://collider.com/girl-on-the-train-rebecca-ferguson-thriller-leaving-netflix-september-2026/
+
+The psychological mystery thriller The Girl on the Train, starring Rebecca Ferguson and Emily Blunt, is being removed from Netflix. Find out when.
+---------
+
+# Oscar Isaac's 10/10 Hard Sci-Fi Thriller Lands on New Streaming Home
+
+Movie News, Ex Machina, Oscar Isaac, Coming/Leaving Streaming
+
+Sun, 16 Aug 2026 13:00:12 GMT
+
+https://movieweb.com/ex-machina-hulu-streaming-august-2026/
+
+AI is scary, and this sci-fi masterpiece is the absolute proof.
+---------
+
 # Hulu's New Thriller From New Girl Creator Is Already One Of The Best Crime Dramas Of 2026
 
 Streaming TV, Masked Recs
