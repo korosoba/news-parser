@@ -1,3 +1,201 @@
+# KPop Demon Hunters Officially Returns In 3 Months With Rare Netflix Release
+
+Movies, KPop Demon Hunters
+
+Sun, 16 Aug 2026 16:10:11 GMT
+
+https://screenrant.com/k-pop-demon-hunters-blu-ray-special-edition-release/
+
+The global phenomenon KPop Demon Hunters, from Netflix and Sony, is getting a special new release in a few months as we await the sequel.
+---------
+
+# Prime Video's Highly Anticipated Action Series Officially Premiers In 1 Month
+
+TV, Masked Recs
+
+Sun, 16 Aug 2026 16:01:11 GMT
+
+https://screenrant.com/neagley-prime-video-release-september-2026/
+
+A familiar vigilante drifter steps aside for a bold newcomer, as Prime Video expands its most popular action thriller universe with a spinoff.
+---------
+
+# 5 Ways Zelda: Tears Of The Kingdom Should Incorporate DLC
+
+Gaming, The Legend of Zelda: Tears of the Kingdom, The Legend of Zelda
+
+Sun, 16 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/best-zelda-tears-kingdom-dlc-ideas/
+
+Explore potential DLC ideas for Tears of the Kingdom that fans crave, bringing us back to Hyrule to immerse ourselves once again.
+---------
+
+# Brendan Fraser's Starman: The Mummy Meets His Oscar Era
+
+Movies, Originals
+
+Sun, 16 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/video/brendan-fraser-s-starman-the-mummy-meets-his-oscar-era/
+
+Brendan Fraser: Starman Could Complete His Comeback by combining the blockbuster charisma that made him famous with the dramatic vulnerability that eventually won him an Academy Award.
+---------
+
+# The MCU Just Provided Its Best Preview Of What The X-Men Movie Will Look Like Last Year Through Thunderbolts*
+
+Movies, Marvel Cinematic Universe, X-Men
+
+Sun, 16 Aug 2026 15:55:11 GMT
+
+https://screenrant.com/mcu-xmen-movie-thunderbolts-story-director-parallels/
+
+One of the MCU's 2025 releases does a surprisingly solid job at foreshadowing what to expect from the franchise's X-Men movie when it finally debuts.
+---------
+
+# 5 Anime Villains Strong Enough to Beat Sukuna
+
+Anime, Jujutsu Kaisen, One Piece, Bleach: Thousand-Year Blood War
+
+Sun, 16 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/anime-villains-stronger-than-sukuna/
+
+Sukuna might be the most powerful anime villain in recent years, but these legendary anime threats could easily take him down.
+---------
+
+# The Big Bang Theory Returns the No. 1 Show on Streaming With 1B Minutes Viewed in 1 Week
+
+TV, The Big Bang Theory
+
+Sun, 16 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/the-big-bang-theory-nielsen-charts-july-2026/
+
+The Big Bang Theory is passing some major milestones just one week after making a place for itself at its latest streaming home.
+---------
+
+# Cinnamoroll Gets a Brand-New Look in Official Sanrio Redesign for 25th Anniversary
+
+Anime, Hello Kitty, sanrio, idw publishing
+
+Sun, 16 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/cinnamoroll-25th-anniversary-sanrio-redesign-comic/
+
+One of Hello Kitty's most iconic and adorable friends is about to celebrate his 25th anniversary with his very own comic book series.
+---------
+
+# D'Orce, Dungeon Crawler Carl’s Spiritual Sequel, Officially Rushes Back To Print
+
+Comics, Dungeon Crawler Carl
+
+Sun, 16 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/dorc-dungeon-crawler-carls-spiritual-sequel-reprinting/
+
+The humorous high-fantasy comic book D'orc is returning to the shelves.
+---------
+
+# 10 Movies to Watch if You Love The Sheep Detectives
+
+Movies, The Sheep Detectives, Comedy, Mystery
+
+Sun, 16 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/must-watch-movies-for-the-sheep-detectives-fans-list/
+
+Already securing its place as one of the funniest mystery movies ever made, there are some great films to pair with The Sheep Detectives.
+---------
+
+# Spider-Man: Brand New Day Is Officially the Highest-Grossing Spider-Man Movie Ever
+
+Movies, box office, Spider-Man: Brand New Day
+
+Sun, 16 Aug 2026 15:48:06 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-highest-grossing-spider-man-2-billion/
+
+The movie has broken several records, and it's not stopping.
+---------
+
+# All 4 Movies Directed by David Robert Mitchell, Ranked
+
+Movie, The End of Oak Street, It Follows, Under the Silver Lake, David Robert Mitchell
+
+Sun, 16 Aug 2026 16:06:15 GMT
+
+https://collider.com/david-robert-mitchell-movies-ranked/
+
+David Robert Mitchell has directed four movies, including The End of Oak Street, It Follows, and Under the Silver Lake, but which one's the best?
+---------
+
+# Jennifer Morrison Officially Knew ‘Once Upon a Time’ Was a “Slam-Dunk” From the Pilot [Exclusive]
+
+Exclusives, Once Upon A Time, Frozen II, Fantasy, Ladies Night
+
+Sun, 16 Aug 2026 16:00:15 GMT
+
+https://collider.com/once-upon-a-time-jennifer-morrison-directing-career/
+
+Jennifer Morrison explains how Once Upon a Time changed her life, inspired her directing career, and became her own real-life Enchanted Forest.
+---------
+
+# J.J. Abrams’ New Sci-Fi Thriller Officially Crosses Major Box Office Milestone in Opening Weekend
+
+Movie News, The End of Oak Street, Anne Hathaway, Ewan McGregor, J.J. Abrams
+
+Sun, 16 Aug 2026 15:55:04 GMT
+
+https://collider.com/end-of-oak-street-opening-weekend-box-office/
+
+The End of Oak Street makes a strong box office start as the Anne Hathaway and Ewan McGregor sci-fi thriller recoups half its reported budget.
+---------
+
+# Before 'Dexter: Resurrection,' This Forgotten 3-Part Spin-Off Is Ready for a Rewatch
+
+TV Features, Dexter, Dexter: Resurrection, YouTube, Michael C. Hall
+
+Sun, 16 Aug 2026 15:54:15 GMT
+
+https://collider.com/dexter-resurrection-prequel-youtube-series-early-cuts-shorts/
+
+Dexter Early Cuts explores Dexter Morgan's origins in animated shorts on YouTube, making it perfect for fans wanting more.
+---------
+
+# Jeff Daniels Reveals Reagan's Best Quality Ahead of New Political Thriller
+
+Movie News, The Brink of War, Jeff Daniels
+
+Sun, 16 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/jeff-daniels-ronald-reagan-brink-of-war-reaction/
+
+Jeff Daniels stars in a new thriller about a historical event that could have ended the Cold War sooner.
+---------
+
+# Amazon's 134-Minute 'Jason Bourne' Substitute Crowned One of Biggest Action Thrillers on Streaming
+
+Movie News, Agent Zeta, Hot on Streaming
+
+Sun, 16 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/agent-zeta-prime-video-streaming-hit-august-2026/
+
+The next big action star takes center stage in this Spanish production.
+---------
+
+# Harlan Coben’s 8-Part Thriller Is Still a Masterpiece You’ll Want to Rewatch
+
+Features, Harlan Coben's Shelter
+
+Sun, 16 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/shelter-harlan-coben-thriller-rewatch/
+
+Harlan Coben has many thriller TV adaptations based on his popular novels, and this eight-episode series is one of his best.
+---------
+
 # 5 Free Steam Games With Mistborn Vibes
 
 Gaming, Steam
