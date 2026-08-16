@@ -1,3 +1,113 @@
+# After 19 Years, Marvel Can Finally Fix Their Longest Lasting Spider-Man Mistake
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel
+
+Sun, 16 Aug 2026 22:37:16 GMT
+
+https://screenrant.com/spider-man-mj-marvel-fix-mistake/
+
+Spider-Man: Brand New Day ends with a brand-new status quo for Peter Parker, and it's one that Marvel Comics readers should be envious of.
+---------
+
+# Marvel's Wolverine Game Reveals Full Roster of Team X, Including Shock Member
+
+Marvel Comics, Marvel's Wolverine
+
+Sun, 16 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/wolverine-team-x-members-sunfire/
+
+Insomniac is making a few changes to Logan's backstory in Marvel's Wolverine, and one X-Men character may play a key role in both his past and future.
+---------
+
+# A 10/10 Square Enix RPG Is Completely Free With Xbox Game Pass
+
+Gaming, Xbox Game Pass, PC, RPG, Triple-A Games, Final Fantasy
+
+Sun, 16 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/square-enix-10-rated-rpg-xbox-game-pass/
+
+One of the best RPGs ever released, considered a 10/10 Square Enix masterpiece, can be played for free with an Xbox Game Pass membership.
+---------
+
+# Netflix's Lost In Space Wouldn't Exist Without The 21st Century's Best Sci-Fi Series
+
+Streaming TV, Battlestar Galactica, Lost In Space
+
+Sun, 16 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/lost-in-space-netflix-not-exist-battlestar-galactica/
+
+A Syfy megahit wrote the rulebook for modernizing campy classic sci-fi, and in doing so paved the way for a hidden Netflix gem.
+---------
+
+# Fox’s X-Men Movies Had The Guts To Do Something The MCU Never Will
+
+Movies, X-Men
+
+Sun, 16 Aug 2026 22:25:11 GMT
+
+https://screenrant.com/fox-xmen-movies-body-horror-mcu/
+
+Though the impending arrival of the X-Men in the MCU is exciting, there's one element of the Fox movies that will never be replicated.
+---------
+
+# Big Bang Theory Creator's Hit Netflix Sitcom Finally Returns in Less Than 2 Weeks
+
+TV, Leanne
+
+Sun, 16 Aug 2026 22:30:14 GMT
+
+https://www.cbr.com/leanne-season-2-netflix-release-date/
+
+One of The Big Bang Theory creator Chuck Lorre's other biggest hit sitcoms is less than two weeks away from its Season Two debut on Netflix
+---------
+
+# Steam's New Hit Farming Sim Makes Even Stardew Valley Feel Small
+
+Games, Stardew Valley, Steam, Video Games
+
+Sun, 16 Aug 2026 22:15:14 GMT
+
+https://www.cbr.com/stardew-valley-competitor-steam-hit-fields-of-mistria/
+
+Stardew Valley has an immaculate reputation in the cozy game genre, but a new rival has just asserted itself with its 1.0 release on Steam.
+---------
+
+# 3 Decades Later, Kevin Costner’s "Extravagant Sci-Fi Misfire" Is Leaving Netflix
+
+Movie News, Waterworld, Kevin Costner, Netflix, Action
+
+Sun, 16 Aug 2026 22:30:14 GMT
+
+https://collider.com/kevin-costner-sci-fi-flop-waterworld-leaving-netflix-september-2026/
+
+The disastrous dystopian film Waterworld, starring Kevin Costner, is about to be removed from Netflix. Find out when.
+---------
+
+# Keanu Reeves’ 101-Minute Action Classic Is Officially a Streaming Hit Again
+
+Movie News, Keanu Reeves, Clint Eastwood, John Wick, AMC+
+
+Sun, 16 Aug 2026 22:15:14 GMT
+
+https://collider.com/keanu-reeves-john-wick-streaming-success-amc-plus-august-2026/
+
+John Wick, Keanu Reeves' action classic originally written for Clint Eastwood, is a streaming hit again. Whatever you do, don't hurt his dog.
+---------
+
+# 'Scrubs' Season 2's Returning OG Character Spells Disaster for Divisive JD Arc
+
+Features, Scrubs
+
+Sun, 16 Aug 2026 22:15:12 GMT
+
+https://movieweb.com/scrubs-revival-sean-comeback/
+
+Sean is confirmed for the next batch of 'Scrubs' revival episodes, but what does that mean for JD? Read on for more.
+---------
+
 # Strange New Worlds Has Solved Its Biggest Star Trek Problem In Season 4
 
 Streaming TV, Star Trek: Strange New Worlds, Star Trek, Star Trek: The Original Series
