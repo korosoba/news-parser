@@ -1,3 +1,58 @@
+# Star Wars Retcons The Force Awakens With New Return Of The Jedi Sequel
+
+Streaming TV, Star Wars
+
+Sun, 16 Aug 2026 19:37:11 GMT
+
+https://screenrant.com/ahsoka-season-2-thrawn-empire-retcon-the-force-awakens/
+
+Star Wars' upcoming, long-overdue Return of the Jedi follow-up risks undermining the entire narrative foundation of the sequel trilogy.
+---------
+
+# Spy x Family Just Revealed Anya's Amazing New Powers & Nobody Is Talking About It
+
+Anime, Spy X Family
+
+Sun, 16 Aug 2026 19:30:49 GMT
+
+https://screenrant.com/spy-x-family-anya-new-powers-clairsentience/
+
+Anya Forger may have triggered the next step in growing her mysterious powers, upgrading Spy x Family's intrigue considerably.
+---------
+
+# FX's 5-Part Fargo Anthology Set A Gold Standard For A-Listers In TV Shows
+
+Streaming TV, Masked Recs
+
+Sun, 16 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/fx-fargo-crime-drama-a-list-actors-anthology-series/
+
+FX's Fargo anthology series set a new standard for A-list actors on the small screen. Every season has a new stacked, star-studded ensemble.
+---------
+
+# Supergirl Comic Writer Addresses The Box Office Disappointment & Mixed Reaction For Milly Alcock's DC Adaptation
+
+Movies, Supergirl, DC Universe
+
+Sun, 16 Aug 2026 19:23:48 GMT
+
+https://screenrant.com/supergirl-box-office-disappointment-tom-king/
+
+Following Supergirl's box office results and its negative critical reception, the writer, whose comic the movie was based on, shares his thoughts.
+---------
+
+# The Emily Wilson vs. Christopher Nolan Controversy, Explained
+
+Features, The Odyssey, Christopher Nolan
+
+Sun, 16 Aug 2026 19:30:12 GMT
+
+https://movieweb.com/emily-wilson-christopher-nolan-controversy-explained/
+
+It’s no surprise that the Homer expert had some strong thoughts about Nolan's version of 'The Odyssey.' Here is the controversy explained.
+---------
+
 # Hogwarts Legacy 2 Move Over, A New Harry Potter RPG Officially Launches Spring 2027
 
 Gaming, Harry Potter, Triple-A Games
