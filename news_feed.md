@@ -1,3 +1,135 @@
+# Zelda: Ocarina Of Time Remake Price Leak Raises Concerns Over Game’s Length
+
+Gaming, The Legend of Zelda: Ocarina of Time
+
+Sun, 16 Aug 2026 20:37:23 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-price-leak-length-concerns/
+
+The price for the Legend of Zelda: Ocarina of Time remake has leaked, and not everyone is happy about what that figure means for the game.
+---------
+
+# Netflix Finds Its Bloodhounds Replacement In A New Dark Psychological Thriller
+
+TV, Masked Recs, Netflix
+
+Sun, 16 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/netflix-bloodhounds-replacement-dark-psychological-thriller-mousetrap/
+
+A new 10-episode Korean thriller is bringing the dangerous world of loan sharks back to Netflix with a dark psychological twist.
+---------
+
+# After Brandon Sanderson, Apple TV Has The Perfect Opportunity To Build Another Fantasy Multiverse
+
+Streaming TV, Apple TV
+
+Sun, 16 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/apple-tv-adapt-sarah-j-maas-fantasy-multiverse-after-brandon-sanderson/
+
+Following Brandon Sanderson's unprecedented deal with Apple TV, it's time for the streamer to pick up the rights to another major fantasy franchise.
+---------
+
+# Pokémon Fans Are Rebelling Against The Closure Of A Major Feature
+
+Gaming, Pokemon, Nintendo, Nintendo Switch 2
+
+Sun, 16 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/pokemon-bank-closure-fan-reaction-implication/
+
+The Pokémon Company is shutting down a major feature fans absolutely adore, which has, naturally, caused chaos in the community.
+---------
+
+# New Spider-Man Movies Brutally Shaded By Classic Spider-Man Star
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sun, 16 Aug 2026 20:27:07 GMT
+
+https://screenrant.com/spider-man-brand-new-day-kathy-garver-response/
+
+In the midst of Spider-Man's biggest summer of all time, a classic Marvel star gives some criticism about Peter Parker's current cinematic era.
+---------
+
+# Marvel Just Introduced The Best New Superpower Of The Year
+
+Marvel Comics, Marvel
+
+Sun, 16 Aug 2026 20:14:59 GMT
+
+https://screenrant.com/marvel-new-superhero-sightseer/
+
+Marvel's newest superhero possesses a superpower so rare that it still doesn't have a name, even though it could be game-changing for the Avengers.
+---------
+
+# Battlestar Galactica Confirms the Greatest Enemy Was Never the Cylons
+
+TV, Battlestar Galactica, Sci-Fi
+
+Sun, 16 Aug 2026 20:30:15 GMT
+
+https://www.cbr.com/battlestar-galactica-greatest-enemy-cylons-humanity/
+
+The 2004 reboot of Battlestar Galactica is one of the greatest space operas of all time, but the greatest threat to humanity was never the Cylons.
+---------
+
+# 5 Black Clover Characters Stronger Than Yuno
+
+Anime, Black Clover, shonen anime
+
+Sun, 16 Aug 2026 20:15:15 GMT
+
+https://www.cbr.com/black-clover-characters-stronger-than-yuno/
+
+Yuno has grown into an incredible fighter, these Black Clover characters remain stronger than the Golden Dawn prodigy.
+---------
+
+# 21 Years Later, Johnny Depp's Fantasy Remake Officially Takes Over Netflix
+
+Movie News, Johnny Depp, Netflix, Wonka, Charlie and the Chocolate Factory
+
+Sun, 16 Aug 2026 20:30:14 GMT
+
+https://collider.com/johnny-depp-charlie-and-the-chocolate-factory-streaming-success-netflix-august-2026/
+
+Tim Burton's take on Charlie & the Chocolate Factory, starring Freddie Highmore and Johnny Depp, is a global sensation on streaming.
+---------
+
+# The Greatest Sci-Fi Novel of the Decade Is Looking for a New Adaptation Home
+
+Books and Comics, Sci-Fi, Universal Pictures, Apple TV, Science Fiction
+
+Sun, 16 Aug 2026 20:21:14 GMT
+
+https://collider.com/red-rising-greatest-sci-fi-novel-decade-new-adaptation-home/
+
+The Red Rising series has struggled to land an adaptation, but that may be for the best now that the series is almost over and streaming has advanced.
+---------
+
+# Disney Star Pitches Zendaya and Tom Holland for Live-Action 'Hercules' Remake
+
+Movie News, Hercules
+
+Sun, 16 Aug 2026 20:39:43 GMT
+
+https://movieweb.com/disney-zendaya-tom-holland-hercules/
+
+Susan Egan envisions Zendaya and Tom Holland in the lead roles, combining humor and heart.
+---------
+
+# The 10 Greatest Calvin and Hobbes Comic Strips of the 1980s
+
+Movie Lists
+
+Sun, 16 Aug 2026 20:30:12 GMT
+
+https://movieweb.com/calvin-and-hobbes-greatest-80s-comic-strips/
+
+Calvin and Hobbes may have started in 1985, but the strip would become on of the greatest of the decade, these ten strips prove it.
+---------
+
 # HBO Officially Fixed Game Of Thrones By Making A 94% RT Prequel With No Dragons
 
 Streaming TV, Game of Thrones, Masked Recs
