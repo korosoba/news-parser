@@ -1,3 +1,113 @@
+# Supernatural Totally Abandoned One Of Its Oldest Stories Halfway Through The Show
+
+Classic TV, Supernatural
+
+Sun, 16 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/supernatural-sam-and-dean-wanted-abandon-story/
+
+Supernatural delivered a game-changing twist when Sam and Dean became fugitives halfway through the series, but the twist didn't stick later on.
+---------
+
+# 6 Classic Lord Of The Rings Games That 100% Deserve A Remake
+
+Gaming, The Lord of the Rings
+
+Sun, 16 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/best-lord-of-the-rings-games-needing-remakes/
+
+The Lord of the Rings is suddenly on a huge upswing, and there are plenty of games that are deserving of a remaster, remake, or port in the future.
+---------
+
+# 10 Greatest Dinosaur Thriller Movies Of All Time, Ranked
+
+Movies, Thriller, Jurassic Park, The End of Oak Street, The Lost World, The Lost World: Jurassic Park, The Valley of Gwangi, 65, The Land That Time Forgot, One Million Years B.C., King Kong, Jurassic World
+
+Sun, 16 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/best-dinosaur-thriller-movies-all-time-ranked/
+
+Dinosaurs have been thrilling moviegoers for over 100 years, delivering spectacle, CGI scares, and plenty of prehistoric stop-motion action.
+---------
+
+# 8 Movies From The 21st Century To Watch If You Love Indiana Jones
+
+Movies, Indiana Jones, The Adventures of Tintin, Jumanji: Welcome to the Jungle, National Treasure, The Mummy Returns, Lara Croft: Tomb Raider, Jungle Cruise, The Lost City, Uncharted
+
+Sun, 16 Aug 2026 20:45:11 GMT
+
+https://screenrant.com/21st-century-movies-like-indiana-jones/
+
+Inspired by the Indiana Jones formula, these eight 21st-century adventures deliver ancient mysteries, lost treasures, and plenty of thrilling action.
+---------
+
+# In Just 2 Days, 2026's Most Profitable Film Turns Into Streaming Hit With 456M Minutes Viewed
+
+Movies, Obsession
+
+Sun, 16 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/obsession-horror-nielsen-charts-july-2026/
+
+After barely 48 hours, the most profitable (and most terrifying) movie of 2026 has clocked in nearly a half-billion minutes streamed.
+---------
+
+# Jaws Meets Jurassic Park in Anne Hathaway's New Sci-Fi Survival Thriller
+
+Movies, The End of Oak Street, Sci-Fi
+
+Sun, 16 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/end-of-oak-street-jaws-meets-jurassic-park/
+
+A tribute to classic Amblin Entertainment and Steven Spielberg, The End of Oak Street combines the best elements of Jaws and Jurassic Park.
+---------
+
+# Colleen Hoover’s Divisive Adaptation Is Officially Surging on Streaming
+
+Movie News, Colleen Hoover, Reminders of Him, Peacock, Maika Monroe
+
+Sun, 16 Aug 2026 21:00:15 GMT
+
+https://collider.com/maika-monroe-reminders-of-him-streaming-success-peacock-august-2026/
+
+Ahead of the Anne Hathaway-led Verity, another of Colleen Hoover's adaptations is climbing the charts on Peacock. Find out more here.
+---------
+
+# Marvel Posts Official List of MCU Titles to See Before 'Avengers: Doomsday'
+
+Movie News, Avengers: Doomsday, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home)
+
+Sun, 16 Aug 2026 21:01:41 GMT
+
+https://movieweb.com/marvel-must-watch-before-avengers-doomsday/
+
+Disney revealed fourteen films and one television series to watch ahead of the release of 'Avengers: Doomsday.'
+---------
+
+# 62 Years Later, Clint Eastwood’s 10/10 Western Still Outshines Every Other
+
+Features, Clint Eastwood, A Fistful of Dollars
+
+Sun, 16 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/a-fistful-of-dollars-clint-eastwood-western-classic/
+
+Clint Eastwood's first major Western movie, A Fistful of Dollars, is arguably the actor's best work.
+---------
+
+# 9 Western Thriller Movies That Are Heavy on the Action
+
+Movie Lists, Western
+
+Sun, 16 Aug 2026 20:45:12 GMT
+
+https://movieweb.com/western-thrillers-heavy-on-action/
+
+Westerns and action go hand-in-hand, but these movies deliver more gunfights, chases, and fisticuffs than others.
+---------
+
 # Zelda: Ocarina Of Time Remake Price Leak Raises Concerns Over Game’s Length
 
 Gaming, The Legend of Zelda: Ocarina of Time
