@@ -1,3 +1,146 @@
+# Harry Potter: Veiled By Pride Officially Announced
+
+Gaming, Harry Potter, PC
+
+Sun, 16 Aug 2026 13:45:11 GMT
+
+https://screenrant.com/harry-potter-hogwarts-mystery-veiled-by-pride-event/
+
+Harry Potter officially returns in a brand-new limited-time event titled Veiled By Pride, taking fans on an exciting adventure through Hogwarts.
+---------
+
+# Hideo Kojima Reviews Netflix’s New Sci-Fi Thriller That Polarized Critics
+
+Movies, The Last House
+
+Sun, 16 Aug 2026 13:45:11 GMT
+
+https://screenrant.com/the-last-house-netflix-hideo-kojima-review/
+
+Hideo Kojima chimes in about the new Netflix movie starring Wagner Moura and Greta Lee, which is a streaming hit but a critical failure.
+---------
+
+# The Age of Bad CGI Movies Is Over
+
+Movies
+
+Sun, 16 Aug 2026 13:45:11 GMT
+
+https://screenrant.com/movies-bad-cgi-over/
+
+Following a recent boom, CGI-centric movies are declining in popularity in favor of new stories, practical effects, and inventive filmmaking.
+---------
+
+# Stranger Things’ Noah Schnapp Sets First Role After Netflix Show’s Divisive Ending
+
+TV, Noah Schnapp
+
+Sun, 16 Aug 2026 13:33:27 GMT
+
+https://screenrant.com/noah-schnapp-affluenza-west-end-stage-debut-cast/
+
+Noah Schnapp recently wrapped up his role on Stranger Things after almost a decade on the show, but now he has set his next role post-Will Byers.
+---------
+
+# 5 Classic Movies Based on Comic Strips
+
+Comics
+
+Sun, 16 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/5-classic-movies-based-on-comic-strips/
+
+These classic newspaper comics characters came to life on the big screen
+---------
+
+# Pokémon Winds & Waves Box Legendaries Confirm We're Facing A Tough Choice
+
+Gaming, Pokemon Winds and Waves
+
+Sun, 16 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/pokemon-winds-waves-box-legendary-leaks-choice/
+
+Explore the upcoming Pokémon Winds & Waves, featuring new legendaries, starters, and a tropical gaming experience.
+---------
+
+# 8 Incredible War Movies From The 1990s That Aren't Saving Private Ryan, Ranked
+
+Movies, War
+
+Sun, 16 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/best-war-movies-1990s-not-saving-private-ryan-ranked/
+
+We all know that Saving Private Ryan is one of the best war movies of all time, but these amazing war films from the '90s are worth watching too.
+---------
+
+# 2027 Already Has 3 Animated Movies That Could Break $1 Billion
+
+Movies, Animation
+
+Sun, 16 Aug 2026 13:15:11 GMT
+
+https://screenrant.com/2027-3-animated-movies-break-1-billion-box-office-prediction/
+
+2027's animated movie lineup is already studded with several major upcoming releases that each hold $1 billion promise in different ways.
+---------
+
+# 5 Michael Connelly Books Better Than Bosch
+
+TV, Bosch, Crime
+
+Sun, 16 Aug 2026 13:30:15 GMT
+
+https://www.cbr.com/michael-connelly-books-better-than-bosch-list/
+
+Detective Harry Bosch dominates Michael Connelly's fictional universe, but the following crime thrillers prove the prolific author has more to offer.
+---------
+
+# Star Trek II Gives Spock the Smartest Line in Sci-Fi Movie History
+
+Movies, Star Trek, Star Trek II: The Wrath of Khan, Spock
+
+Sun, 16 Aug 2026 13:30:15 GMT
+
+https://www.cbr.com/star-trek-ii-wrath-of-khan-spock-smartest-quote-sci-fi-history/
+
+Leonard Nimoy's performance as Spock in Star Trek II: Wrath of Khan is unmatched and this quote shows the Vulcan as Starfleet's best & wisest teacher
+---------
+
+# 10 Best Supernatural Anime Like Demon Slayer
+
+Anime, Demon Slayer
+
+Sun, 16 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/best-supernatural-anime-like-demon-slayer/
+
+Demon Slayer made anime more popular than ever, and there are plenty of other supernatural series like it for fans to enjoy.
+---------
+
+# Jon Bernthal’s ‘Jason Bourne’ Spy Thriller Replacement Is Officially Surging on Prime Video
+
+Movie News, Jon Bernthal, Rami Malek, The Amateur, Prime Video
+
+Sun, 16 Aug 2026 13:17:36 GMT
+
+https://collider.com/the-amateur-prime-video-streaming-success-august-2026/
+
+The Amateur, starring Rami Malek and Jon Bernthal, finds new life on Prime Video as the 87% audience-rated spy thriller becomes an August sleeper hit.
+---------
+
+# 'Spider-Man: Brand New Day' Now Among the Highest-Grossing Films in History
+
+Movie News, Spider-Man: Brand New Day
+
+Sun, 16 Aug 2026 13:40:29 GMT
+
+https://movieweb.com/spider-man-brand-new-day-highest-grossing-films-history/
+
+'Spider-Man: Brand New Day' has climbed into the top 10 highest-grossing films ever released worldwide.
+---------
+
 # Harrison Ford Confirms Indiana Jones Return In The Most Unexpected Way
 
 Movies, Indiana Jones
