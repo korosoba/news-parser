@@ -1,3 +1,256 @@
+# 14 Years Later, Minato's Best Naruto Attack Is Still One Of The Cleanest Moves In Anime History
+
+Anime, Naruto, Naruto: Shippuden
+
+Sun, 16 Aug 2026 00:45:11 GMT
+
+https://screenrant.com/minato-best-naruto-attack-obito-rasengan/
+
+14 years ago, Naruto’s father, Minato, pulled off one of the coldest moves in the history of anime by brilliantly finding a way to overpower Obito.
+---------
+
+# 55 Years Later, Lucy's Best Quote In Peanuts History Proves She's The Real Star
+
+Comics, Peanuts
+
+Sun, 16 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/peanuts-best-lucy-quote-all-time-comic-strip/
+
+One of the most prolific characters to appear in Peanuts, Lucy Van Pelt has occasionally offered her own blend of vulnerability with her personality.
+---------
+
+# Cal Kestis' Live-Action Star Wars Debut Looks More Likely Than Ever
+
+Streaming TV, Star Wars
+
+Sun, 16 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/cal-kestis-live-action-star-wars-debut-ahsoka-season-2-merrin-nightsister/
+
+Star Wars Jedi hero Cal Kestis' live-action debut just became much more likely as the franchise gears up for its next major Disney+ release.
+---------
+
+# 47 Years Later, This Is Still The Greatest Quote In War Movie History
+
+Classic Movies, Apocalypse Now
+
+Sun, 16 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/best-war-movie-quote-apocalypse-now-smell-napalm-morning/
+
+This war movie quote remains among the best in war movie history and there is a big reason this film is still considered a masterpiece.
+---------
+
+# Spider-Man: Brand New Day Made The Marvel Studios Logo More Important Than Ever
+
+Superheroes, Marvel Cinematic Universe, Spider-Man, Spider-Man: Brand New Day
+
+Sun, 16 Aug 2026 00:10:11 GMT
+
+https://screenrant.com/spiderman-brand-new-day-marvel-studios-logo-change/
+
+Spider-Man: Brand New Day turns the Marvel Studios logo into a storytelling device, making the iconic MCU intro more important than ever before.
+---------
+
+# Apple TV's Upcoming Adaptation Of Award-Winning Novel Is Stephen King Meets The Blair Witch Project
+
+Streaming TV, Masked Recs
+
+Sun, 16 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/apple-tv-ascension-adam-nevill-stephen-king-blair-witch/
+
+Apple TV has an upcoming series based on a bestselling novel that blends elements from Stephen King’s body of work and The Blair Witch Project.
+---------
+
+# Marvel’s Spider-Man 2 New Costume Solves My Biggest Gripe With Brand New Day
+
+Gaming, Marvel's Spider-Man 2, Marvel's Spider-Man, Spider-Man, Spider-Man: Brand New Day
+
+Sun, 16 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/spiderman-ps5-brand-new-day-costume-solution/
+
+Spider-Man: Brand New Day being inspired by Insomniac's games is great, but one Marvel's Spider-Man 2 feature sorely needed to be adapted, too.
+---------
+
+# Kurt Russell's Best Tombstone Line Is Still One Of The Greatest In Western Movie History
+
+Movies, Tombstone
+
+Sat, 15 Aug 2026 23:48:37 GMT
+
+https://screenrant.com/tombstone-movie-wyatt-earp-kurt-russell-best-westerns-quote/
+
+Tombstone is one of the best Western movies of all time, and this Kurt Russell line continues to serve as one of the greatest in the genre.
+---------
+
+# Venom Takes Control in Your Friendly Neighborhood Spider-Man Season 2 Preview
+
+TV, D23, Your Friendly Neighborhood Spider-Man
+
+Sun, 16 Aug 2026 00:48:25 GMT
+
+https://www.cbr.com/your-friendly-neighborhood-spiderman-season-2-first-look-d23/
+
+The first preview for Your Friendly Neighborhood Spider-Man has been unveiled, featuring Peter Parker bonding with the Venom symbiote.
+---------
+
+# 10 Forgotten Anime Movies That Have Aged Like Fine Wine
+
+Anime, Animation, Movies
+
+Sun, 16 Aug 2026 00:45:15 GMT
+
+https://www.cbr.com/forgotten-anime-movies-better-with-age/
+
+An unforgettable anime movie doesn't always require commercial success to leave a lasting impression on fans years after its release.
+---------
+
+# The Batman: Part II Officially Teases The Court of Owls' Live-Action Movie Debut
+
+Movies, The Batman Part II
+
+Sun, 16 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/the-batman-part-2-court-of-owls-live-action-debut-confirmed/
+
+Matt Reeves' latest behind-the-scenes post teases the arrival of Batman's most terrifying villains in live-action.
+---------
+
+# Scooby-Doo Is Leaving Netflix at the Worst Time
+
+Movies, Scooby-Doo
+
+Sun, 16 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/scooby-doo-leaving-netflix-september-2026/
+
+One of the most beloved live-action adaptations of a classic cartoon comedy is about to lose its streaming home on a major platform.
+---------
+
+# 5 Classic NES RPGs That Are 10/10 Masterpieces
+
+Games, Nintendo, Role Playing Game, The Legend of Zelda, Final Fantasy
+
+Sun, 16 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/greatest-classic-nes-rpgs/
+
+Even with its simple graphics, the NES was still able to offer some perfect RPGs that have influenced the genre for decades.
+---------
+
+# 10 Greatest Anime Characters Based On Real People
+
+Anime, Rurouni Kenshin, Naruto, One Piece
+
+Sun, 16 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/greatest-anime-characters-based-on-real-people/
+
+Some of the greatest anime characters of all time were directly inspired by real people.
+---------
+
+# 10 Movies to Watch if You Love The Predator
+
+Movies, Predator
+
+Sun, 16 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/perfect-movies-to-watch-for-predator-fans-list/
+
+Predator lovers will find that there are surprising similarities with these hits.
+---------
+
+# Prime Video's Reacher Replacement Is Already a Better Detective Than Alan Ritchson
+
+TV, Reacher, Neagley, Prime Video, Innovation
+
+Sun, 16 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/prime-video-neagley-smarter-than-reacher/
+
+When Neagley premieres on Prime Video, fans shouldn't expect a show that is exactly like Reacher.
+---------
+
+# 2 Years After Selling Out, Studio Ghibli Returns Its Totoro & Kiki Tote Bags to Official Store
+
+Anime, Studio Ghibli, merchandise, Kiki's Delivery Service, My Neighbor Totoro
+
+Sun, 16 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/studio-ghibli-totoro-kiki-tote-bag-return-august-2026/
+
+Ghibli fans can go out on the town in style with two classic tote bags with designs inspired by Kiki's Delivery Service and My Neighbor Totoro.
+---------
+
+# Tom Cruise's $571M Action Blockbuster Is Losing Its Streaming Home Soon
+
+Movies, tom cruise, Mission: Impossible - Dead Reckoning, Netflix
+
+Sun, 16 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/tom-cruise-mission-impossible-dead-reckoning-leaving-netflix-august-2026/
+
+One of Tom Cruise's biggest action blockbusters is departing Netflix in just a couple of weeks.
+---------
+
+# The 10 Best Crime TV Shows Where Every Episode Gets Darker
+
+TV, Crime, Breaking Bad, Ozark, Hannibal
+
+Sun, 16 Aug 2026 00:41:14 GMT
+
+https://collider.com/best-crime-shows-darker-every-episode/
+
+Discover binge-worthy crime TV series that become increasingly dark and thrilling with every episode, including Breaking Bad, Ozark, and Hannibal.
+---------
+
+# HBO “Had No Business” Hiring This ‘Once Upon a Time’ Star To Direct ‘Euphoria’ [Exclusive]
+
+TV News, Euphoria, Sam Levinson, Jennifer Morrison, Ladies Night
+
+Sun, 16 Aug 2026 00:00:14 GMT
+
+https://collider.com/euphoria-jennifer-morrison-director-first-time-sam-levinson/
+
+Jennifer Morrison explains how Sam Levinson helped her land her first television directing job on HBO’s Euphoria & knowing the series would be a hit.
+---------
+
+# Before ‘Highlander,’ Henry Cavill’s Forgotten Fantasy Epic Is Officially Back on Streaming
+
+Movie News, Highlander, Immortals, Fantasy, Henry Cavill
+
+Sat, 15 Aug 2026 23:45:15 GMT
+
+https://collider.com/henry-cavill-fantasy-epic-imortals-streaming-prime-video-august-2026/
+
+Before returning to the fantasy genre with Highlander, Henry Cavill starred in Tarsem Singh’s visually spectacular Greek mythology epic Immortals.
+---------
+
+# 21 Years After His Death, Star Wars Finally Replaces General Grievous
+
+Features, Ahsoka, Star Wars, Star Wars: Episode III - Revenge of the Sith
+
+Sun, 16 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/star-wars-huyang-general-grievous-replacement/
+
+Star Wars killed off General Grievous far too soon, but the franchise finally has a worthy replacement for the character. Read on for more.
+---------
+
+# Marvel's 'X-Men': Official Cast & Where You've Seen Every Actor Before
+
+Features, X-Men, Marvel Cinematic Universe
+
+Sat, 15 Aug 2026 23:53:34 GMT
+
+https://movieweb.com/mcu-x-men-cast-guide/
+
+Here is a breakdown of the 'X-Men' cast announced at D23 and the iconic Marvel characters they will be playing.
+---------
+
 # 6 Star Trek Episodes with Straight-Up Body Horror
 
 TV, Star Trek
