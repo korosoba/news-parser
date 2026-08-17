@@ -1,3 +1,223 @@
+# Heroes & Nashville Star Hayden Panettiere Dies At 36
+
+TV, Hayden Panettiere
+
+Mon, 17 Aug 2026 03:15:42 GMT
+
+https://screenrant.com/hayden-panettiere-dies-36/
+
+Hayden Panettiere, the star of several iconic TV shows, such as Heroes and Nashville, has sadly passed away at 36 years old.
+---------
+
+# 35 Years Later, Heir To The Empire Can Save Star Wars Again
+
+Streaming TV, Star Wars
+
+Mon, 17 Aug 2026 03:02:11 GMT
+
+https://screenrant.com/star-wars-new-republic-crossover-heir-to-the-empire-movie/
+
+In the years since a New Republic event movie was announced, the excitement around it has faded. Still, Star Wars can be saved if the movie happens.
+---------
+
+# 28 Years Later, Babylon 5’s Planned Reboot Must Still Happen With 1 Condition
+
+Classic TV, Babylon 5
+
+Mon, 17 Aug 2026 03:00:12 GMT
+
+https://screenrant.com/babylon-5-reboot-must-happen-condition/
+
+It has been 28 years since an iconic ‘90s space opera ended its run, and it is hard not to see how it is the perfect time for its long planned reboot.
+---------
+
+# 6 Game Of Thrones Scenes That Have Aged Like Milk
+
+Streaming TV, Game Of Thrones
+
+Mon, 17 Aug 2026 03:00:12 GMT
+
+https://screenrant.com/game-of-thrones-scenes-aged-like-milk/
+
+A lot has changed since Game of Thrones kicked off. After franchise expansions and new revelations, some of those big moments just don't hold up.
+---------
+
+# 6 Things The Next Matrix Game Needs To Have
+
+Gaming, The Matrix
+
+Mon, 17 Aug 2026 03:00:12 GMT
+
+https://screenrant.com/best-matrix-game-ideas-new-movie/
+
+The confirmation of a new Matrix movie being in development is a reminder of the high potential that a brand-new AAA Matrix game would have.
+---------
+
+# 5 Naruto Quotes That Hit Harder As Adults
+
+Anime, Naruto
+
+Mon, 17 Aug 2026 03:00:12 GMT
+
+https://screenrant.com/5-naruto-quotes-that-hit-harder-as-adults/
+
+Naruto is a treasure trove of beautiful quotes and moments that resonate with all ages, but the shonen giant grows even deeper as an adult.
+---------
+
+# Wednesday Is Officially Bringing The Addams Family Into A Brand New Era
+
+Streaming TV, Wednesday, The Addams Family
+
+Mon, 17 Aug 2026 02:45:11 GMT
+
+https://screenrant.com/wednesday-the-addams-family-new-era-adult-time/
+
+Wednesday has already changed the Addams Family forever, but season 3 is preparing to head in a direction the franchise has never gone in before.
+---------
+
+# 10 Years Later, Netflix's Time-Travel Thriller Still Comes As Close To Perfect As It Gets
+
+TV, Netflix, Masked Recs, Signal
+
+Mon, 17 Aug 2026 02:30:11 GMT
+
+https://screenrant.com/netflix-time-travel-k-drama-signal-perfect-thriller/
+
+An unforgettable crime thriller experience is widely available on streaming for much of the world, joining Netflix in 2019 after its 2016 debut.
+---------
+
+# 37 Years Later, Only One Vegeta Dragon Ball Line Remains The 1990s' Most Iconic Anime Quote
+
+Anime, Dragon Ball, Dragon Ball Z, Vegeta
+
+Mon, 17 Aug 2026 02:25:11 GMT
+
+https://screenrant.com/vegeta-most-iconic-dragon-ball-line-over-9000-best-anime-quote-1990s/
+
+A legendary burst of Vegeta's rage during an early battle quickly turned into one of the most recognizable pop culture quotes of the decade.
+---------
+
+# Hayden Panettiere, Scream and Heroes Star, Dies at 36
+
+TV, Scream, Heroes, obituary
+
+Mon, 17 Aug 2026 03:22:34 GMT
+
+https://www.cbr.com/hayden-panettiere-dead/
+
+Golden Globe nominee Hayden Panettiere has sadly passed away at the age of 36.
+---------
+
+# 10 Classic Open-World Games That Are Unplayable Today
+
+Games, open world
+
+Mon, 17 Aug 2026 03:15:14 GMT
+
+https://www.cbr.com/unplayable-classic-open-world-games-list/
+
+Open-world games like Batman: Arkham Knight haven't aged very well.
+---------
+
+# Raúl Castillo Reveals How His Walking Dead: Dead City Character Would Feel About Maggie and Glenn
+
+TV, The Walking Dead: Dead City, The Walking Dead, AMC
+
+Mon, 17 Aug 2026 03:07:22 GMT
+
+https://www.cbr.com/walking-dead-dead-city-maggie-glenn-luis-raul-castillo/
+
+Raúl Castillo explains how Luis would handle Glenn’s lasting place in Maggie’s heart — and why his bond with Hershel matters just as much.
+---------
+
+# Any Given Smile Officially Brings the Hit Horror Franchise to the Dark Side of Football
+
+Comics, Smile
+
+Mon, 17 Aug 2026 02:53:56 GMT
+
+https://www.cbr.com/any-given-smile-1-advance-review-horror-football/
+
+In a CBR advance review of Any Given Smile #1, see how the hit horror franchise brings its darkness to the world of football
+---------
+
+# 10 Best-Designed Yu-Gi-Oh! Archetypes, Ranked
+
+Games, Yu-Gi-Oh!, TCG
+
+Mon, 17 Aug 2026 02:45:14 GMT
+
+https://www.cbr.com/yu-gi-oh-best-designed-archetypes-ranked/
+
+The best archetypes in Yu-Gi-Oh! balance fun playstyles with cool aesthetics and lore.
+---------
+
+# The Walking Dead: Dead City’s Raúl Castillo Reacts to Maggie’s New Romance After Glenn
+
+TV, The Walking Dead, The Walking Dead: Dead City, AMC
+
+Mon, 17 Aug 2026 02:44:27 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-maggie-luis-romance-raul-castillo/
+
+Raúl Castillo breaks down Maggie and Luis’ growing connection in Dead City Season 3 and the pressure of following Glenn.
+---------
+
+# HBO's Lanterns Premiere Has Critics and Audiences in Total Agreement
+
+TV, Lanterns
+
+Mon, 17 Aug 2026 02:38:43 GMT
+
+https://www.cbr.com/lanterns-rotten-tomatoes-audience-score/
+
+The DCU series Lanterns has critics and audiences on the same page.
+---------
+
+# 5 Classic '80s Anime No One Remembers Today
+
+Anime, Area 88, Vampire Princess Miyu
+
+Mon, 17 Aug 2026 02:30:14 GMT
+
+https://www.cbr.com/classic-forgotten-80s-anime-list/
+
+The 1980s introduced formative anime that are still celebrated today, but standout titles like Dallos and They Were Eleven have fallen into obscurity.
+---------
+
+# 10 Classic Sitcoms Everyone Needs To Watch at Least Once
+
+TV, Sitcom, The Golden Girls, Cheers, The Brady Bunch
+
+Mon, 17 Aug 2026 03:22:14 GMT
+
+https://collider.com/classic-tv-sitcoms-everyone-needs-to-watch-once/
+
+If you consider yourself a fan of modern sitcoms, then you need to check out classic comedy shows like The Golden Girls, Cheers, and The Brady Bunch.
+---------
+
+# 'Scream,' 'Heroes' Star Hayden Panettiere, Dead at 36
+
+TV News, Hayden Panettiere, Obituary, Nashville, Heroes
+
+Mon, 17 Aug 2026 03:10:00 GMT
+
+https://collider.com/hayden-panettiere-obituary-dead-at-36/
+
+Heroes and Scream star Hayden Panettiere has passed away at the age of 36. The news broke late Sunday night, confirmed by her reps in a statement.
+---------
+
+# 10 Fantasy Books That Are Perfectly Written
+
+TV Lists, Fantasy, The Hobbit
+
+Mon, 17 Aug 2026 03:00:12 GMT
+
+https://movieweb.com/fantasy-books-perfectly-written/
+
+Not all fantasy books boast masterful writing, but the ones that do are more impressive for it — and tend to be perfectly written on multiple fronts.
+---------
+
 # Lanterns New Trailer Unleashes Hal Jordan and John Stewart in the DCU
 
 TV, Lanterns
