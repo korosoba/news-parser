@@ -1,3 +1,278 @@
+# Zack Snyder’s New Revenge Thriller Gets Gritty, R-Rated First Look
+
+Movies, Zack Snyder
+
+Mon, 17 Aug 2026 19:06:08 GMT
+
+https://screenrant.com/zack-snyder-the-last-photograph-movie-first-look-r-rated/
+
+Filmmaker Zack Snyder has shared the first look from his upcoming movie The Last Photograph via some graphic and very much R-rated footage.
+---------
+
+# Firefly Revival Series Gets Encouraging New Status Update From Nathan Fillion 5 Months After Announcement
+
+TV, Firefly
+
+Mon, 17 Aug 2026 19:05:46 GMT
+
+https://screenrant.com/firefly-revival-series-status-update-nathan-fillion/
+
+EXCLUSIVE: Firefly's revival just got a promising update from Nathan Fillion, as the actor strikes an encouraging tone about the show's return.
+---------
+
+# t's The Start Of An Era For The Big Bang Theory
+
+TV, The Big Bang Theory, Stuart Fails to Save the Universe
+
+Mon, 17 Aug 2026 19:03:11 GMT
+
+https://screenrant.com/the-big-bang-theory-new-streaming-era-hbo-max-trending/
+
+The sitcom franchise traded a living room hangout for epic multiverse set pieces, but HBO Max's spinoff still kept the original sitcom DNA intact.
+---------
+
+# Reacher Season 4: The Flash Drive Could Bring Down Sampson
+
+TV, Originals, Reacher
+
+Mon, 17 Aug 2026 19:00:12 GMT
+
+https://screenrant.com/video/reacher-season-4-the-flash-drive-could-bring-down-sampson/
+
+Reacher Season 4: The Flash Drive Mystery Explained. Three episodes into Season 4, Jack Reacher is caught in a conspiracy involving two mysterious deaths, a missing flash drive, the FBI, CIA, mercenaries, and a congressman with presidential ambitions.So what could actually be on that drive?
+---------
+
+# Star Wars: Smugglers Gambit Officially Announced
+
+Gaming, Star Wars, PC, Fortnite
+
+Mon, 17 Aug 2026 19:00:12 GMT
+
+https://screenrant.com/star-wars-smugglers-gambit-officially-announced/
+
+Star Wars officially returns with the surprise announcment of Smugglers Gambit, a completely unique experience fans cannot skip.
+---------
+
+# Guy Ritchie’s MobLand Season 3 Renewal Status Clarified By Paramount+ Exec
+
+TV, MobLand
+
+Mon, 17 Aug 2026 18:31:42 GMT
+
+https://screenrant.com/mobland-season-3-renewal-status-paramount-plus-jane-wiseman/
+
+Guy Ritchie and Tom Hardy's MobLand season 3 renewal status gets official clarification from Paramount+ ahead of the series' season 2 premiere.
+---------
+
+# Taylor Sheridan’s Tulsa King Season 4 Gets Glowing Early Review From Paramount+ Exec
+
+TV, Tulsa King
+
+Mon, 17 Aug 2026 18:31:37 GMT
+
+https://screenrant.com/tulsa-king-season-4-praise-paramount-plus-exec/
+
+Taylor Sheridan's upcoming Tulsa King season 4 earns a glowing early review from one Paramount+ executive, who teases the excitement to come.
+---------
+
+# Spider-Man: Brand New Day Nearly Redeemed Iconic Marvel Villain After $62M Disaster
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Mon, 17 Aug 2026 18:30:22 GMT
+
+https://screenrant.com/spiderman-brand-new-day-villain-chameleon-redemption-scrapped/
+
+Spider-Man: Brand New Day's main villain turned out to be an X-Men character, and it has now been revealed that the MCU movie almost used another foe.
+---------
+
+# 27 Years Later, Willow's Best Buffy Line Has Aged Like Fine Wine
+
+Classic TV, Buffy The Vampire Slayer
+
+Mon, 17 Aug 2026 18:30:12 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-best-willow-quote/
+
+In Buffy the Vampire Slayer season 3, nerd-turned-witch Willow delivered a line that quietly became one of the best quotes in fantasy TV history.
+---------
+
+# Hulu’s 95-Minute Underrated Horror Movie Is 28 Days Later Meets Warm Bodies
+
+Movies, We Bury the Dead, Daisy Ridley
+
+Mon, 17 Aug 2026 18:30:12 GMT
+
+https://screenrant.com/we-bury-the-dead-hulu-movie-28-days-later-warm-bodies/
+
+Looking for a zombie movie that does something a little different? Daisy Ridley’s We Bury the Dead is worth a look.
+---------
+
+# New Elden Ring Switch 2 Footage Doesn’t Put Fears To Rest
+
+Games, Elden Ring
+
+Mon, 17 Aug 2026 19:06:15 GMT
+
+https://www.cbr.com/elden-ring-switch-2-gameplay-footage-performance/
+
+Elden Ring's Switch 2 port is nearing release after a prolonged development, but its performance on Nintendo's handheld remains a concern.
+---------
+
+# Lanterns: How DC Cracked the Green Lantern Code
+
+TV, Lanterns
+
+Mon, 17 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/video/lanterns-how-dc-cracked-the-green-lantern-code/
+
+Lanterns explores why no one is truly good or evil in DC Studios’ grounded Green Lantern mystery. Poorna Jagannathan and Garret Dillahunt break down the moral complexity at the heart of the series and why power, integrity, and sacrifice matter so much.
+---------
+
+# Canon Events: Nightcrawler's X-Men '97 Fate Hit Even Harder in the Comics
+
+Comics, Canon Events, X-Men '97, Nightcrawler
+
+Mon, 17 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/canon-events-xmen-97-nightcrawler-death-better-second-coming/
+
+Nightcrawler's emotional final moments in X-Men '97 shook fans to the core, but his sacrifice in the comics was even more hard-hitting and meaningful.
+---------
+
+# 5 Jedi Stronger Than Mace Windu, Ranked
+
+Movies, Star Wars, Sci-Fi
+
+Mon, 17 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/jedi-more-powerful-than-mace-windu-list/
+
+Master Mace Windu was one of the strongest heroes in the Star Wars franchise, but his power was not unmatched among the Jedi in canon or Legends.
+---------
+
+# HBO & George RR Martin's House of the Dragon Beef Makes Even Less Sense 2 Years Later
+
+TV, House of the Dragon, Game Of Thrones, HBO Max, Innovation
+
+Mon, 17 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/hbo-house-of-the-dragon-helaena-death-george-rr-martin-dispute/
+
+House of the Dragon's depiction of Helaena's death was a point of contention for George R. R. Martin. Looking back, it shouldn't have been.
+---------
+
+# CBS Is Missing a Key Part of Justin Hartley's Tracker Format in Season 4
+
+TV, Tracker
+
+Mon, 17 Aug 2026 18:58:54 GMT
+
+https://www.cbr.com/cbs-tracker-season-4-jensen-ackles-unconfirmed-casting/
+
+Tracker Season 4 is missing a key piece of its winning formula ahead of its October premiere, leaving loose ends for Justin Hartley's series.
+---------
+
+# 5 Classic Cartoons Better Than Scooby-Doo
+
+TV, Scooby-Doo, Tom and Jerry, cartoons, Innovation
+
+Mon, 17 Aug 2026 18:45:15 GMT
+
+https://www.cbr.com/classic-cartoons-better-than-scooby-doo-list/
+
+Scooby-Doo, Where Are You! first aired in 1969 and started a beloved franchise. Still, some classic cartoons stand out even more.
+---------
+
+# It’s Officially the End of an Era for Pokémon in 2027
+
+Gaming News, Pokémon, Nintendo, Video Game, Anime
+
+Mon, 17 Aug 2026 19:00:15 GMT
+
+https://collider.com/a-13-year-old-pokmon-service-is-officially-shutting-down-in-2027/
+
+A 13-year-old Pokémon service is officially shutting down in 2027; learn about transfer options and implications for your Pokémon.
+---------
+
+# ‘God of War’ Already Has a Warning It Can’t Afford to Ignore
+
+TV Features, God of War, Prime Video, Ryan Hurst, The Last of Us
+
+Mon, 17 Aug 2026 18:56:15 GMT
+
+https://collider.com/god-of-war-christopher-judge-criticism-meaning/
+
+Original God of War voice actor, Christopher Judge, has criticized the Prime Video adaptation for not bringing the original creators from the game.
+---------
+
+# Spider-Man Officially Sinks James Cameron’s Biggest Box-Office Hit in Under 20 Days
+
+Movie News, Spider-Man: Brand New Day, James Cameron, Box Office, Avatar
+
+Mon, 17 Aug 2026 18:45:15 GMT
+
+https://collider.com/spider-man-brand-new-day-domestic-box-office-overtakes-james-cameron-avatar/
+
+Spider-Man: Brand New Day has overtaken the biggest blockbuster of James Cameron's career in less than 20 days at the domestic box office.
+---------
+
+# 'John Wick 5' Officially Has a Major Action Problem
+
+Movie News, John Wick, Action, Jason Bourne
+
+Mon, 17 Aug 2026 18:31:17 GMT
+
+https://collider.com/john-wick-style-action-stale-producer-basil-iwanyk-comments/
+
+Producer Basil Iwanyk said that the style of action that the John Wick franchise popularized has become overused.
+---------
+
+# Zack Snyder's Long-Awaited Action Thriller Unleashed in First Trailer
+
+Movie News, Zack Snyder
+
+Mon, 17 Aug 2026 19:02:23 GMT
+
+https://movieweb.com/zack-snyder-the-last-photograph-teaser-trailer/
+
+The next project from the 'Man of Steel' director is nearly here.
+---------
+
+# Every Time a Green Lantern Died in DC Comics & What Happened To Them
+
+Features, Lanterns
+
+Mon, 17 Aug 2026 19:00:12 GMT
+
+https://movieweb.com/dc-green-lantern-deaths-comics/
+
+The Green Lantern Corps has suffered many casualties over the course of decades of storytelling. Here's what we know.
+---------
+
+# Warner Bros. Scrapped the 'Harry Potter' Spin-Off Fans Wanted Before Reboot
+
+TV News, Harry Potter
+
+Mon, 17 Aug 2026 18:38:55 GMT
+
+https://movieweb.com/harry-potter-reboot-scrapped-spin-off/
+
+A much different new chapter in the 'Harry Potter' saga was almost brought to life before the upcoming reboot series comes later this year.
+---------
+
+# 'Avengers: Doomsday' Numbers Already Beating 'Spider-Man: Brand New Day'
+
+Movie News, Avengers: Doomsday
+
+Mon, 17 Aug 2026 18:37:41 GMT
+
+https://movieweb.com/avengers-doomsday-tickets-spider-man/
+
+Tickets for 'Avengers: Doomsday' went on sale four months ahead of its release, and it is outpacing the smash hit, 'Spider-Man: Brand New Day.'
+---------
+
 # Aliens: Fireteam Elite 2 Is Hard, Harrowing, And A Perfect Counterweight To Isolation
 
 Gaming, Alien, Aliens: Fireteam Elite 2
