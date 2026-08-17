@@ -1,3 +1,113 @@
+# It's Always Sunny In Philadelphia Season 18 Debuts To Rare Rotten Tomatoes Score
+
+TV, It's Always Sunny in Philadelphia
+
+Mon, 17 Aug 2026 13:49:14 GMT
+
+https://screenrant.com/its-always-sunny-in-philadelphia-season-18-rotten-tomatoes-debut/
+
+It's Always Sunny in Philadelphia season 10 is defying expectations, as the beloved comedy series has returned with a rare Rotten Tomatoes score.
+---------
+
+# Kate & Hal Mend Their Rocky Relationship In The Diplomat Season 4 Trailer
+
+TV, The Diplomat
+
+Mon, 17 Aug 2026 13:37:19 GMT
+
+https://screenrant.com/the-diplomat-season-4-release-date-first-look/
+
+The Diplomat is coming back with season 4 on Netflix, as new images, a release date, and a brand-new teaser have been released.
+---------
+
+# Russell Crowe’s Dark True Crime Unabomber Movie Is Just Weeks Away From Its Netflix Debut
+
+Movies, Unabomber, Netflix
+
+Mon, 17 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/unabomber-movie-russell-crowe-dark-true-crime-netflix-debut/
+
+A true crime documentary movie focusing on a dark but important point in history is set to release on Netflix in the next few upcoming weeks.
+---------
+
+# Godzilla's New Evolution Officially Debuts, With Unbelievable Claws
+
+Comics, Godzilla
+
+Mon, 17 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/new-godzilla-redesign-wolverine-claws-debuts/
+
+Godzilla's retractable claws are now canon.
+---------
+
+# Celia Rose Gooding Is Taking Uhura Closer To Nichelle Nichols In Star Trek: Strange New Worlds Season 4
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Mon, 17 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-celia-rose-gooding-interview/
+
+Celia Rose Gooding discusses feuding with a Vulcan, becoming "Rave-hura," and learning from Dr. M'Benga in Star Trek: Strange New Worlds season 4.
+---------
+
+# It's Officially The End Of An Era For Prime Video's Spider-Noir
+
+Streaming TV, Spider-Noir, Spider-Man, Marvel Cinematic Universe
+
+Mon, 17 Aug 2026 13:29:27 GMT
+
+https://screenrant.com/spider-noir-prime-video-streaming-charts-fall-august-2026/
+
+Prime Video's Spider-Noir finally takes a major hit, officially ending a successful era for the Nicolas Cage live-action Spider-Man series.
+---------
+
+# 30 Years Later, Pokémon Officially Unveils New Dragonite Redesign
+
+Gaming, PC, Pokemon, Pokemon Red and Blue
+
+Mon, 17 Aug 2026 13:23:46 GMT
+
+https://screenrant.com/pokemon-funko-pop-new-look-dragonite/
+
+Pokémon's newest Dragonite look is sure to be an absolute hit among longtime fans of the franchise, and is a great way to celebrate 30 years.
+---------
+
+# The Coziest Life Sim of 2026 Blows Stardew Valley Out of the Water
+
+CBR Exclusives, Stardew Valley, Video Games, Gaming
+
+Mon, 17 Aug 2026 13:30:15 GMT
+
+https://www.cbr.com/starsand-island-pastoral-fairy-tale-life-sim-review/
+
+Starsand Island has been in Early Access since early 2026, and now that its finally ready, it's easily the coziest game I've ever played.
+---------
+
+# Netflix's Best 4-Part Thriller Series Officially Sets Return Date With New Trailer
+
+TV News, The Diplomat, Netflix, Allison Janney, Rufus Sewell
+
+Mon, 17 Aug 2026 13:30:15 GMT
+
+https://collider.com/the-diplomat-season-4-release-date-trailer/
+
+The Diplomat Season 4 officially returns to Netflix on October 15 as Keri Russell tries to prevent the United States from going to war.
+---------
+
+# 40 Years Later, Jackie Chan Returns to Classic Action Franchise in New Death-Defying Clip
+
+Movie News, Jackie Chan, Armour of God, Action, Adventure
+
+Mon, 17 Aug 2026 13:49:13 GMT
+
+https://movieweb.com/armour-god-4-jackie-chan-footage-stunt/
+
+Forget Tom Cruise. Jackie Chan is back and delivering another white-knuckle stunt for our entertainment.
+---------
+
 # Dark Souls 3 Just Got The Ultimate Next-Gen Remaster
 
 Gaming, Dark Souls 3
