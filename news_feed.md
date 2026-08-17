@@ -1,3 +1,234 @@
+# Taylor Sheridan's Landman Season 3 Status Confirmed After Production Delays
+
+TV
+
+Mon, 17 Aug 2026 19:44:28 GMT
+
+https://screenrant.com/taylor-sheridan-landman-season-3-writing-status-update/
+
+After one of the show's stars revealed a filming delay, a top Paramount+ executive has offered a positive update on the status of Landman season 3.
+---------
+
+# Multiple New Taylor Sheridan Shows After The Madison & Release Timelines Teased By Paramount+ Exec
+
+TV, Taylor Sheridan
+
+Mon, 17 Aug 2026 19:43:00 GMT
+
+https://screenrant.com/taylor-sheridan-new-tv-shows-before-2029-paramount-plus-executive/
+
+Taylor Sheridan may be leaving Paramount for NBCUniversal soon, but he still has other shows up his sleeve before his exit, according to an executive.
+---------
+
+# Apple TV's 9-Part 'Dark Meets Severance' Sci-Fi Series Officially Returns In 1 Week
+
+Streaming TV, Masked Recs
+
+Mon, 17 Aug 2026 19:30:11 GMT
+
+https://screenrant.com/dark-matter-season-2-apple-tv-august-28/
+
+Apple TV's science fiction series that's part Severance and part Dark is about to get a second season that should give viewers even more thrills.
+---------
+
+# The End Of Oak Street Is Rated PG-13 But It's Not Kid Friendly - Read Before Watching
+
+Movies, The End of Oak Street, Jurassic Park, Jurassic World
+
+Mon, 17 Aug 2026 19:20:11 GMT
+
+https://screenrant.com/the-end-of-oak-street-movie-parents-guide/
+
+The End of Oak Street is a dinosaur-themed summer blockbuster, but some moments stand out if you're planning to watch with a young audience.
+---------
+
+# Ryan Gosling’s Ghost Rider MCU Reboot Release Date Officially Revealed
+
+Movies, Ghost Rider, Marvel Cinematic Universe
+
+Mon, 17 Aug 2026 19:18:59 GMT
+
+https://screenrant.com/ghost-rider-mcu-movie-ryan-gosling-release-date-confirmed/
+
+As Ryan Gosling is officially joining the Marvel Cinematic Universe as Ghost Rider, his solo movie has finally received its official release date.
+---------
+
+# Doctor Doom Makes Unexpected New Appearance Before Avengers: Doomsday
+
+Gaming, Marvel, Doctor Doom, Avengers: Doomsday, MARVEL Cosmic Invasion, Triple-A Games
+
+Mon, 17 Aug 2026 19:07:32 GMT
+
+https://screenrant.com/doctor-doom-marvel-cosmic-invasion-new-dlc/
+
+Before Avengers: Doomsday introduces fans to the MCU's iteration of Doctor Doom, the iconic supervillain will first debut in a great Marvel game.
+---------
+
+# Spider-Man: Brand New Day’s Original Classic Villain Replaced by Jean Grey Revealed
+
+Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day
+
+Mon, 17 Aug 2026 19:46:32 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-villain-replaced-by-jean-grey-revealed/
+
+Jean Grey was not originally planned to be the main threat in Spider-Man: Brand New Day.
+---------
+
+# Chris Hemsworth's Long-Awaited Netflix Sequel Adds James Bond Star With New Casting Wave
+
+Movies, Extraction 3, Extraction, Extraction 2
+
+Mon, 17 Aug 2026 19:36:04 GMT
+
+https://www.cbr.com/chris-hemsworth-extraction-3-pierce-brosnan-casting/
+
+Three years after the last installment, Chris Hemsworth's action-packed franchise is pulling all the stops.
+---------
+
+# The End of Oak Street: J.J. Abrams on Its Wildest Scares
+
+Movies, The End of Oak Street
+
+Mon, 17 Aug 2026 19:30:15 GMT
+
+https://www.cbr.com/video/the-end-of-oak-street-j-j-abrams-on-its-wildest-scares/
+
+The End of Oak Street pushes PG-13 surprisingly far, but David Robert Mitchell and J.J. Abrams explain why the scares still serve its family story.
+---------
+
+# Disney's $7.77B Franchise Returns as a Streaming Hit Ahead of New Sequel
+
+Movies, Marvel, Marvel Comics, MCU, Avengers, Avengers: Doomsday, Avengers: Endgame, Avengers: Infinity War
+
+Mon, 17 Aug 2026 19:23:34 GMT
+
+https://www.cbr.com/disney-multi-billion-dollar-avengers-franchise-returns-as-a-streaming-hit/
+
+Marvel fans are clamoring to the near-$8 billion franchise before the new sequel lands.
+---------
+
+# Netflix Reverses Course on One-Punch Man
+
+Anime, One-Punch Man, Netflix
+
+Mon, 17 Aug 2026 19:20:15 GMT
+
+https://www.cbr.com/netflix-one-punch-manall-seasons-release-date/
+
+One-Punch Man fans can officially look forward to more episodes of their favorite superhero anime making their way to Netflix, and they're coming soon
+---------
+
+# 25 Years Later, ‘Star Trek: Voyager’ Is Officially Getting a New Ending
+
+Books and Comics News, Star Trek, Star Trek: Voyager, Comic Book, IDW
+
+Mon, 17 Aug 2026 19:45:15 GMT
+
+https://collider.com/star-trek-voyager-homecoming-comic-release-trade-paperback/
+
+IDW Comics is finally depicting what happened after Star Trek: Voyager's explosive finale in a new graphic novel. Read on for more.
+---------
+
+# 10 Most Intense Thriller Books of All Time
+
+Books and Comics, The Trial, Misery, Needful Things, Clockers
+
+Mon, 17 Aug 2026 19:41:15 GMT
+
+https://collider.com/most-intense-thriller-books-all-time-ranked/
+
+Some of the most intense thriller books ever written include classics like Needful Things, The Big Nowhere, Ripley's Game, and Crooked House.
+---------
+
+# ‘God of War’s Kratos Actor Calls Out Prime Video Adaptation: “What Are You Thinking?”
+
+TV News, God of War, Prime Video, Ryan Hurst
+
+Mon, 17 Aug 2026 19:30:15 GMT
+
+https://collider.com/prime-video-god-of-war-adaptation-christopher-judge-criticism-amid-filming-delay/
+
+Prime Video's God of War adaptation is facing yet another criticism from a franchise icon amid filming delays and casting changes. Find out more here.
+---------
+
+# 3 Greatest Movies To Watch on Netflix This Week (Aug 17-21)
+
+Movie, Armageddon Time, Ingrid Goes West, Matilda, Netflix
+
+Mon, 17 Aug 2026 19:19:16 GMT
+
+https://collider.com/best-netflix-movies-watch-august-17-2026/
+
+Ingrid Goes West, Armageddon Time, and Matilda make up our list of the best movies to watch on Netflix the week of August 17th, 2026.
+---------
+
+# HBO’s Sci-Fi ‘True Detective’ Replacement Officially Lands Near-Perfect Rotten Tomatoes Score
+
+TV News, HBO, Lanterns, DCU, Rotten Tomatoes
+
+Mon, 17 Aug 2026 19:15:15 GMT
+
+https://collider.com/lanterns-hbo-max-rotten-tomatoes-is-it-good/
+
+HBO’s new sci-fi True Detective replacement officially course corrects the DCU with a 40%+ increase on Rotten Tomatoes.
+---------
+
+# Pierce Brosnan Officially Joins Netflix’s Biggest Action Franchise
+
+Movie News, Extraction 3, Pierce Brosnan, Chris Hemsworth, Idris Elba
+
+Mon, 17 Aug 2026 19:14:11 GMT
+
+https://collider.com/extraction-3-pierce-brosnan-cast-netflix/
+
+Pierce Brosnan officially joins Chris Hemsworth in Netflix’s Extraction 3, alongside four more additions to the cast.
+---------
+
+# Guy Ritchie & Tom Hardy's 'MobLand' Season 3 Status Officially Confirmed by Paramount+
+
+TV News, MobLand
+
+Mon, 17 Aug 2026 19:43:48 GMT
+
+https://movieweb.com/guy-ritchie-tom-hardy-mobland-season-3-status/
+
+Paramount+ has shed light on the future of the hit crime series 'MobLand.'
+---------
+
+# Marvel Studios Officially Confirms 'Ghost Rider' 2028 Release Date
+
+Movie News, Ghost Rider, Ryan Gosling
+
+Mon, 17 Aug 2026 19:37:29 GMT
+
+https://movieweb.com/ghost-rider-marvel-studios-release-date-confirmed/
+
+The timeframe for Ryan Gosling's debut as Ghost Rider was narrowed down further in an exciting new update.
+---------
+
+# 'Lanterns' Rotten Tomatoes Audience Score Breaks DCU Record
+
+TV News, Lanterns, DCU, Superhero, HBO Max
+
+Mon, 17 Aug 2026 19:14:20 GMT
+
+https://movieweb.com/lanterns-rotten-tomatoes-breaks-dcu-record/
+
+But will the HBO show be able to hold onto it?
+---------
+
+# Chris Hemsworth's 'Extraction 3' Adds James Bond Star to Action Thriller Sequel
+
+Movie News, Extraction 3, Chris Hemsworth, Pierce Brosnan, Joe Taslim
+
+Mon, 17 Aug 2026 19:13:04 GMT
+
+https://movieweb.com/extraction-3-casting-pierce-brosnan-joe-taslim/
+
+Pierce Brosnan and Joe Taslim are among the new additions to Netflix's next installment in the franchise.
+---------
+
 # Zack Snyder’s New Revenge Thriller Gets Gritty, R-Rated First Look
 
 Movies, Zack Snyder
