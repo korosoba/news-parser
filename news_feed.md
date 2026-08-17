@@ -1,3 +1,234 @@
+# Netflix's 95% RT Fantasy Time Travel Series Is So Good, It's Getting A Spinoff After One Season
+
+Streaming TV, Masked Recs
+
+Mon, 17 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/bon-appetit-your-majesty-spinoff-after-one-season/
+
+Fans of this popular time-travel fantasy series will be delighted to learn that Netflix reportedly has plans to expand its universe with a spinoff.
+---------
+
+# 10 Arrowverse Episodes Better Than Any DC Movie
+
+Classic TV, Arrowverse, Arrow, DC, Supergirl, Legends of Tomorrow, Superman & Lois, The Flash
+
+Mon, 17 Aug 2026 00:18:11 GMT
+
+https://screenrant.com/arrowverse-episodes-better-than-dc-movies/
+
+With bold narrative risks and epic fight scenes, these ten Arrowverse episodes prove that the franchise could beat DC’s live-action movies.
+---------
+
+# Lioness Season 3 Star Reveals a Deep Personal Connection to Taylor Sheridan’s Series
+
+TV, Lioness
+
+Mon, 17 Aug 2026 00:14:05 GMT
+
+https://screenrant.com/lioness-season-3-elizaveta-neretin-personal-connection-taylor-sheridan/
+
+One of the stars of Taylor Sheridan's spy thriller series, Lioness, reveals that she has a very personal connection to her character.
+---------
+
+# Thor Movies Don't Deserve The Hate, But This Issue Is Hard To Ignore
+
+Movies, Thor
+
+Mon, 17 Aug 2026 00:10:11 GMT
+
+https://screenrant.com/mcu-thor-ragnarok-tone-change/
+
+MCU fans tend to bash Thor movies, and while they don't deserve as much hate as they often get, this major critique about them is true.
+---------
+
+# The Expanse's Real Finale Arrived Over A Year After Season 6 Ended
+
+Classic TV, The Expanse
+
+Mon, 17 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/the-expanse-real-finale-dragon-tooth/
+
+Anyone who felt the ending of The Expanse came far too soon needs to check out the official follow-up, because it's a much better final chapter.
+---------
+
+# My Adventures With Superman Showrunners Breakdown Season 3 Finale Surprises, Lex's Dark Vision & Season 4 Updates
+
+TV, My Adventures With Superman, DC Universe, Superman
+
+Sun, 16 Aug 2026 23:53:10 GMT
+
+https://screenrant.com/my-adventures-with-superman-season-3-jake-wyatt-brendan-clogher-interview/
+
+My Adventures with Superman showrunners Jake Wyatt and Brendan Clogher open up about the massive season 3 finale and the future of the DC series.
+---------
+
+# 10 Most Rewatchable Anime Series, Ranked
+
+Anime, Cowboy Bebop, Attack on Titan
+
+Mon, 17 Aug 2026 00:45:14 GMT
+
+https://www.cbr.com/most-rewatchable-anime-series-ranked-list/
+
+The best anime series, like Cowboy Bebop and Attack on Titan, are worth rewatching for deeper insights and unforgettable experiences.
+---------
+
+# In Just 1 Day, Netflix's The Office Replacement Is Already the Most-Watched Show on Streaming
+
+TV, Tires, The Office
+
+Mon, 17 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/tires-workplace-comedy-netflix-us-success-august-2026/
+
+Several shows tried to replicate The Office's workplace humor, and Netflix's underrated comedy seems to have succeeded.
+---------
+
+# 10 Greatest Video Game Villains of All Time, Ranked
+
+Games, Video Games, Final Fantasy VII
+
+Mon, 17 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/greatest-video-game-villains-all-time-ranked/
+
+There are tons of great video game villains, but only a handful can rightfully be called the best of all time, full stop.
+---------
+
+# Tombstone's Johnny Ringo has the Greatest Quote in Western History
+
+Movies, Tombstone
+
+Mon, 17 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/tombstone-johnny-ringo-greatest-quote-western-movie-history/
+
+Tombstone secured its place in cinematic history thanks to its memorable script, but one line from an iconic villain elevated it to perfection.
+---------
+
+# 5 Greatest R-Rated Anime Movies, Ranked
+
+Anime, Akira, Perfect Blue
+
+Mon, 17 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/greatest-r-rated-anime-movies-ranked/
+
+R-rated anime films can sometimes be alienating experiences, but titles like Vampire Hunter D: Bloodlust and Perfect Blue are mature triumphs.
+---------
+
+# Iconic 64-Year-Old Sci-Fi Cartoon Returns as a PVOD Hit Ahead of Jim Carrey Live-Action Reboot
+
+Movies, The Jetsons, Jim Carrey
+
+Mon, 17 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/the-jetsons-sci-fi-pvod-success-august-2026/
+
+The sci-fi show has resurfaced as a digital hit ahead of its reboot.
+---------
+
+# Studio Ghibli Officially Returns to Nausicaa's Rejected Original Movie
+
+Anime, Nausicaä of the Valley of the Wind, Nausicaä Of The Valley Of The Wind, Studio Ghibli
+
+Mon, 17 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/studio-ghibli-nausicaa-original-movie-rejected/
+
+Studio Ghibli winds the clock back 40 years to the origin of Director Hayao Miyazaki's post-apocalyptic epic, Nausicaa of the Valley of the Wind.
+---------
+
+# Prime Video's New No. 1 Show With 90% RT Gives the 2020s Its First Real Gossip Girl Replacement
+
+TV, Sterling Point, Prime Video
+
+Mon, 17 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/prime-video-sterling-point-gossip-girl-replacement/
+
+Gossip Girl failed on its HBO reboot, but Prime Video's new series can actually deliver the replacement fans of the teen drama deserve.
+---------
+
+# 5 Decepticons Stronger Than Megatron
+
+Anime, Transformers
+
+Sun, 16 Aug 2026 23:45:15 GMT
+
+https://www.cbr.com/transformers-decepticons-stronger-than-megatron/
+
+Megatron is the iconic leader of the Decepticons, but that doesn't mean he's the strongest member of their ranks.
+---------
+
+# 8 Most Exciting Thriller Movies of All Time, Ranked
+
+Movie, Thriller, Psycho, Zodiac, Run Lola Run
+
+Mon, 17 Aug 2026 00:41:14 GMT
+
+https://collider.com/most-exciting-thriller-movies-all-time-ranked/
+
+Zodiac, Memento, The Dark Knight, Jaws, Psycho, and more make up our list of the most exciting thriller movies of all time.
+---------
+
+# ‘Reacher’ Meets ‘John Wick’ in Mark Wahlberg’s 124-Minute Action Thriller Officially Streaming for Free
+
+Movie News, Shooter, Mark Wahlberg, Reacher, John Wick
+
+Mon, 17 Aug 2026 00:30:15 GMT
+
+https://collider.com/mark-wahlberg-action-thriller-shooter-free-streaming-pluto-tv-august-2026/
+
+Mark Wahlberg's two-hour action thriller with shades of John Wick and Reacher is officially available to stream for free.
+---------
+
+# ‘Spider-Man: Brand New Day’ Is Officially Closing In on ‘Top Gun: Maverick’
+
+Movie News, Spider-Man: Brand New Day, Box Office, Black Panther, Tom Holland
+
+Mon, 17 Aug 2026 00:15:15 GMT
+
+https://collider.com/spider-man-brand-new-day-domestic-box-office-milestone-700-million/
+
+Spider-Man: Brand New Day has passed a monumental box office milestone, joining an elite seven-member club. Find out more.
+---------
+
+# 6 Crime Miniseries That Never Had a Weak Episode
+
+TV, Crime, Mare of Easttown, Too Old to Die Young, Under the Banner of Heaven
+
+Mon, 17 Aug 2026 00:02:14 GMT
+
+https://collider.com/best-crime-miniseries-no-weak-episodes/
+
+Explore great crime miniseries that maintain consistent quality throughout, including The Night Of, Escape at Dannemora, and Mare of Easttown.
+---------
+
+# ‘Tomb Raider’ Gets Official Release Update Before New Prime Video Series
+
+Gaming News, Tomb Raider, Prime Video, Sophie Turner, Phoebe Waller-Bridge
+
+Mon, 17 Aug 2026 00:00:14 GMT
+
+https://collider.com/tomb-raider-catalyst-release-window-2028-update/
+
+The next new Tomb Raider game, Catalyst, gets an official release update before the premiere of Sophie Turner's Prime Video series.
+---------
+
+# Netflix Officially Says Goodbye to Sam Raimi’s Brutal 4-Part Historical Sensation
+
+TV News, Spartacus, Netflix, Spartacus: House of Ashur
+
+Sun, 16 Aug 2026 23:45:14 GMT
+
+https://collider.com/spartacus-starz-series-leaving-netflix-september-2026/
+
+The swords-and-sandals epic series Spartacus is about to be removed from Netflix. Find out how long you have left to watch it.
+---------
+
 # 6 Biggest Events House Of The Dragon Season 4 Must Include To Follow A Book-Accurate Ending
 
 Streaming TV, House of the Dragon
