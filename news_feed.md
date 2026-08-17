@@ -1,3 +1,157 @@
+# 5 Best Moments From Disney’s D23 Entertainment Showcase
+
+Movies, Disney
+
+Mon, 17 Aug 2026 17:45:11 GMT
+
+https://screenrant.com/5-best-moments-from-disneys-d23-entertainment-showcase/
+
+Disney's biannual D23 Entertainment Showcase had plenty of reveals and new looks at upcoming projects from the studio, including Avengers: Doomsday.
+---------
+
+# Law & Order Spinoff Sets Official Season 2 US Release Date
+
+TV, Law & Order Toronto: Criminal Intent, Law & Order Toronto: Criminal Intent - Season 2, Law and Order
+
+Mon, 17 Aug 2026 17:30:03 GMT
+
+https://screenrant.com/law-and-order-toronto-criminal-intent-season-2-us-release-date-the-cw-october-2026/
+
+Several Law & Order spinoffs have aired over the years. One of them is about to come back for its second season in the United States of America.
+---------
+
+# 4 Years After His Disney+ Series, Star Wars Announces Boba Fett's Return With Black, White, and Red
+
+Comics, Boba Fett
+
+Mon, 17 Aug 2026 17:25:10 GMT
+
+https://screenrant.com/boba-fett-return-black-white-red/
+
+Four years after Disney+'s The Book of Boba Fett, Star Wars is bringing the beloved bounty hunter back in a returning four-part release.
+---------
+
+# GTA 6 Officially Drops New Release August 27, Mark Your Calendars
+
+Games, Grand Theft Auto, Netflix, Grand Theft Auto 5
+
+Mon, 17 Aug 2026 17:41:16 GMT
+
+https://www.cbr.com/gta-6-official-trailer-release-august-27-netflix/
+
+The exact date and time for the Grand Theft Auto 6: Extended Look Trailer have been revealed, along with when it's officially dropping on YouTube.
+---------
+
+# Pokémon Winds and Waves Reveals Professor and Champion
+
+Games, Pokemon
+
+Mon, 17 Aug 2026 17:31:15 GMT
+
+https://www.cbr.com/pokemon-winds-and-waves-professor-and-champion-reveal/
+
+Pokémon fans just got a glimpse at some of the key characters who will be making their franchise debuts in Pokémon Winds & Waves next year.
+---------
+
+# Die Hard Meets John Wick in Jason Statham's Action Movie Event of the Summer
+
+Movies, Mutiny, Jason Statham, Action
+
+Mon, 17 Aug 2026 17:30:15 GMT
+
+https://www.cbr.com/jason-statham-mutiny-combines-die-hard-john-wick/
+
+Jason Statham returns to this big screen this summer with an action movie event that combines the best parts of Die Hard and John Wick.
+---------
+
+# Law & Order Spinoff Finally Sets Season 2 Release Date
+
+TV, Law & Order Toronto: Criminal Intent, Law & Order, The CW
+
+Mon, 17 Aug 2026 17:22:10 GMT
+
+https://www.cbr.com/law-and-order-toronto-criminal-intent-season-2-release-date-the-cw/
+
+The Law & Order spinoff returns to The CW this October.
+---------
+
+# 4 Years Later, Attack on Titan Studio Finally Names the Anime Series That 'Saved' the Company
+
+Anime, Spy X Family, Spy x Family, Attack on Titan, Attack On Titan
+
+Mon, 17 Aug 2026 17:20:16 GMT
+
+https://www.cbr.com/wit-studio-president-spy-x-family-anime-save/
+
+Wit Studio CEO and President George Wada explains how one humble action-comedy anime helped to keep the studio afloat after Attack on Titan.
+---------
+
+# One of the Greatest Games Ever Made Is Officially Getting a Full Remake
+
+Video Games, The Legend of Zelda, Nintendo Switch, Nintendo, Fantasy
+
+Mon, 17 Aug 2026 17:47:39 GMT
+
+https://collider.com/zelda-ocarina-of-time-remake-nintendo-switch-2-exclusive/
+
+The Legend of Zelda: Ocarina of Time is being remade, with Nintendo confirming a 2026 release window, but there’s a huge catch.
+---------
+
+# Disney Officially Launches New Adults-Only Fantasy Series
+
+Books and Comics News, Disney, Beauty and the Beast, Romance, Graphic Novel
+
+Mon, 17 Aug 2026 17:45:15 GMT
+
+https://collider.com/disney-adults-only-series-cursed-love-romantasy-beauty-and-the-beast/
+
+Disney is officially launching a new adults-only fantasy series, rewriting your favorite stories and fairytales with a twist.
+---------
+
+# Marvel Is Officially Bringing Back Robert Downey Jr.’s Iron Man in 2028
+
+Movie News, Iron Man, Robert Downey Jr, Avengers: Doomsday, D23
+
+Mon, 17 Aug 2026 17:30:15 GMT
+
+https://collider.com/robert-downey-jr-tony-stark-iron-man-return-avengers-campus-disneyland/
+
+Robert Downey Jr. is officially returning as Tony Stark alongside Chris Hemsworth and more MCU Avengers for two new Disneyland attractions.
+---------
+
+# Hayden Panettiere Was More Than Just a Cheerleader and This 6-Part Series Proved It
+
+TV Features, Nashville, Hayden Panettiere, Series, Heroes
+
+Mon, 17 Aug 2026 17:30:11 GMT
+
+https://collider.com/hayden-panettiere-nashville-juliette-barnes-heroes-performance/
+
+Hayden Panettiere became a star on Heroes, but Nashville proved she was a far more versatile actress with her unforgettable Juliette Barnes.
+---------
+
+# Netflix's Hit Political Thriller Returns in First Season 4 Trailer
+
+TV News, The Diplomat, Keri Russell, Netflix
+
+Mon, 17 Aug 2026 17:49:32 GMT
+
+https://movieweb.com/the-diplomat-season-4-trailer-netflix/
+
+Netflix has promised a "spicy" season 4 of 'The Diplomat.'
+---------
+
+# Michael J. Fox's Gravely Underrated Supernatural Thriller Sets New Release
+
+Movie News, The Frighteners, Horror, Peter Jackson, Michael J. Fox, Blu-ray
+
+Mon, 17 Aug 2026 17:47:03 GMT
+
+https://movieweb.com/michael-j-fox-the-frighteners-4k-blu-ray/
+
+Arrow Video is preparing a new 4K Blu-ray release for Peter Jackson's underrated supernatural thriller 'The Frighteners,' starring Michael J. Fox.
+---------
+
 # X-Men's Original Rogue & Storm Actors Break Silence On MCU Reboot Cast
 
 Movies, X-Men, Marvel Cinematic Universe
