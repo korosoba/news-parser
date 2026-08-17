@@ -1,3 +1,278 @@
+# Lanterns New Trailer Unleashes Hal Jordan and John Stewart in the DCU
+
+TV, Lanterns
+
+Mon, 17 Aug 2026 02:10:01 GMT
+
+https://screenrant.com/lanterns-new-trailer-dcu-hbo/
+
+HBO's newest DCU show Lanterns just aired its pilot episode and the network has already released another exciting trailer for its first season.
+---------
+
+# When Lanterns Takes Place In The James Gunn DCU Timeline
+
+Streaming TV, Lanterns, DC Universe
+
+Mon, 17 Aug 2026 02:05:11 GMT
+
+https://screenrant.com/lanterns-show-timeline-dcu-explained/
+
+HBO's Lanterns sees its story take place across different years, and this is how Hal Jordan and John Stewart fit within James Gunn's DC Universe.
+---------
+
+# 5 Long Anime Series That Are Absolute Masterpieces, No Notes
+
+Anime
+
+Mon, 17 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/long-anime-series-masterpieces/
+
+Explore the best long anime series with 50 episodes or more that are unforgettable and rewarding for fans from beginning to end.
+---------
+
+# DC's Major Hal Jordan Twist Changes Everything: Lanterns Episode 1 Ending Explained
+
+Streaming TV, Lanterns, DC Universe
+
+Mon, 17 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/lanterns-episode-1-ending-explained/
+
+Lanterns episode 1 introduces two of DC's biggest Green Lanterns to James Gunn's DCU, ending with a shocking Hal Jordan twist that changes it all.
+---------
+
+# Warrior Cats Meets Texas Chainsaw Massacre In New Horror You Can Try Free Now
+
+Gaming, Warrior Cats, The Texas Chainsaw Massacre, The Texas Chain Saw Massacre, Texas Chainsaw Massacre, PC, Steam
+
+Mon, 17 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/warrior-cats-texas-chainsaw-lag-kills-playtest/
+
+Warrior Cats and Texas Chainsaw Massacre collide in this new horror-slasher with an adorably sinister gameplay loop.
+---------
+
+# Disney+ Confirms 15 Essential Marvel Movies & Shows To Watch Before Avengers: Doomsday
+
+Movies, Avengers: Doomsday, The Avengers, Disney+
+
+Mon, 17 Aug 2026 01:50:49 GMT
+
+https://screenrant.com/avengers-doomsday-marvel-movies-shows-watch-list-disney-plus-confirms/
+
+Disney+ has confirmed a total of 15 crucial Marvel movies and TV shows to watch before Avengers: Doomsday is officially released in theaters.
+---------
+
+# Why Ebonée Noel’s Kristen Chazal Was Written Out Of FBI After Season 2
+
+TV, FBI
+
+Mon, 17 Aug 2026 01:45:12 GMT
+
+https://screenrant.com/why-ebonee-noel-kristen-chazal-left-fbi-after-season-2/
+
+Several actors have left the FBI franchise, but the most surprising was the exit of Ebonée Noel and her beloved character, Kristen Chazal.
+---------
+
+# 10 Greatest Dinosaur Movies For Kids, Ranked
+
+Classic Movies
+
+Mon, 17 Aug 2026 01:45:11 GMT
+
+https://screenrant.com/greatest-dinosaur-movies-kids/
+
+There have been some incredible dinosaur movies made for kids and with PAW Patrol: The Dino Movie arriving, here are the best of these dino movies.
+---------
+
+# 44 Years Later, Stephen King’s Greatest Opening Line From The Dark Tower Remains Unmatched
+
+Books, Stephen King, The Dark Tower
+
+Mon, 17 Aug 2026 01:30:11 GMT
+
+https://screenrant.com/stephen-king-dark-tower-greatest-opening-line-fantasy/
+
+Stephen King’s greatest opening quote is from his most iconic book series, and it arguably remains unmatched in the history of the fantasy genre.
+---------
+
+# Star Trek: The Next Generation “Had Another 3 Years” & Didn’t Need To Be Canceled, Says Legendary Producer
+
+TV, Star Trek, Star Trek: The Next Generation
+
+Mon, 17 Aug 2026 01:14:43 GMT
+
+https://screenrant.com/star-trek-brannon-braga-tng-3-more-years/
+
+Looking back on Star Trek: The Next Generation, legendary writer-executive producer Brannon Braga says the USS Enterprise-D had more voyages in her.
+---------
+
+# 10 Perfect PS2 Games No One Remembers
+
+Games, PlayStation 2
+
+Mon, 17 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/perfect-ps2-games-no-one-remembers-list/
+
+Some of the best PS2 games, like Dark Cloud, are almost entirely forgotten.
+---------
+
+# Gundam Finally Brings Back a Forgotten Zaku II With a Military Camouflage Redesign
+
+Anime, Mobile Suit Gundam, merchandise, bandai, action figures, toys
+
+Mon, 17 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/gundam-jungle-warfare-zaku-ii/
+
+The newest Mobile Suit Gundam action figure from Bandai represents a version of the most iconic grunt mech, albeit one never seen in the anime.
+---------
+
+# 5 Sci-Fi Books Better Than Ready Player One
+
+Movies, Sci-Fi, Ready Player One
+
+Mon, 17 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/sci-fi-books-better-than-ready-player-one-list/
+
+From influential classics to modern adventures, these sci-fi books leave Ready Player One trailing behind.
+---------
+
+# The Walking Dead Officially Replaces Glenn 10 Years Later
+
+TV, The Walking Dead: Dead City, The Walking Dead, Innovation
+
+Mon, 17 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-replaces-glenn-with-luis/
+
+Maggie Rhee considers taking a shot at love for the first time since Glenn's death in The Walking Dead Season 7.
+---------
+
+# The Bloodiest & Raunchiest TV Show in History Is Leaving Netflix After Just 1 Year
+
+TV, Spartacus, Nashville, Netflix
+
+Mon, 17 Aug 2026 01:56:56 GMT
+
+https://www.cbr.com/the-bloodiest-raunchiest-tv-show-in-history-leaving-netflix/
+
+Netflix is kicking one of the most popular and bloodiest shows ever out of their library.
+---------
+
+# 10 Strongest Transformers in the Modern Era, Ranked
+
+Anime, Transformers
+
+Mon, 17 Aug 2026 01:45:14 GMT
+
+https://www.cbr.com/most-powerful-modern-era-transformers-ranked-list/
+
+From betrayals to insane power-ups, Transformers like Optimus, Elita Prime and Starscream got shocking upgrades that redefined their strength.
+---------
+
+# 8 Most Perfect Anime of the Last 10 Years, Ranked
+
+Anime, Jujutsu Kaisen, Mob Psycho 100
+
+Mon, 17 Aug 2026 01:25:15 GMT
+
+https://www.cbr.com/most-perfect-anime-past-decade-ranked-list/
+
+Anime's past decade has featured some historic hits, with titles like Mob Psycho 100 and Vinland Saga representing the best of the best!
+---------
+
+# Taylor Sheridan's Paramount Exit Changes the Rules for His Best Non-Yellowstone Show
+
+TV, Lioness
+
+Mon, 17 Aug 2026 01:00:15 GMT
+
+https://www.cbr.com/taylor-sheridan-paramount-exit-bad-for-lioness-season-4/
+
+Taylor Sheridan will jump ship from Paramount to NBCUniversal in a billion-dollar deal in 2029, changing the rules for future installments of Lioness.
+---------
+
+# These 10/10 Movies All Have Perfect Scores on Rotten Tomatoes
+
+Movies
+
+Mon, 17 Aug 2026 01:00:15 GMT
+
+https://www.cbr.com/best-movies-with-perfect-rotten-tomatoes-scores-list/
+
+There aren't many movies with a perfect rating on Rotten Tomatoes. However, these cinematic classics have earned the unique distinction.
+---------
+
+# Marvel Officially Reveals How the Runaways Could Have Joined Their Parents Instead
+
+Comics, Runaways
+
+Mon, 17 Aug 2026 00:59:23 GMT
+
+https://www.cbr.com/marvel-runaways-what-if-preview/
+
+In a CBR preview of What If...?" Runaways #1, see how the Runaways could have been convinced not to break free from their villainous parents
+---------
+
+# 'Lanterns' Creators Have a Message for Fans After That Shocking Premiere Twist
+
+Exclusives, Lanterns, HBO, Damon Lindelof, DCU
+
+Mon, 17 Aug 2026 02:00:24 GMT
+
+https://collider.com/lanterns-episode-1-premiere-twist-hal-jordan-dies-damon-lindelof-tom-king/
+
+Lanterns co-creators Damon Lindelof and Tom King discuss the premiere's biggest twist and why they want to encourage fans to keep watching.
+---------
+
+# 'Lanterns' Massive Time-Jump Twist Is a Game-Changer for HBO's DC Series | Review
+
+TV Reviews, Lanterns, Kyle Chandler, Aaron Pierre, Kelly Macdonald
+
+Mon, 17 Aug 2026 02:00:24 GMT
+
+https://collider.com/lanterns-premiere-episode-1-review/
+
+HBO's Lanterns kicks off with a small-town murder mystery that gives way to an even more massive twist featuring a fan-favorite character.
+---------
+
+# Titus Welliver Reveals What Harry Bosch Would Think of His Crooked Cop in ‘The Westies’
+
+Interviews, The Westies, Titus Welliver, Jessica Frances Dukes, Bosch
+
+Mon, 17 Aug 2026 02:00:24 GMT
+
+https://collider.com/the-westies-titus-welliver-jessica-frances-dukes-bosch-reaction/
+
+The Westies co-stars Titus Welliver and Jessica Frances Dukes discuss their strained character dynamic, and what Harry Bosch would think of Keenan.
+---------
+
+# 6 Thriller Shows That Never Had a Weak Episode
+
+TV, Thriller, Mindhunter, Better Call Saul, Mr. Robot
+
+Mon, 17 Aug 2026 01:22:14 GMT
+
+https://collider.com/best-thriller-shows-no-weak-episodes/
+
+Discover perfect thriller shows that maintained excellence throughout their runs thanks to their riveting storylines, from Mr. Robot to Hannibal.
+---------
+
+# James Gunn's DCU Makes Bold Decision That Reshapes the Universe's Future
+
+Features, Lanterns
+
+Mon, 17 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/james-gunns-dcu-hal-jordan-death/
+
+The 'Lanterns' Pilot episode has set a dangerous precedent for the DCU, and one it can never take back.
+---------
+
 # Netflix's 95% RT Fantasy Time Travel Series Is So Good, It's Getting A Spinoff After One Season
 
 Streaming TV, Masked Recs
