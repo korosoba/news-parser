@@ -1,3 +1,113 @@
+# NYT Connections Solution And Hints For August 17, 2026
+
+Gaming, Connections, Mobile
+
+Mon, 17 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-17-2026/
+
+There is an odd combination of modern and rural ideas in today's Connections, creating a number of tricky pairings for an unorthodox puzzle.
+---------
+
+# Hands-On: The Top Gun Battlefield 6 Event Is Off To A Good Start
+
+Gaming, Battlefield 6, Triple-A Games
+
+Mon, 17 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/battlefield-6-top-gun-event-impressions/
+
+Season 4 started off a bit slow, but now that we're right in the middle of it, it's time for Top Gun to show up and mix things up.
+---------
+
+# The Walking Dead Is Finally Introducing The Real Version Of A Popular Comic Character
+
+Streaming TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 17 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/the-walking-dead-luis-real-dante/
+
+AMC's Walking Dead has made countless changes to the source material, but we're finally seeing the real version of a beloved comic character.
+---------
+
+# 8 Reasons It's Hard to Watch Inuyasha Today
+
+Anime, Inuyasha
+
+Mon, 17 Aug 2026 15:15:16 GMT
+
+https://www.cbr.com/inuyasha-hard-to-watch-today/
+
+Nostalgia has rooted Inuyasha's fanbase firmly in place after hundreds of episodes, but the anime isn't exactly easy to watch today.
+---------
+
+# Chris Pratt's Anti-Reacher Action Series Unveils First Look Ahead of Release
+
+TV, The Terminal List
+
+Mon, 17 Aug 2026 15:06:59 GMT
+
+https://www.cbr.com/chris-pratt-terminal-list-season-2-first-look-images/
+
+Chris Pratt's hit action thriller from Prime Video unveils an exciting new first look ahead of its return this Fall.
+---------
+
+# War Machine 2 Is Officially the End of an Era for Netflix
+
+Movies, War Machine
+
+Mon, 17 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/alan-ritchson-war-machine-2-end-netflix-extraction-era/
+
+Alan Ritchson's Netflix original action movie officially ushers in a brand-new era for the streaming platform that could threaten another franchise.
+---------
+
+# 5 Classic American Anime That Aged Like Milk
+
+Anime, Voltron: Legendary Defender, Jackie Chan Adventures
+
+Mon, 17 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/classic-american-anime-that-aged-badly/
+
+These American anime may be nostalgic favorites, but watching them today reveals plenty of problems.
+---------
+
+# Johnny Depp's Pirates of the Caribbean Return Gets Fantastic Update From Producer
+
+Movies, Pirates of the Caribbean, Innovation
+
+Mon, 17 Aug 2026 14:58:33 GMT
+
+https://www.cbr.com/johnny-depp-pirates-of-the-caribbean-return-update-jerry-bruckheimer/
+
+Pirates of the Caribbean franchise producer Jerry Bruckheimer addresses Johnny Depp's potential return as Jack Sparrow.
+---------
+
+# This WWII Classic Is Officially More Relevant Than Ever 25 Years Later [Exclusive]
+
+TV News, Band of Brothers, Neal McDonough, HBO, Drama
+
+Mon, 17 Aug 2026 15:15:16 GMT
+
+https://collider.com/band-of-brothers-timeless-ww2-classic-neal-mcdonough/
+
+Neal McDonough officially confirms why his World War II miniseries, Band of Brothers, is more relevant than ever. Read on for more.
+---------
+
+# 10 'NCIS' Cast Members Who Lasted the Longest
+
+TV Lists, NCIS
+
+Mon, 17 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/ncis-cast-members-lasted-the-longest/
+
+From original characters to later additions, these are the NCIS cast members who know what it means to go the distance.
+---------
+
 # PlayStation 6 Release Date Gets Official Update From Sony CEO
 
 Gaming, PlayStation 6, Triple-A Games
