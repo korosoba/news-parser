@@ -1,3 +1,234 @@
+# Inde Navarrette Suits Up As Rogue With Marvel Rivalry Nod For X-Men Reboot In New MCU Art
+
+Movies, X-Men, Marvel Cinematic Universe, Inde Navarrette
+
+Mon, 17 Aug 2026 16:17:08 GMT
+
+https://screenrant.com/inde-navarrette-rogue-costume-mcu-fan-art/
+
+The X-Men cast was officially announced at D23, and now fan art has made its way online depicting Inde Navarrette as Rogue with a rivalry twist.
+---------
+
+# It: Welcome To Derry Season 2's Fate Officially Decided By HBO
+
+TV, It: Welcome to Derry
+
+Mon, 17 Aug 2026 16:03:24 GMT
+
+https://screenrant.com/it-welcome-to-derry-season-2-renewal/
+
+It: Welcome to Derry is preparing to give everyone even more sleepless nights.
+---------
+
+# Netflix's 10/10 Zombie Series Is So Good, It Got 2 Seasons And A Movie
+
+Streaming TV, Masked Recs
+
+Mon, 17 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/kingdom-zombie-k-drama-netflix-franchise/
+
+There's plenty of great zombie TV shows on Netflix, but none are as groundbreaking as this terrifying historical drama that spawned a franchise.
+---------
+
+# Super Mario Officially Returns In 2027
+
+Gaming, Super Mario, Triple-A Games
+
+Mon, 17 Aug 2026 15:59:49 GMT
+
+https://screenrant.com/super-mario-2027-lego-sets-officially-confirmed/
+
+If you've been wanting another Mario release for a long time, you'll get the chance to partake in the universe once again in 2027.
+---------
+
+# 5 Final Fantasy Characters Kingdom Hearts 4 Desperately Needs To Include
+
+Gaming, Kingdom Hearts 4, Kingdom Hearts, Final Fantasy
+
+Mon, 17 Aug 2026 15:55:31 GMT
+
+https://screenrant.com/kingdom-hearts-4-final-fantasy-characters/
+
+Kingdom Hearts 4 has a release window for Late 2027 and a new trailer, but which Final Fantasy characters might show up in the high-anticipated RPG?
+---------
+
+# 6 Brilliant Far Side Comics Starring Real People
+
+Comics, The Far Side
+
+Mon, 17 Aug 2026 15:50:26 GMT
+
+https://screenrant.com/far-side-real-people-gary-larson-best-comics/
+
+When The Far Side got real.
+---------
+
+# It's Official, Black Clover Is Over As We Know It
+
+Anime, Black Clover, shonen anime
+
+Mon, 17 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/black-clover-over-as-we-know-it/
+
+The old Black Clover is over, and a new chapter begins with the Fall 2026 Anime Season that will change the series as we know it.
+---------
+
+# It: Welcome to Derry's Season 2 Fate Confirmed by HBO Max
+
+TV, It: Welcome to Derry
+
+Mon, 17 Aug 2026 16:11:49 GMT
+
+https://www.cbr.com/it-welcome-to-derry-season-2-confirmed-hbo-max/
+
+The hit Stephen King series has received an official response from HBO Max.
+---------
+
+# Harrison Ford’s Return in Blade Runner’s New Sequel Series Addressed by Showrunner
+
+TV, Blade Runner 2099
+
+Mon, 17 Aug 2026 16:05:45 GMT
+
+https://www.cbr.com/blade-runner-2099-harrison-ford-return-addressed/
+
+Blade Runner 2099 showrunner Silka Luisa reveals if Harrison Ford will appear in Prime Video's sequel series.
+---------
+
+# Kyle Chandler Teases a ‘Ridiculously Cool’ Character Arc in Lanterns
+
+CBR Exclusives, Lanterns
+
+Mon, 17 Aug 2026 16:02:45 GMT
+
+https://www.cbr.com/lanterns-jasmine-cephas-jones-arc-kyle-chandler/
+
+DC Comics fans didn't expect this character to have such a significant arc in HBO Max's Lanterns.
+---------
+
+# Power Rangers Gives Tommy Oliver’s Green Ranger a Batmobile
+
+Comics, Power Rangers
+
+Mon, 17 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/power-rangers-green-ranger-batmobile-boom-studios/
+
+The Green Power Ranger is stepping into a tragic new role like The Dark Knight - and it apparently comes with its own Batmobile?
+---------
+
+# 18 Years Later, The X-Files Missing Chapter Turns Into Instant Hulu Hit
+
+Movies, The X-Files: I Want to Believe, The X-Files
+
+Mon, 17 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/the-x-files-i-want-to-believe-hulu-success-august-2026/
+
+One of the most divisive entries in The X-Files franchise is officially a streaming sensation after returning with a new director's cut.
+---------
+
+# 10 Greatest Legal Thrillers of All Time, Ranked
+
+Movies, Thriller, A Few Good Men
+
+Mon, 17 Aug 2026 16:00:15 GMT
+
+https://www.cbr.com/best-legal-thrillers-all-time-ranked-list/
+
+The courtroom and its surrounding locales are absolutely perfect settings for cinematic thrills, and these 10 legal masterpieces are the very best.
+---------
+
+# 'The Pitt's Star Officially Confirms Major Season 3 Conflict [Exclusive]
+
+TV News, The Pitt, HBO Max, Noah Wyle, HBO
+
+Mon, 17 Aug 2026 16:15:15 GMT
+
+https://collider.com/the-pitt-season-3-robby-langdon-conflict-patrick-ball-explains/
+
+The Pitt star Patrick Ball teases that more conflict is coming between Dr. Langdon and Dr. Robbie in Season 3 of HBO's hit medical drama.
+---------
+
+# 5 Essential Jurassic Park Games, Ranked
+
+Gaming, Jurassic Park, Games, Jurassic World Evolution, Super Nintendo
+
+Mon, 17 Aug 2026 16:11:15 GMT
+
+https://collider.com/jurassic-park-games-essential-ranked/
+
+From Jurassic Park: Operation Genesis to Trespasser, these games delivered the most memorable dinosaur adventures beyond the films.
+---------
+
+# Robert Pattinson’s ‘The Batman’ Sequel Officially Reveals First Look at Batmobile Design
+
+Movie News, The Batman, The Batman Part II, Robert Pattinson, Matt Reeves
+
+Mon, 17 Aug 2026 16:07:14 GMT
+
+https://collider.com/the-batman-part-2-filming-batmobile-glasgow/
+
+The Batmobile has arrived in Glasgow ahead of filming for Robert Pattinson’s The Batman: Part II, with the Scottish city standing in for Gotham.
+---------
+
+# 'It's Always Sunny in Philadelphia' Is Officially Starting To Show Signs of Aging in Season 18 | Review
+
+TV Reviews, It's Always Sunny in Philadelphia, FX, Rob Mac, Glenn Howerton
+
+Mon, 17 Aug 2026 16:00:15 GMT
+
+https://collider.com/its-always-sunny-in-philadelphia-season-18-review/
+
+It's Always Sunny in Philadelphia Season 18 mostly replays the hits this time around, with storylines that carry echoes of previous episodes.
+---------
+
+# Every Metallica Album Released Since 1991, Ranked
+
+Music News, Metallica, James Hetfield, Metal, Classic Albums: Metallica - Metallica
+
+Mon, 17 Aug 2026 16:00:15 GMT
+
+https://collider.com/every-metallica-album-since-1991-ranked/
+
+From The Black Album to 72 Seasons, the definitive list of every Metallica album released since the 90s.
+---------
+
+# HBO Officially Confirms Fate of 'It: Welcome to Derry' After 9 Months
+
+TV News, It: Welcome to Derry
+
+Mon, 17 Aug 2026 16:12:29 GMT
+
+https://movieweb.com/hbo-it-welcome-to-derry-season-2-renewal/
+
+HBO has finally revealed if 'It: Welcome to Derry' is coming back for a second season.
+---------
+
+# Prime Video's New 140-Minute Action Epic Finds the Power on Streaming
+
+Movie News, Masters of the Universe, Hot on Streaming, Action, Prime Video
+
+Mon, 17 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/masters-of-the-universe-action-prime-video-streaming-hit-august-2026/
+
+Amazon has found the power with 'Masters of the Universe,' which has quickly taken the streaming world by storm despite bombing at the box office.
+---------
+
+# Zoe Saldaña’s 'John Wick' Meets 'Sicario' Thriller Is Streaming for Free
+
+Features, Lioness
+
+Mon, 17 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/colombiana-zoe-saldana-action-thriller-streaming-free/
+
+Zoe Saldaña starred in an action thriller movie that will remind fans of 'John Wick' and Taylor Sheridan's popular film 'Sicario.'
+---------
+
 # Nathan Fillion Details Why Guy Gardner Is In The Most DCU Movies & TV Shows
 
 TV, Lanterns, DC Universe, Green Lantern
