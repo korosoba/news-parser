@@ -1,3 +1,146 @@
+# Moana (2026) Live-Action Remake Pitch Meeting
+
+Movies, Moana, Screen Rant Pitch Meetings
+
+Mon, 17 Aug 2026 20:48:00 GMT
+
+https://screenrant.com/video/live-action-moana-2026-pitch-meeting/
+
+ScreenRant's Pitch Meeting sees how far it can go and takes a look at the live-action Moana remake and why Disney's film became a big flop.
+---------
+
+# The Valkyries, Cover Images, Instagram Captions, & How It All Points To A Nesta/Manon Story In ACOTAR 6 &7, Explained
+
+Books, A Court of Thorns and Roses
+
+Mon, 17 Aug 2026 20:41:32 GMT
+
+https://screenrant.com/acotar-6-7-cover-title-reveal-valkyries-nesta-manon-tog-crossover-explained/
+
+A Court of Thorns and Roses is officially returning with not just one, but two new books, and all the signs point to a major Maasverse crossover.
+---------
+
+# Prime Video's 2-Part Steampunk Fantasy Series From Pacific Rim Creator Is A Must-Watch
+
+Classic TV, Masked Recs
+
+Mon, 17 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/pacific-rim-creator-carnival-row-prime-video-fantasy-must-watch/
+
+Prime Video’s library includes a steampunk fantasy TV show co-created by Pacific Rim's Travis Beacham, and it's a must-watch for fans of the genre.
+---------
+
+# The Odyssey's Most Popular Quote Confirms The True Genius Of Robert Pattinson's Performancelouu
+
+Movies, The Odyssey
+
+Mon, 17 Aug 2026 20:30:11 GMT
+
+https://screenrant.com/the-odyssey-movie-beggars-out-of-here-quote-robert-pattinson-antinous/
+
+Robert Pattinson gives a perfectly manic performance as the villainous Antinous in The Odyssey, and delivers one of the movie’s most popular lines.
+---------
+
+# Sydney Sweeney's New Space Opera Is A "Big Action-Romance Epic"
+
+Movies, Gundam, Sydney Sweeney
+
+Mon, 17 Aug 2026 20:26:19 GMT
+
+https://screenrant.com/sydney-sweeney-gundam-noah-centineo-netflix-epic/
+
+Sydney Sweeney's new space opera is a "big action-romance epic" with a Romeo and Juliet-style story, according to her co-star, Noah Centineo.
+---------
+
+# MTG's $2 Million One Ring Card Was Officially Played in a Game
+
+Games, Tabletop, Magic: The Gathering, The Lord of the Rings
+
+Mon, 17 Aug 2026 20:39:15 GMT
+
+https://www.cbr.com/mtg-2-million-one-ring-card-officially-played-post-malone/
+
+The most expensive relic of The Lord of the Rings has been unleashed, as Post Malone used his $2 million One Ring card in a Magic: The Gathering game.
+---------
+
+# William Shatner's Star Trek Return Is Ready to Save Trek & Fix a Critical Kirk Error
+
+TV, Star Trek, Star Trek: The Original Series, Sci-Fi, Innovation
+
+Mon, 17 Aug 2026 20:35:15 GMT
+
+https://www.cbr.com/star-trek-captain-return-save-franchise/
+
+William Shatner's return could be exactly what Star Trek needs, pushing the franchise forward with a fresh storyline to redeem his Generations ending.
+---------
+
+# Dragon Ball Super's Toyotarou Returns With First-Ever Look at Vegeta's Mother
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Mon, 17 Aug 2026 20:35:15 GMT
+
+https://www.cbr.com/dragon-ball-super-toyotarou-volume-19-vegeta-family-alternative-art/
+
+Vegeta's mom has never been shown in the Dragon Ball franchise's entire 40 years of existence, until now. But it's not exactly a heartwarming reunion.
+---------
+
+# 3 Near-Perfect Series to Binge on Netflix This Week
+
+TV, Search Party, Ozark, First Kill, Netflix
+
+Mon, 17 Aug 2026 20:47:15 GMT
+
+https://collider.com/netflix-shows-binge-week-august-17-2026/
+
+Search Party, Ozark, and First Kill make up our list of the best Netflix shows to binge the week of August 17th, 2026.
+---------
+
+# Netflix’s Bloody ‘John Wick’-Style Action Hit Is Officially Getting a Sequel
+
+Movie News, John Wick, Netflix, Action, The Shadow Strays
+
+Mon, 17 Aug 2026 20:40:17 GMT
+
+https://collider.com/the-shadow-strays-2-sequel-script-netflix/
+
+The Shadow Strays 2 is taking shape as director Timo Tjahjanto works on the script for the sequel to Netflix’s acclaimed action thriller.
+---------
+
+# The Classic Beatles Album That Almost Lost Its Most Important Song
+
+Music Features, The Beatles, Paul McCartney, John Lennon, Music
+
+Mon, 17 Aug 2026 20:34:15 GMT
+
+https://collider.com/beatles-yesterday-1965-song/
+
+The Beatles almost never released one of their most iconic songs, revealing the band's evolution and McCartney's journey with Yesterday.
+---------
+
+# Beloved Tarantino Stars Become Nazi Hunters in New World War II Revenge Thriller
+
+Movie News, Diane Kruger, Tim Roth, Netflix, Quentin Tarantino
+
+Mon, 17 Aug 2026 20:43:37 GMT
+
+https://movieweb.com/diane-kruger-tim-roth-projet-k-netflix/
+
+'Projet K' stars Diane Kruger and Dany Boon as real-life Nazi hunters.
+---------
+
+# Paramount Confirms Reboot of Sylvester Stallone's Classic '90s Crime Thriller
+
+TV News, Cop Land
+
+Mon, 17 Aug 2026 20:28:00 GMT
+
+https://movieweb.com/paramount-cop-land-series-status-james-mangold/
+
+The 1997 film is just the kind of crime thriller that Paramount wants to reimagine.
+---------
+
 # DC Officially Introduces Green Lanterns' New Power Ring Ability
 
 Streaming TV, Lanterns, DC Universe
