@@ -1,3 +1,47 @@
+# Fallout 4 Official August 2026 Update Comes With A Warning From Bethesda
+
+Gaming, Fallout, Fallout 4
+
+Mon, 17 Aug 2026 09:30:47 GMT
+
+https://screenrant.com/fallout-4-august-2026-update-warning/
+
+Fallout 4 is getting yet another update from Bethesda, but this latest patch comes with a warning from the developer.
+---------
+
+# Netflix's New Spielbergian Sci-Fi Thriller Defies Critics with 27.5 M Views in 3 Days
+
+Movie News, The Last House, Netflix, Greta Lee, Wagner Moura
+
+Mon, 17 Aug 2026 09:30:14 GMT
+
+https://collider.com/netflix-sci-fi-the-last-house-streaming-success-august-2026/
+
+Netflix's new sci-fi thriller, The Last House, has become one of the streamer's biggest openings of the year, following War Machine and Apex.
+---------
+
+# 27 Best Feel-Good Shows on Netflix Right Now, Ranked
+
+TV, Netflix, Heartstopper, Queer Eye, Cunk on Earth
+
+Mon, 17 Aug 2026 09:11:14 GMT
+
+https://collider.com/feel-good-shows-netflix/
+
+The best feel-good series to stream on Netflix will bring a smile to viewers' faces, from Heartstopper to Cunk on Earth to Queer Eye.
+---------
+
+# Michael Bay’s 5-Part Sci-Fi Series Is Officially a Netflix Smash Hit
+
+TV News, The Last Ship, Michael Bay, Netflix, Sci-Fi
+
+Mon, 17 Aug 2026 09:00:15 GMT
+
+https://collider.com/last-ship-michael-bay-sci-fi-sensation-2-billion-minutes-watched-nielsen-ratings/
+
+Michael Bay's word-of-mouth sensation, The Last Ship, has emerged as a major hit after being discovered on Netflix.
+---------
+
 # Game Of Thrones: The Golden Strategist Officially Announced
 
 Gaming, Game of Thrones, Game Of Thrones, PC
