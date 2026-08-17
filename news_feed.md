@@ -1,3 +1,47 @@
+# Cyberpunk 2077 Officially Returns August 20 For New DLC
+
+Gaming, Cyberpunk 2077, Fortnite
+
+Mon, 17 Aug 2026 10:30:11 GMT
+
+https://screenrant.com/cyberpunk-2077-august-fortnite-collaboration/
+
+Explore the Fortnite Override event featuring Cyberpunk 2077 and iconic characters launching August 20.
+---------
+
+# 10 Most Ambitious Fantasy Movies of the Last 25 Years
+
+Movie, Fantasy, The Odyssey, Wicked, The Lord of the Rings: The Fellowship of the Ring
+
+Mon, 17 Aug 2026 10:33:14 GMT
+
+https://collider.com/most-ambitious-fantasy-movies-last-25-years-ranked/
+
+From David Lowery's dark The Green Knight to Christopher Nolan's epic The Odyssey, these are the most ambitious fantasy movies of the last 25 years.
+---------
+
+# DC’s ‘Invincible’ Replacement Is Officially Flying High on Streaming Ahead of Its Finale
+
+TV News, My Adventures With Superman, HBO Max, Superhero, DCU
+
+Mon, 17 Aug 2026 10:30:14 GMT
+
+https://collider.com/dc-my-adventures-with-superman-streaming-success-hbo-max-august-2026/
+
+My Adventures with Superman soars on HBO Max ahead of its Season 3 finale, adding another streaming success to DC's animated lineup.
+---------
+
+# Taylor Sheridan's 53-Episode Western Thriller Isn't Backing Down on Streaming
+
+TV News, Yellowstone, Paramount Plus, Hot on Streaming, Taylor Sheridan
+
+Mon, 17 Aug 2026 10:30:26 GMT
+
+https://movieweb.com/yellowstone-taylor-sheridan-streaming-success-paramount-august-2026/
+
+Eight years later, Taylor Sheridan's biggest and best show is still killing it on streaming.
+---------
+
 # The Witcher 3 Officially Returns August 20 With New DLC
 
 Gaming, The Witcher, The Witcher 3: Wild Hunt
