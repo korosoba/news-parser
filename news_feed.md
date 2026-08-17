@@ -1,3 +1,91 @@
+# Anakin & Padme's Potential Star Wars Reunion Addressed By Hayden Christensen
+
+Movies, Star Wars, Anakin Skywalker/Darth Vader, Padmé Amidala
+
+Mon, 17 Aug 2026 21:32:53 GMT
+
+https://screenrant.com/star-wars-anakin-padme-reunion-hayden-christensen-response/
+
+Ahead of Hayden Christensen's return to Star Wars in Ahsoka season 2, he addresses whether there will be ever be a reunion with Anakin and Padmé.
+---------
+
+# Star Wars Has Replaced Luke Skywalker
+
+Streaming TV, Star Wars
+
+Mon, 17 Aug 2026 21:30:11 GMT
+
+https://screenrant.com/star-wars-ahsoka-replaces-luke-skywalker-thrawn-heir-empire/
+
+Disney has been trying to replace Luke Skywalker in Star Wars for years, but an upcoming show is finally doing it with one of his most famous stories.
+---------
+
+# Ms. Marvel Star Iman Vellani's Supergirl Review Confirms What's Wrong With The DC Movie
+
+Movies, Supergirl, DC Universe
+
+Mon, 17 Aug 2026 21:24:10 GMT
+
+https://screenrant.com/dc-supergirl-review-ms-marvel-iman-vellani-criticism/
+
+DC's Supergirl movie failed at the box office, and Ms. Marvel actress Iman Vellani's review of the DCU film perfectly explains what went wrong.
+---------
+
+# Which "Stolen Lives" Is Doctor Doom Talking About In Avengers: Doomsday? All 11 Possibilities
+
+Superheroes, Marvel Cinematic Universe, The Avengers, Avengers: Doomsday
+
+Mon, 17 Aug 2026 21:20:11 GMT
+
+https://screenrant.com/avengers-doomsday-doctor-doom-stolen-lives-possibilities-explained/
+
+Doctor Doom claims the MCU's heroes are living "stolen lives" in Avengers: Doomsday. There are 11 multiversal events that could prove he's right.
+---------
+
+# ‘Widow’s Bay’ Creator Officially Reveals New Season 2 Details [Exclusive]
+
+TV News, Widow's Bay, Katie Dippold, Hiro Murai, Dale Dickey
+
+Mon, 17 Aug 2026 21:31:14 GMT
+
+https://collider.com/widows-bay-season-2-character-plans-katie-dippold/
+
+Widow’s Bay Season 2 will dig deeper into several overlooked characters as Katie Dippold & Hiro Murai tease what’s next for the Apple TV horror show.
+---------
+
+# This 1994 Classic Is a Distinctly American Riff On 'The Odyssey'
+
+Movie Features, The Odyssey, Christopher Nolan, Forrest Gump, Robert Zemeckis
+
+Mon, 17 Aug 2026 21:31:14 GMT
+
+https://collider.com/forrest-gump-is-like-the-odyssey/
+
+Robert Zemeckis' Forrest Gump riffs on Homer and is a spiritual cousin to Christopher Nolan's The Odyssey.
+---------
+
+# Taylor Sheridan's 'Tulsa King' Gets a Major Season 5 Status Update
+
+TV News, Tulsa King, Taylor Sheridan, Sylvester Stallone
+
+Mon, 17 Aug 2026 21:44:03 GMT
+
+https://movieweb.com/taylor-sheridan-tulsa-king-season-5/
+
+Paramount+ doesn't want Sylvester Stallone going anywhere.
+---------
+
+# 'Star Trek's Streaming Future Officially Confirmed by Paramount Ahead of Movie Reboot
+
+TV News, Star Trek, Paramount Plus
+
+Mon, 17 Aug 2026 21:27:05 GMT
+
+https://movieweb.com/star-trek-streaming-future-paramount-plus/
+
+Jane Wiseman, the head of original programming at Paramount+, offers a promising status on 'Star Trek's streaming future.
+---------
+
 # Matthew McConaughey’s New Crime Thriller Makes True Detective Look Small
 
 Movies, Masked Recs
