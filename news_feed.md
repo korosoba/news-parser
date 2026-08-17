@@ -1,3 +1,113 @@
+# Isaac Asimov Meets The Twilight Zone In Disney+'s Upcoming Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Mon, 17 Aug 2026 22:45:11 GMT
+
+https://screenrant.com/visionquest-isaac-asimov-meets-the-twilight-zone-sci-fi/
+
+One of Disney+'s upcoming TV projects is a sci-fi show that's a perfect mix of Isaac Asimov's works and The Twilight Zone, but with a little extra.
+---------
+
+# Dragon Ball Unveils Official New Vegeta Artwork, And It's Instantly Iconic
+
+Anime, Dragon Ball, Dragon Ball Super, Vegeta
+
+Mon, 17 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/dragon-ball-super-new-vegeta-look-family/
+
+Hidden inside a brilliant reflection, Toyotarou's latest official artwork finally reveals a big missing piece of the Saiyan Prince's royal lineage.
+---------
+
+# The Boys' 2027 Return To Prime Video Sets Up The Next 10 Years
+
+Streaming TV, The Boys
+
+Mon, 17 Aug 2026 22:30:11 GMT
+
+https://screenrant.com/the-boys-2027-vought-rising-future-franchise/
+
+The Boys may be over, but the franchise's return to Prime Video in 2027 sets up the next decade of subversive superhero mayhem from Vought.
+---------
+
+# The Amazon Horror Show Stephen King Called a 10/10 Masterpiece: 'Scared the Hell Out of Me'
+
+TV, Them, Prime Video, Stephen King, Horror, Innovation
+
+Mon, 17 Aug 2026 22:46:14 GMT
+
+https://www.cbr.com/prime-video-them-stephen-king-horror-praise/
+
+Stephen King's praise for Prime Video’s Them underscores the horror series's terrifying exploration of systemic racism and generational trauma.
+---------
+
+# Hulu’s Prison Break Reboot Gains Momentum as True Blood Star, 5 More Join Cast
+
+TV, Prison Break
+
+Mon, 17 Aug 2026 22:37:50 GMT
+
+https://www.cbr.com/prison-break-reboot-cast-sam-trammell-chris-coy-hulu/
+
+Hulu's Prison Break reboot is heating up.
+---------
+
+# New Heroes Join the Green Lantern Corps
+
+Comics, CSBG, Lanterns, The Line It Is Drawn
+
+Mon, 17 Aug 2026 22:31:50 GMT
+
+https://www.cbr.com/new-heroes-join-the-green-lantern-corps/
+
+In a brand-new Line it is Drawn, our artists drew your suggestions for new Green Lanterns in honor of the debut of Lanterns
+---------
+
+# Ash vs Evil Dead Follow-Up Series Gets Unfortunate Update by Bruce Campbell
+
+TV, Ash vs Evil Dead
+
+Mon, 17 Aug 2026 22:30:47 GMT
+
+https://www.cbr.com/bruce-campbell-not-returning-evil-dead-animated-series/
+
+Bruce Campbell shares a major update on the long-gestating follow-up series to Ash vs Evil Dead.
+---------
+
+# Hulu’s Newest Cancellation Exposes One of Streaming’s Most Frustrating Problems
+
+TV Features, Deli Boys, Hulu, Poorna Jagannathan, Asif Ali
+
+Mon, 17 Aug 2026 22:41:14 GMT
+
+https://collider.com/deli-boys-cancellation-hulu-streaming-viewership-problem-opinion/
+
+Deli Boys was cancelled after 2 seasons despite strong reviews and marketing, raising questions about streaming success and timing.
+---------
+
+# 3 Perfect Movies To Stream on Prime Video This Week (Aug 17-21)
+
+Movie, Prime Video, Blue Beetle, Mystic Pizza, Sudden Death
+
+Mon, 17 Aug 2026 22:34:14 GMT
+
+https://collider.com/best-movies-prime-video-august-17-2026/
+
+Blue Beetle, Mystic Pizza, and Sudden Death make up our list of the best movies to stream on Prime Video the week of August 17th, 2026.
+---------
+
+# 'Tracker' Season 4 Is Officially Changing Its Winning Formula [Exclusive]
+
+TV News, Tracker, Justin Hartley, Jensen Ackles, CBS
+
+Mon, 17 Aug 2026 22:30:14 GMT
+
+https://collider.com/tracker-justin-harley-teases-season-4-production-move-la/
+
+Tracker star Justin Hartley teases an ambitious fourth season of the CBS series after production moved from Vancouver to LA.
+---------
+
 # KPop Demon Hunters Star Enters A K-Pop Survival Competition In New Movie
 
 Movies, KPop Demon Hunters
