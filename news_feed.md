@@ -1,3 +1,14 @@
+# Game Of Thrones: The Golden Strategist Officially Announced
+
+Gaming, Game of Thrones, Game Of Thrones, PC
+
+Mon, 17 Aug 2026 06:00:11 GMT
+
+https://screenrant.com/game-of-thrones-legends-golden-strategist-launch/
+
+Game of Thrones is back with the release of The Golden Strategist, marking one of the most infamous Lannisters' triumphant return.
+---------
+
 # Fallout 4 Just Became A Completely Different Game
 
 Gaming, Fallout, Fallout 4
