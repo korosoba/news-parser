@@ -1,3 +1,124 @@
+# Marvel Confirms Avengers: Endgame Is To Blame For Doctor Doom
+
+Movies, Avengers: Endgame, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Mon, 17 Aug 2026 23:08:11 GMT
+
+https://screenrant.com/avengers-doomsday-endgame-doctor-doom-timelines-multiverse-cause/
+
+Marvel's new Avengers: Doomsday trailer confirms how 2019's Avengers: Endgame is responsible for Robert Downey Jr.'s Doctor Doom mission.
+---------
+
+# Captain Kirk's Last Star Trek Adventure Is A 12-Part Masterpiece That Changes The Franchise Forever
+
+Comics, Star Trek, Captain James Kirk
+
+Mon, 17 Aug 2026 23:07:11 GMT
+
+https://screenrant.com/star-trek-last-starship-captain-kirk-last-adventure-change-franchise/
+
+If you love Star Trek, Captain Kirk’s ongoing series needs to be on your radar, especially if you’re a lore fanatic.
+---------
+
+# Netflix's 10/10 Crime Thriller Only Needed 19 Episodes To Become A Masterpiece
+
+TV, Masked Recs
+
+Mon, 17 Aug 2026 23:01:11 GMT
+
+https://screenrant.com/mindhunter-netflix-thriller-19-episodes-masterpiece/
+
+A concise, uncompromising study of obsession, Netflix's psychological thriller masterpiece prioritises dread over spectacle in 19 taut episodes.
+---------
+
+# Star Trek’s TV Future Post-Strange New Worlds And Starfleet Academy Clarified By Exec
+
+TV, Star Trek
+
+Mon, 17 Aug 2026 23:01:02 GMT
+
+https://screenrant.com/star-trek-tv-paramount-future-jane-wiseman-response/
+
+One of Paramount+'s executives has shared what's happening on the Star Trek TV front once Strange New Worlds and Starfleet Academy are over.
+---------
+
+# Why KPop Demon Hunters 2 Will Take So Long To Release On Netflix
+
+Movies, KPop Demon Hunters
+
+Mon, 17 Aug 2026 23:00:11 GMT
+
+https://screenrant.com/kpop-demon-hunters-2-movie-sequel-release-timeline-explained/
+
+Could KPop Demon Hunters 2 really be years away? Here's why the Netflix sequel is taking its time, and why that might be a good thing.
+---------
+
+# Pokémon Fans Get Official First Look at Major Finale Coming September 18
+
+Anime, Pokemon, Pokémon Horizons, Netflix
+
+Mon, 17 Aug 2026 23:05:15 GMT
+
+https://www.cbr.com/pokemon-horizons-season-3-part-4-netflix-release-date-first-look/
+
+The climactic confrontation between the Rising Voltacklers and the Pokémon Explorers will be viewable on Netflix starting next month.
+---------
+
+# TV's Smartest Sci-Fi Western Is a Stealth 3-Season Masterpiece 13 Years Later
+
+TV, Sci-Fi, Defiance, Western
+
+Mon, 17 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/defiance-smart-sci-fi-western-stealth-masterpiece/
+
+Over a decade after its premiere on Syfy, this three-season sci-fi Western is still one of the most well-crafted drama series on television.
+---------
+
+# 10 Movies to Watch if You Love James Bond's Casino Royale
+
+Movies, James Bond, Casino Royale, Action
+
+Mon, 17 Aug 2026 23:00:15 GMT
+
+https://www.cbr.com/must-watch-movies-for-casino-royale-fans-list/
+
+Casino Royale continues to serve as the definitive modern spy thriller, and there are plenty of great movies to watch if you love it.
+---------
+
+# The Real Reason 'The Simpsons' Quietly Erased One of Its Most Controversial Characters
+
+TV Features, The Simpsons, Hank Azaria, Animation, Fox
+
+Mon, 17 Aug 2026 22:52:12 GMT
+
+https://collider.com/the-simpsons-apu-cut-controversy/
+
+The Simpsons' Apu was removed from the series because he represented a negative racial stereotype of South Asian people.
+---------
+
+# 'Lanterns': Hal Jordan's Comics Origin Story & Abin Sur, Explained
+
+Features, Lanterns, DCU
+
+Mon, 17 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/lanterns-hal-jordan-abin-sur-origin/
+
+'Lanterns' recapped Hal Jordan's Green Lantern origin, but who is Abin Sur and does his story set up the series larger mystery?
+---------
+
+# Timothy Olyphant's New 9/10 Series Is Officially One of the Biggest Hits on Streaming
+
+TV News, The Five-Star Weekend, Peacock, Hot on Streaming
+
+Mon, 17 Aug 2026 23:00:12 GMT
+
+https://movieweb.com/the-five-star-weekend-peacock-stream-august-2026/
+
+Watch this while waiting for 'The White Lotus' Season 4.
+---------
+
 # Isaac Asimov Meets The Twilight Zone In Disney+'s Upcoming Sci-Fi Series
 
 Streaming TV, Masked Recs
