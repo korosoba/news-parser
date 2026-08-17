@@ -1,3 +1,91 @@
+# This Overlooked Neo-Western With 84% On RT Is Perfect For Taylor Sheridan Fans
+
+Movies, Masked Recs
+
+Mon, 17 Aug 2026 11:37:11 GMT
+
+https://screenrant.com/taylor-sheridan-neo-westerns-watch-three-burials-of-melquiades-estrada/
+
+Taylor Sheridan fans should seek out this overlooked 84%-rated neo-Western packed with moral ambiguity, frontier justice, and tension.
+---------
+
+# Super Mario: Galactic Wonder Unveiled In New Trailer
+
+Gaming, Super Mario, Super Mario Bros. Wonder
+
+Mon, 17 Aug 2026 11:30:11 GMT
+
+https://screenrant.com/super-mario-galactic-wonder-mod/
+
+Super Mario Bros. Wonder was a solid release for the series, but a new mod aims to take it to a whole new level.
+---------
+
+# Pokémon As We Know It Is Over, Leaker Warns
+
+Gaming, Pokemon, Triple-A Games
+
+Mon, 17 Aug 2026 11:27:59 GMT
+
+https://screenrant.com/pokemon-remakes-future-leaks/
+
+According to a brand-new leak, the Pokémon franchise is forever changing its formula after its 30th anniversary and the release of the Gen 10 games.
+---------
+
+# Every Best Director Oscar Winner of the 1990s, Ranked
+
+Movie, Dances With Wolves, 1990s, Directors, Steven Spielberg
+
+Mon, 17 Aug 2026 11:41:15 GMT
+
+https://collider.com/oscars-best-director-winners-1990s-ranked/
+
+From Steven Spielberg, to James Cameron, to Jonathan Demme, we've definitively ranked every Best Director Oscar winner of the 1990s.
+---------
+
+# 15 Best Animated Fantasy Movies Under 90 Minutes Long, Ranked
+
+Movie, Fantasy, Animation, Snow White and the Seven Dwarfs
+
+Mon, 17 Aug 2026 11:39:14 GMT
+
+https://collider.com/best-animated-fantasy-movies-under-90-minutes-ranked/
+
+My Neighbor Totoro, Snow White and the Seven Dwarfs, and Pinocchio are among the finest animated fantasy movies that are barely even feature length.
+---------
+
+# ‘The X-Files’ Officially Brings Mulder and Scully Back for a New Series
+
+Books and Comics News, The X-Files, The X-Files: I Want to Believe, Ryan Coogler, Chris Carter
+
+Mon, 17 Aug 2026 11:31:14 GMT
+
+https://collider.com/the-x-files-mulder-scully-comic-book-return/
+
+A brand new X-Files release marks the return of Mulder and Scully, scheduled for this winter and featuring untold cases and fresh adventures.
+---------
+
+# 10 Forgotten Sci-Fi Movies That Are Perfect To Watch in 2026
+
+Movie, Science Fiction, Midnight Special, Upstream Color, Monsters
+
+Mon, 17 Aug 2026 11:31:14 GMT
+
+https://collider.com/forgotten-sci-fi-movies-perfect-watch-2026/
+
+From '90s gems like Hardware to 2010s treasures like Upstream Color, these sci-fi movies might be mostly forgotten, but they're perfect watches today.
+---------
+
+# The Real 'Lioness' Members Slam Taylor Sheridan's Action Thriller Series
+
+TV News, Lioness, Taylor Sheridan
+
+Mon, 17 Aug 2026 11:40:19 GMT
+
+https://movieweb.com/taylor-sheridan-lioness-real-veterans-criticism/
+
+The veterans of the real Team Lioness have gone on the record about Taylor Sheridan's 'Lioness,' and they're done being diplomatic.
+---------
+
 # Assassin's Creed Legend Ezio Auditore Officially Returns August 2026
 
 Gaming, Assassin's Creed, Assassin's Creed 2
