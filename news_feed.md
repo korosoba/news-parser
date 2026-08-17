@@ -1,3 +1,80 @@
+# Assassin's Creed Legend Ezio Auditore Officially Returns August 2026
+
+Gaming, Assassin's Creed, Assassin's Creed 2
+
+Mon, 17 Aug 2026 11:00:15 GMT
+
+https://screenrant.com/assassins-creed-watcher-of-realms-ezio-auditore/
+
+Assassin's Creed has plenty of iconic protagonists from over the years, but none are as universally loved as Ezio Auditore Da Firenze.
+---------
+
+# Gerard Butler's Den Of Thieves 3 New Setting Teased By Returning Star (Exclusive)
+
+Movies, Den of Thieves 3, Den of Thieves, Gerard Butler, O'Shea Jackson Jr.
+
+Mon, 17 Aug 2026 11:00:15 GMT
+
+https://screenrant.com/gerard-butler-den-of-thieves-3-new-setting-teased-oshea-jackson-jr/
+
+Exclusive: O'Shea Jackson Jr. offers an early tease of Den of Thieves 3's new setting as filming still waits to kick off on the Gerard Butler movie.
+---------
+
+# 10 Funniest The Far Side Comics About the Beach
+
+Comics, The Far Side
+
+Mon, 17 Aug 2026 11:00:19 GMT
+
+https://www.cbr.com/funniest-far-side-beach-comics/
+
+Gary Larson uses many relatable environments in The Far Side. One of his most notable is the beach due to his unique perspective on situational humor.
+---------
+
+# 8 Essential Horror Video Games
+
+Gaming, Horror, Video Game, Resident Evil 4, Alien: Isolation
+
+Mon, 17 Aug 2026 11:04:14 GMT
+
+https://collider.com/horror-video-games-essential-ranked/
+
+From SOMA to Resident Evil 4, these horror classics prove unforgettable scares come from atmosphere, tension, and player choice.
+---------
+
+# 'Doctor Who' Officially Sets New Release This November After Cancellation
+
+Collectibles, Doctor Who / Whoniverse, Jodie Whittaker, Matt Smith, Peter Capaldi
+
+Mon, 17 Aug 2026 11:00:19 GMT
+
+https://collider.com/doctor-who-amazon-blu-ray-box-sets-november-2026-matt-smith-peter-capaldi-jodie-whittaker/
+
+Fans of the TARDIS can preorder the new Doctor Who Blu-ray box sets featuring the Eleventh, Twelfth, and Thirteenth Doctors.
+---------
+
+# Dwayne Johnson's New Movie Is a Warped 'Willy Wonka'-Esque Fantasy Adventure
+
+Movie News, Dwayne Johnson
+
+Mon, 17 Aug 2026 11:15:07 GMT
+
+https://movieweb.com/dwayne-johnson-lizard-music-willy-wonka-comparison/
+
+Dwayne Johnson has described his next film with Benny Safdie, 'Lizard Music,' as a Willy Wonka-esque fantasy adventure.
+---------
+
+# New 'WandaVision' Sequel Explains Missing 'X-Men' Reboot Character
+
+Features, VisionQuest, Marvel Cinematic Universe, X-Men
+
+Mon, 17 Aug 2026 11:03:33 GMT
+
+https://movieweb.com/visionquest-speed-quicksilver-replacement/
+
+The new 'X-Men' cast doesn't have a Quicksilver, but 'VisionQuest' clearly explains why that isn't the case. Read on for more.
+---------
+
 # Cyberpunk 2077 Officially Returns August 20 For New DLC
 
 Gaming, Cyberpunk 2077, Fortnite
