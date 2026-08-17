@@ -1,3 +1,179 @@
+# The Wait Is Over, Marvel Announces A Founding X-Men's Return With Start Of A New Era
+
+Comics, X-Men, jean grey, Marvel
+
+Mon, 17 Aug 2026 16:51:07 GMT
+
+https://screenrant.com/jean-grey-return-x-men-founding-hero-start-new-era/
+
+An OG X-Men is back in a big canon update.
+---------
+
+# Perry Mason Season 3 Return Potential Addressed By HBO Star After Cancellation
+
+TV, Perry Mason
+
+Mon, 17 Aug 2026 16:48:28 GMT
+
+https://screenrant.com/hbo-perry-mason-season-3-hopes-chris-chalk/
+
+Chris Chalk comments on the possibility of returning for Perry Mason season 3 after HBO cancelled the Matthew Rhys-starring noir in 2023.
+---------
+
+# Avengers: Doomsday Ticket Sales Numbers Reportedly Revealed After $2 Billion Spider-Man: Brand New Day
+
+Movies, Avengers: Doomsday, Spider-Man: Brand New Day, The Avengers, Marvel Cinematic Universe
+
+Mon, 17 Aug 2026 16:44:18 GMT
+
+https://screenrant.com/avengers-doomsday-presale-tickets-tracking-report/
+
+Avengers: Doomsday's ticket sales are outpacing Spider-Man: Brand New Day after $2 billion gross, according to a major new MCU box office report.
+---------
+
+# 49 Years Later, Disney Is Finally Resurrecting The Original Star Wars Universe
+
+Comics, Star Wars, Marvel
+
+Mon, 17 Aug 2026 16:38:44 GMT
+
+https://screenrant.com/star-wars-original-universe-marvel-comics-return/
+
+After 49 years, Disney is finally returning to the original Star Wars trilogy and universe for the franchise's 50th anniversary in 2027.
+---------
+
+# Now You See Me 4 Gets First Writing Update After Record-Breaking 2025 Return
+
+Movies, Now You See Me, Dave Franco
+
+Mon, 17 Aug 2026 16:34:33 GMT
+
+https://screenrant.com/now-you-see-me-4-writing-update-dave-franco/
+
+Exclusive: Dave Franco offers the first writing update on Now You See Me 4 after the magical heist franchise's record-breaking return last year.
+---------
+
+# Six Brand-New Romance Dramas Are Premiering Today, And Fans Have No Excuse Not To Binge Every Single One
+
+TV, Webtoon
+
+Mon, 17 Aug 2026 16:33:19 GMT
+
+https://screenrant.com/webtoon-new-live-action-short-romance-dramas-streaming-binge/
+
+Breaking into the vertical short dramas scene appears to be Webtoon's next big move in becoming a one-stop hub for addictive entertainment.
+---------
+
+# HBO's 'True Detective Meets Watchmen' Sci-Fi Series Is Off To A Great Start
+
+Streaming TV, Masked Recs
+
+Mon, 17 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/lanterns-premiere-hbo-true-detective-meets-watchmen/
+
+HBO's Lanterns is a return to form for the DCU, combining the grisly murder mystery of True Detective with the superhero spectacle of Watchmen.
+---------
+
+# The Traitors: New Blood Trailer Reveals NBC’s New Take On Alan Cumming’s Series
+
+TV, The Traitors
+
+Mon, 17 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/the-traitors-new-blood-official-trailer-nbc/
+
+The Traitors: New Blood trailer reveals Alan Cumming's return alongside a new civilian cast ahead of the NBC show's September premiere.
+---------
+
+# John Wick Creator’s Gritty New Action Thriller Is HBO Max’s #1 Movie After Just 1 Day
+
+Movies, Masked Recs
+
+Mon, 17 Aug 2026 16:17:15 GMT
+
+https://screenrant.com/normal-hbo-max-streaming-success-august-2026/
+
+John Wick's creator released a new action thriller with a major star, and that movie has instantly become a global streaming sensation on HBO Max.
+---------
+
+# Star Trek Makes Franchise History With Bold Format Change
+
+TV, Star Trek: Strange New Worlds, Star Trek, Paramount Plus, Innovation
+
+Mon, 17 Aug 2026 16:32:32 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-season-4-episode-5-puppet-episode/
+
+Star Trek is about to embark on another historic franchise first.
+---------
+
+# Jean Grey Officially Confirmed To Return Ahead Of Sadie Sink's X-Men Movie
+
+Comics, jean grey, X-Men
+
+Mon, 17 Aug 2026 16:27:08 GMT
+
+https://www.cbr.com/jean-grey-solo-marvel-comic-officially-confirmed-ahead-sadie-sink-x-men-movie/
+
+Sadie Sink's Jean Grey turn is only the beginning.
+---------
+
+# The Expanse Officially Returns in 2027 With Osiris Reborn
+
+Games, The Expanse
+
+Mon, 17 Aug 2026 16:25:15 GMT
+
+https://www.cbr.com/the-expanse-returns-2027-osiris-reborn/
+
+More than four years after The Expanse's television series final season, the beloved sci-fi novels are officially returning with a new adaptation.
+---------
+
+# Shawn Hatosy Is Officially Pulling Double Duty on ‘The Pitt’ Season 3 [Exclusive]
+
+TV News, The Pitt, Shawn Hatosy, Noah Wyle, HBO Max
+
+Mon, 17 Aug 2026 16:45:14 GMT
+
+https://collider.com/the-pitt-season-3-shawn-hatosy-directing/
+
+The Pitt's most beloved star, Shawn Hatosy, confirms he will have more responsibilities in Season 3 of HBO's hit medical drama.
+---------
+
+# Sam Raimi’s Horrific WWII Thriller Is Officially Coming to Netflix
+
+Movie News, Noah Jupe, Matthias Schweighöfer, Sam Raimi, Thriller
+
+Mon, 17 Aug 2026 16:30:15 GMT
+
+https://collider.com/sam-raimi-ww2-thriller-play-dead-netflix/
+
+Sam Raimi's new World War II thriller has officially been acquired by Netflix. Find out more details about the cast and creative team behind the film.
+---------
+
+# Stephen King's Best New Series Is Officially Returning for Season 2
+
+TV News, It: Welcome to Derry, HBO Max, Stranger Things, Andy Muschietti
+
+Mon, 17 Aug 2026 16:18:23 GMT
+
+https://collider.com/it-welcome-to-derry-season-2-renewed-hbo/
+
+IT: Welcome to Derry has been renewed for Season 2, with the Stephen King prequel returning to Derry in 1935 for a new chapter of Pennywise lore.
+---------
+
+# New 'The Batman 2' Video Unleashes Epic Return of Batmobile
+
+Movie News, The Batman Part II, The Batman, DCU
+
+Mon, 17 Aug 2026 16:19:40 GMT
+
+https://movieweb.com/the-batman-2-batmobile-video/
+
+The Batmobile retains its classic look.
+---------
+
 # Inde Navarrette Suits Up As Rogue With Marvel Rivalry Nod For X-Men Reboot In New MCU Art
 
 Movies, X-Men, Marvel Cinematic Universe, Inde Navarrette
