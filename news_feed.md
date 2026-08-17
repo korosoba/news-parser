@@ -1,3 +1,223 @@
+# Aliens: Fireteam Elite 2 Is Hard, Harrowing, And A Perfect Counterweight To Isolation
+
+Gaming, Alien, Aliens: Fireteam Elite 2
+
+Mon, 17 Aug 2026 18:24:24 GMT
+
+https://screenrant.com/alien-fireteam-elite-2-preview/
+
+Aliens: Fireteam Elite 2 is a fun extraction shooter that thrives when it fully embraces the source material for some striking moments of tension.
+---------
+
+# Chris Hemsworth’s Extraction 3 Adds Major James Bond Actor To New Cast
+
+Movies, Extraction 3, Extraction, Pierce Brosnan
+
+Mon, 17 Aug 2026 18:10:36 GMT
+
+https://screenrant.com/extraction-3-netflix-pierce-brosnan-casting/
+
+New cast members have been announced for Chris Hemsworth’s action thriller Extraction 3, and one of them is none other than a major James Bond star.
+---------
+
+# Mckenna Grace's New Dinosaur Action Movie Debuts To Near-Perfect Audience Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Mon, 17 Aug 2026 18:03:35 GMT
+
+https://screenrant.com/paw-patrol-the-dino-movie-rotten-tomatoes-audience-score/
+
+Mckenna Grace's new dinosaur action movie debuts with a near-perfect audience score on Rotten Tomatoes following its August 14 release.
+---------
+
+# Netflix Movie That Breaks An Adam Sandler Rotten Tomatoes Record Is Now Streaming
+
+Movies, Masked Recs, Netflix, Adam Sandler
+
+Mon, 17 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/dont-say-good-luck-movie-streaming-netflix/
+
+The latest Netflix movie from Adam Sandler's Happy Madison Productions is now streaming on Netflix, and it breaks a big Rotten Tomatoes record.
+---------
+
+# The Godfather Meets The Sopranos In 5-Part HBO Series Produced By Martin Scorsese
+
+TV, Masked Recs
+
+Mon, 17 Aug 2026 18:00:11 GMT
+
+https://screenrant.com/boardwalk-empire-hbo-godfather-meets-sopranos/
+
+Scorsese’s glossy, brutal gangster show for HBO humanized ambitious crime bosses while tracing how their era reshaped American power structures.
+---------
+
+# Fans Slam Sam Mendes' The Beatles Biopics Over Set Photos of Iconic Album Cover: 'Casting by Temu'
+
+Movies, The Beatles - Four Films, the beatles
+
+Mon, 17 Aug 2026 18:20:59 GMT
+
+https://www.cbr.com/sam-mendes-the-beatles-biopics-set-photos-criticism/
+
+Sam Mendes' The Beatles movies have received some polarizing reactions from fans.
+---------
+
+# 5 Strongest Warriors in Anime History, Ranked
+
+Anime, Dragon Ball, Bleach, One-Punch Man
+
+Mon, 17 Aug 2026 18:15:16 GMT
+
+https://www.cbr.com/strongest-anime-warriors-ranked/
+
+Anime like Dragon Ball and Bleach transformed the continuous growth of strength into a foundation the shonen genre still holds at its core today.
+---------
+
+# The CW Announces Release Date for New Detective Spinoff Show
+
+TV, Private Eyes, The CW, Drama
+
+Mon, 17 Aug 2026 18:10:49 GMT
+
+https://www.cbr.com/private-eyes-west-coast-the-cw-release-date/
+
+A Private Eyes spinoff is coming to The CW this fall.
+---------
+
+# Lanterns: What the Green Lantern Ring Really Means
+
+TV, Lanterns
+
+Mon, 17 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/video/lanterns-what-the-green-lantern-ring-really-means/
+
+Lanterns explores what the Green Lantern ring really means to Hal Jordan and John Stewart.Kyle Chandler and Aaron Pierre break down its power, responsibility, burden, and the qualities that make someone worthy of wearing it.
+---------
+
+# God of War's Kratos Officially Returns in New Release Coming May 2027
+
+Games, God of War
+
+Mon, 17 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/god-of-war-official-new-release-kratos-preorder-now/
+
+God of War is officially returning with a new Kratos release in 2027.
+---------
+
+# 8 'House of the Dragon' Episodes That Are Perfect From Start to Finish
+
+TV, House of the Dragon, Game Of Thrones, HBO, Fantasy
+
+Mon, 17 Aug 2026 18:22:15 GMT
+
+https://collider.com/house-of-the-dragon-episodes-perfect-start-to-finish/
+
+The Game of Thrones prequel, House of the Dragon, has become such a hit thanks to strong episodes like Season 3's "Salt and Sea, Fire and Blood."
+---------
+
+# 20 Years Later, ‘Supernatural’ Still Hasn’t Solved Its Biggest Franchise Problem
+
+TV Features, Supernatural, Jensen Ackles, Jared Padalecki, Horror
+
+Mon, 17 Aug 2026 18:18:16 GMT
+
+https://collider.com/supernatural-spin-offs-sam-dean-franchise-problem-issues/
+
+Supernatural expanded through Bloodlines, Wayward Sisters and The Winchesters, but none could replace Sam and Dean.
+---------
+
+# The Diplomat S3: Rufus Sewell Wanted Hal Killed Off | Set Stories
+
+TV, The Diplomat
+
+Mon, 17 Aug 2026 18:15:16 GMT
+
+https://collider.com/video/the-diplomat-s3-rufus-sewell-wanted-hal-killed-off-set-stories/
+
+Rufus Sewell reveals why he wanted Hal Wyler’s story disrupted in The Diplomat rather than letting the character settle into a predictable role.
+---------
+
+# Doomsday Comes Early With the Latest 'Avengers: Doomsday' LEGO Set
+
+Movie News, Avengers: Doomsday, Lego, Marvel Studios, Superhero
+
+Mon, 17 Aug 2026 18:15:16 GMT
+
+https://collider.com/doomsday-comes-early-with-the-latest-avengers-doomsday-lego-set/
+
+Discover LEGO's latest Avengers: Doomsday set featuring iconic heroes before the film's release in December 2026.
+---------
+
+# ‘The Wheel of Time’ Officially Sets New Release for 2027
+
+Gaming News, The Wheel of Time, Fantasy, Prime Video
+
+Mon, 17 Aug 2026 18:09:38 GMT
+
+https://collider.com/wheel-of-time-war-of-the-dragon-board-game-2027-release/
+
+The Wheel of Time returns in 2027 after the first-ever board game adaptation of Robert Jordan’s fantasy series raised more than $1.1 million.
+---------
+
+# New Star Wars Series Officially Confirms Disney+ Return
+
+TV News, Star Wars: Maul - Shadow Lord, Star Wars, Disney+, Animation
+
+Mon, 17 Aug 2026 18:00:15 GMT
+
+https://collider.com/star-wars-maul-shadow-lord-season-2-release-window/
+
+We now know when Star Wars: Maul – Shadow Lord will return for Season 2. Read on for more.
+---------
+
+# Star Wars Officially Confirms Boba Fett’s Next Release
+
+Books and Comics News, The Book of Boba Fett, Star Wars, Temuera Morrison, Marvel Comics
+
+Mon, 17 Aug 2026 17:59:22 GMT
+
+https://collider.com/star-wars-boba-fett-black-white-red-treasury-edition-release-date/
+
+Boba Fett returns in Marvel’s Black, White & Red Treasury Edition, collecting four ‘Star Wars’ stories featuring the iconic bounty hunter.
+---------
+
+# HBO Max Scores Big With New 91-Minute 'John Wick' Substitute Action Thriller
+
+Movie News, Normal, Hot on Streaming, Action, HBO Max
+
+Mon, 17 Aug 2026 18:01:12 GMT
+
+https://movieweb.com/normal-bob-odenkirk-action-streaming-hbo-max-august-2026/
+
+HBO Max has found its newest action smash, which is basically 'John Wick' in the snow with a Coen brothers twist.
+---------
+
+# 'Lioness' Season 3 Is Fixing the Taylor Sheridan Show’s Biggest Problem
+
+Features, Lioness, Taylor Sheridan
+
+Mon, 17 Aug 2026 18:01:12 GMT
+
+https://movieweb.com/lioness-taylor-sheridan-problem/
+
+'Lioness,' Taylor Sheridan's action thriller series now streaming on Paramount+, stars Zoe Saldana, Nicole Kidman, and Laysla De Oliveira.
+---------
+
+# Every Upcoming Transformers Movie: Release Dates, Details, & Everything We Know
+
+Features, Transformers, Transformers: Rise of the Beasts, Transformers 8, Transformers One
+
+Mon, 17 Aug 2026 18:01:12 GMT
+
+https://movieweb.com/every-upcoming-transformer-movie-details-and-release-dates/
+
+The future of Transformers is uncertain, but one thing is clear: the battle for the fate of the franchise is just beginning.
+---------
+
 # 5 Best Moments From Disney’s D23 Entertainment Showcase
 
 Movies, Disney
