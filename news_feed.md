@@ -1,3 +1,135 @@
+# PlayStation Adds 5 New Free Downloads, No PS Plus Needed
+
+Gaming, PlayStation
+
+Mon, 17 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/playstation-5-free-downloads-no-ps-plus-august-17/
+
+Discover 5 new free PlayStation games available now without PS Plus.
+---------
+
+# 8 Most Overrated Literary Classics (& The Underrated Books To Read Instead)
+
+Books, Drama
+
+Mon, 17 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/most-overrated-classic-literature-underrated-reads-instead/
+
+There are plenty of classic books that aren't as enjoyable as their reputations suggest, though there are fortunately plenty of alternatives.
+---------
+
+# Number One Becoming A Replacement Changes Star Trek’s Doppelganger Rules
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Mon, 17 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-changes-doppeganger-rules/
+
+Star Trek characters running into their exact doubles is a common trope, but Star Trek: Strange New Worlds' film noir adds an unexplained wrinkle.
+---------
+
+# Lobo's Wildest Superpower Officially Confirmed by DC
+
+Comics, Lobo
+
+Mon, 17 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/lobo-powers-immune-hell/
+
+Lobo has many superpowers that make him one of DC Comics' strongest characters, and his wildest one yet has been confirmed in his ongoing series.
+---------
+
+# Widow's Bay Season 2 Curse Storylines & Tone Addressed By Rosemary Actor (Exclusive)
+
+TV, Widow's Bay
+
+Mon, 17 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/widows-bay-season-2-story-character-dynamics-tone-dale-dickey/
+
+EXCLUSIVE: Widow's Bay star Dale Dickey teases upcoming character dynamics and stories related to the curse in season 2 of Apple TV's horror series.
+---------
+
+# Monty Python's The Life Of Brian Turns 47 Today
+
+Movies, Monty Python's Life of Brian, Comedy
+
+Mon, 17 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/monty-python-the-life-of-brian-greatest-comedy-movies-anniversary/
+
+A decades-old movie that's still frequently mentioned in conversations about what the great comedy film of all time is officially turns 47 today.
+---------
+
+# A 1996 PlayStation 1 Legend Is Finally Returning For A New Release
+
+Gaming, PlayStation, PlayStation (Original), Fortnite, PC, Sony, Crash Bandicoot
+
+Mon, 17 Aug 2026 11:47:16 GMT
+
+https://screenrant.com/fortnite-crash-bandicoot-august-2026-return/
+
+This 1996 legend from the PlayStation 1 era is officially back from the dead on August 14 in a brand-new release gamers will not want to skip.
+---------
+
+# Disney's The Bluey Movie First Look Triggers Fans: 'I Don't Like This'
+
+Movies, The Bluey Movie, Bluey, D23
+
+Mon, 17 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/bluey-the-movie-first-look-fan-response/
+
+The unveiling of The Bluey Movie's first look has led to some harsh criticism from some fans online.
+---------
+
+# 20 Best TV Performances of All Time
+
+TV, Breaking Bad, The Office, The Sopranos, Veep
+
+Mon, 17 Aug 2026 12:25:14 GMT
+
+https://collider.com/best-tv-performances-all-time-ranked/
+
+From Lucille Ball to Bryan Cranston, these performers made television history with their extraordinary performances.
+---------
+
+# Disney Officially Unveils New 'Pirates of the Caribbean' Release at D23
+
+Movie News, Pirates of the Caribbean, Pirates of the Caribbean: Dead Man's Chest, Pirates of the Caribbean: On Stranger Tides, Johnny Depp
+
+Mon, 17 Aug 2026 12:01:15 GMT
+
+https://collider.com/disney-d23-pirates-of-the-caribbean-iron-studios-release/
+
+At D23, Disney teased a new Pirates of the Caribbean release that fans will be sure to treasure. Here’s everything you should know.
+---------
+
+# 6 Movie Trilogies That Are Really Bad From Start to Finish
+
+Movie, Fifty Shades of Grey, The Kissing Booth, In the Name of the King: A Dungeon Siege Tale, 365 Days
+
+Mon, 17 Aug 2026 11:51:14 GMT
+
+https://collider.com/movie-trilogies-bad-start-to-finish/
+
+Critically lambasted film series like 365 Days, Fifty Shades of Grey, and The Kissing Booth are among the worst movie trilogies ever.
+---------
+
+# Jason Statham's New 107-Minute Action Thriller Beats Sydney Sweeney's R-Rated Blockbuster on Streaming
+
+Movie News, Jason Statham, Sydney Sweeney, The Housemaid, Shelter, Streamer Comparisons
+
+Mon, 17 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/shelter-housemaid-statham-sweeney-august-streaming-2026/
+
+Once again, Statham reclaims the iron throne of streaming.
+---------
+
 # This Overlooked Neo-Western With 84% On RT Is Perfect For Taylor Sheridan Fans
 
 Movies, Masked Recs
