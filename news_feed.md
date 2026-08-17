@@ -1,3 +1,179 @@
+# Dark Souls 3 Just Got The Ultimate Next-Gen Remaster
+
+Gaming, Dark Souls 3
+
+Mon, 17 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/dark-souls-3-ultimate-rtx-remaster/
+
+Experience Dark Souls 3 with stunning real-time path tracing mod soon.
+---------
+
+# How Widow's Bay Star Dale Dickey Perfected Rosemary's Deadpan
+
+Exclusive, Widow's Bay, Widow's Bay - Season 1, Dale Dickey
+
+Mon, 17 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/widows-bay-season-1-dale-dickey-rosemary-performance-interview/
+
+Widow's Bay star Dale Dickey reacts to her Emmy nomination, details the delicate balance of horror and humor behind the scenes, and teases season 2.
+---------
+
+# The Terminal List Season 2 First Look Reveals Chris Pratt’s Action-Packed Return
+
+TV, The Terminal List
+
+Mon, 17 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/the-terminal-list-season-2-first-look-chris-pratts-prime-video/
+
+Prime Video releases an action-packed first look at Chris Pratt's return as James Reece in the upcoming second season of The Terminal List.
+---------
+
+# Mortal Shell 2 Review: The Joy of Feeling OP In This Satisfying Soulslike Sequel
+
+Gaming, PC, Mortal Shell II
+
+Mon, 17 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/mortal-shell-2-review/
+
+Cold Symmetry's expansive Mortal Shell II is a true soulslike gem, offering terrific build variety and a beautiful world that rewards exploration.
+---------
+
+# Combined Avengers & X-Men Team Officially Confirmed: All Members and Leader
+
+Comics, X-Men, The Avengers
+
+Mon, 17 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/new-avengers-x-men-team-roster-leader-explained/
+
+Captain Marvel's X-Vengers revealed.
+---------
+
+# Franz Review: Ambitious Kafka Biopic Is Short On Insight
+
+New Movies, Franz
+
+Mon, 17 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/franz-movie-review/
+
+Though it earns points for its willingness to break convention, this film about one of the great 20th century writers is missing a vital spark.
+---------
+
+# It Ends Review: One Of 2026’s Best Horror Movies Is A Slow-Burn Indie Marvel
+
+New Movies, It Ends
+
+Mon, 17 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/it-ends-movie-review/
+
+Delicate and dread-inducing, It Ends is an impressively effective horror movie that trades big scares for deeply effective existential terror.
+---------
+
+# Why Robert Downey Jr. Prefers Doctor Doom To Iron Man Now
+
+Movies, Avengers: Doomsday, The Avengers, Robert Downey Jr., Doctor Doom, Iron Man
+
+Mon, 17 Aug 2026 12:47:58 GMT
+
+https://screenrant.com/avengers-doomsday-robert-downey-jr-doctor-doom-over-iron-man/
+
+As Avengers: Doomsday is getting closer to its release this year, Robert Downey Jr. opens up on why he now prefers to play Doctor Doom over Iron Man.
+---------
+
+# The Walking Dead: Dead City Season 3, Episode 5 Trailer: Maggie & Negan Hatch A Daring Rescue Mission
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 17 Aug 2026 12:47:11 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-season-3-episode-5-trailer/
+
+The Walking Dead: Dead City season 3, episode 5 trailer sees Maggie and Negan plan a massive rescue mission after episode 4's thrilling conclusion.
+---------
+
+# The Elder Scrolls: Skyrim Is Getting A Brand-New Update
+
+Gaming, The Elder Scrolls V: Skyrim, The Elder Scrolls, The Elder Scrolls 6, PC
+
+Mon, 17 Aug 2026 12:30:36 GMT
+
+https://screenrant.com/elder-scrolls-skyrim-2026-update-confirmed/
+
+14 years after releasing and with no major footage for Elder Scrolls 6 available yet, Skyrim is officially getting a brand-new content update.
+---------
+
+# Legolas's Best Quote in Lord of the Rings Hits Harder 23 Years Later
+
+Movies, The Lord of the Rings, Fantasy, The Lord of the Rings: The Return of the King
+
+Mon, 17 Aug 2026 13:00:15 GMT
+
+https://www.cbr.com/lord-of-the-rings-return-of-the-king-best-legolas-quote/
+
+Legolas may be an Elf of few works, but he still delivers one of the greatest lines in the Lord of the Rings trilogy.
+---------
+
+# Boba Fett Officially Returns After Controversial Disney+ Show
+
+Comics, Star Wars, The Book of Boba Fett
+
+Mon, 17 Aug 2026 12:30:15 GMT
+
+https://www.cbr.com/star-wars-bob-fett-black-white-red-treasury-edition-release-date-confirmed/
+
+Boba Fett's most brutal series is about to make a comeback following his controversial Disney+ streaming series came to a close.
+---------
+
+# Prime Video's 2-Part 'Reacher' Replacement Officially Sets Release Date
+
+TV News, Chris Pratt, The Terminal List, Prime Video, Reacher
+
+Mon, 17 Aug 2026 13:01:15 GMT
+
+https://collider.com/the-terminal-list-season-2-release-date/
+
+Chris Pratt's 2-part Reacher replacement has officially set it's return date. Get all the details about the future of Terminal List here.
+---------
+
+# Who Is Nathaniel Milbury? Adam Driver’s Mysterious ‘X-Men’ Character, Explained
+
+Movie Features, X-Men, MCU, Adam Driver
+
+Mon, 17 Aug 2026 12:29:28 GMT
+
+https://collider.com/adam-driver-marvel-x-men-nathaniel-milbury-mr-sinister/
+
+Adam Driver is playing Nathaniel Milbury in Marvel’s X-Men reboot, but who is the mysterious character and what is his connection to Mister Sinister?
+---------
+
+# Every MCU Project To Rewatch Before 'VisionQuest' Drops on Disney+
+
+TV Lists, VisionQuest, Marvel Cinematic Universe
+
+Mon, 17 Aug 2026 13:18:04 GMT
+
+https://movieweb.com/mcu-visionquest-rewatch-preparation/
+
+'VisionQuest' is the conclusion to a much longer MCU arc that goes back further than some might think. Read on for more.
+---------
+
+# Netflix's 9/10 'John Wick' Substitute Action Thriller Is Now Working on a Sequel
+
+Movie News, Netflix, The Shadow Strays, Action, Thriller
+
+Mon, 17 Aug 2026 13:02:38 GMT
+
+https://movieweb.com/netflix-shadow-strays-2-sequel-script-happening/
+
+The director confirmed the news while promising the "craziest Ninja combat ever."
+---------
+
 # PlayStation Adds 5 New Free Downloads, No PS Plus Needed
 
 Gaming, PlayStation
