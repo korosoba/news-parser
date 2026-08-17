@@ -1,3 +1,124 @@
+# PlayStation 6 Release Date Gets Official Update From Sony CEO
+
+Gaming, PlayStation 6, Triple-A Games
+
+Mon, 17 Aug 2026 14:49:16 GMT
+
+https://screenrant.com/playstation-6-release-date-update-sony-ceo/
+
+Sony's CEO has given us an official update on the PlayStation 6, and it might not be the exact thing you want to hear right now.
+---------
+
+# 7 Sci-Fi Movies That Feel Like Lost Spielberg Classics
+
+Movies, Sci-Fi, Steven Spielberg, The End of Oak Street
+
+Mon, 17 Aug 2026 14:47:11 GMT
+
+https://screenrant.com/best-sci-fi-movies-like-steven-spielberg-classics/
+
+These 7 sci-fi movies capture the feeling of Steven Spielberg at his best, even though he didn't direct any of them.
+---------
+
+# Pokémon Horizons Season 3 Part 4 Reveals Netflix Release Date & Time (Exclusive)
+
+Anime, Pokémon Horizons
+
+Mon, 17 Aug 2026 14:43:38 GMT
+
+https://screenrant.com/pokemon-horizons-season-3-part-4-release-date-time/
+
+The Rising Volt Tacklers face their biggest battle ever as Pokémon Horizons returns to Netflix.
+---------
+
+# Lanterns Explains How THAT Major DC Death Could Be Undone
+
+Streaming TV, Lanterns, DC Universe
+
+Mon, 17 Aug 2026 14:30:21 GMT
+
+https://screenrant.com/lanterns-episode-1-hal-jordan-death-resurrection-setup/
+
+Lanterns episode 1 ends with a shocking death that sets the tone for the new HBO series, but the DC show might have already teased a resurrection.
+---------
+
+# Netflix's West Wing Replacement Finally Confirms Return Date
+
+TV, The Diplomat
+
+Mon, 17 Aug 2026 14:51:24 GMT
+
+https://www.cbr.com/netflix-the-diplomat-season-4-release-date-photos/
+
+Netflix's hit political thriller gets an exciting update confirming its release date as well as a teaser trailer.
+---------
+
+# Apple TV's 10/10 Comfort Show Confirms Season 4 Format Change
+
+TV, Shrinking, Apple TV, Drama
+
+Mon, 17 Aug 2026 14:40:54 GMT
+
+https://www.cbr.com/shrinking-apple-tv-season-4-format-change/
+
+The hit series will slowly move away from one defining feature.
+---------
+
+# The 4-Part Pirates of the Caribbean Copycat Made for Adults Only
+
+TV, Black Sails, Innovation, STARZ
+
+Mon, 17 Aug 2026 14:40:15 GMT
+
+https://www.cbr.com/starz-black-sails-mature-pirates-of-the-caribbean-show/
+
+Pirates of the Caribbean might be in the news again, but this copycat pirate series can fill the gap while fans await a sequel.
+---------
+
+# Marvel vs. Capcom Fans Can't Miss Marvel Tōkon: Fighting Souls
+
+Games, Marvel
+
+Mon, 17 Aug 2026 14:30:16 GMT
+
+https://www.cbr.com/marvel-tokon-fighting-souls-review/
+
+Marvel Tōkon: Fighting Souls rivals classic games like Marvel vs. Capcom thanks to its incredible gameplay and presentation.
+---------
+
+# This Beach Boys Song Was Written By an Infamous Cult Leader
+
+Music Features, Music, Rock
+
+Mon, 17 Aug 2026 14:33:15 GMT
+
+https://collider.com/dennis-wilson-the-beach-boys-charles-manson/
+
+Dennis Wilson, drummer for The Beach Boys, befriended cult leader Charles Manson. The Beach Boys recorded and released a song Manson wrote in 1968.
+---------
+
+# Hayden Panettiere's 10 Best Movies and TV Shows
+
+TV Lists, Hayden Panettiere
+
+Mon, 17 Aug 2026 14:34:45 GMT
+
+https://movieweb.com/hayden-panettiere-best-movies-tv-shows/
+
+Hayden Panettiere tragically passed away at the age of 36 on August 16, 2026, and these are her best movie and TV show roles.
+---------
+
+# Gerard Butler's 'Den of Thieves 3' Action Sequel Confirms Setting Change
+
+Movie News, Den of Thieves 3, Den of Thieves, Den of Thieves: Pantera, Den of Thieves 2: Pantera, Gerard Butler
+
+Mon, 17 Aug 2026 14:30:27 GMT
+
+https://movieweb.com/den-of-thieves-3-setting-change/
+
+'Den of Thieves 3' is moving the action to a new location, as confirmed by Gerard Butler's co-star O'Shea Jackson Jr.
+---------
+
 # Harrison Ford’s Return Status In Blade Runner’s New Sequel Series Revealed By Creator
 
 TV, Blade Runner 2099, Blade Runner
