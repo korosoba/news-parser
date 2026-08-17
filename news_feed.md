@@ -1,3 +1,58 @@
+# The Witcher 3 Officially Returns August 20 With New DLC
+
+Gaming, The Witcher, The Witcher 3: Wild Hunt
+
+Mon, 17 Aug 2026 10:13:11 GMT
+
+https://screenrant.com/witcher-3-geralt-return-fortnite-collab/
+
+The Witcher 3 is back in the public consciousness in a big way right now, and Geralt is about to pop up somewhere you might not expect.
+---------
+
+# Kingdom Hearts Fans Pay Tribute Following Death Of Hayden Panettiere
+
+Gaming, Kingdom Hearts
+
+Mon, 17 Aug 2026 09:56:29 GMT
+
+https://screenrant.com/kingdom-hearts-tribute-hayden-panettiere-death/
+
+Fans honor Hayden Panettiere's impact as Kairi after her passing.
+---------
+
+# Ocarina Of Time Remake Will Officially Be Unplayable For Millions At Launch
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Mon, 17 Aug 2026 09:35:21 GMT
+
+https://screenrant.com/zelda-ocarina-time-remake-switch-2-exclusive-confirmed/
+
+Discover why millions won't access the Ocarina of Time Remake at launch.
+---------
+
+# Taylor Sheridan's Gripping 121-Minute Crime Thriller Officially Dominates Streaming Charts
+
+Movie News, Sicario, Taylor Sheridan, Emily Blunt, HBO Max
+
+Mon, 17 Aug 2026 10:00:14 GMT
+
+https://collider.com/taylor-sheridan-sicario-streaming-success-hbo-max-august-2026/
+
+The first film in Taylor Sheridan's American Frontier franchise has all eyes on it. Here's everything you should know about the crime thriller.
+---------
+
+# Forget 'Reacher,' Chris Pratt Takes the Lead in First Look at Amazon's New Action Thriller Series
+
+TV News, Chris Pratt, The Terminal List, Action, Thriller, Prime Video
+
+Mon, 17 Aug 2026 09:57:03 GMT
+
+https://movieweb.com/terminal-list-season-2-images-chris-pratt/
+
+It's now been four years, but the MCU star is finally back in action in new images from 'The Terminal List' Season 2.
+---------
+
 # Fallout 4 Official August 2026 Update Comes With A Warning From Bethesda
 
 Gaming, Fallout, Fallout 4
