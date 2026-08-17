@@ -1,3 +1,179 @@
+# Matthew McConaughey’s New Crime Thriller Makes True Detective Look Small
+
+Movies, Masked Recs
+
+Mon, 17 Aug 2026 21:02:11 GMT
+
+https://screenrant.com/matthew-mcconaughey-the-rivals-of-amziah-king-new-crime-thriller/
+
+Matthew McConaughey returns to True Detective's Deep South with an ambitious neo-Western movie that's also a taut, musical-tinged crime fable.
+---------
+
+# Disney Has Restored My Hope For Star Wars: The Hunt For Ben Solo Actually Happening
+
+Star Wars, Ben Solo/Kylo Ren
+
+Mon, 17 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/star-wars-the-hunt-for-ben-solo-movie-happening-chances-hope/
+
+Hope has been restored that Star Wars: The Hunt for Ben Solo is happening at Disney following a major development for Adam Driver and new comments.
+---------
+
+# Studio Ghibli Meets Stardew Valley In New 8/10 City Builder
+
+Gaming, Indie Games, PC, Studio Ghibli, Stardew Valley
+
+Mon, 17 Aug 2026 21:00:11 GMT
+
+https://screenrant.com/spiritstead-studio-ghibli-meets-stardew-valley/
+
+If you’ve been searching for a cute and cozy city-builder that has elements of Stardew Valley and Ghibli films, be sure to check out this new game.
+---------
+
+# Pirates Of The Caribbean 6’s Major Jack Sparrow Change Reportedly Revealed
+
+Movies, Pirates of the Caribbean 6, Pirates of the Caribbean
+
+Mon, 17 Aug 2026 20:56:32 GMT
+
+https://screenrant.com/pirates-of-the-caribbean-6-jack-sparrow-side-character-report/
+
+Pirates of the Caribbean 6 may be bringing back some familiar faces, but its major Jack Sparrow change takes a pivot from the original films.
+---------
+
+# Netflix's New #1 U.S. Series Proves Critics Wrong With A 96% Audience Score
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 17 Aug 2026 20:52:11 GMT
+
+https://screenrant.com/netflix-tires-season-3-critics-were-wrong/
+
+Shane Gillis and Netflix's Tires Season 3 tops the US chart with a 96% RT audience score, finally living up to what fans saw in it from the start.
+---------
+
+# 10 Hardest Nintendo Games of All Time, Officially Ranked
+
+Games, Nintendo, Video Games
+
+Mon, 17 Aug 2026 21:15:15 GMT
+
+https://www.cbr.com/hardest-nintendo-games-ever-mario-contra/
+
+The Lion King and Ghosts 'n Goblins are among the hardest Nintendo games ever made.
+---------
+
+# Paramount+'s Clueless Event Series Teases More OG Stars: 'We Would Love It'
+
+TV, Clueless, Paramount Plus, Comedy
+
+Mon, 17 Aug 2026 21:12:09 GMT
+
+https://www.cbr.com/clueless-paramount-plus-revival-cast/
+
+Alicia Silverstone likely won't be the only original Clueless star returning for Paramount+'s revival.
+---------
+
+# Sarah J Maas’ A Court of Thorns and Roses Returns in 2026 With New Release Ahead of TV Series
+
+TV, A Court of Thorns and Roses
+
+Mon, 17 Aug 2026 21:07:44 GMT
+
+https://www.cbr.com/sarah-j-maas-a-court-of-thorns-and-roses-new-titles-confirmed/
+
+A new release for Sarah J Maas' A Court of Thorns and Roses series has been confirmed.
+---------
+
+# Sam Raimi's 3-Season Horror Show Returns as a Digital Smash Hit
+
+TV, Ash vs Evil Dead, Evil Dead, Evil Dead Burn
+
+Mon, 17 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/ash-vs-evil-dead-sam-raimi-horror-show-digital-success-august-2026/
+
+The hit sci-fi horror show is finding new audiences on PVOD.
+---------
+
+# 10 Greatest Cozy Fantasy Books of All Time, Ranked
+
+Movies, Fantasy, books
+
+Mon, 17 Aug 2026 21:00:15 GMT
+
+https://www.cbr.com/best-cozy-fantasy-books-list/
+
+Contrasting the real world anxieties and the high-stakes epic storytelling, cozy fantasy comforts readers with feel-good narratives of everyday magic
+---------
+
+# All 7 X-Men Actors Announced at D23
+
+Movie, X-Men, D23, MCU, Superhero
+
+Mon, 17 Aug 2026 21:08:15 GMT
+
+https://collider.com/x-men-mcu-cast-d23-2026/
+
+With Jean Gray's debut in Spider-Man: Brand New Day, Kevin Feige announced the next class of X-Men stars officially joining the MCU at the D23 Expo.
+---------
+
+# 10 Best American Musical Movies of All Time
+
+Movie, The Wizard of Oz, All That Jazz, Singin' in the Rain, The Blues Brothers
+
+Mon, 17 Aug 2026 20:58:15 GMT
+
+https://collider.com/best-american-musical-movies-all-time-ranked/
+
+Of all the classic American musical movies ever made, Singin' in the Rain, The Wizard of Oz, and Little Shop of Horrors are among the very best.
+---------
+
+# Forget ‘SNL,’ Catherine O’Hara and Eugene Levy’s Classic Sketch Series Is Officially Coming to Netflix
+
+TV News, SCTV, Netflix, John Candy, Catherine O'Hara
+
+Mon, 17 Aug 2026 20:52:41 GMT
+
+https://collider.com/sctv-netflix-all-6-seasons-streaming-september-2026/
+
+SCTV is officially coming to Netflix for the first time, with all six seasons and 135 episodes expected to arrive next month.
+---------
+
+# 15 Movies Marvel Fans Must Watch Before 'Avengers: Doomsday'
+
+Movie Lists, Avengers: Doomsday, Marvel Cinematic Universe
+
+Mon, 17 Aug 2026 21:00:12 GMT
+
+https://movieweb.com/marvel-movies-watch-before-avengers-doomsday/
+
+Marvel fans should watch these great movies before 'Avengers: Doomsday' is released in theaters on December 18, 2026.
+---------
+
+# Netflix's Biggest Action Movie of All Time Is Getting a New Release Ahead of Sequel
+
+Movie News, Netflix, Action, KPop Demon Hunters, Criterion Collection, Blu-ray
+
+Mon, 17 Aug 2026 20:57:46 GMT
+
+https://movieweb.com/netflix-kpop-demon-hunters-criterion/
+
+After breaking viewership records, Netflix's hit action movie is getting a unique new release ahead of the announced sequel.
+---------
+
+# Johnny Depp's 'Pirates of the Caribbean' Return Won't Focus on Jack Sparrow
+
+Movie News, Pirates of the Caribbean 6, Pirates of the Caribbean, Johnny Depp
+
+Mon, 17 Aug 2026 20:50:41 GMT
+
+https://movieweb.com/johnny-depp-pirates-caribbean-6-jack-sparrow-return/
+
+Despite Jerry Bruckheimer wanting Johnny Depp to return as Jack Sparrow, Margot Robbie is expected to be the next lead of the franchise.
+---------
+
 # Moana (2026) Live-Action Remake Pitch Meeting
 
 Movies, Moana, Screen Rant Pitch Meetings
