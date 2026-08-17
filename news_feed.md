@@ -1,3 +1,102 @@
+# Harrison Ford’s Return Status In Blade Runner’s New Sequel Series Revealed By Creator
+
+TV, Blade Runner 2099, Blade Runner
+
+Mon, 17 Aug 2026 14:24:49 GMT
+
+https://screenrant.com/blade-runner-2099-harrison-ford-return-status/
+
+Harrison Ford's return status in Blade Runner 2099 has been revealed by sequel series creator Silka Luisa, who reveals whether to expect the actor.
+---------
+
+# HBO’s Lanterns Debuts To Record-Setting DC Rotten Tomatoes Audience Score
+
+TV, Lanterns, DC Universe, Green Lantern
+
+Mon, 17 Aug 2026 14:18:47 GMT
+
+https://screenrant.com/lanterns-hbo-dc-rotten-tomatoes-audience-score-debut/
+
+Following the Lanterns series premiere on HBO, the audience score on Rotten Tomatoes for the DC Studios superhero drama has officially debuted.
+---------
+
+# 10 Greatest Kids Movies Set In The 80s, Ranked
+
+Movies, Back to the Future, Ghostbusters, The Goonies, Honey, I Shrunk the Kids, Bill & Ted's Excellent Adventure, The Last Starfighter, The Neverending Story, Labyrinth, The Karate Kid, E.T. the Extra-Terrestrial
+
+Mon, 17 Aug 2026 14:15:11 GMT
+
+https://screenrant.com/best-kids-movies-set-in-80s-ranked/
+
+Some of the most beloved movies released during the 80s, and many titles set during that decade aimed at kids, are still worth your time.
+---------
+
+# Terminator: Survivors Is The Terminator 2 Sequel We've Waited Years For
+
+Gaming, Terminator, Terminator 2: Judgment Day
+
+Mon, 17 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/terminator-survivors-terminator-2-sequel/
+
+The Terminator franchise has really struggled with what to do since the release of the second movie, but a new game could solve all those problems.
+---------
+
+# Transformers Officially Responds After 40th Anniversary Rollout Leaves Fans Empty-Handed
+
+Anime, Transformers, merchandise, toys, hasbro, action figures, The Transformers: The Movie
+
+Mon, 17 Aug 2026 14:20:15 GMT
+
+https://www.cbr.com/transformers-starscream-40th-anniversary-hasbro-apology/
+
+Transformers fans get an official response from the brand following a disastrous roll-out of some of the most hotly anticipated figures of the year.
+---------
+
+# 5 Greatest Isekai Books of All Time, Ranked
+
+Anime, light novels, books, Isekai, Mushoku Tensei: Jobless Reincarnation, Ascendance of a Bookworm, Re:Zero -Starting Life in Another World-, The Twelve Kingdoms, KonoSuba: God's Blessing on This Wonderful World!
+
+Mon, 17 Aug 2026 14:15:15 GMT
+
+https://www.cbr.com/greatest-isekai-books-of-all-time-ranked/
+
+From fantasy epics to hilarious adventures, these isekai novels show why the genre has become one of anime's most enduring trends.
+---------
+
+# Bob Odenkirk's $6M John Wick Flop Gets Revenge on Streaming as HBO Max's Most-Watched Title
+
+Movies, Normal
+
+Mon, 17 Aug 2026 14:00:16 GMT
+
+https://www.cbr.com/bob-odenkirk-normal-action-hbo-max-success-august-2026/
+
+Bob Odenkirk's latest action flop is making major waves in the realm of streaming becoming the most-watched title shortly after its HBO Max debut
+---------
+
+# 'Lanterns' Star Kyle Chandler Breaks Silence on Hal Jordan's Shocking Twist
+
+TV News, Lanterns, HBO Max
+
+Mon, 17 Aug 2026 14:25:07 GMT
+
+https://movieweb.com/lanterns-hal-jordan-death-explained/
+
+Kyle Chandler explains the 'Lanterns' premiere's shocking cliffhanger.
+---------
+
+# Apple Finds New Streaming Hit With Ridley Scott's $630 Million Sci-Fi Masterpiece
+
+Movie News, The Martian, Apple TV, Hot on Streaming, Sci-Fi
+
+Mon, 17 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/the-martian-ridley-scott-stream-apple-august-2026/
+
+Ridley Scott's best movie in years (if not one of his best ever) is back on streaming.
+---------
+
 # It's Always Sunny In Philadelphia Season 18 Debuts To Rare Rotten Tomatoes Score
 
 TV, It's Always Sunny in Philadelphia
