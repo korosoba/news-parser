@@ -1,3 +1,102 @@
+# X-Men's Original Rogue & Storm Actors Break Silence On MCU Reboot Cast
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Mon, 17 Aug 2026 17:18:13 GMT
+
+https://screenrant.com/xmen-movie-mcu-storm-rogue-casting-alison-sealy-smith-lenore-zann-response/
+
+The Marvel Cinematic Universe has finally cast its Rogue and Storm for the X-Men reboot, as the original stars are now opening up on the casting.
+---------
+
+# Sarah J. Maas Unveils ACOTAR 6 & 7 Title & Cover Ahead Of Release
+
+Books, A Court of Thorns and Roses
+
+Mon, 17 Aug 2026 17:03:13 GMT
+
+https://screenrant.com/sarah-j-maas-acotar-6-cover-title-reveal/
+
+A Court of Thorns and Roses is coming back, as new titles and covers have been revealed after Sarah J. Maas updated her website ahead of its release.
+---------
+
+# 5 Best Netflix Series To Binge-Watch This Week (Aug 17–21, 2026)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 17 Aug 2026 17:02:11 GMT
+
+https://screenrant.com/best-netflix-shows-to-binge-week-august-17-2026/
+
+Watch Tires season 3, My Life With The Walter Boys s3, Ransom Canyon s2, The Audacity, Outer Banks season 5 and more of Netflix's top picks this week.
+---------
+
+# After 31 Years, Power Rangers Officially Debuts New Mighty Morphin Costumes
+
+Streaming TV, Power Rangers, Mighty Morphin Power Rangers
+
+Mon, 17 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/mighty-morphin-power-rangers-new-costumes-ninjakidz-armor/
+
+It's been decades since the original Power Rangers team received a lasting costume upgrade, and the franchise's official return finally does it.
+---------
+
+# 5 RPGs With Class Systems That Are 10/10 Masterpieces
+
+Games, RPG, JRPG, Video Games
+
+Mon, 17 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/rpgs-class-systems-masterpieces/
+
+Character class systems can make or break an RPG's gameplay, and five of them managed to master the mechanics, becoming 10/10 masterpieces.
+---------
+
+# Harrison Ford Officially Returns as Indiana Jones in New Project
+
+Theme Parks, Indiana Jones and the Dial of Destiny, Harrison Ford, D23, Disney
+
+Mon, 17 Aug 2026 17:15:15 GMT
+
+https://collider.com/harrison-ford-indiana-jones-return-disney-world-jade-serpent/
+
+Harrison Ford is officially returning as Indiana Jones for Disney World’s new Indiana Jones and the Myth of the Jade Serpent attraction.
+---------
+
+# The 10 Best Comedy Gangster Movies, Ranked
+
+Movie, Comedy, Crime, In Bruges, Some Like It Hot
+
+Mon, 17 Aug 2026 17:12:15 GMT
+
+https://collider.com/best-gangster-crime-comedy-movies-ranked/
+
+In Bruges, Some Like It Hot, and Snatch are among the best and funniest gangster comedy movies.
+---------
+
+# ‘Hot Tub Time Machine’ Director Officially Returns With First Sci-Fi Paranoia Trailer [Exclusive]
+
+Movie News, Jermaine Fowler, Terrestrial, Steve Pink, Hot Tub Time Machine
+
+Mon, 17 Aug 2026 17:00:15 GMT
+
+https://collider.com/terrestrial-trailer-jermaine-fowler-steve-pink/
+
+Watch the Terrestrial trailer starring Jermaine Fowler in Steve Pink’s new sci-fi comedy about friendship, ambition and otherworldly danger.
+---------
+
+# Marvel's Official 'Avengers: Doomsday' Prep List Sets up Huge 'X-Men' Retcon
+
+Features, Avengers: Doomsday, Avengers: Doomsday (2026), Marvel Cinematic Universe
+
+Mon, 17 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/avengers-doomsday-x-men-retcon/
+
+The 'X-Men' movies have a notoriously complex timeline, and 'Avengers: Doomsday' could be about to make things worse. Read on for more.
+---------
+
 # The Wait Is Over, Marvel Announces A Founding X-Men's Return With Start Of A New Era
 
 Comics, X-Men, jean grey, Marvel
