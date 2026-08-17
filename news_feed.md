@@ -1,3 +1,168 @@
+# DC Officially Introduces Green Lanterns' New Power Ring Ability
+
+Streaming TV, Lanterns, DC Universe
+
+Mon, 17 Aug 2026 20:11:55 GMT
+
+https://screenrant.com/lanterns-hal-jordan-backup-consciousness-ring-power/
+
+DC's latest release introduces a massive new Green Lantern Power, and this addition to the comic book hero's lore could have major ramifications.
+---------
+
+# Hacks' Hannah Einbinder Explains How The Hit HBO Series Uplifts Female Comedians
+
+Exclusive, Hannah Einbinder, Hacks
+
+Mon, 17 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/video/hacks-hannah-einbinder-hbo-emmys-event/
+
+During HBO Max's Emmy Nominee Celebration Event at NYA Studios West, Hannah Einbinder recalls her experience joining Hacks as a comedian with no acting experience.Five seasons later, Hacks' final season has scored 25 nominations this year, making it the most-nominated season of the series and the most-ever nominations for a comedy series in a single year.
+---------
+
+# Marvel Serves Up Its Coolest Dystopian Future Since Logan
+
+Marvel Comics, Marvel
+
+Mon, 17 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/thor-future-twist-serpent/
+
+Marvel reveals a new dark timeline where a major supervillain has won, leaving a founding Avenger hopeless, without superpowers or weapons.
+---------
+
+# Phillip K. Dick Meets George Orwell In 3-Part J.J. Abrams Sci-Fi Series
+
+TV, Masked Recs
+
+Mon, 17 Aug 2026 20:00:11 GMT
+
+https://screenrant.com/person-of-interest-jj-abrams-phillip-k-dick-meets-george-orwell/
+
+Jonathan Nolan and JJ Abrams crafted a pulse pounding police procedural where a predictive machine forced privacy and surveillance to collide.
+---------
+
+# Mark Wahlberg's $66M Action Thriller That's Part Of A 5-Movie Trend Is Now On Netflix
+
+Classic Movies, Mile 22
+
+Mon, 17 Aug 2026 19:55:11 GMT
+
+https://screenrant.com/mark-wahlberg-mile-22-movie-streaming-netflix-august-2026/
+
+A Mark Wahlberg movie is streaming on Netflix that is well worth the watch and is part of a five-movie trend for the popular action star.
+---------
+
+# After 4 Days, Prime Video’s #1 Series Worldwide Is Its Best Action Thriller Yet
+
+Streaming TV, Masked Recs
+
+Mon, 17 Aug 2026 19:55:11 GMT
+
+https://screenrant.com/reacher-season-4-best-action-thriller/
+
+Reacher Season 4 hits #1 on Prime Video worldwide overnight, delivering the action thriller franchise's most relentless and rewarding season yet.
+---------
+
+# 5 Fall 2026 Fantasy Anime You Cannot Miss
+
+Anime, Dragon Ball, Black Clover, Reincarnated as a Sword, Fantasy
+
+Mon, 17 Aug 2026 20:15:16 GMT
+
+https://www.cbr.com/fall-2026-fantasy-anime-you-cannot-miss/
+
+Anime's fall line-up is packed with excellent debuts and electric returns, and these five fantasy anime series are sure to satisfy fans of the genre.
+---------
+
+# Marvel Officially Adds MCU Reboot of Beloved Character to 2028 Release Schedule
+
+Movies, Ghost Rider, Marvel Cinematic Universe, Innovation
+
+Mon, 17 Aug 2026 20:05:09 GMT
+
+https://www.cbr.com/ghost-rider-release-date-mcu-ryan-gosling/
+
+The MCU has added a third major movie to its 2028 release calendar.
+---------
+
+# Star Trek VI Gives Kirk the Best Closing Line In Sci-Fi Movie History
+
+Movies, Star Trek, Star Trek: The Original Series, Star Trek VI: The Undiscovered Country
+
+Mon, 17 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/star-trek-vi-undiscovered-country-captain-kirk-best-quote-sci-fi-history/
+
+Captain Kirk's final command in Star Trek VI: The Undiscovered Country is the greatest final quote in sci-fi history, and it's borrowed from Peter Pan
+---------
+
+# Resident Evil Confirms Jill Valentine Is Finally Returning
+
+Comics, Resident Evil, Resident Evil: Death Island
+
+Mon, 17 Aug 2026 20:00:15 GMT
+
+https://www.cbr.com/resident-evil-jill-valentine-return-death-island-manga-trailer/
+
+Resident Evil's Jill Valentine makes an epic comeback, and the newly released trailer looks amazing.
+---------
+
+# Marvel Is Officially Making a Genius Change to Peter Parker’s Spider-Man Story
+
+TV Features, Your Friendly Neighborhood Spider-Man, Disney Plus, Spider-Man: Brand New Day, Spider-Man
+
+Mon, 17 Aug 2026 20:12:15 GMT
+
+https://collider.com/your-friendly-neighborhood-spider-man-series-venom-origin-changes-meaning/
+
+Venom is coming to Your Friendly Neighborhood Spider-Man, but the Lethal Protector will be different than what fans are expecting.
+---------
+
+# 10 Anime Masterpieces So Great They Became the Blueprint
+
+TV, Anime, Sailor Moon, K-On!, Neon Genesis Evangelion
+
+Mon, 17 Aug 2026 20:05:15 GMT
+
+https://collider.com/anime-masterpieces-became-blueprint/
+
+Incredible anime like Dragon Ball, Sailor Moon, and Bleach had a strong impact on the medium, becoming the standard for certain tropes or even genres.
+---------
+
+# Disney Officially Sets Release Date for Next Live-Action Remake
+
+Movie News, Tangled, Kathryn Hahn, Diego Luna, Disney
+
+Mon, 17 Aug 2026 19:49:47 GMT
+
+https://collider.com/tangled-live-action-movie-release-date-march-2028/
+
+Disney’s live-action Tangled movie remake has officially set a release date for Rapunzel’s return to theaters.
+---------
+
+# Guy Ritchie's 10/10 Jake Gyllenhaal Action Thriller Scores Big on Netflix
+
+Movie News, Guy Ritchie's The Covenant, Guy Ritchie, Jake Gyllenhaal, Action, War, Thriller, Hot on Streaming
+
+Mon, 17 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/guy-ritchie-jake-gyllenhaal-covenant-netflix-stream-august-2026/
+
+Jake Gyllenhaal takes the lead in this action war thriller from director Guy Ritchie.
+---------
+
+# NBC's Thriller Is a Sleeper Pick for the 21st Century's Best Crime Series
+
+Features, The Blacklist
+
+Mon, 17 Aug 2026 20:00:12 GMT
+
+https://movieweb.com/the-blacklist-nbc-best-crime-series/
+
+NBC's popular thriller TV series is the greatest crime show of the past few decades and deserves more attention.
+---------
+
 # Taylor Sheridan's Landman Season 3 Status Confirmed After Production Delays
 
 TV
