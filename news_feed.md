@@ -1,3 +1,102 @@
+# Nathan Fillion Details Why Guy Gardner Is In The Most DCU Movies & TV Shows
+
+TV, Lanterns, DC Universe, Green Lantern
+
+Mon, 17 Aug 2026 15:38:19 GMT
+
+https://screenrant.com/lanterns-guy-gardner-most-dcu-shows-movies-nathan-fillion-response/
+
+EXCLUSIVE: As Guy Gardner has multiple appearances coming up, Nathan Fillion explains why his Green Lantern character is used the most in the DCU.
+---------
+
+# 7 Years Later, Robert Downey Jr.'s Upcoming Iron Man Return Comes With A Major Twist
+
+Movies, Iron Man, The Avengers, Marvel Cinematic Universe
+
+Mon, 17 Aug 2026 15:20:15 GMT
+
+https://screenrant.com/robert-downey-jr-iron-man-return-avengers-twist/
+
+Robert Downey Jr.'s Iron Man will officially return soon, and this exciting Marvel comeback comes with the surprising addition of another MCU hero.
+---------
+
+# 20 Years Later, Doctor Who Confirms The Tenth Doctor and Rose’s Return
+
+Comics, Doctor Who, Doctor Who / Whoniverse
+
+Mon, 17 Aug 2026 15:17:22 GMT
+
+https://screenrant.com/doctor-who-tenth-doctor-and-rose-tyler-return-details/
+
+If you’re still nostalgic for the 2005–2006 era of Doctor Who, there’s good news: the Tenth Doctor and Rose Tyler are officially returning.
+---------
+
+# Disney+ Confirms Official Watchlist Before Avengers: Doomsday Despite 'Phase Zero' Comments
+
+Movies, Avengers: Doomsday, Disney+, Marvel Cinematic Universe
+
+Mon, 17 Aug 2026 15:22:01 GMT
+
+https://www.cbr.com/avengers-doomsday-watchlist-disney-plus/
+
+The Russo Brothers may believe Avengers: Doomsday requires no homework from audiences, but Disney+ says otherwise.
+---------
+
+# Jon Hamm's New Crime Thriller Is Officially Planning Season 2, But There's a Catch [Exclusive]
+
+TV News, American Hostage, Jon Hamm, Giovanni Ribisi, Shawn Ryan
+
+Mon, 17 Aug 2026 15:45:15 GMT
+
+https://collider.com/american-hostage-season-2-plans-jon-hamm/
+
+American Hostage creators reveal they already have a Season 2 idea for the Jon Hamm thriller ahead of its September 20 premiere on MGM+.
+---------
+
+# Hayden Panettiere's 'Scream' Co-Stars & More React to Her Death
+
+Movie News, Scream, Hayden Panettiere
+
+Mon, 17 Aug 2026 15:31:27 GMT
+
+https://movieweb.com/hayden-panettiere-scream-co-stars-react-death/
+
+Condolences pour in following Panettiere's untimely death.
+---------
+
+# 'Lanterns' Releases New Trailer Following Premiere's Major Cliffhanger
+
+TV Trailers, Lanterns, DCU, HBO Max
+
+Mon, 17 Aug 2026 15:25:37 GMT
+
+https://movieweb.com/lanterns-weeks-ahead-trailer-premiere-cliffhanger/
+
+How will 'Lanterns' follow up on the shocking series premiere?
+---------
+
+# Anne Hathaway Reveals the Original 'The End of Oak Street' Ending
+
+Movie News, The End of Oak Street
+
+Mon, 17 Aug 2026 15:18:19 GMT
+
+https://movieweb.com/end-of-oak-street-anne-hathaway-original-ending/
+
+Anne Hathaway said 'The End of Oak Street' went through several script changes.
+---------
+
+# Harrison Ford's 'Blade Runner' Future Just Got a Definitive Answer
+
+TV News, Blade Runner, Blade Runner 2099, Harrison Ford
+
+Mon, 17 Aug 2026 15:17:43 GMT
+
+https://movieweb.com/harrison-ford-blade-runner-2099-future/
+
+'Blade Runner 2099' showrunner Silka Luisa has confirmed that Harrison Ford's Rick Deckard and Ryan Gosling's K won't appear.
+---------
+
 # NYT Connections Solution And Hints For August 17, 2026
 
 Gaming, Connections, Mobile
