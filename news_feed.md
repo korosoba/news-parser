@@ -1,3 +1,14 @@
+# Fallout 4 Just Became A Completely Different Game
+
+Gaming, Fallout, Fallout 4
+
+Mon, 17 Aug 2026 05:30:11 GMT
+
+https://screenrant.com/fallout-4-dungeon-crawler-mod/
+
+Fallout 4 is an excellent part of the beloved post-apocalyptic series, but what if it was a completely different genre?
+---------
+
 # The Walking Dead Officially Returns In One Month
 
 Gaming, The Walking Dead
