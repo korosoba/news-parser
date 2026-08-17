@@ -1,3 +1,223 @@
+# KPop Demon Hunters Star Enters A K-Pop Survival Competition In New Movie
+
+Movies, KPop Demon Hunters
+
+Mon, 17 Aug 2026 22:15:11 GMT
+
+https://screenrant.com/kpop-demon-hunters-ji-young-yoo-k-pop-the-debut-movie/
+
+The wait for KPop Demon Hunters 2 will be a long one, but fans won't have to wait too long to reunite with one of its stars on the big screen.
+---------
+
+# Joe’s Lioness Season 3 Capture Will “Get Increasingly More Barbaric,” Warns Taylor Sheridan Star
+
+TV, Lioness, Lioness - Season 3
+
+Mon, 17 Aug 2026 22:14:31 GMT
+
+https://screenrant.com/lioness-season-3-joe-capture-torture-escalation-ian-bohen/
+
+Exclusive: Lioness star Ian Bohen warns Joe's season 3 captivity will become increasingly barbaric following episode 3's disturbing ending.
+---------
+
+# Reacher Season 4’s Big Changes To Key Gone Tomorrow Character Explained By Star
+
+TV, Reacher, Reacher - Season 4, Sydelle Noel
+
+Mon, 17 Aug 2026 22:11:27 GMT
+
+https://screenrant.com/reacher-season-4-gone-tomorrow-theresa-tamara-changes-sydelle-noel/
+
+EXCLUSIVE: Reacher season 4 is based on Lee Child’s Gone Tomorrow, but the writers have made some massive changes during the adaptation process.
+---------
+
+# Lanterns Episode 1 Twist Addressed By DCU Stars & Showrunners: "It's Complicated"
+
+TV, Lanterns, DC Universe, Green Lantern
+
+Mon, 17 Aug 2026 22:04:43 GMT
+
+https://screenrant.com/lanterns-episode-1-kyle-chandler-response-hal-jordan-death/
+
+Following the shocking Lanterns episode 1 ending, the main stars and showrunner behind the DC Universe TV show open up about the massive HBO twist.
+---------
+
+# After 63 Years, The Avengers Finally Switch Genres For Next Major Era
+
+Comics, The Avengers, Marvel
+
+Mon, 17 Aug 2026 22:04:11 GMT
+
+https://screenrant.com/avengers-switch-genres-street-level-heroes/
+
+The upcoming Avengers reboot's big shake-up.
+---------
+
+# Netflix’s 3-Part Agatha Christie Series Shows The Hercule Poirot Movies How It's Done
+
+TV, Masked Recs
+
+Mon, 17 Aug 2026 22:01:11 GMT
+
+https://screenrant.com/agatha-christie-seven-dials-better-than-poirot-movies/
+
+Netflix leans into lighthearted plotting to restore the comfort and charm of classic whodunits, reminding viewers why Christie’s mysteries delight.
+---------
+
+# Spider-Man: Brand New Day Pitch Meeting
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe, Screen Rant Pitch Meetings
+
+Mon, 17 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/video/spider-man-brand-new-day-pitch-meeting/
+
+ScreenRant's Pitch Meeting series swings out to New York City to take a look at Spider-Man: Brand New Day and the few flaws in the smash hit.
+---------
+
+# 26 Years Later, This 10/10 N64 Masterpiece Is Better Than Zelda: Ocarina Of Time
+
+Gaming, The Legend of Zelda, Nintendo
+
+Mon, 17 Aug 2026 22:00:11 GMT
+
+https://screenrant.com/n64-2000-masterpiece-better-zelda-ocarina-of-time/
+
+Ocarina Of Time might well be one of the best games ever made, but this 10/10 masterpiece takes an even bigger swing.
+---------
+
+# 5 Best Prime Video Shows To Binge-Watch This Week (Aug 17–21, 2026)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 17 Aug 2026 21:56:11 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-week-august-17-2026/
+
+Watch Reacher season 4, Sterling Point, Ride or Die, Off Campus, and The Terminal List – Prime Video's top 5 picks to stream this week.
+---------
+
+# 10 Greatest Action Anime Series Since 2021
+
+Anime, Action
+
+Mon, 17 Aug 2026 22:15:15 GMT
+
+https://www.cbr.com/greatest-action-anime-since-2021/
+
+The last five years have brought a plethora of fantastic action anime to the fore, including unforgettable series like Dandadan and Chainsaw Man.
+---------
+
+# Lanterns: Why It Doesn’t Feel Like a Superhero Show
+
+TV, Lanterns
+
+Mon, 17 Aug 2026 22:08:18 GMT
+
+https://www.cbr.com/video/lanterns-why-it-doesn-t-feel-like-a-superhero-show/
+
+Lanterns star Kelly Macdonald explains why DC Studios’ Green Lantern series feels Shakespearean beneath its superhero mystery.
+---------
+
+# HBO's Hit Thriller Series With 91% RT Confirms Its Guest Stars for Fifth and Final Season
+
+TV, Industry, HBO Max, Thriller
+
+Mon, 17 Aug 2026 22:04:03 GMT
+
+https://www.cbr.com/industry-season-5-cast-cary-elwes-dianna-agron-sam-riley-hbo/
+
+HBO's fan-favorite thriller is going big for its final season.
+---------
+
+# Ben Affleck's R-Rated 124-Minute Heist Thriller Resurfaces on Streaming 16 Years Later
+
+Movies, The Town, Ben Affleck
+
+Mon, 17 Aug 2026 22:01:14 GMT
+
+https://www.cbr.com/ben-affleck-the-town-hbo-max-success-august-2026/
+
+The movie is considered one of the best heist movies in recent years.
+---------
+
+# Project Hail Mary's Best Line is the Greatest Sci-Fi Quote of the Decade
+
+Movies, Project Hail Mary
+
+Mon, 17 Aug 2026 22:01:14 GMT
+
+https://www.cbr.com/project-hail-marys-best-sci-fi-quote-of-decade/
+
+Project Hail Mary became an instant classic and this Commander Yao quote proves that the film has earned the hype.
+---------
+
+# The 10 Best Original X-Men Comic Issues, Ranked
+
+Comics, X-Men
+
+Mon, 17 Aug 2026 22:01:14 GMT
+
+https://www.cbr.com/best-original-x-men-comic-issues-ranked/
+
+These are the X-Men's most important and well-written "firsts" that fans must read.
+---------
+
+# Win Tickets to Our 'The Dog Stars' IMAX Screening With Ridley Scott Q&A
+
+Exclusives, Screening, The Dog Stars, Ridley Scott, Jacob Elordi
+
+Mon, 17 Aug 2026 21:53:32 GMT
+
+https://collider.com/the-dog-stars-imax-screening-ridley-scott-q-and-a/
+
+Details on how you can enter for your chance to win free tickets to our early IMAX screening of The Dog Stars and a Q&amp;A with Ridley Scott.
+---------
+
+# 5 Recent Box Office Flops Everyone Saw Coming
+
+Movie, Supergirl, The Bride!, Masters of the Universe, Box Office
+
+Mon, 17 Aug 2026 21:53:14 GMT
+
+https://collider.com/box-office-flops-everyone-saw-coming-recent/
+
+It was pretty easy to predict the box-office failure of recent flops like Supergirl, The Bride!, and Masters of the Universe.
+---------
+
+# Frodo's Best 'Lord of the Rings' Line Is Still the Most Inspiring Quote in Fantasy
+
+Features, The Lord of the Rings, Great Line
+
+Mon, 17 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/frodo-lord-of-the-rings-inspiring-quote/
+
+Frodo Baggins (Elijah Wood) is one of the most iconic 'Lord of the Rings' characters, and this is his most inspiring quote.
+---------
+
+# The Most Realistic Post-Apocalypse Thriller Ever Made Finally Hits Streaming
+
+Movie News, Threads, Coming/Leaving Streaming
+
+Mon, 17 Aug 2026 22:00:12 GMT
+
+https://movieweb.com/threads-streaming-shudder-august-2026/
+
+This is scariest non-horror film you'll find on streaming today.
+---------
+
+# David Arquette Still "Upset" With 'Scream' Character's "Dirty" Sequel Fate
+
+Movie News, Scream, David Arquette
+
+Mon, 17 Aug 2026 21:57:13 GMT
+
+https://movieweb.com/scream-5-david-arquette-dewey-death-reaction/
+
+The actor still doesn't agree with Dewey's death in 2022's 'Scream' and his character's struggles with alcoholism.
+---------
+
 # Anakin & Padme's Potential Star Wars Reunion Addressed By Hayden Christensen
 
 Movies, Star Wars, Anakin Skywalker/Darth Vader, Padmé Amidala
