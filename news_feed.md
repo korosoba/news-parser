@@ -1,3 +1,25 @@
+# The Walking Dead Officially Returns In One Month
+
+Gaming, The Walking Dead
+
+Mon, 17 Aug 2026 05:00:11 GMT
+
+https://screenrant.com/walking-dead-streets-of-survival-release-date-psa/
+
+Explore The Walking Dead universe in Streets of Survival, launching September 18, 2026, for multiple platforms.
+---------
+
+# The Witcher 3: The Last Wish Is The Perfect Prequel
+
+Gaming, The Witcher
+
+Mon, 17 Aug 2026 04:30:11 GMT
+
+https://screenrant.com/witcher-3-last-wish-project/
+
+Explore The Witcher 3: The Last Wish mod, recreating Sapkowski's stories into playable quests and interactive experiences.
+---------
+
 # Red Dead Redemption Just Got The Upgrade We've Waited Years For
 
 Gaming, Red Dead Redemption
