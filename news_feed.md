@@ -1,3 +1,25 @@
+# Netflix’s Upcoming Fantasy Anime Adaptation Will Show Avatar: The Last Airbender How It’s Done
+
+Streaming TV, Masked Recs
+
+Mon, 17 Aug 2026 23:30:11 GMT
+
+https://screenrant.com/netflix-yu-yu-hakusho-anime-adaptation-show-avatar-last-airbender/
+
+Netflix is adding a second season of a live-action fantasy anime adaptation that has the potential to be bigger than Avatar: The Last Airbender.
+---------
+
+# Stephen King's 8-Part Anthology Series Deserves Credit For Adapting The Impossible
+
+Classic TV, Masked Recs
+
+Mon, 17 Aug 2026 23:15:11 GMT
+
+https://screenrant.com/stephen-king-nightmares-and-dreamscapes-adapt-impossible-stories/
+
+There is an eight-episode anthology series based on the short stories of Stephen King, and it deserves more credit for how it's adapted his stories.
+---------
+
 # Marvel Confirms Avengers: Endgame Is To Blame For Doctor Doom
 
 Movies, Avengers: Endgame, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
