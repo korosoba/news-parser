@@ -1,3 +1,58 @@
+# Final Fantasy 7 Revelation Demo Leaks Online
+
+Gaming, Final Fantasy, Final Fantasy 7, PC, Final Fantasy VII Revelation
+
+Tue, 18 Aug 2026 10:46:14 GMT
+
+https://screenrant.com/final-fantasy-7-revelation-demo-leak/
+
+A demo for the upcoming Final Fantasy 7 Revelation has leaked online, leading to fans wondering just how the game plays.
+---------
+
+# Remake Of Hit 2004 PS2 Game Lands On PS5 And Xbox For Free
+
+Gaming, PlayStation, Xbox
+
+Tue, 18 Aug 2026 10:30:11 GMT
+
+https://screenrant.com/playstation-ps2-2004-game-remake-free-upgrade/
+
+Upgrade your PS4 copy of Mafia: Definitive Edition for free on PS5 and enjoy enhanced graphics and improved performance.
+---------
+
+# 8 Must-Watch Shows To Binge if You Love Prime Video's 'Sterling Point'
+
+TV, Sterling Point, Prime Video, Outer Banks, Ginny & Georgia
+
+Tue, 18 Aug 2026 10:52:15 GMT
+
+https://collider.com/shows-like-sterling-point-prime-video/
+
+Outer Banks, Ginny & Georgia, The O.C., and The Summer I Turned Pretty are perfect shows to watch if you love the Prime Video series Sterling Point.
+---------
+
+# Apple TV’s Biggest Sci-Fi Hit Officially Has a Full Season 2 Outline [Exclusive]
+
+TV News, Pluribus, Vince Gilligan, Rhea Seehorn, Apple TV
+
+Tue, 18 Aug 2026 10:30:14 GMT
+
+https://collider.com/pluribus-season-2-update-vince-gilligan/
+
+Vince Gilligan reveals that Pluribus Season 2 is fully plotted out and teases what’s next for Carol, Manousos, and the Others.
+---------
+
+# 20 Shows To Watch If You Love 'Attack on Titan'
+
+TV, Anime, Attack On Titan, Demon Slayer, Death Note
+
+Tue, 18 Aug 2026 10:27:14 GMT
+
+https://collider.com/anime-shows-like-attack-on-titan/
+
+From Death Note to Knights of Sidonia, these are the best anime to watch if you're a fan of Attack on Titan.
+---------
+
 # Star Wars’ Perfect Luke Skywalker Replacement Is Getting His Own Trilogy
 
 Gaming, Star Wars, Star Wars Jedi: Fallen Order, Luke Skywalker, PC
