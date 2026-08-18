@@ -1,3 +1,168 @@
+# 6 Groundbreaking Science Fiction Novels from Across the World
+
+Books, Masked Recs
+
+Tue, 18 Aug 2026 18:00:12 GMT
+
+https://screenrant.com/six-groundbreaking-science-fiction-books-international/
+
+Good reading.
+---------
+
+# 34 Years Later, This 10/10 SNES Classic Has Aged Better Than Most Modern Games
+
+Gaming, SNES, Triple-A Games
+
+Tue, 18 Aug 2026 18:00:12 GMT
+
+https://screenrant.com/super-nintendo-snes-masterpiece-zelda-alttp/
+
+Even after 34 years this absolute classic is still worth revisiting now, and the good news is that it's readily available to play.
+---------
+
+# 6 Unforgettable Far Side Comics Set In the Jungle
+
+Comics, The Far Side
+
+Tue, 18 Aug 2026 17:59:04 GMT
+
+https://screenrant.com/far-side-jungle-classic-jokes/
+
+The funniest Far Side jungle jokes!
+---------
+
+# How Cloverfield Impacted The End of Oak Street, Even Before JJ Abrams Got Involved
+
+Movies, The End of Oak Street, Cloverfield
+
+Tue, 18 Aug 2026 18:22:21 GMT
+
+https://www.cbr.com/cloverfield-the-end-of-oak-street-impact-explained/
+
+The End of Oak Street writer-director David Robert Mitchell explains the influence of the Cloverfield franchise prior to J. J. Abrams' involvement.
+---------
+
+# Pluribus Season 2's Delay Explained by Creator: 'Don't Hold Your Breath'
+
+TV, Pluribus, Apple TV, Sci-Fi
+
+Tue, 18 Aug 2026 18:16:45 GMT
+
+https://www.cbr.com/pluribus-season-2-delay-explained/
+
+"It's going to be a while."
+---------
+
+# 5 Anime Villains Stronger Than Madara Uchiha
+
+Anime, Naruto: Shippuden, Naruto
+
+Tue, 18 Aug 2026 18:15:15 GMT
+
+https://www.cbr.com/naruto-anime-villains-stronger-than-madara-uchiha/
+
+Few anime villains can rival Madara from Naruto, but these antagonists are even stronger than the legendary Uchiha.
+---------
+
+# The 10 Greatest Movie Climaxes Of the 21st Century, Ranked
+
+Movies, Drama
+
+Tue, 18 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/best-movie-climaxes-21st-century-ranked-list/
+
+These 21st century film climaxes are the greatest finales in modern movie history.
+---------
+
+# 20 Years Later, Doctor Who Brings Back David Tennant’s Tenth Doctor and Rose Tyler
+
+Comics, Doctor Who
+
+Tue, 18 Aug 2026 18:00:15 GMT
+
+https://www.cbr.com/doctor-who-tenth-doctor-rose-tyler-return/
+
+Doctor Who's most famous pairing finally returns in a new project coming this fall.
+---------
+
+# Paramount+ Officially Confirms Star Trek's Future After Cancelling Last New Series
+
+TV News, Star Trek, Paramount, Star Trek: Strange New Worlds, Star Trek: Starfleet Academy
+
+Tue, 18 Aug 2026 18:21:22 GMT
+
+https://collider.com/star-trek-next-tv-series-paramount-plus-future-after-starfleet-academy/
+
+Paramount+ officially confirms Star Trek's TV future after Starfleet Academy and Strange New Worlds come to an end.
+---------
+
+# ‘Breaking Bad’ Star’s ‘John Wick’ Replacement Officially Dominates HBO Max
+
+Movie News, Bob Odenkirk, Normal, John Wick, Fargo
+
+Tue, 18 Aug 2026 18:00:15 GMT
+
+https://collider.com/normal-bob-odenkirk-action-thriller-hbo-max-streaming-success-august-2026/
+
+Bob Odenkirk's small-town action movie, directed by Ben Wheatley, has taken the HBO Max crown domestically after flopping at the box office.
+---------
+
+# The Music Producer Who Became Paul McCartney, Madonna and Lady Gaga's Secret Weapon [Exclusive]
+
+Interviews, Paul McCartney, Lady Gaga, Wednesday, The Rolling Stones, Madonna, Music
+
+Tue, 18 Aug 2026 17:54:43 GMT
+
+https://collider.com/andrew-watt-paul-mccartney-rolling-stones-madonna-exclusive/
+
+Explore Andrew Watt's insights on producing for McCartney, The Rolling Stones, and Madonna in this exclusive interview.
+---------
+
+# 10 Most Ambitious Sci-Fi Movies of the Last 25 Years
+
+Movie, Science Fiction, Dune, Avatar, Inception
+
+Tue, 18 Aug 2026 17:53:15 GMT
+
+https://collider.com/most-ambitious-sci-fi-movies-last-25-years-ranked/
+
+The ambition of sci-fi blockbusters like Dune and underrated horrors like Under the Skin is truly impressive, representing the genre at its boldest.
+---------
+
+# 'Fast 11' Official Filming Start Finally Confirmed by Vin Diesel
+
+Movie News, Fast Forever
+
+Tue, 18 Aug 2026 18:03:34 GMT
+
+https://movieweb.com/fast-11-vin-diesel-filming-start-date-confirmed/
+
+Vin Diesel confirmed when 'Fast 11,' the final movie in his 'Fast & Furious' franchise, will get cameras rolling for the start of filming.
+---------
+
+# 'Silo' Finally Reveals Who Built the Silos In Season 3 Twist
+
+Features, Silo
+
+Tue, 18 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/silo-season-3-silos-reveal/
+
+'Silo' Season 3 is currently streaming on Apple TV and stars Rebecca Ferguson, Ashley Zukerman, and Colin Hanks.
+---------
+
+# The Action-Packed Adaptation of an 86-Year-Old Sci-Fi Classic That’s Now a Streaming Hit
+
+Movie News, I, Robot, Apple TV, Hot on Streaming, Sci-Fi, Action
+
+Tue, 18 Aug 2026 18:00:12 GMT
+
+https://movieweb.com/i-robot-scifi-action-streaming-apple-august-2026/
+
+Not the adaptation the novel deserved, but the adaptation people clearly wanted.
+---------
+
 # Street Fighter's 2026 Reboot Gets Glowing Early Review From Ken Actor With Tease Of “100s Of Easter Eggs”
 
 Movies, Street Fighter, Noah Centineo
