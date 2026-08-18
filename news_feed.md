@@ -1,3 +1,102 @@
+# Florence Pugh's East Of Eden Adaptation Sets Official Netflix Release Date
+
+TV
+
+Tue, 18 Aug 2026 17:16:16 GMT
+
+https://screenrant.com/netflix-east-of-eden-official-release-date/
+
+Netflix's adaptation of a classic novel, which will see Florence Pugh in the lead role, has now revealed a release date along with new images.
+---------
+
+# Coffee Chats Episode 13 with Silo's Common
+
+Interviews, Coffee Chats, Common, Silo
+
+Tue, 18 Aug 2026 17:08:12 GMT
+
+https://screenrant.com/video/season-3-common-episode-13-coffee-chats/
+
+Common reflects on his transition from music to acting, working alongside Jared Leto and Margot Robbie in Suicide Squad, the heartbreaking cancellation of Justice League Mortal, and why fans should be excited for Silo Season 4.
+---------
+
+# I Can't Tell If Reacher Season 4 Throwing Shade At Its Netflix Rival Is Intentional
+
+Streaming TV, Reacher
+
+Tue, 18 Aug 2026 17:00:11 GMT
+
+https://screenrant.com/reacher-season-4-night-agent-phone-reference/
+
+Reacher and The Night Agent are regularly compared, and one pointed line in Reacher's season 4 might attract attention from fans of The Night Agent.
+---------
+
+# Elden Ring Meets Studio Ghibli in PS1-Style Game You Can Play for Free
+
+Games, Elden Ring, Studio Ghibli, PlayStation (Original)
+
+Tue, 18 Aug 2026 17:15:15 GMT
+
+https://www.cbr.com/memoirium-elden-ring-meets-studio-ghibli/
+
+This free game is perfect for anyone who grew up with the PS1, or who loves Elden Ring and Studio Ghibli.
+---------
+
+# Today Is A Very Exciting Day for Star Trek: Voyager Fans
+
+Comics, Star Trek: Voyager, Star Trek
+
+Tue, 18 Aug 2026 17:05:58 GMT
+
+https://www.cbr.com/star-trek-voyager-homecoming-trade-paperback/
+
+This comic book is a dream come true for Trekkies.
+---------
+
+# Why James Gunn's DCU Has 3 Green Lanterns & Which Is the Strongest Right Now
+
+TV, Lanterns, DCU, Green Lantern
+
+Tue, 18 Aug 2026 17:00:15 GMT
+
+https://www.cbr.com/dcu-strongest-green-lantern-hal-jordan-john-stewart-guy-gardner-lanterns/
+
+The series premiere of Lanterns finally reveals the answer to the burning Green Lantern question DCU fans have been asking.
+---------
+
+# Connor Storrie Officially Trades ‘Heated Rivalry’ for a Brutal Sci-Fi Nightmare [Exclusive]
+
+Movie News, Connor Storrie, April X, Heated Rivalry, Exclusive Media
+
+Tue, 18 Aug 2026 17:00:15 GMT
+
+https://collider.com/connor-storrie-new-sci-fi-thriller-sneak-peek-april-x/
+
+Watch Connor Storrie take on an action role as he's trying to find his twin sister.
+---------
+
+# 'The Surfer' Ending, Explained
+
+Features, The Surfer, Nicolas Cage
+
+Tue, 18 Aug 2026 17:00:13 GMT
+
+https://movieweb.com/the-surfer-ending-explained/
+
+Explore the ending and deeper meaning of 'The Surfer' with Nicolas Cage, highlighting themes of toxic masculinity.
+---------
+
+# Russell Crowe's New Action Thriller Is an "Anti-Gladiator" Historical Epic
+
+Features, Russell Crowe, The Last Druid
+
+Tue, 18 Aug 2026 17:00:12 GMT
+
+https://movieweb.com/the-last-druid-russell-crowe-historical-action-thriller/
+
+Russell Crowe is starring in a new historical epic action thriller that is perfect for fans of Ridley Scott's 'Gladiator.'
+---------
+
 # Crunchyroll Begins Huge Anime And Manga Purge In End Of 12-Year Era
 
 Anime, Crunchyroll
