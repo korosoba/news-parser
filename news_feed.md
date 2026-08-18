@@ -1,3 +1,47 @@
+# Mass Effect Officially Returns November 2026 With New Release
+
+Gaming, Mass Effect
+
+Tue, 18 Aug 2026 11:30:12 GMT
+
+https://screenrant.com/mass-effect-november-2026-miranda-statue/
+
+Pre-order the Miranda Lawson figure and enhance your Mass Effect collection this November!
+---------
+
+# 10 Best Sci-Fi Books of the 1980s
+
+Books and Comics, Sci-Fi, Books, Stephen King, Contact
+
+Tue, 18 Aug 2026 11:32:15 GMT
+
+https://collider.com/best-sci-fi-books-1980s-ranked/
+
+Firestarter by Stephen King, Neuromancer by William Gibson, and Contact by Carl Sagan are among the best sci-fi books of the 1980s.
+---------
+
+# New R-Rated Tom Cruise Movie Officially Gets a Major Update [Exclusive]
+
+Exclusives, Tom Cruise, Christopher McQuarrie, Mission: Impossible - The Final Reckoning, Mission: Impossible - Dead Reckoning
+
+Tue, 18 Aug 2026 11:30:17 GMT
+
+https://collider.com/tom-cruise-r-rated-gnarly-movie-erik-jendresen-update/
+
+Tom Cruise’s long-awaited R-rated “Gnarly Movie” with Christopher McQuarrie has received a hugely exciting update from Erik Jendresen.
+---------
+
+# AMC’s Overlooked 3-Season Martial Arts Series Is the Perfect Weekend Binge
+
+TV Features, Into the Badlands, AMC, AMC+, Daniel Wu
+
+Tue, 18 Aug 2026 11:18:14 GMT
+
+https://collider.com/amc-into-the-badlands-martial-arts-series-perfect-weekend-binge/
+
+Into the Badlands was under-appreciated in its time, and now it matches audiences' tastes better than ever. It's an ideal binge-watch.
+---------
+
 # Pokémon Scarlet & Violet Free Download Officially Yours For 48 Hours
 
 Gaming, Pokemon Scarlet and Violet
