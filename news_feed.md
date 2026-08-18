@@ -1,3 +1,102 @@
+# 64 Years Later, Gunsmoke’s Greatest Line Is Still The Best In Any TV Western
+
+TV, Gunsmoke, Western
+
+Tue, 18 Aug 2026 21:31:14 GMT
+
+https://screenrant.com/gunsmoke-best-quote-tv-western-matt-dillon/
+
+The longest-running TV Western also features the genre's best quote, variations of which appear several times during the course of the series.
+---------
+
+# LL Cool J's Sam Hanna Investigates A Personal Case In Action-Packed NCIS: New York Trailer
+
+TV, NCIS: New York, NCIS: New York - Season 1
+
+Tue, 18 Aug 2026 21:23:15 GMT
+
+https://screenrant.com/ncis-new-york-trailer-sam-hanna-investigation-personal/
+
+NCIS: New York brings back LL Cool J's, who investigates a personal case in a new action-packed trailer for the franchise's upcoming spinoff.
+---------
+
+# True Detective Meets Fargo In Taylor Sheridan's Forgotten Western Movie Gem On Netflix
+
+Classic Movies, Wind River
+
+Tue, 18 Aug 2026 21:20:14 GMT
+
+https://screenrant.com/taylor-sheridan-wind-river-movie-streaming-netflix/
+
+There is a Taylor Sheridan movie on Netflix that is perfect for anyone who loves Fargo and True Detective and it has an unreleased sequel.
+---------
+
+# Shifting Gears Season 3 Officially Sets Major Sitcom Reunion After 9 Years
+
+TV, Shifting Gears
+
+Tue, 18 Aug 2026 21:19:11 GMT
+
+https://screenrant.com/shifting-gears-season-3-kat-dennings-beth-behrs-2-broke-girls-reunion/
+
+Shifting Gears season 3 will reunite one of its lead actors with one of their former co-stars from another sitcom that ended nine years ago.
+---------
+
+# Amazon's Backrooms Replacement Casts The Mummy Star in Key Role
+
+Movies, Horror
+
+Tue, 18 Aug 2026 21:43:31 GMT
+
+https://www.cbr.com/jack-reynor-joins-amazon-horror-movie-seasons/
+
+Amazon MGM Studios casts The Mummy and Midsommar star Jack Reynor in the new movie based on a viral horror story.
+---------
+
+# 30 Best D&D Adventures You Can Finish In One Night
+
+Games, Dungeons and Dragons
+
+Tue, 18 Aug 2026 21:30:11 GMT
+
+https://www.cbr.com/best-dnd-single-session-adventures/
+
+Despite being shorter D&amp;D campaigns, one-shots like "The Crucible" and "Salvage Operation" have plenty of thrills to keep adventurers on their toes.
+---------
+
+# Marvel Fans Don't Deserve This Epic X-Men Casting
+
+Movie Features, X-Men, Samara Weaving, Sadie Sink, Inde Navarrette
+
+Tue, 18 Aug 2026 21:42:11 GMT
+
+https://collider.com/mcu-x-men-casting-fans-criticism-opinion/
+
+After years of anticipation, some fans are calling the MCU's X-Men cast boring, even though it is chock-full of stars of the era.
+---------
+
+# Apple TV Officially Got It's Biggest Upgrade in 7 Years and Netflix Better Watch Out
+
+Movie Features, Apple TV, Netflix, Streaming, Arrival
+
+Tue, 18 Aug 2026 21:42:11 GMT
+
+https://collider.com/apple-tv-library-streaming-popular-movies-arrival-looper/
+
+Apple's streaming lineup now includes hit films like Arrival, Titanic, and E.T., which helps make it one of the best subscription options around.
+---------
+
+# 10 Thriller Book Masterpieces So Great They Became the Blueprint
+
+Books and Comics, Books, The Silence of the Lambs, Thriller, The 39 Steps
+
+Tue, 18 Aug 2026 21:23:11 GMT
+
+https://collider.com/thriller-book-masterpieces-became-blueprint/
+
+From essential 19th-century classics like The Spy to acclaimed modern masterpieces like Gone Girl, these thriller books are foundational to the genre.
+---------
+
 # Every Teenage Mutant Ninja Turtles Movie & Series (In Chronological Order)
 
 Classic TV, Rise of the Teenage Mutant Ninja Turtles: The Movie, Teenage Mutant Ninja Turtles, Movie/TV Show Timelines
