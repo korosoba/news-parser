@@ -1,3 +1,300 @@
+# 28 Years Later, Dumbledore's Greatest Harry Potter Line Can Finally Have Meaning Again
+
+Streaming TV, Harry Potter
+
+Tue, 18 Aug 2026 00:45:11 GMT
+
+https://screenrant.com/harry-potter-dumbledore-best-quote-chamber-of-secrets-hbo/
+
+The Harry Potter movies stripped meaning from one of the series' key lines, but HBO is prepared to restore the broader lesson in its TV remake.
+---------
+
+# 10 Years Later, Ahsoka Tano's Best Line Is Still A Top 5 Star Wars Quote
+
+Classic TV, Star Wars, Star Wars Rebels, Ahsoka Tano
+
+Tue, 18 Aug 2026 00:30:11 GMT
+
+https://screenrant.com/ahsoka-tano-best-quote-star-wars-history/
+
+Ahsoka Tano's best quote from Rebels is 10 years old this year, and it's still one of the best lines and deliveries in the history of Star Wars.
+---------
+
+# 15 Years Later, DC’s New Hal Jordan Beat Ryan Reynolds In Just 1 Hour
+
+Streaming TV, Lanterns, Green Lantern, DC Universe
+
+Tue, 18 Aug 2026 00:15:15 GMT
+
+https://screenrant.com/lanterns-hal-jordan-kyle-chandler-better-ryan-reynolds/
+
+HBO's Lanterns makes Kyle Chandler's Hal Jordan better than Ryan Reynolds' in one hour, but he has an unfair advantage over the previous DC version.
+---------
+
+# Prime Video's 60-Episode Stephen King TV Show Gives Black Mirror A Run For Its Money
+
+Classic TV, Masked Recs
+
+Tue, 18 Aug 2026 00:15:11 GMT
+
+https://screenrant.com/the-dead-zone-stephen-king-black-mirror-prime-video/
+
+One of Stephen King's most underrated TV shows is a sci-fi one currently streaming on Prime Video, and it's a worthy competitor to Black Mirror.
+---------
+
+# Jessie & Bullseye’s Heartbreaking First Meeting Revealed In Toy Story 5 Deleted Scene
+
+Movies, Toy Story 5, Toy Story
+
+Tue, 18 Aug 2026 00:13:56 GMT
+
+https://screenrant.com/toy-story-5-jessie-bullseye-first-meeting-deleted-scene/
+
+A flashback to Jessie & Bullseye's heartbreaking first meeting is revealed in a deleted scene from Pixar's new hit sequel Toy Story 5.
+---------
+
+# 26 Years Later, Angel's Worst Episode Has Aged Like Milk
+
+Classic TV, Angel
+
+Tue, 18 Aug 2026 00:00:11 GMT
+
+https://screenrant.com/angel-expecting-worst-episode-aged-poorly/
+
+For all its greatness, Angel sometimes missed the mark with its supernatural allegories, but none feel as jarring and uncomfortable as this.
+---------
+
+# Netflix’s 100% RT Gangster Thriller Is As Good As TV Crime Gets
+
+TV, Masked Recs
+
+Mon, 17 Aug 2026 23:45:11 GMT
+
+https://screenrant.com/giri-haji-netflix-perfect-gangster-thriller/
+
+As much as Netflix has dominated the crime genre over the past decade, only one of its shows in the genre has managed a perfect critics' score.
+---------
+
+# John Stewart’s DCU Return In Superman Sequel Man Of Tomorrow Teased By Aaron Pierre
+
+Movies, Man of Tomorrow, Lanterns, Superman, DC Universe
+
+Mon, 17 Aug 2026 23:44:28 GMT
+
+https://screenrant.com/superman-man-of-tomorrow-john-stewart-return-role-teased-aaron-pierre/
+
+EXCLUSIVE: Aaron Pierre addresses John Stewart's upcoming return in James Gunn's Superman follow-up, Man of Tomorrow, after Lanterns season 1.
+---------
+
+# 5 Best Chase Cards in Pokémon Mega Evolution—Pitch Black
+
+Games, Pokemon, Pokemon TCG, Tabletop, TCG
+
+Tue, 18 Aug 2026 00:45:15 GMT
+
+https://www.cbr.com/best-pokemon-mega-evolution-pitch-black-chase-cards/
+
+The Mega Evolution—Pitch Black series in the Pokemon TCG has some excellent cards worth chasing, including these five iconic must-haves.
+---------
+
+# Naruto Editor Explains How the Chunin Exams Happened After Kishimoto Had 'Nothing' Planned
+
+Anime, Naruto, masashi kishimoto
+
+Tue, 18 Aug 2026 00:35:15 GMT
+
+https://www.cbr.com/naruto-masashi-kishimoto-chunin-exams-no-plan/
+
+Naruto editor Kousuke Yahagi clarifies his role in the creation of manga's iconinc Chunin Exam arc.
+---------
+
+# 5 Autobots from the Transformers Movies More Powerful Than Optimus Prime
+
+Movies, Transformers
+
+Tue, 18 Aug 2026 00:30:15 GMT
+
+https://www.cbr.com/autobots-stronger-than-optimus-prime-list/
+
+The Transformers movies feature many powerful characters but only some Autobots could ever challenge Optimus Prime and win.
+---------
+
+# 10 Movies to Watch If You Love Your Name
+
+Anime, Your Name, A Silent Voice, Makoto Shinkai
+
+Tue, 18 Aug 2026 00:15:15 GMT
+
+https://www.cbr.com/anime-movies-to-watch-like-your-name/
+
+Anime movies like A Silent Voice and Patema Inverted are perfect for fans of Makoto Shinkai's Your Name.
+---------
+
+# Anya Taylor-Joy’s 127-Minute Dark Sci-Fi Thriller Is 1 of the Most-Streamed Movies in the World
+
+Movies, The Gorge, scott derrickson, Apple TV
+
+Tue, 18 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-gorge-apple-tv-success-august-2026/
+
+Taylor-Joy's sci-fi thriller is currently one of the biggest movies in the world on streaming.
+---------
+
+# Stranger Things' Eddie Munson Returns in New Spin-Off Series
+
+Comics, Stranger Things
+
+Tue, 18 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/stranger-things-eddie-munson-dungeons-dragons-hellfire-spinoff/
+
+Stranger Things' Eddie Munson comes back for an epic new story befitting his status as the Dungeon Master of the Hellfire Club.
+---------
+
+# The Amateur is a Modern Spy Thriller Classic
+
+Movies, The Amateur
+
+Tue, 18 Aug 2026 00:00:15 GMT
+
+https://www.cbr.com/the-amateur-modern-spy-thriller-classic/
+
+Oscar-winning actor Rami Malek's 'The Amateur' shows the extent of a man's willpower in this 123-minute thriller.
+---------
+
+# Horror Legend Tom Savini 'Devastated' After Losing Home to Fire
+
+Movies, Horror
+
+Mon, 17 Aug 2026 23:53:28 GMT
+
+https://www.cbr.com/horror-legend-tom-savini-home-destroyed/
+
+Celebrated makeup artist and actor Tom Savini has been left "devastated" following the house fire.
+---------
+
+# Hayden Panettiere Turned a Tired Horror Trope Into This Sequel’s Best Character
+
+Movie Features, Scream 4, Hayden Panettiere, Scream VI, Scream
+
+Tue, 18 Aug 2026 00:41:14 GMT
+
+https://collider.com/hayden-panettiere-scream-4-horror-trop-sequel-best-character/
+
+Hayden Panettiere's performance as Kirby Reed was a significant step in the Scream franchise's meta-commentary on Hollywood tropes.
+---------
+
+# 'Seinfeld' Nearly Made a Major Mistake Cutting One of Its Greatest Characters
+
+TV Features, Seinfeld, Sitcom, NBC, Julia Louis-Dreyfus
+
+Tue, 18 Aug 2026 00:40:15 GMT
+
+https://collider.com/seinfeld-elaine-julia-louis-dreyfus-change-lee-garlington/
+
+Before Seinfeld became one of the best sitcoms of all time, the NBC series was almost a totally different show without Julia-Louis Dreyfus' Elaine.
+---------
+
+# Noah Wyle Officially Reveals Who Really Makes ‘The Pitt’ Work [Exclusive]
+
+Exclusives, The Pitt, Noah Wyle, HBO Max, Isa Briones
+
+Tue, 18 Aug 2026 00:30:15 GMT
+
+https://collider.com/the-pitt-cast-noah-wyle-isa-briones-patrick-ball-unsung-heroes-hbo-max/
+
+Noah Wyle and the stars of The Pitt shared the love for the medical drama's unsung heroes at HBO Max's Emmy Nominee Celebration over the weekend.
+---------
+
+# 10 Greatest Books You Can Read in a Day
+
+Books and Comics, Animal Farm, The Shawshank Redemption, Carrie, A Clockwork Orange
+
+Tue, 18 Aug 2026 00:09:15 GMT
+
+https://collider.com/best-books-read-in-one-day/
+
+If you want books that might be readable in just one sitting, it's worth checking out the likes of Animal Farm, The Crying of Lot 49, and Carrie.
+---------
+
+# Netflix Is Removing Its Terrifying 107-Minute Survival Thriller in Just 1 Day
+
+Movie News, Fall, Fall 2: Deadpoint, Horror, Netflix
+
+Tue, 18 Aug 2026 00:00:14 GMT
+
+https://collider.com/fall-leaving-netflix-august-2026/
+
+Fall is leaving Netflix on August 18, just weeks before survival-thriller sequel Fall 2: Deadpoint arrives in theaters on September 2.
+---------
+
+# Sydney Sweeney's New Netflix Sci-Fi Epic Is a "Big Action-Romance" Space Movie
+
+Movie News, Sydney Sweeney, Noah Centineo, Gundam
+
+Tue, 18 Aug 2026 00:44:30 GMT
+
+https://movieweb.com/gundam-sydney-sweeney-noah-centineo/
+
+Sweeney's co-star in 'Gundam' Noah Centineo offered an exciting update on the long-awaited adaptation.
+---------
+
+# 'Avengers: Doomsday' Theory Suggests the Real Doom Is Hiding in Plain Sight
+
+Features, Avengers: Doomsday, Cillian Murphy
+
+Tue, 18 Aug 2026 00:30:12 GMT
+
+https://movieweb.com/avengers-doomsday-doctor-doom-cillian-murphy-theory/
+
+A new fan theory suggests another Oscar winner secretly plays the MCU's Doctor Doom, but even if true, it doesn't address the initial criticism.
+---------
+
+# Jon Bernthal's $1B Action Hit Dethrones the Best 'Lord of the Rings' Movie
+
+Movies, The Odyssey, The Lord of the Rings: The Return of the King, Box Office Milestones
+
+Tue, 18 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/the-odyssey-beats-the-lord-of-the-rings-return-of-the-king/
+
+Jon Bernthal marked another milestone in his career this week.
+---------
+
+# The Greatest Sci-Fi Thriller of All Time Is Streaming Free on YouTube
+
+Features, The Thing
+
+Tue, 18 Aug 2026 00:00:12 GMT
+
+https://movieweb.com/the-thing-free-streaming-youtube/
+
+A beloved sci-fi thriller movie is streaming for free on YouTube, and it was made by a celebrated and talented director.
+---------
+
+# 'Evil Dead' Icon Bruce Campbell Confirms Definitive Status of Ash Williams' Future
+
+Movie News, Evil Dead, Bruce Campbell
+
+Mon, 17 Aug 2026 23:54:41 GMT
+
+https://movieweb.com/bruce-campbell-evil-dead-retiring-ash-williams/
+
+Bruce Campbell is done with the character of Ash Williams, suggesting any future portrayals of the character will need to be played by somoene else.
+---------
+
+# Long-Awaited 'Red Dead Redemption' Movie Finds Perfect Lead in 'Lost' Star
+
+Exclusives, Red Dead Redemption, Josh Holloway
+
+Mon, 17 Aug 2026 23:49:41 GMT
+
+https://movieweb.com/red-dead-redemption-josh-holloway-movie/
+
+The 'Lost' cast includes a perfect potential leading man in Josh Holloway for a 'Red Dead Redemption' movie, if it were to be made.
+---------
+
 # Netflix’s Upcoming Fantasy Anime Adaptation Will Show Avatar: The Last Airbender How It’s Done
 
 Streaming TV, Masked Recs
