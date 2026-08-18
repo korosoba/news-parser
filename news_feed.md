@@ -1,3 +1,135 @@
+# Christopher Nolan Meets Zack Snyder In HBO's 8-Part Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Tue, 18 Aug 2026 20:31:14 GMT
+
+https://screenrant.com/lanterns-dc-christopher-nolan-meets-zack-snyder-realism/
+
+Christopher Nolan and Zack Snyder have very distinct approaches to the superhero genre, and HBO Max's newest series combines them both perfectly.
+---------
+
+# The End Of Oak Street Continues A Disappointing Movie Trend That's Hurt Star Wars & More
+
+Movies, The End of Oak Street, The Mandalorian and Grogu, Disclosure Day, Masters of the Universe
+
+Tue, 18 Aug 2026 20:31:14 GMT
+
+https://screenrant.com/the-end-of-oak-street-movie-box-office-1980s-nostalgia/
+
+The early performance of several movies with nostalgic roots or aesthetics could indicate waning interest in those classic settings.
+---------
+
+# Mike Flanagan’s Carrie Series Is Officially Releasing Early (But There's A Catch)
+
+TV, Carrie
+
+Tue, 18 Aug 2026 20:15:09 GMT
+
+https://screenrant.com/mike-flanagan-carrie-show-fantastic-fest-early-premiere/
+
+Ahead of the October 7 premiere on Prime Video, Mike Flanagan's adaptation of the classic Stephen King novel Carrie is getting an early release.
+---------
+
+# Guy Ritchie's MobLand Season 3 Chances Clarified by Paramount After Tom Hardy Firing Drama
+
+TV, MobLand
+
+Tue, 18 Aug 2026 20:35:17 GMT
+
+https://www.cbr.com/guy-ritchie-mobland-season-3-renewal-status/
+
+The series will return soon for Season 2.
+---------
+
+# Black Clover Finale Officially Misses No. 1 Spot in New Top 10 Ranking
+
+Anime, Black Clover, Sakamoto Days
+
+Tue, 18 Aug 2026 20:35:11 GMT
+
+https://www.cbr.com/black-clover-vs-sakamoto-days-oricon-sales-ranking/
+
+The finale of Black Clover just barely missed out on taking the number one spot on the latest manga sales rankings by a surprisingly thin margin.
+---------
+
+# 5 Greatest Hayden Panettiere Movies, Ranked
+
+Movies, Scream 4
+
+Tue, 18 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/best-hayden-panettiere-movies-ranked-list/
+
+With Hayden Panettiere's unfortunate passing, audiences are looking back at her career and remembering her many great performances.
+---------
+
+# Disney Officially Brings Back Fan-Favorite Aladdin Genie Actor for New Spinoff Movie
+
+Movies, Descendants, Aladdin, Disney
+
+Tue, 18 Aug 2026 20:24:22 GMT
+
+https://www.cbr.com/hidden-heroes-descendants-movie-cast-genie-james-monroe-iglehart/
+
+A beloved Genie actor is back for a new movie.
+---------
+
+# 10 Anime Fights the Hero Was Never Going to Win
+
+Anime, One Piece, Pokemon, Jujutsu Kaisen, Dragon Ball
+
+Tue, 18 Aug 2026 20:15:11 GMT
+
+https://www.cbr.com/anime-fights-the-hero-could-not-win/
+
+Some anime heroes were doomed from the moment they stepped into battle, and in these ten clashes, they truly never stood a chance.
+---------
+
+# 'The Simpsons' Is Officially Bringing Back Its Best Release in a New Way
+
+TV News, The Simpsons, Matt Groening, Video Game, D23
+
+Tue, 18 Aug 2026 20:30:11 GMT
+
+https://collider.com/simpsons-hit-and-run-return-matt-groening-tease/
+
+The Simpsons creator Matt Groening teases that cult-classic video game Hit & Run could return in some form 23 years after its debut.
+---------
+
+# Marvel’s New ‘Secret Wars’ Release Will Officially Destroy 5 Iconic Universes
+
+Books and Comics News, Marvel Comics, X-Men, Marvel's The Avengers, The Fantastic Four: First Steps
+
+Tue, 18 Aug 2026 20:19:26 GMT
+
+https://collider.com/marvel-incursions-secret-wars-x-men-house-of-m-days-of-future-past/
+
+Marvel is launching five new Incursions one-shots featuring X-Men, Spider-Man, Fantastic Four and Avengers stories set during the road to Secret Wars.
+---------
+
+# Team Behind Jason Statham's Biggest Movie Remaking 98% RT-Rated Revenge Thriller
+
+Movie News, Thelma
+
+Tue, 18 Aug 2026 20:42:14 GMT
+
+https://movieweb.com/thelma-movie-thriller-mandarin-remake/
+
+A Mandarin remake of the June Squibb-starring 'Thelma' will head into production next year.
+---------
+
+# Jensen Ackles' Imminent 'Tracker' Return Officially Confirmed
+
+TV News, Tracker
+
+Tue, 18 Aug 2026 20:39:43 GMT
+
+https://movieweb.com/jensen-ackles-tracker-season-4-return-confirmed/
+
+Justin Hartley has officially confirmed Jensen Ackles will return for 'Tracker' Season 4.
+---------
+
 # Major Streamer Raises Prices On All Plans After Making A Profit For The First Time Ever
 
 TV, Peacock
