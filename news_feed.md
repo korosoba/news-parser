@@ -1,3 +1,179 @@
+# Hulu's New R-Rated Sci-Fi Movie Revives Dormant Franchise On Streaming
+
+Movies, Masked Recs
+
+Tue, 18 Aug 2026 19:32:10 GMT
+
+https://screenrant.com/the-x-files-i-want-to-believe-directors-cut-hulu-streaming-success-august-2026/
+
+Hulu has a wide array of sci-fi content on the Disney-owned streaming service. One of them is surging up the charts thanks to a new release.
+---------
+
+# It: Welcome To Derry Season 2 Is Already A Lot Darker Than Season 1
+
+Streaming TV, It: Welcome to Derry
+
+Tue, 18 Aug 2026 19:30:15 GMT
+
+https://screenrant.com/it-welcome-to-derry-season-2-darker-kitchener-ironworks-explosion/
+
+It: Welcome to Derry is officially coming back with a new season, and the show's narrative structure will make season 2 a lot darker.
+---------
+
+# Spider-Man: Brand New Day Officially Beats Star Wars To Rare Box Office Milestone
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man, Tom Holland
+
+Tue, 18 Aug 2026 19:28:21 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-800-million-domestic-milestone-record/
+
+Tom Holland's Spider-Man: Brand New Day continues to cross more box office milestones, including beating a crucial record against Star Wars.
+---------
+
+# Netflix's Biggest Series Of 2026 Dethrones All-Time Classic Series On Most-Watched List
+
+TV, Masked Recs
+
+Tue, 18 Aug 2026 19:22:53 GMT
+
+https://screenrant.com/netflix-i-will-find-you-most-popular-list-ranking-update-august-2026/
+
+Netflix's biggest TV show of 2026, a crime thriller, continues to climb on the streaming service's all-time charts, leaving a masterpiece behind.
+---------
+
+# After 32 Years, Lord Zedd Has Finally Defeated The Power Rangers
+
+Streaming TV, Power Rangers
+
+Tue, 18 Aug 2026 19:14:23 GMT
+
+https://screenrant.com/mighty-morphin-lord-zedd-defeated-power-rangers-future/
+
+Lord Zedd was beaten back by the Power Rangers time and time again despite winning several battles, but now he's finally claimed victory in the war.
+---------
+
+# Netflix's R-Rated Thriller Series With 4.48 Billion Hours Watched Remains Its Best
+
+TV, Masked Recs
+
+Tue, 18 Aug 2026 19:07:36 GMT
+
+https://screenrant.com/squid-game-netflix-thriller-series-best/
+
+The Netflix R-rated thriller series that racked up over 4.48 billion hours watched across the world is easily its best genre release to date.
+---------
+
+# Sebastian Stan Finally Confirms His The Batman Part II Role After Months of Rumors
+
+Movies, The Batman Part II, Batman
+
+Tue, 18 Aug 2026 19:27:53 GMT
+
+https://www.cbr.com/the-batman-part-2-sebastian-stan-harvey-dent/
+
+After conflicting reports, Sebastian Stan has seemingly confirmed which Batman villain he's playing in Matt Reeves' upcoming DC sequel.
+---------
+
+# GTA 6 Gameplay Leaks Before Netflix Reveal
+
+Games, Grand Theft Auto
+
+Tue, 18 Aug 2026 19:24:11 GMT
+
+https://www.cbr.com/gta-6-gameplay-leak-netflix-reveal/
+
+Rockstar's Grand Theft Auto 6 is rolling out the red carpet for a special gameplay reveal on Netflix, but new footage has surfaced before the big day.
+---------
+
+# Studio Ghibli Finally Addresses My Neighbor Totoro 2
+
+Anime, Studio Ghibli, My Neighbor Totoro
+
+Tue, 18 Aug 2026 19:20:15 GMT
+
+https://www.cbr.com/studio-ghibli-my-neighbor-totoro-sequel-respond/
+
+Studio Ghibli's executives finally clear the air about whether or not a My Neighbor Totoro sequel film will ever be made.
+---------
+
+# 6 Brilliant Thriller Miniseries No One Is Talking About, Ranked
+
+TV, TV Miniseries, Tinker Tailor Soldier Spy, The English, Mildred Pierce
+
+Tue, 18 Aug 2026 19:44:11 GMT
+
+https://collider.com/best-underrated-thriller-miniseries-ranked/
+
+From Station Eleven to The English, these overlooked miniseries prove the thriller genre still has plenty of surprises left.
+---------
+
+# 'Little Shop of Horrors’ Is Officially Getting a New Release
+
+Movie News, Little Shop of Horrors, Rick Moranis, Alan Menken, Steve Martin
+
+Tue, 18 Aug 2026 19:33:34 GMT
+
+https://collider.com/little-shop-of-horrors-4k-release-date-october-2026/
+
+Little Shop of Horrors will make its 4K Ultra HD debut in 2 months, featuring the theatrical and director’s cuts plus new 40th-anniversary extras.
+---------
+
+# Walton Goggins' New Fantasy Movie Officially Arrives in Less Than 3 Months
+
+Movie News, Fallout, Disney, Hexed, Disney+
+
+Tue, 18 Aug 2026 19:30:11 GMT
+
+https://collider.com/walton-goggins-fantasy-movie-hexed-release-date-100-days-november-2026/
+
+Walton Goggins and Jodie Foster join Hailee Steinfeld in Disney’s animated fantasy Hexed, which arrives in theaters in 100 days.
+---------
+
+# Taylor Sheridan’s ‘The Sopranos’ Replacement Officially Gets “Incredible” Season 4 Update
+
+TV News, Tulsa King, Taylor Sheridan, The Sopranos, Paramount Plus
+
+Tue, 18 Aug 2026 19:25:45 GMT
+
+https://collider.com/tulsa-king-season-4-paramount-plus-sylvester-stallone-update/
+
+Paramount+ teases an incredible Tulsa King Season 4, with Sylvester Stallone in great form and a premiere date announcement coming soon.
+---------
+
+# 58 Years Later, the Greatest Sci-Fi Quote of All Time Hits Even Harder
+
+Movie Features, 2001: A Space Odyssey, Movie, Sci-Fi, Science Fiction
+
+Tue, 18 Aug 2026 19:23:11 GMT
+
+https://collider.com/2001-a-space-odyssey-best-sci-fi-quote/
+
+2001: A Space Odyssey has always felt like a timely sci-fi movie, but what it has to say about AI 58 years later helps it feel especially relevant.
+---------
+
+# Bishop's Exit From 'The Rookie' Is More Complicated Than You Think
+
+TV Features, The Rookie, ABC, Procedural, Action
+
+Tue, 18 Aug 2026 19:22:11 GMT
+
+https://collider.com/the-rookie-talia-bishop-exit-meaning-reason/
+
+Afton Williamson's departure from The Rookie, playing Talia Bishop, was abrupt, but the reason for her exit is more serious than you think.
+---------
+
+# Nickelodeon 'Hey Arnold!' Revival is Officially in Development
+
+TV News, Hey Arnold!, Paramount Plus, Animation
+
+Tue, 18 Aug 2026 19:18:14 GMT
+
+https://movieweb.com/hey-arnold-revival-nickelodeon-paramount/
+
+The hit Nickelodeon series 'Hey Arnold!' may return for a new season on Paramount+.
+---------
+
 # GTA 6 Gameplay Leaks Ahead Of Official Netflix Stream
 
 Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games, PC
