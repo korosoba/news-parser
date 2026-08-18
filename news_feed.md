@@ -1,3 +1,124 @@
+# Colony Clip Offers A Peek Into Train To Busan Director's Zombie Genre Return
+
+Exclusive, Colony
+
+Tue, 18 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/video/colony-movie-train-to-busan-director-clip/
+
+ScreenRant presents an exclusive clip from Colony, which marks Train to Busan filmmaker Yeon Sang-ho's epic return to the zombie genre.
+---------
+
+# Ultimate Oz Universe Reveals Volume 3 Cover (Exclusive)
+
+Comics, The Wizard of Oz
+
+Tue, 18 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/ultimate-oz-universe-game-of-nomes-volume-3-cover-reveal/
+
+The Ultimate Oz Universe by AWA is set to release Volume 3 of The Wizard of Oz spinoff comic, and here is an exclusive preview of the cover.
+---------
+
+# Frozen 3's Villain Reveal Fixes A Disney Sequel Problem (& May Debunk A Major Theory)
+
+Movies
+
+Tue, 18 Aug 2026 14:00:11 GMT
+
+https://screenrant.com/frozen-3-movie-footage-villain-reveal-sequel-fix/
+
+Frozen 3 bringing back a definitive villain re-establishes a winning Disney formula that the billion-dollar sequel ignored.
+---------
+
+# Tom Holland's Spider-Man: Brand New Day Salary Reportedly Revealed After $2B Box Office
+
+Movies, Tom Holland, Spider-Man: Brand New Day
+
+Tue, 18 Aug 2026 13:34:08 GMT
+
+https://screenrant.com/tom-holland-spider-man-brand-new-day-salary-report/
+
+Tom Holland is living it up in 2026, as the actor's salary is revealed following Spider-Man: Brand New Day's record-breaking box office run.
+---------
+
+# 5 Best Fantasy Villain Redemption Arcs In Books
+
+Books, Fantasy
+
+Tue, 18 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/best-fantasy-villain-redemption-arcs-books/
+
+Even the most sadistic assassins, brutal tyrants, and malicious sorcerers can find redemption when their arcs are handled by authors this competent.
+---------
+
+# Marvel's Official List Of MCU Titles To See Before Doomsday Confirms 7 Harsh Realities
+
+Superheroes, Marvel Cinematic Universe, Avengers: Doomsday
+
+Tue, 18 Aug 2026 13:30:11 GMT
+
+https://screenrant.com/marvel-mcu-movies-shows-see-before-avengers-doomsday-harsh-realities/
+
+Marvel has confirmed several harsh realities about the MCU by unveiling the 15 titles that are most important to see before Avengers: Doomsday.
+---------
+
+# HBO’s 3-Season Fantasy Adventure Is the Most-Watched Show in the World 1 Week After Finale
+
+TV, House of the Dragon, Game Of Thrones, hbo, HBO Max, George R.R. Martin
+
+Tue, 18 Aug 2026 14:00:30 GMT
+
+https://www.cbr.com/house-of-the-dragon-fantasy-hbo-max-success-august-2026/
+
+One of HBO's biggest shows ever has absolutely dominated the streaming charts.
+---------
+
+# 6 Greatest '70s Cartoons of All Time
+
+TV, Scooby-Doo, Star Trek, Animation
+
+Tue, 18 Aug 2026 14:00:15 GMT
+
+https://www.cbr.com/greatest-70s-cartoons-all-time-list/
+
+The 1970s gave animation fans some of the greatest cartoon series of all time, from sci-fi sequels to long-running mystery franchises.
+---------
+
+# Apple TV's 10/10 Spy Series Masterpiece Brings Back OG Character in Official Trailer
+
+TV, Slow Horses
+
+Tue, 18 Aug 2026 13:40:10 GMT
+
+https://www.cbr.com/apple-tv-slow-horses-season-6-trailer/
+
+The show has had no bad seasons so far, and it's building up to yet another entry.
+---------
+
+# ‘Breaking Bad’ Officially Brings Back Walter White For New 2026 Release
+
+Collectibles, Breaking Bad, Bryan Cranston, Vince Gilligan, Aaron Paul
+
+Tue, 18 Aug 2026 14:00:15 GMT
+
+https://collider.com/breaking-bad-walter-white-funko-pop-figure-image/
+
+Breaking Bad is officially bringing back Walter White this year for a franchise expansion in a brand-new direction.
+---------
+
+# 5 Great Harlan Coben Shows You Can Binge-Watch in One Sitting
+
+TV Lists, Harlan Coben, I Will Find You
+
+Tue, 18 Aug 2026 14:00:12 GMT
+
+https://movieweb.com/harlan-coben-binge-worthy-tv-shows/
+
+Harlan Coben's popular novels have been adapted into thriller series for Netflix and Amazon Prime Video, and these are the best ones to binge.
+---------
+
 # 10 Cult-Classic Movies That Are Getting Exciting New Releases In 2026
 
 Movies, Cult, 4K, Streaming Release
