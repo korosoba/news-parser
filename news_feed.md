@@ -1,3 +1,223 @@
+# 14 Years Later, Mass Effect 3 Has The Most Heartbreaking Quote In RPG History
+
+Gaming, Mass Effect, Triple-A Games
+
+Tue, 18 Aug 2026 02:00:21 GMT
+
+https://screenrant.com/mass-effect-3-greatest-quote/
+
+Mass Effect 3 is already devastating as a goodbye to so many beloved characters, but one iconic death is made even more poignant with a quote.
+---------
+
+# Tolkien Meets George R.R. Martin In Prime Video's 4-Part High Fantasy Series
+
+Streaming TV, Masked Recs
+
+Tue, 18 Aug 2026 01:30:11 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-tolkien-meets-grrm-high-fantasy/
+
+The works of J.R.R. Tolkien and George R.R. Martin have massively impacted the fantasy genre, ultimately turning out Prime Video's 4-part hit.
+---------
+
+# Star Trek Producer Defines When TNG Became Great, Challenges New Shows To Create More High-Concept Episodes
+
+TV, Star Trek, Star Trek: The Next Generation
+
+Tue, 18 Aug 2026 01:03:39 GMT
+
+https://screenrant.com/star-trek-brannon-braga-tng-great-more-high-concept-episodes/
+
+Discussing when, exactly, Star Trek: The Next Generation turned the page to become great, Brannon Braga reveals his hopes for Star Trek's future.
+---------
+
+# Benedict Cumberbatch's Sherlock Meets RDJ's Sherlock In Guy Ritchie's 8-Part Series
+
+Streaming TV, Masked Recs
+
+Tue, 18 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/young-sherlock-benedict-cumberbatch-meets-robert-downey-jr/
+
+Two of the most iconic modern versions of literature's most famous detective collide in a masterful 2026 Prime Video historical drama.
+---------
+
+# The Legend Of Zelda Fans Just Got The Ultimate 40th Anniversary Gift
+
+Gaming, The Legend of Zelda
+
+Tue, 18 Aug 2026 01:00:11 GMT
+
+https://screenrant.com/legend-of-zelda-40th-anniversary-multiplayer-hack/
+
+The Legend of Zelda celebrated its 40th anniversary this year, and now there's a new release that's perfect for fans wanting to celebrate as well.
+---------
+
+# The Walking Dead: Dead City Star Teases Maggie and Luis’ Challenging Future
+
+CBR Exclusives, The Walking Dead: Dead City, The Walking Dead
+
+Tue, 18 Aug 2026 02:07:47 GMT
+
+https://www.cbr.com/walking-dead-dead-city-maggie-luis-future-raul-castillo/
+
+Raúl Castillo teases Maggie and Luis’ complicated future in The Walking Dead: Dead City Season 3 as their bond grows stronger.
+---------
+
+# Ridley Scott Can Finally Resolve Alien: Covenant's Biggest Cliffhanger
+
+Movies, The Dog Stars, ridley scott, Alien
+
+Tue, 18 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/ridley-scott-fix-alien-covenant-cliffhanger/
+
+Ridley Scott is about to return to the world of sci-fi with The Dog Stars, which could open the door for another sci-fi franchise to be completed.
+---------
+
+# 10 Short Anime Series That Are 10/10 Masterpieces
+
+Anime, Paranoia Agent, The Tatami Galaxy, Yuri on Ice, Puella Magi Madoka Magica
+
+Tue, 18 Aug 2026 02:00:24 GMT
+
+https://www.cbr.com/masterpiece-short-anime-series-1010/
+
+The finest short anime never give the impression that they needed another season to fulfill their ambitions.
+---------
+
+# Elden Ring's Best Line Is Still the Greatest Quote in RPG History
+
+Games, Video Games, Elden Ring, open world
+
+Tue, 18 Aug 2026 01:45:14 GMT
+
+https://www.cbr.com/elden-ring-line-greatest-quote-in-rpg-history/
+
+One quote from an optional Elden Ring boss is significant for both story and player, but a lot of fans completely miss the game's greatest line.
+---------
+
+# 10 Best-Written Shonen Villains Who Set the Absolute Gold Standard
+
+Anime, Shonen, Jujutsu Kaisen, JoJo's Bizarre Adventure, Naruto: Shippuden, shonen anime
+
+Tue, 18 Aug 2026 01:25:15 GMT
+
+https://www.cbr.com/best-writte-anime-shonen-villains/
+
+These shonen villains are strikingly complex, but their tragic backstories and remarkable powers can never excuse their evil actions.
+---------
+
+# Star Wars Reveals the Coolest New Lightsaber in 27 Years & Confirms It's Better Than Maul's
+
+TV, Star Wars, Ahsoka
+
+Tue, 18 Aug 2026 01:00:15 GMT
+
+https://www.cbr.com/star-wars-ahsoka-lightsaber-fixes-darth-maul-problem/
+
+Star Wars' newest villain has a unique weapon that fixes the biggest flaw of Darth Maul's iconic double-bladed lightsaber staff.
+---------
+
+# Paramount+ Exec Confirms Star Trek's Future After Starfleet Academy & Strange New Worlds
+
+TV, Star Trek
+
+Tue, 18 Aug 2026 00:59:25 GMT
+
+https://www.cbr.com/paramount-plus-exec-confirms-star-trek-future-after-starfleet-academy/
+
+The future of Star Trek on Paramount+ is officially confirmed.
+---------
+
+# After 2 Seasons, Taylor Sheridan’s ‘Lioness’ Is Officially Shaking Up Its Formula
+
+TV Features, Lioness, Taylor Sheridan, Zoe Saldana, Nicole Kidman
+
+Tue, 18 Aug 2026 01:47:14 GMT
+
+https://collider.com/lioness-dual-timeline-season-3-plot-paramount/
+
+Lioness Season 3's dual-timeline structure is more than a stylistic shake-up; it raises the personal stakes for Joe, making the show feel more urgent.
+---------
+
+# So, How Powerful Is Jean Grey Actually?
+
+Books and Comics, Marvel Comics, Sadie Sink, X-Men, Superhero
+
+Tue, 18 Aug 2026 01:38:14 GMT
+
+https://collider.com/marvel-comics-jean-grey-how-powerful/
+
+Jean Grey has made her debut in the MCU, making it the perfect time to dig deeper into her Omega-level abilities and connection to the Phoenix Force.
+---------
+
+# 3 Greatest Series to Binge on Prime Video This Week (August 17-21)
+
+TV, Prime Video, The Lake, The Kettering Incident, The Power
+
+Tue, 18 Aug 2026 01:11:14 GMT
+
+https://collider.com/prime-video-shows-binge-august-17-2026/
+
+The Lake, The Kettering Incident, and The Power make up our list of the best Prime Video shows to binge the week of August 17th, 2026.
+---------
+
+# Brendan Fraser's 10/10 WWII Thriller Is Climbing Peacock's Streaming Charts
+
+Movie Features, Pressure, Brendan Fraser, Andrew Scott, Chris Messina
+
+Tue, 18 Aug 2026 01:11:14 GMT
+
+https://collider.com/brendan-fraser-pressure-ww2-streaming-peacock-august-2026/
+
+The 2026 World War 2 drama Pressure, which follows Brendan Fraser as Dwight D. Eisenhower while he plans D-Day, is now streaming on Peacock.
+---------
+
+# Marvel Just Confirmed Its Most Highly-Rated Disney+ Series Is Essential Viewing Ahead of ‘Avengers: Doomsday’
+
+TV Features, WandaVision, VisionQuest, Avengers: Doomsday, Marvel Studios
+
+Tue, 18 Aug 2026 00:52:14 GMT
+
+https://collider.com/marvel-just-confirmed-its-most-highly-rated-disney-series-is-essential-viewing-ahead-of-avengers-doomsday/
+
+Clues are piling up that the MCU's Wanda Maximoff will appear in Avengers: Doomsday after all, making WandaVision and VisionQuest essential viewing.
+---------
+
+# 'MobLand' Meets 'Yellowstone' in New Series Fighting Its Way to Streaming #1
+
+TV News, Fightland, Hot on Streaming
+
+Tue, 18 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/fightland-starz-stream-august-2026/
+
+Starz's gritty crime thriller could easily pass as a 'MobLand' spinoff.
+---------
+
+# The 12 Greatest Gothic Horror Movie Masterpieces of the 21st Century, Ranked
+
+Movie Lists, Horror
+
+Tue, 18 Aug 2026 02:00:22 GMT
+
+https://movieweb.com/horror-gothic-movie-masterpieces-21-century/
+
+Gothic horror continues to evolve, and these 12 films prove that some of the best have come out in the 21st century.
+---------
+
+# Sylvester Stallone's Rambo Replacement Confirms Action Icon's Involvement in Prequel
+
+Movie News, John Rambo, Rambo, Noah Centineo, Sylvester Stallone
+
+Tue, 18 Aug 2026 01:10:59 GMT
+
+https://movieweb.com/rambo-prequel-sylvester-stallone-noah-centineo-involvement/
+
+The actor taking over the role of Rambo from Sylvester Stallone explained how involved the iconic star will be in making the new prequel movie.
+---------
+
 # 28 Years Later, Dumbledore's Greatest Harry Potter Line Can Finally Have Meaning Again
 
 Streaming TV, Harry Potter
