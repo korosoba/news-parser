@@ -1,3 +1,47 @@
+# Star Wars’ Perfect Luke Skywalker Replacement Is Getting His Own Trilogy
+
+Gaming, Star Wars, Star Wars Jedi: Fallen Order, Luke Skywalker, PC
+
+Tue, 18 Aug 2026 10:04:52 GMT
+
+https://screenrant.com/star-wars-luke-skywalker-replacement-new-trilogy/
+
+Now that Luke Skywalker's story has wrapped up, it is time for his perfect replacement to finally get his own trilogy.
+---------
+
+# Jujutsu Kaisen Will Officially Return In 2026 With A "New Genre"
+
+Gaming, Jujutsu Kaisen
+
+Tue, 18 Aug 2026 10:00:11 GMT
+
+https://screenrant.com/jujutsus-kaisen-2026-return-new-genre/
+
+Explore Jujutsu Kaisen Rumble: Survivaton, a new gaming genre debuting this year!
+---------
+
+# 'Reacher' Season 4's Best New Character Isn't Even in Lee Child's Books
+
+TV Features, Reacher, Alan Ritchson, Kevin Weisman, Prime Video
+
+Tue, 18 Aug 2026 10:08:14 GMT
+
+https://collider.com/reacher-season-4-best-new-character-russell-plum-kevin-weisman/
+
+Reacher Season 4's best new character is a completely original creation for Prime Video's best action series.
+---------
+
+# ‘Abbott Elementary’s Janine and Gregory Are Officially Ready for Marriage [Exclusive]
+
+Exclusives, Abbott Elementary, Tyler James Williams, Quinta Brunson, ABC
+
+Tue, 18 Aug 2026 10:00:14 GMT
+
+https://collider.com/abbott-elementary-season-6-gregory-janine-break-up-future-tyler-james-williams/
+
+Tyler James Williams shares why Gregory and Janine's break-up in Abbott Elementary Season 5 needed to happen and how it paves their future.
+---------
+
 # It's Official: Project Hail Mary Returns In 2026 With A Brand-New Story
 
 Gaming, Virtual Reality, meta, Project Hail Mary
