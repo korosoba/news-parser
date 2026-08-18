@@ -1,3 +1,14 @@
+# Game Of Thrones: Oathkeeper Officially Announced
+
+Gaming, Game of Thrones, Game Of Thrones, brienne of tarth, PC
+
+Tue, 18 Aug 2026 06:00:12 GMT
+
+https://screenrant.com/game-of-thrones-winter-is-coming-oathkeeper/
+
+Game of Thrones brings back one of its most iconic weapons, Oathkeeper, in a brand-new release that's available now.
+---------
+
 # Lovecraft Meets Murakami In HBO’s 8-Part Crime Thriller Masterpiece
 
 Streaming TV, Masked Recs
