@@ -1,3 +1,102 @@
+# Street Fighter's 2026 Reboot Gets Glowing Early Review From Ken Actor With Tease Of “100s Of Easter Eggs”
+
+Movies, Street Fighter, Noah Centineo
+
+Tue, 18 Aug 2026 17:33:33 GMT
+
+https://screenrant.com/street-fighter-2026-movie-reboot-early-review-glowing-noah-centineo/
+
+Ken actor Noah Centineo offers a glowing early review of Street Fighter's 2026 reboot as he recalls a particularly enthusiastic viewer's response.
+---------
+
+# WWXD Episode 2 With Hadestown
+
+Interviews, Hadestown: The Musical
+
+Tue, 18 Aug 2026 17:32:19 GMT
+
+https://screenrant.com/video/hadestown-movie-wwxd-episode-2-reeve-carney-eva-noblezada/
+
+Hadestown's Reeve Carney & Eva Noblezada have played legendary Broadway roles, but how would their characters fare when thrown into another Musical?
+---------
+
+# The Real Reason Carol Never Asks The Plurbs To Shorten Their Phone Message In Pluribus
+
+Streaming TV, Pluribus
+
+Tue, 18 Aug 2026 17:30:11 GMT
+
+https://screenrant.com/pluribus-carol-not-ask-plurbs-to-shorten-phone-message-reason/
+
+After the plurbs have left Albuquerque in Pluribus season 1, Carol keeps listening to their tedious phone message over and over — but why?
+---------
+
+# Netflix's 16-Part 'Unfilmable' Classic With 87% RT Unveils Final Trailer After 2-Year Wait
+
+TV, One Hundred Years of Solitude
+
+Tue, 18 Aug 2026 17:45:39 GMT
+
+https://www.cbr.com/netflix-one-hundred-years-of-solitude-part-two-final-trailer/
+
+One of the most "unfilmable" adaptations of all time is about to return to Netflix with Season 2, and the first trailer is finally here.
+---------
+
+# Dune: Part Three Tickets Officially Go on Sale, New Look at Space Opera Finale Unveiled
+
+Movies, Dune: Part Three, Sci-Fi
+
+Tue, 18 Aug 2026 17:45:29 GMT
+
+https://www.cbr.com/dune-part-3-tickets-on-sale-teaser/
+
+Dune reaches its epic conclusion, and tickets are on sale.
+---------
+
+# Game of Thrones: Oathkeeper Officially Available Now
+
+Games, Game Of Thrones
+
+Tue, 18 Aug 2026 17:45:15 GMT
+
+https://www.cbr.com/game-of-thrones-oathkeeper-officially-available-now/
+
+Brienne of Tarth and her signature sword have officially returned in a new Game of Thrones release.
+---------
+
+# The 'Greatest Superhero Movie of All Time' Is Officially One of Streaming's Biggest Hits
+
+Movies, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day, Spider-Man: Into The Spider-Verse, Spider-Man: Into The Spider-Verse 4K ULTRA HD 4K UHD, Spider-Man: Across the Spider-Verse, Spider-Man: Beyond the Spider-Verse
+
+Tue, 18 Aug 2026 17:33:06 GMT
+
+https://www.cbr.com/spider-verse-streaming-hit-amid-spider-man-brand-new-day-success/
+
+Just ahead of its sequel, this iconic superhero film is dominating streaming.
+---------
+
+# 6 Best Netflix Shows Released Since 2015
+
+TV, Midnight Mass, Heartstopper, Netflix, Dark
+
+Tue, 18 Aug 2026 17:31:15 GMT
+
+https://collider.com/best-netflix-shows-since-2015-ranked/
+
+Midnight Mass, Dark, and Bridgerton are among the absolute best Netflix shows released since 2015.
+---------
+
+# 'John Wick' Meets 'The Departed' Video Game Adaptation Gets Official Update After 1 Year of Silence
+
+Movie News, Simu Liu, Sleeping Dogs, Action
+
+Tue, 18 Aug 2026 17:31:15 GMT
+
+https://collider.com/sleeping-dogs-movie-update-simu-liu/
+
+The cult hit open-world video game Sleeping Dogs has long been overdue a movie adaptation, but Simu Liu is working on it. Find out more.
+---------
+
 # Florence Pugh's East Of Eden Adaptation Sets Official Netflix Release Date
 
 TV
