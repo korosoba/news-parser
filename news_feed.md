@@ -1,3 +1,168 @@
+# Major Streamer Raises Prices On All Plans After Making A Profit For The First Time Ever
+
+TV, Peacock
+
+Tue, 18 Aug 2026 20:07:16 GMT
+
+https://screenrant.com/peacock-streaming-prices-increase-profit-first-time/
+
+A major streaming service is raising prices on all its subscription plans after making a profit for the first time ever earlier this year.
+---------
+
+# The Twilight Zone Meets Lost In HBO's 4-Part Sci-Fi Series
+
+TV, Masked Recs
+
+Tue, 18 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/westworld-the-twilight-zone-meets-lost-hbo-show/
+
+An ambitious HBO experiment married dense, time bending sci fi and ethical tension to sprawling, mystery box storytelling that kept viewers invested.
+---------
+
+# High Potential Season 3 Photo Reveals Shocking Main Character
+
+TV, High Potential
+
+Tue, 18 Aug 2026 19:57:44 GMT
+
+https://screenrant.com/high-potential-season-3-daniel-sunjata-karadec-blonde-hair-photo/
+
+With filming on the hit ABC series continuing apace, High Potential may have just revealed a shockingly unexpected main character change.
+---------
+
+# The Decade's Most Reliable Action Movie Star Returns This Week With His Version Of Die Hard
+
+New Movies, Mutiny, Jason Statham
+
+Tue, 18 Aug 2026 19:55:15 GMT
+
+https://screenrant.com/jason-statham-action-movie-mutiny-release/
+
+A new action movie headlined by the decade's most reliable action star is releasing in theaters this week, and it has major Die Hard vibes.
+---------
+
+# After 64 Years, Marvel Is Ruining Spider-Man’s Life With One Absolutely Cruel Twist
+
+Marvel Comics, Spider-Man, Marvel
+
+Tue, 18 Aug 2026 19:54:45 GMT
+
+https://screenrant.com/spider-man-issue-1001-birthday-ruin-life/
+
+The Amazing Spider-Man may be preparing Peter Parker fans for a new status quo in its biggest milestone issue ever, and on his birthday, no less.
+---------
+
+# Henry Cavill's New Netflix Spy Thriller Adds Major Harry Potter Star & 2 Others To Cast
+
+Movies, Henry Cavill, Jason Isaacs
+
+Tue, 18 Aug 2026 19:53:22 GMT
+
+https://screenrant.com/henry-cavill-netflix-spy-thriller-movie-jason-isaacs-casting/
+
+Henry Cavill and Kevin Hart have a new spy thriller in the works at Netflix, and three new cast members have signed on to star alongside them.
+---------
+
+# Insidious 6 Makes 1 Key Change To The Further, Reveals Out Of The Further Director
+
+Movies, Insidious: Out of the Further, Insidious, Horror
+
+Tue, 18 Aug 2026 19:52:05 GMT
+
+https://screenrant.com/insidious-6-the-further-change-key-jacob-chase/
+
+Exclusive: Insidious 6 writer/director Jacob Chase reveals the one key change he brought to The Further for his new installment in the series.
+---------
+
+# Bruce Willis' 107-Minute R-Rated Revenge Thriller Is Taking Streaming By Storm
+
+Movies, Masked Recs
+
+Tue, 18 Aug 2026 19:50:33 GMT
+
+https://screenrant.com/bruce-willis-death-wish-remake-mgm-plus-global-streaming-success-august-2026/
+
+Bruce Willis' 107-minute R-rated revenge thriller is taking streaming by storm several years after scoring some intense political backlash.
+---------
+
+# Marvel's Has Finally Set Up Its Greatest Power Couple's MCU Introduction
+
+Movies, MCU, Black Panther 3, X-Men
+
+Tue, 18 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/mcu-mutant-saga-storm-black-panther-most-powerful-couple/
+
+The next MCU saga is already setting up the greatest power couple in the history of Marvel Comics.
+---------
+
+# Lanterns’ Controversial Plot Twist Was Explained by a Clue DC Fans Missed
+
+Comics, Green Lantern, Lanterns, hal jordan
+
+Tue, 18 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/lanterns-hal-jordan-death-the-final-night/
+
+The first episode of HBO Max's Lanterns lands on a major twist that fans weren't expecting, but could it be referencing a comic arc yet to come?
+---------
+
+# Peacock Is Burying HBO With 2026's 5-Star Horror TV Event & It Comes at the Perfect Time
+
+TV, Crystal Lake, Horror, Peacock
+
+Tue, 18 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/peacock-vs-hbo-perfect-time-crystal-lake/
+
+After the success of HBO Max's It: Welcome to Derry, Peacock has an opportunity to give the Spooky Season the greatest horror TV event of 2026.
+---------
+
+# Richard Armitage Officially Trades Harlan Coben For a New 6-Part Crime Series
+
+TV News, Harlan Coben, Richard Armitage, Crime, ITV
+
+Tue, 18 Aug 2026 20:00:11 GMT
+
+https://collider.com/harlan-coben-favorite-richard-armitage-winter-first-look/
+
+Richard Armitage leads ITV’s new 6-part crime series Winter, with a first look revealing his unusual partnership with Annabel Scholey’s detective.
+---------
+
+# This Indie Rom-Com Crew Was Officially in Danger While Filming One Scene
+
+Exclusives, Do Us Part, Screening, Romance, Comedy
+
+Tue, 18 Aug 2026 19:46:48 GMT
+
+https://collider.com/do-us-part-reed-arnold-kelly-russo-travis-laughlin-interview/
+
+Writer-director Reed Arnold and the stars of his debut feature Do Us Part discuss adapting their award-winning stage play into an indie rom-com.
+---------
+
+# Hollywood's First $1-Billion Epic Masterpiece Debuts on New Streaming Home
+
+Movie News, Titanic, Coming/Leaving Streaming
+
+Tue, 18 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/titanic-streaming-apple-tv-august-2026/
+
+They sure don't make them like this anymore.
+---------
+
+# Adam Driver Just Teased a Big Marvel (Or Star Wars) Spoiler We Can't Ignore
+
+Features, Adam Driver, X-Men, Marvel Cinematic Universe, Disney, D23, Star Wars
+
+Tue, 18 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/adam-driver-disney-pinewood-tease-theory/
+
+Was Adam Driver teasing a secret project at D23 other than his villainous casting in the MCU's 'X-Men' reboot?
+---------
+
 # Hulu's New R-Rated Sci-Fi Movie Revives Dormant Franchise On Streaming
 
 Movies, Masked Recs
