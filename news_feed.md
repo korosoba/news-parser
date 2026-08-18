@@ -1,3 +1,223 @@
+# The Best Shark Movie Since Jaws Is Quickly Devouring Netflix's Streaming Charts
+
+Movies, Masked Recs
+
+Tue, 18 Aug 2026 16:18:19 GMT
+
+https://screenrant.com/the-shallows-movie-jaws-replacement-netflix-streaming-success-august-2026/
+
+Netflix is the home of the best shark movie since Jaws, and the thriller has become a streaming hit, fighting to climb higher on the charts.
+---------
+
+# 15 Greatest American Novels Of All Time
+
+Books
+
+Tue, 18 Aug 2026 16:12:49 GMT
+
+https://screenrant.com/greatest-american-novels-all-time/
+
+The GOATs of American literature.
+---------
+
+# aylor Sheridan Confirms Major Yellowstone Spinoff Series Is Officially Dead After 5 Years
+
+TV, Yellowstone, Taylor Sheridan
+
+Tue, 18 Aug 2026 16:12:01 GMT
+
+https://screenrant.com/taylor-sheridan-yellowstone-6666-ranch-spinoff-series-dead-confirm/
+
+After five years of development, Taylor Sheridan officially confirms that one of his major planned Yellowstone spinoffs is no longer moving ahead.
+---------
+
+# New Dune 3 Trailer Reveals Long-Awaited Book Character Design
+
+Movies, Dune: Part Three
+
+Tue, 18 Aug 2026 16:06:37 GMT
+
+https://screenrant.com/dune-3-new-teaser-book-character-guild-navigators/
+
+Dune: Part Three has released a brand-new teaser for its IMAX sale, as a long-awaited book character's design has officially been revealed.
+---------
+
+# BBC's New Sci-Fi Series The Ministry Of Time Casts First 2 Leads
+
+TV, BBC
+
+Tue, 18 Aug 2026 16:02:20 GMT
+
+https://screenrant.com/bbc-the-ministry-of-time-aoife-hinds-billy-howle-leads-casting/
+
+BBC is developing a brand-new TV series based on the novel The Ministry of Time. As production gets underway, the lead roles have been revealed.
+---------
+
+# NYT Connections Solution And Hints For August 18, 2026
+
+Gaming, Connections, Mobile
+
+Tue, 18 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-18-2026/
+
+Today's Connections challenges a player's sense of perception, both in how certain ideas look and how they feel using a variety of senses.
+---------
+
+# Learn How Little Shop Of Horrors Perfected Audrey II (Now In 4K)
+
+Exclusive, Little Shop of Horrors
+
+Tue, 18 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/video/little-shop-of-horrors-4k-release-audrey-ii-clip/
+
+Exclusive: ScreenRant presents a clip about the creation of Audrey II to celebrate Little Shop of Horrors' 40th anniversary and upcoming 4K release.
+---------
+
+# 29 Years Later, Event Horizon's Prequel Has Arrived, and We Have a First Look
+
+Comics, Event Horizon
+
+Tue, 18 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/event-horizon-prequel-pandemonium/
+
+Go back.
+---------
+
+# 54 Years Later, The Greatest Sitcom Of All Time Is More Difficult To Watch Than Ever
+
+Classic TV, M*A*S*H
+
+Tue, 18 Aug 2026 16:00:11 GMT
+
+https://screenrant.com/mash-difficult-to-watch-2026/
+
+Widely-regarded as the greatest sitcom of all time, the CBS series is a must-watch for fans of the genre, although it's more difficult to do it now.
+---------
+
+# Lanterns Interview with Kyle Chandler & Aaron Pierre
+
+Videos, Lanterns, Kyle Chandler, Aaron Pierre
+
+Tue, 18 Aug 2026 15:58:54 GMT
+
+https://screenrant.com/video/lanterns-hal-jordan-john-stewart-kyle-chandler-aaron-pierre-interview/
+
+Lanterns stars Kyle Chandler & Aaron Pierre didn't know what the dynamic between Hal Jordan and John Stewart would be when they started filming, but they found their stride very quickly.
+---------
+
+# Apple TV's Women in Blue Explores a New Murder Mystery in Exclusive Season 2 Sneak Peek
+
+TV, Women in Blue, Apple TV
+
+Tue, 18 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/women-in-blue-las-azules-season-2-episode-2-clip/
+
+Exclusive: Apple TV's crime drama series with a 100% Rotten Tomatoes score has returned and CBR has a sneak peek at the next episode.
+---------
+
+# 10 Best Dragon Ball Gods of Destruction, Ranked by Design
+
+Anime, Dragon Ball Super, Dragon Ball, Akira Toriyama
+
+Tue, 18 Aug 2026 16:15:15 GMT
+
+https://www.cbr.com/best-dragon-ball-gods-of-destruction-ranked-by-design/
+
+Dragon Ball Super's Gods of Destruction present unfathomable strength, but they also make a big impression when it comes to their distinct designs.
+---------
+
+# Final Fast & Furious Movie Finally Sets Filming Date After Multiple Delays
+
+Movies, Fast Forever, Fast and Furious
+
+Tue, 18 Aug 2026 16:03:16 GMT
+
+https://www.cbr.com/fast-forever-production-start-date-vin-diesel/
+
+It's finally time to get the Fast & Furious franchise across the finish line.
+---------
+
+# 49 Years Later, Star Wars' Original Marvel Comics Are Confirmed To Return
+
+Comics, Star Wars
+
+Tue, 18 Aug 2026 16:01:16 GMT
+
+https://www.cbr.com/star-wars-original-marvel-years-omnibus-vol-1/
+
+This is the major comic book release Star Wars fans have been looking for.
+---------
+
+# The Lord of the Rings' Best Line is Still the Greatest Quote in Fantasy Movie History
+
+Movies, The Lord of the Rings, Fantasy
+
+Tue, 18 Aug 2026 16:01:16 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-gandalf-greatest-quote-fantasy-genre/
+
+One of the most iconic lines in Peter Jackson's The Lord of the Rings trilogy still stands out as one of the greatest quotes in movie history.
+---------
+
+# The Walking Dead Is Free to Keep on Steam for 24 Hours, But You'll Need to Act Fast
+
+Games, The Walking Dead The Game, The Walking Dead
+
+Tue, 18 Aug 2026 15:39:15 GMT
+
+https://www.cbr.com/walking-dead-free-steam-key-giveaway/
+
+The Walking Dead remains one of Telltale Games' best narratives, and now is your chance to get the first season for free on Steam—while supplies last.
+---------
+
+# ‘Rocky’ Officially Returns With a Brand-New 50th Anniversary Release [Exclusive]
+
+Movie News, Rocky, Sylvester Stallone, Books
+
+Tue, 18 Aug 2026 16:01:16 GMT
+
+https://collider.com/rocky-50th-anniversary-fine-art-book-first-look/
+
+Get an exclusive first look at The Fine Art of Rocky, a new 50th-anniversary release featuring Sylvester Stallone and stunning artwork.
+---------
+
+# 'Resident Evil,' 'Carrie,' and More Headline a 2026 Fantastic Fest Lineup to Die For
+
+Movie News, Fantastic Fest, Resident Evil, Carrie, Wild Horse Nine
+
+Tue, 18 Aug 2026 16:01:16 GMT
+
+https://collider.com/fantastic-fest-2026-lineup-resident-evil-carrie-wild-horse-nine/
+
+Fantastic Fest has revealed its full lineup for 2026, including a few high-profile horror titles like Resident Evil and Carrie.
+---------
+
+# Taylor Sheridan's 'Landman' Season 3 Status Finally Confirmed by Paramount+
+
+TV News, Landman, Taylor Sheridan
+
+Tue, 18 Aug 2026 16:02:13 GMT
+
+https://movieweb.com/landman-season-3-taylor-sheridan-update/
+
+Paramount+ boss Jane Wiseman confirms Taylor Sheridan is writing 'Landman' Season 3 right now, after repeated delays to the show's production start.
+---------
+
+# Ben Affleck's 10/10 Action Thriller Modern Classic Explodes Onto Streaming
+
+Movie News, The Town, HBO Max, Hot on Streaming, Action
+
+Tue, 18 Aug 2026 16:00:12 GMT
+
+https://movieweb.com/the-town-action-streaming-success-hbo-august-2026/
+
+One of the best crime thrillers of this century was inspired by real events.
+---------
+
 # 6 Standalone Action Movies From The 1980s That Should've Started Franchises
 
 Movies, Action
