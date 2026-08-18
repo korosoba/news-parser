@@ -1,3 +1,146 @@
+# 5 PlayStation 3 Games On PS Plus That Are 10/10 Masterpieces
+
+Gaming, PlayStation, PlayStation Plus
+
+Tue, 18 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/playstation-3-ps-plus-games-10-rated-masterpieces/
+
+Discover 5 iconic PlayStation 3 games you can play now on PS Plus.
+---------
+
+# Ghibli Veterans Unite For New Anime Film Cocoon, And Its First Dub Trailer Looks Gorgeous (Exclusive)
+
+Anime
+
+Tue, 18 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/cocoon-new-anime-film-first-dub-trailer/
+
+Former Studio Ghibli animators team up under studio SASAYURI for a new anime film cocoon, and here is an exclusive preview of the English trailer.
+---------
+
+# The Lord of the Rings' New Movie Cast Is So Good, It Almost Makes Me Overlook Its Biggest Flaw
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
+
+Tue, 18 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/lord-of-the-rings-the-hunt-for-gollum-movie-cast-story-flaw/
+
+The new Lord of the Rings movie has a huge story problem, but it’s cast is so unbelievably good that I’m not sure how much I really care.
+---------
+
+# NBC Sets Up Resolution To 7-Year Law & Order: SVU's Cliffhanger
+
+Network TV, Law & Order: Special Victims Unit
+
+Tue, 18 Aug 2026 12:00:11 GMT
+
+https://screenrant.com/law-and-order-svu-season-28-matthew-nikitow-gil-return/
+
+Law & Order: SVU appears to bring back a frustrating story that has been going on for the show for seven years and remains without any resolution.
+---------
+
+# Star Wars Is Officially Bringing Back A Beloved Prequel-Era Character
+
+Gaming, Star Wars, Star Wars: Clone Wars, Star Wars: The Clone Wars, PC, Star Wars Zero Company
+
+Tue, 18 Aug 2026 11:55:37 GMT
+
+https://screenrant.com/star-wars-clone-wars-rex-return/
+
+One of the most beloved Star Wars characters who was an absolute fan-favorite back in the day is officially making a return to the franchise.
+---------
+
+# The Book of Boba Fett Makes Its Official Return After Divisive Disney+ Show
+
+TV, The Book of Boba Fett, Star Wars
+
+Tue, 18 Aug 2026 12:00:15 GMT
+
+https://www.cbr.com/the-book-of-boba-fett-trade-paperback-release-date/
+
+One of the most divisive Star Wars titles of all time is on track for a comeback, and fans of The Book of Boba Fett won't want to miss it.
+---------
+
+# 10 Classic Crime Movies You Must Watch in 2026
+
+Movie, Crime, Chinatown, Cape Fear, Thelma & Louise
+
+Tue, 18 Aug 2026 12:28:14 GMT
+
+https://collider.com/classic-crime-movies-must-watch-2026/
+
+The crime genre has produced several masterpieces that are truly timeless and worthy of being revisited in 2026, from Chinatown to Dog Day Afternoon.
+---------
+
+# HBO's Harry Potter Officially Confirms the Biggest Change From the Movies
+
+TV News, Harry Potter, Harry Potter and the Sorcerer's Stone, Daniel Radcliffe
+
+Tue, 18 Aug 2026 12:17:45 GMT
+
+https://collider.com/harry-potter-series-change-scar-design/
+
+HBO's Harry Potter series is officially changing a crucial design detail that became one of the movies' most iconic details.
+---------
+
+# The 10 Best '80s Fantasy Movies, Ranked
+
+Movie, Fantasy, 1980s, The Princess Bride, Labyrinth
+
+Tue, 18 Aug 2026 12:14:15 GMT
+
+https://collider.com/best-fantasy-movies-1980s-ranked/
+
+From The Princess Bride to The NeverEnding Story, these are the best fantasy movies to ever come out during the 1980s, a seminal decade for the genre.
+---------
+
+# MCU Spider-Man Star Officially Breaks Silence on Being Excluded From $2 Billion Sequel [Exclusive]
+
+Movie News, Spider-Man: Brand New Day, Angourie Rice, Tom Holland, MCU
+
+Tue, 18 Aug 2026 12:00:15 GMT
+
+https://collider.com/spider-man-brand-new-day-angourie-rice-explains-betty-brant-absence/
+
+MCU Spider-Man star Angourie Rice breaks her silence on Betty Brant not being included in Spider-Man: Brand New Day.
+---------
+
+# 8 Cancelled Shows That Officially Marked the End of an Era
+
+TV, The Late Show with Stephen Colbert, Two and a Half Men, Blue Bloods, The O.C.
+
+Tue, 18 Aug 2026 11:52:15 GMT
+
+https://collider.com/cancelled-shows-end-of-era/
+
+The O.C., Medium, Blue Bloods, Two and a Half Men, and more make up our list of cancelled shows that officially marked the end of an era.
+---------
+
+# Prime Video's Returning Action Thriller Is the Perfect 'Reacher' Follow-up
+
+Features, Prime Video, Reacher, The Terminal List, Thriller, Action
+
+Tue, 18 Aug 2026 12:00:12 GMT
+
+https://movieweb.com/prime-video-action-thriller-reacher-terminal-list/
+
+Prime Video’s greatest returning action thriller has a good shot at being the perfect 'Reacher' follow-up with its second season just on the horizon.
+---------
+
+# Taylor Sheridan Reportedly Has Multiple All-New Streaming Series Coming to Paramount+
+
+TV News, Taylor Sheridan, Paramount Plus
+
+Tue, 18 Aug 2026 11:52:22 GMT
+
+https://movieweb.com/taylor-sheridan-new-shows-paramount-plus/
+
+'Yellowstone' creator Taylor Sheridan is reportedly developing multiple new shows for Paramount+ ahead of his 2029 transition to NBCUniversal.
+---------
+
 # Mass Effect Officially Returns November 2026 With New Release
 
 Gaming, Mass Effect
