@@ -1,3 +1,157 @@
+# Godzilla’s Official Crossover With a 2,700-Year Old Classic is an S-Tier Masterpiece
+
+Comics, Godzilla
+
+Tue, 18 Aug 2026 22:09:14 GMT
+
+https://screenrant.com/godzilla-odyssey-official-crossover/
+
+Godzilla may have just gotten his most epic crossover yet, as the King of Monsters collides with a 2,700-year-old classic in an S-Tier masterpiece.
+---------
+
+# Apple TV's Upcoming Cyberpunk Adaptation Is The Matrix Show That Never Happened
+
+Streaming TV, Masked Recs
+
+Tue, 18 Aug 2026 22:00:15 GMT
+
+https://screenrant.com/apple-tv-neuromancer-cyberpunk-show-matrix-inspiration/
+
+It's still mind-boggling that there's never been a The Matrix TV show, but fortunately, a new Apple TV+ sci-fi will be incredibly close to one.
+---------
+
+# A Beloved 2002 PlayStation 2 Fantasy Game Is Free Now With PS Plus
+
+Gaming, PlayStation 2, PlayStation, RPG, PlayStation Plus
+
+Tue, 18 Aug 2026 22:00:15 GMT
+
+https://screenrant.com/playstation-2000-ps2-classic-free-ps-plus/
+
+This iconic 2002 PS2 fantasy RPG has been made available for free via PlayStation Plus, making now the perfect time to play it.
+---------
+
+# Netflix’s New Spinoff Of Hit Crime Thriller Series Launches Strong With 11.1M Streaming Debut
+
+Movies, Masked Recs
+
+Tue, 18 Aug 2026 21:54:53 GMT
+
+https://screenrant.com/nando-between-two-worlds-sintonia-netflix-streaming-charts-viewership-august-2026/
+
+After a crime thriller came to an end in 2025, Netflix expanded the franchise with a spinoff film that is now a huge hit on the platform.
+---------
+
+# 5-Year-Old Dark Fantasy Masterpiece Movie Is Leaving Netflix In Two Weeks
+
+Movies, Masked Recs
+
+Tue, 18 Aug 2026 21:51:14 GMT
+
+https://screenrant.com/the-green-knight-movie-leaving-netflix-september-2026/
+
+A dark fantasy masterpiece that was released in theaters five years ago will be leaving Netflix in two weeks, making now the perfect time to watch it.
+---------
+
+# In Just 1 Day, HBO Max's New Franchise-Saving Action Series Is the No. 1 Title in the U.S.
+
+TV, Lanterns, HBO Max, DCU
+
+Tue, 18 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/lanterns-superhero-hbo-max-success-august-2026/
+
+The new show is breathing new life into the franchise.
+---------
+
+# All the Spider-Man Comic References in Brand New Day, Ranked
+
+Comics, Spider-Man: Brand New Day
+
+Tue, 18 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/all-spider-man-comic-references-in-brand-new-day-ranked/
+
+Spider-Man: Brand New Day might be one of the MCU's most comic-focused narratives and these classic moments were referenced throughout.
+---------
+
+# The End of Oak Street is the Best Dinosaur Movie Since The Lost World
+
+Movies, The End of Oak Street
+
+Tue, 18 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/the-end-of-oak-street-best-dinosaur-movie/
+
+The End of Oak Street manages to outdo Jurassic Park in one major way, and it's exactly what fans need out of a dinosaur movie.
+---------
+
+# Major Streamer Officially Makes a Profit and Immediately Increases Subscription Costs
+
+TV News, Peacock, Netflix, HBO Max, Apple TV
+
+Tue, 18 Aug 2026 22:02:34 GMT
+
+https://collider.com/peacock-price-increase-august-2026-premium-plus/
+
+Peacock raises subscription prices again, pushing Premium Plus to $19.99 per month following the streamer’s first profitable quarter.
+---------
+
+# Will Smith’s Sci-Fi Hit Is Officially Getting a Second Chance on Apple TV
+
+Movie News, I, Robot, Will Smith, Apple TV, Blade Runner
+
+Tue, 18 Aug 2026 22:00:11 GMT
+
+https://collider.com/will-smith-sci-fi-thriller-i-robot-streaming-apple-tv-august-2026/
+
+Will Smith's genre-bending sci-fi thriller with shades of Blade Runner and Minority Report is officially streaming on Apple TV.
+---------
+
+# 11 Years Later, Matt Damon's All-Star Sci-Fi Thriller Aged Like Fine Wine
+
+Movie Features, Matt Damon, The Martian, Ridley Scott, Sci-Fi
+
+Tue, 18 Aug 2026 21:55:11 GMT
+
+https://collider.com/matt-damon-sci-fi-thriller-the-martian/
+
+In 2015, Ridley Scott directed one of sci-fi and Matt Damon’s best movies to date in The Martian.
+---------
+
+# 4 Star Wars Disney+ Shows That Completely Let Down the Franchise
+
+TV, Star Wars, The Book of Boba Fett, Disney Plus, The Acolyte
+
+Tue, 18 Aug 2026 21:49:11 GMT
+
+https://collider.com/star-wars-disney-plus-shows-disappointing/
+
+Star Wars' legacy as a franchise is set in stone, but Disney+ series like Obi-Wan Kenobi and The Book of Boba Fett were disappointing.
+---------
+
+# 22 Years Later, Hugh Jackman's Gothic Action Thriller Sets New Release
+
+Movie News, Van Helsing, Hugh Jackman, Horror, Blu-ray
+
+Tue, 18 Aug 2026 22:05:30 GMT
+
+https://movieweb.com/hugh-jackman-van-helsing-4k-blu-ray/
+
+Universal Pictures Home Entertainment is preparing a new 4K Blu-ray release of Hugh Jackman's action horror spectacle 'Van Helsing.'
+---------
+
+# Hulu’s Number 1 in the World Crime Thriller Is ‘NCIS’ Meets ‘Mindhunter
+
+Features, Furious, Hulu
+
+Tue, 18 Aug 2026 22:00:13 GMT
+
+https://movieweb.com/furious-hulu-thriller-binge/
+
+Hulu has a new crime thriller TV series with eight episodes that blends the tones of popular shows 'NCIS' and Netflix's 'Mindhunter.'
+---------
+
 # 64 Years Later, Gunsmoke’s Greatest Line Is Still The Best In Any TV Western
 
 TV, Gunsmoke, Western
