@@ -1,3 +1,135 @@
+# Every Teenage Mutant Ninja Turtles Movie & Series (In Chronological Order)
+
+Classic TV, Rise of the Teenage Mutant Ninja Turtles: The Movie, Teenage Mutant Ninja Turtles, Movie/TV Show Timelines
+
+Tue, 18 Aug 2026 21:15:14 GMT
+
+https://screenrant.com/every-movie-tv-adapatation-tmnt-chronological-order/
+
+Keeping track of all the TMNT movies in order can be tricky as the franchise has had over a dozen screen adaptations.
+---------
+
+# Dungeons & Dragons Is Officially Nerfing One of Its Most Powerful Characters Ahead of New Series
+
+Comics, Dungeons & Dragons
+
+Tue, 18 Aug 2026 21:08:14 GMT
+
+https://screenrant.com/new-dungeons-dragons-series-change-mordenkainen-power/
+
+Dungeons & Dragons is launching a bold new series starring legendary wizard Mordenkainen, but he’ll be stripped of his most defining power.
+---------
+
+# Nathan Fillion’s New HBO Sci-Fi Detective Series Becomes #1 On Streaming After Just 1 Day
+
+TV, Masked Recs, Nathan Fillion, HBO Max, Streaming Charts
+
+Tue, 18 Aug 2026 21:00:17 GMT
+
+https://screenrant.com/lanterns-series-hbo-max-streaming-success-august-2026/
+
+One of 2026's most hyped-up new television series featuring Nathan Fillion has already officially become a #1 streaming sensation for HBO and WB.
+---------
+
+# Mike Flanagan’s 7-Part Netflix Vampire Horror Is Getting A Perfect Follow-Up In 7 Weeks
+
+TV, Masked Recs
+
+Tue, 18 Aug 2026 21:00:14 GMT
+
+https://screenrant.com/below-supernatural-show-midnight-mass-follow-up/
+
+A remote fishing town braces for a lurking sea monster as Netflix brings back Mike Flanagan's iconic 2021 supernatural horror 5 years later.
+---------
+
+# Kevin Costner’s 135-Minute Sci-Fi That Set An All-Time Budget Record Gets Official Streaming Update
+
+Movies, Waterworld, Kevin Costner
+
+Tue, 18 Aug 2026 21:00:14 GMT
+
+https://screenrant.com/kevin-costner-waterworld-movie-leaving-netflix-september-2026/
+
+Streaming audiences are quickly running out of time to watch Kevin Costner's ambitious 90s sci-fi movie that fans still discuss today.
+---------
+
+# The Expanse Meets Mass Effect In Huge Free 9/10 99-Hour RPG
+
+Gaming, Mass Effect, The Expanse, RPG, PC
+
+Tue, 18 Aug 2026 21:00:14 GMT
+
+https://screenrant.com/expanse-meets-mass-effect-free-99-hour-rpg/
+
+Fans of both The Expanse and BioWare's legendary series, Mass Effect, this massive free RPG should be on your radar.
+---------
+
+# 10 Most Powerful UniVersus Clash Decks, Ranked
+
+Games, UniVersus, Tabletop, Godzilla, Attack on Titan
+
+Tue, 18 Aug 2026 21:15:11 GMT
+
+https://www.cbr.com/most-powerful-universus-clash-decks-ranked/
+
+For newcomers to the tabletop game, UniVersus TCG, these ten Clash Decks can set up players for immediate success in local play and tournaments.
+---------
+
+# 10 Greatest Neo-Westerns of All Time, Ranked
+
+Movies, Western, No Country for Old Men, Thriller
+
+Tue, 18 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/best-neo-westerns-of-all-time-list/
+
+The neo-Western genre continues to gift audiences with some of the greatest stories in Hollywood, and some stand out as the greatest of all time.
+---------
+
+# PlayStation Players Officially Have 2 Weeks To Claim These Freebies
+
+Gaming News, Gran Turismo, PS5, PlayStation 5, PlayStation Plus
+
+Tue, 18 Aug 2026 21:11:16 GMT
+
+https://collider.com/playstation-free-offer-gran-turismo-7-cars-august-2026/
+
+Gran Turismo 7 players can claim two free exclusive Stealth Model cars by August 31, with the limited-time rewards arriving September 1.
+---------
+
+# ‘Avatar: The Last Airbender’ Spin-Off Officially Returns With Brand-New Release
+
+TV News, Avatar: The Last Airbender, Nickelodeon, Fantasy, Cartoons
+
+Tue, 18 Aug 2026 21:01:11 GMT
+
+https://collider.com/a-forgotten-avatar-the-last-airbender-spin-off-is-finally-back-with-a-new-episode/
+
+Avatar: Chibi Minis revived! Discover key moments in a cute art style with the latest episode featuring Aang's story.
+---------
+
+# Netflix's Returning Political Thriller Spoils End-of-Season Cliffhanger 2 Months Early
+
+Features, The Diplomat, Netflix
+
+Tue, 18 Aug 2026 21:00:13 GMT
+
+https://movieweb.com/the-diplomat-season-trailer-spoiler/
+
+'The Diplomat' Season 3 ended in a really interesting place for the Wylers, and Season 4 clearly couldn't wait much longer. Read on for more.
+---------
+
+# Netflix's New 59-Episode Action Sci-Fi Series Is Crowned One of Biggest Hits on Streaming
+
+TV News, The Last Ship, Netflix, Action, Thriller, War, Sci-Fi, Hot on Streaming
+
+Tue, 18 Aug 2026 21:00:13 GMT
+
+https://movieweb.com/netflix-the-last-ship-streaming-hit-august-2026/
+
+No cure. No country. No surrender.
+---------
+
 # Christopher Nolan Meets Zack Snyder In HBO's 8-Part Sci-Fi Series
 
 Streaming TV, Masked Recs
