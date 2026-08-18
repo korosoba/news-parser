@@ -1,3 +1,47 @@
+# 25 Years Later, Disney's Atlantis: The Lost Empire Officially Returns
+
+Gaming, Atlantis: The Lost Empire, Atlantis: The Lost Empire - 2025, PC, Disney, PlayStation Plus
+
+Tue, 18 Aug 2026 09:00:11 GMT
+
+https://screenrant.com/atlantis-the-lost-empire-ps-plus-august-2026/
+
+Disney's cult favorite, Atlantis: The Lost Empire, is officially making its return after 25 years in an exciting new anniversary celebration.
+---------
+
+# The Legend Of Zelda: Heroes Of Hyrule Officially Releases April 2027
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Tears of the Kingdom
+
+Tue, 18 Aug 2026 08:32:37 GMT
+
+https://screenrant.com/legend-of-zelda-heroes-hyrule-figure-range-april-2027/
+
+The Legend Of Zelda: Heroes Of Hyrule is a new range of figures that should appeal to those who want to say goodbye to the Wilds era in style.
+---------
+
+# Marvel Officially Sets Up Wilson Fisk’s Replacement as the New Kingpin
+
+Books and Comics News, Marvel Comics, Spider-Man: Brand New Day, Spider-Man, Superhero
+
+Tue, 18 Aug 2026 09:00:15 GMT
+
+https://collider.com/spectacular-spider-man-brand-new-day-issue-4-preview-kingpin-mister-negative-marvel-comics/
+
+Marvel Comics has shared a new preview for Spectacular Spider-Man: Brand New Day #4, teasing the crowning of a new Kingpin of Crime in New York.
+---------
+
+# 15 Best Thriller Movies Under 90 Minutes Long, Ranked
+
+Movie, Thriller, The Killing, Rashomon, Perfect Blue
+
+Tue, 18 Aug 2026 08:58:15 GMT
+
+https://collider.com/best-thriller-movies-under-90-minutes/
+
+Run Lola Run, The Killing, and Rope are among the best thriller movies under 90 minutes long.
+---------
+
 # Game Of Thrones: Oathkeeper Officially Announced
 
 Gaming, Game of Thrones, Game Of Thrones, brienne of tarth, PC
