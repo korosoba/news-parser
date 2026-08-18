@@ -1,3 +1,146 @@
+# The Last Calvin and Hobbes Strip Is Still the Greatest Goodbye in Comics 31 Years Later
+
+Comics, Calvin and Hobbes
+
+Tue, 18 Aug 2026 23:11:14 GMT
+
+https://screenrant.com/last-calvin-hobbes-strip-greatest-goodbye-comics-history/
+
+Of all the legendary comic strips, Calvin and Hobbes delivered one of the greatest and most bittersweet goodbyes in comics after its 10-year run.
+---------
+
+# Prime Video’s New 8-Part Romance With 89% RT Score Gets Better With Every Episode
+
+TV, Masked Recs
+
+Tue, 18 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/sterling-point-prime-video-better-each-episode/
+
+Megan Park’s character study trades gimmicks for subtle revelations and intimate moments that make Prime Video's latest romance show feel lived in.
+---------
+
+# 3 Power Rangers Games That Are 10/10 Masterpieces
+
+Gaming, Power Rangers, Mighty Morphin Power Rangers, Power Rangers: Battle for the Grid
+
+Tue, 18 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/power-rangers-best-games-all-time/
+
+These Power Rangers games are at the top of their class, widely regarded as the best in the franchise among fans.
+---------
+
+# 10 Greatest Snake Thriller Movies Of All Time, Ranked
+
+Movies, Thriller, Snakes on a Plane, Anaconda, Anacondas: The Hunt for the Blood Orchid, Rattlesnakes
+
+Tue, 18 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/best-snake-thriller-movies-all-time-ranked/
+
+With the 20-year anniversary of Snakes on a Plane this year, it’s the perfect time to explore the greatest snake thrillers ever produced.
+---------
+
+# Dragon Ball Z Officially Brings Back Piccolo's Forgotten Transformation in November 2026
+
+Anime, Dragon Ball Z, Dragon Ball, merchandise, collectibles
+
+Tue, 18 Aug 2026 23:05:11 GMT
+
+https://www.cbr.com/dbz-piccolo-petrified-plex-release/
+
+Piccolo's most shocking and frequently forgotten transformation is back in the spotlight thanks to a stunning new collectible.
+---------
+
+# 10 Hardest PS2 Games of All Time, Ranked by Difficulty
+
+Games, PlayStation 2
+
+Tue, 18 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/hardest-ps2-games-of-all-time-ranked-by-difficulty-list/
+
+Some of the hardest PS2 games, like God Hand and the original Devil May Cry, are absolutely brutal.
+---------
+
+# John Wick Meets Rush Hour in 92-Minute Action Epic That's Officially a Streaming Smash
+
+Movies, Trouble Man!, michael jai white, STARZ
+
+Tue, 18 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/trouble-man-action-starz-success-august-2026/
+
+One of Michael Jai White's latest action movies is currently doing great on streaming.
+---------
+
+# Clint Eastwood's Essential 8-Part Western Is Still 100% Untouchable 67 Years Later
+
+TV, Clint Eastwood, Rawhide, Western
+
+Tue, 18 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/rawhide-clint-eastwood-untouchable-western-series/
+
+CBS's Rawhide is a unique, must-watch classic Western series that launched Clint Eastwood's decade-spanning career.
+---------
+
+# 10 Movies To Watch If You Love The Odyssey
+
+Movies, The Odyssey, O Brother, Where Art Thou?, Jason And The Argonauts
+
+Tue, 18 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/must-watch-movies-for-fans-of-the-odyssey-list/
+
+Anyone caught under the spell of Christopher Nolan's The Odyssey should be beckoned to the siren call of these standout companion pieces.
+---------
+
+# Breaking Bad Returns for Unmissable Fan Event in Theaters With Free Heisenberg Hats
+
+TV, Breaking Bad
+
+Tue, 18 Aug 2026 22:52:56 GMT
+
+https://www.cbr.com/breaking-bad-day-alamo-drafthouse-fan-event/
+
+Breaking Bad returns to theaters for a bell-ringing experience with plenty of great goodies for guests.
+---------
+
+# Jason Statham Is Officially Changing the Movie Star Formula
+
+Movie News, Jason Statham, Mutiny, Action, Basil Iwanyk
+
+Tue, 18 Aug 2026 23:00:11 GMT
+
+https://collider.com/jason-statham-no-agent-manager-john-wick-producer-basil-iwanyk-comments/
+
+John Wick producer Basil Iwanyk revealed that Jason Statham continues to manage his career by himself, with no agent or manager.
+---------
+
+# HBO's Sci-Fi Detective Series Twist Sets Up a Surprising Hero and Villain
+
+TV Features, Lanterns, HBO Max, Kyle Chandler, Aaron Pierre
+
+Tue, 18 Aug 2026 22:57:11 GMT
+
+https://collider.com/hbo-lanterns-hal-jordan-spectre-comics-history-meaning/
+
+Lanterns' premiere has fans buzzing about the major death at the end, but it could bring another DC character to life.
+---------
+
+# Apple TV’s 3-Part Sci-Fi Masterpiece Demands More Than One Watch
+
+TV Features, Apple TV, Sci-Fi, Foundation, Lee Pace
+
+Tue, 18 Aug 2026 22:48:11 GMT
+
+https://collider.com/apple-tv-sci-fi-masterpiece-series-foundation-rewatch/
+
+Foundation is Apple TV’s ambitious sci-fi series, and its layered storytelling makes the three-part epic even more rewarding on a rewatch.
+---------
+
 # 24 Years Later, The Wire’s Best Scene Is Still 4 Minutes Of Genius
 
 Classic TV, The Wire
