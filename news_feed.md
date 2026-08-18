@@ -1,3 +1,267 @@
+# 10 Cult-Classic Movies That Are Getting Exciting New Releases In 2026
+
+Movies, Cult, 4K, Streaming Release
+
+Tue, 18 Aug 2026 13:23:12 GMT
+
+https://screenrant.com/cult-classic-movies-upcoming-4k-blu-ray-releases-2026/
+
+These 10 cult-classic movies are getting exciting new 4K Blu-ray, anniversary, and collector’s editions before the end of 2026.
+---------
+
+# Pokémon Legends 3 Title Leaves Gamers Split Over Setting
+
+Gaming, Pokemon, Triple-A Games
+
+Tue, 18 Aug 2026 13:18:33 GMT
+
+https://screenrant.com/pokemon-legends-3-title-codename-leaks/
+
+We aren't even on the next Generation yet via Winds & Waves, and fans are already wondering what the deal is with the next Legends entry.
+---------
+
+# ABC’s High Potential Replacement Spoils Season 2 Surprise In New Set Video
+
+Network TV, RJ Decker
+
+Tue, 18 Aug 2026 13:15:40 GMT
+
+https://screenrant.com/rj-decker-season-2-musical-set-video/
+
+High Potential is replaced by a sophomore series in ABC's fall 2026 lineup, and ahead of its return, a new set video spoils a major surprise.
+---------
+
+# Heated Rivalry Season 2 First Look Revealed As Filming Begins
+
+TV, Heated Rivalry
+
+Tue, 18 Aug 2026 13:11:15 GMT
+
+https://screenrant.com/heated-rivalry-season-2-filming-first-look/
+
+Heated Rivalry season 2 has officially started filming, as a first look at the upcoming season of the beloved hockey-romance drama has been shared.
+---------
+
+# Slow Horses Season 6 Confirms Olivia Cooke's Return As Sid
+
+TV, Slow Horses
+
+Tue, 18 Aug 2026 13:08:30 GMT
+
+https://screenrant.com/slow-horses-season-6-trailer-olivia-cooke-return/
+
+Apple TV's Slow Horses is welcoming back a familiar face, as the season 6 trailer unveils House of the Dragon star Olivia Cooke's return as Sid.
+---------
+
+# The Last House (2026) Pitch Meeting
+
+Movies, The Last House, Screen Rant Pitch Meetings
+
+Tue, 18 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/video/the-last-house-2026-pitch-meeting/
+
+ScreenRant's Pitch Meeting series grabs its umbrella to take a look at The Last House and the surreal plot of Netflix's new sci-fi hit.
+---------
+
+# 6 2026 Horror Movies That Feel Like Stephen King Adaptations (But Aren't)
+
+Movies, Stephen King
+
+Tue, 18 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/2026-horror-movies-feel-like-stephen-king/
+
+Stephen King is such a prolific writer that anyone making a horror movie is going to be influenced by him, especially if it's a more recent film.
+---------
+
+# Ewan McGregor’s Trainspotting Movie Role Is Getting A Netflix Update In 2 Weeks
+
+Movies, T2 Trainspotting, Netflix, Trainspotting
+
+Tue, 18 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/ewan-mcgregor-t2-trainspotting-movie-netflix-release/
+
+One of the movie roles that gained Ewan McGregor the most praise over the years is set to make an appearance on Netflix in just two weeks.
+---------
+
+# Marvel Announces It's Officially Killing Off a Founding X-Men Hero
+
+Comics, X-Men
+
+Tue, 18 Aug 2026 13:00:11 GMT
+
+https://screenrant.com/x-men-kill-off-cyclops-beast/
+
+X-Men's new era has been building to this.
+---------
+
+# Vin Diesel Confirms Filming Start Window For Fast Forever
+
+Movies, Fast Forever, Fast & Furious
+
+Tue, 18 Aug 2026 12:46:42 GMT
+
+https://screenrant.com/fast-forever-filming-start-window-vin-diesel/
+
+Vin Diesel confirms the filming start window for Fast Forever as the Fast & Furious franchise finally comes to a close.
+---------
+
+# 10 Anime to Watch If You Love Fullmetal Alchemist
+
+Anime, Mob Psycho 100, Attack on Titan, Dr. Stone, Fullmetal Alchemist Brotherhood
+
+Tue, 18 Aug 2026 13:15:15 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-love-fullmetal-alchemist/
+
+Fans of the beloved Fullmetal Alchemist franchise can find similar political intrigue, complex adventures, and emotional tones in these ten anime.
+---------
+
+# Kingdom Hearts Officially Confirms 2027 Release Date: "Absolutely, 100% No Delays"
+
+Games, Kingdom Hearts
+
+Tue, 18 Aug 2026 13:10:15 GMT
+
+https://www.cbr.com/kingdom-hearts-confirms-release-date-2027-official-no-delays/
+
+Kingdom Hearts 4 is officially slated for release in 2027, and fans have already been promised that the game won't face any delays.
+---------
+
+# The Best Shark Movie Since Jaws Is Officially a Streaming Smash Hit
+
+Movies, The Shallows
+
+Tue, 18 Aug 2026 13:00:16 GMT
+
+https://www.cbr.com/the-shallows-horror-thriller-netflix-success-august-2026/
+
+The underappreciated shark horror thriller resurfaces as a smash hit on streaming.
+---------
+
+# 10 Greatest Adventure Books Of All Time, Ranked
+
+Movies, Adventure
+
+Tue, 18 Aug 2026 13:00:16 GMT
+
+https://www.cbr.com/best-adventure-books-of-all-time-list/
+
+The best adventure books of all time combine unforgettable characters with dangerous journeys and worlds that continue to capture readers to this day.
+---------
+
+# Star Wars Galactic Racer's Multiplayer Preview
+
+Games, Star Wars, Video Games
+
+Tue, 18 Aug 2026 13:00:16 GMT
+
+https://www.cbr.com/star-wars-galactic-racer-multiplayer-preview/
+
+Star Wars: Galactic Racer has a story, but the real fun comes from its multiplayer mode, where players go head-to-head on incredibly dangerous tracks.
+---------
+
+# Hulu’s Only 10/10 Sci-Fi Series Officially Confirms Key Final Season Update
+
+TV News, Paradise, Hulu, Dan Fogelman, Sterling K. Brown
+
+Tue, 18 Aug 2026 13:01:40 GMT
+
+https://collider.com/paradise-season-3-filming-update/
+
+Hulu's hit sci-fi series Paradise confirms a key update about the final season, which stars Sterling K. Brown.
+---------
+
+# Apple TV's 6-Part Spy Thriller Begins Its Most Dangerous Chapter Yet in Explosive New Trailer
+
+TV News, Apple TV, Slow Horses, Gary Oldman, Jack Lowden
+
+Tue, 18 Aug 2026 13:00:15 GMT
+
+https://collider.com/slow-horses-season-6-trailer-gary-oldman-apple-tv/
+
+A new trailer for Season 6 of Slow Horses begins a dangerous and explosive new chapter for the members of Slough House.
+---------
+
+# BritBox's 10/10 Detective Thriller Returns With a Must-See Season 2 Trailer [Exclusive]
+
+TV News, Ludwig, Britbox, David Mitchell, sian clifford
+
+Tue, 18 Aug 2026 13:00:15 GMT
+
+https://collider.com/ludwig-season-2-trailer/
+
+Watch the exclusive trailer for Ludwig Season 2, streaming on BritBox October 13, featuring David Mitchell as the detective.
+---------
+
+# BBC's 'Merlin' Just Found the Perfect Replacement in This Fantasy Adventure Series
+
+TV Features, The Librarians: The Next Chapter, Dominic Monaghan, Merlin, The Librarians
+
+Tue, 18 Aug 2026 12:36:15 GMT
+
+https://collider.com/the-librarians-the-next-chapter-merlin-dominic-monaghan/
+
+Dominic Monaghan's quirky and unconventional portrayal of Merlin in The Librarians: The Next Chapter can't be missed.
+---------
+
+# Titus Welliver's 'Bosch' Replacement Series Gets Official Update From New Star
+
+TV News, Bosch, Bosch: Start of Watch, Titus Welliver
+
+Tue, 18 Aug 2026 12:32:16 GMT
+
+https://collider.com/bosch-start-of-watch-story-details-cameron-monaghan/
+
+Titus Welliver's Bosch replacement series on Prime Video gets an official new update about the story.
+---------
+
+# Josh Holloway Finally Reveals His Controversial Take on the 'Lost' Ending [Exclusive]
+
+Exclusives, Josh Holloway, Lost
+
+Tue, 18 Aug 2026 13:15:12 GMT
+
+https://movieweb.com/lost-josh-holloway-ending-theory/
+
+Sawyer actor Josh Holloway opens up about 'Lost's divisive finale with a bold take that differs from established lore.
+---------
+
+# Sebastian Stan's Mysterious 'The Batman Part 2' Role Finally Confirmed Following Wild Speculation
+
+Movie News, The Batman Part II
+
+Tue, 18 Aug 2026 13:07:44 GMT
+
+https://movieweb.com/the-batman-2-sebastian-stan-harvey-dent-role/
+
+Sebastian Stan has finally confirmed which DC character he is playing in Matt Reeves' 'The Batman Part 2.'
+---------
+
+# LEGO Remakes Most Iconic Batmobile for $229 With First-Time Movie-Accurate Feature
+
+Movie News, Batman Returns, LEGO, Batman
+
+Tue, 18 Aug 2026 13:00:13 GMT
+
+https://movieweb.com/lego-batman-returns-batmobile-set/
+
+LEGO has unveiled a new $229 set of the Batmobile from 'Batman Returns,' featuring a movie-accurate detail that mimics the vehicle mechanics.
+---------
+
+# Wild Star Trek Episode Ethan Peck Thought Was "Just a Rumor" Is Finally Right Around the Corner
+
+Features, star trek: strange new worlds, Star Wars
+
+Tue, 18 Aug 2026 13:00:13 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-muppets-episode/
+
+Star Trek's puppet episode is coming very soon, but will it overcome the controversy that already surrounds it? Read on for more.
+---------
+
 # 5 PlayStation 3 Games On PS Plus That Are 10/10 Masterpieces
 
 Gaming, PlayStation, PlayStation Plus
