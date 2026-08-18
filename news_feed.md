@@ -1,3 +1,102 @@
+# Game Of Thrones: Raven's Choice Officially Bringing Back Bran Stark
+
+Gaming, Game of Thrones, Game Of Thrones, PC
+
+Tue, 18 Aug 2026 03:00:11 GMT
+
+https://screenrant.com/game-of-thrones-legends-ravens-choice-launch/
+
+Game of Thrones returns with Raven's Choice, bringing Bran Stark back with Greensight to uncover Westeros' deepest mysteries and secrets.
+---------
+
+# Why Pluribus Season 2 Is Taking So Long Explained By Vince Gilligan: “Don’t Hold Your Breath”
+
+TV, Pluribus, Pluribus - Season 2
+
+Tue, 18 Aug 2026 02:28:07 GMT
+
+https://screenrant.com/pluribus-season-2-delay-vince-gilligan-explained/
+
+As the wait for new Pluribus episodes continues, creator, showrunner, and writer Vince Gilligan explains why season 2 is taking so long.
+---------
+
+# Netflix Had 3 Shows Nominated for Best Anime of 2026. Crunchyroll Won.
+
+Anime, Crunchyroll, Netflix, Witch Hat Atelier
+
+Tue, 18 Aug 2026 03:05:15 GMT
+
+https://www.cbr.com/witch-hat-atelier-crunchyroll-best-anime-astra-tv-awards/
+
+Crunchyroll’s best fantasy anime grabs the crown at the latest Astra TV Awards, beating competition from Netflix.
+---------
+
+# Taylor Sheridan Pulls the Plug on Lioness' Winning Episode Format After 3 Seasons
+
+TV, Lioness
+
+Tue, 18 Aug 2026 02:50:54 GMT
+
+https://www.cbr.com/lioness-season-3-format-changes-non-linear-timeline/
+
+Lioness makes a critical shift in format in Season 3, guiding high-stakes events for Zoe Saldaña's CIA team in Taylor Sheridan's espionage series.
+---------
+
+# 4 Fantasy Anime Better Than Frieren
+
+Anime, Fantasy
+
+Tue, 18 Aug 2026 02:45:15 GMT
+
+https://www.cbr.com/fantasy-anime-better-than-frieren-list/
+
+Frieren: Beyond Journey's End instantly became a classic anime, but there are a few fantasy anime that are even better.
+---------
+
+# 8 Animated Movies With the Most Unique Magic Systems
+
+Movies, Animation, Avatar Aang: The Last Airbender, Fantasy
+
+Tue, 18 Aug 2026 02:45:15 GMT
+
+https://www.cbr.com/animated-movies-with-best-magic-systems-list/
+
+Many animated movies include some form of magical framework for their worlds, but these eight movies have the most unique magic systems in the genre.
+---------
+
+# 10 Greatest Nintendo RPGs of All Time, Ranked
+
+Games, Video Games, Nintendo, Octopath Traveler, Chrono Trigger, Super Mario RPG: Legend of the Seven Stars, Fire Emblem
+
+Tue, 18 Aug 2026 02:30:15 GMT
+
+https://www.cbr.com/greatest-nintendo-rpgs-all-time-ranked/
+
+Pokemon and Fire Emblem rank among the best RPGs of all time, but they aren't the only unforgettable Nintendo RPGs.
+---------
+
+# House of the Dragon Star Teases Corlys Velaryon’s ‘Very Sad’ Future in Season 4
+
+TV, House of the Dragon, HBO Max, Game Of Thrones
+
+Tue, 18 Aug 2026 02:13:27 GMT
+
+https://www.cbr.com/house-of-the-dragon-corlys-season-4-future-steve-toussaint/
+
+Steve Toussaint teases Corlys Velaryon’s difficult path in House of the Dragon Season 4 and his growing doubts about Rhaenyra.
+---------
+
+# One of Stephen King’s Favorite Horror Movies of All Time Is Waiting To Be Rediscovered on Free Streaming
+
+Movie Features, Horror, The Stepfather, Stephen King
+
+Tue, 18 Aug 2026 03:11:14 GMT
+
+https://collider.com/stephen-king-the-stepfather-streaming-free-tubi-august-2026/
+
+1987's The Stepfather, which Stephen King called one of his favorite horror movies of all time, is streaming for free on Tubi.
+---------
+
 # 14 Years Later, Mass Effect 3 Has The Most Heartbreaking Quote In RPG History
 
 Gaming, Mass Effect, Triple-A Games
