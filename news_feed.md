@@ -1,3 +1,69 @@
+# It's Official: Project Hail Mary Returns In 2026 With A Brand-New Story
+
+Gaming, Virtual Reality, meta, Project Hail Mary
+
+Tue, 18 Aug 2026 09:46:05 GMT
+
+https://screenrant.com/project-hail-mary-journey-among-stars-new-story/
+
+Discover Project Hail Mary: Journey Among The Stars, a new experience set for 2026, featuring untold adventures and stunning visuals.
+---------
+
+# PlayStation Plus Free Games Lineup For September 2026 Gets Official Update
+
+Gaming, PlayStation Plus, PlayStation
+
+Tue, 18 Aug 2026 09:45:11 GMT
+
+https://screenrant.com/playstation-plus-free-games-lineup-september-2026-update/
+
+PlayStation Plus continues to giveth and taketh away, as we now know which games will be leaving the subscription service in September.
+---------
+
+# GTA 6 Official Gameplay Shown In Unexpected New Trailer
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Tue, 18 Aug 2026 09:30:12 GMT
+
+https://screenrant.com/gta-6-playstation-trailer-august-2026/
+
+GTA VI is only a few months away at this point, and it's starting to show up in all sorts of unexpected places.
+---------
+
+# 10 Greatest Historical Adventure Books of All Time
+
+Books and Comics, Books, History, Adventure, Shogun
+
+Tue, 18 Aug 2026 09:42:15 GMT
+
+https://collider.com/best-historical-adventure-books-all-time-ranked/
+
+Book masterpieces like Shōgun and Treasure Island are the best representatives of the historical adventure genre in all its thrilling, wondrous glory.
+---------
+
+# The Year’s Biggest Horror Sensation Officially Hits Its First Real Speed Bump
+
+Movie News, Obsession, Horror, Peacock, Inde Navarrette
+
+Tue, 18 Aug 2026 09:30:15 GMT
+
+https://collider.com/obsession-streaming-premiere-nielsen-charts-peacock/
+
+The year's biggest sleeper hit at the box office, Obsession, had a rather lukewarm streaming premiere on Peacock. Find out more.
+---------
+
+# 31 Years Later, the Greatest Crime Thriller of All Time is Climbing the Streaming Charts
+
+Movie Features, Heat, Al Pacino, Robert De Niro, Michael Mann
+
+Tue, 18 Aug 2026 09:10:15 GMT
+
+https://collider.com/heat-greatest-crime-thriller-al-pacino-robert-de-niro-streaming-free-pluto-tv-august-2026/
+
+The 1995 crime masterpiece Heat, starring Robert De Niro and Al Pacino, is streaming for free on Pluto TV in advance of the upcoming Heat 2.
+---------
+
 # 25 Years Later, Disney's Atlantis: The Lost Empire Officially Returns
 
 Gaming, Atlantis: The Lost Empire, Atlantis: The Lost Empire - 2025, PC, Disney, PlayStation Plus
