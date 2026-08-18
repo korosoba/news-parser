@@ -1,3 +1,25 @@
+# Lovecraft Meets Murakami In HBO’s 8-Part Crime Thriller Masterpiece
+
+Streaming TV, Masked Recs
+
+Tue, 18 Aug 2026 05:00:12 GMT
+
+https://screenrant.com/true-detective-season-1-murakami-lovecraft-masterpiece/
+
+8 episodes of one of HBO’s greatest crime thriller shows perfectly combines the dread from Lovecraftian horror with Murakami’s existential surrealism.
+---------
+
+# Foundation Officially Returns With New Season This Month
+
+Gaming, Foundation, foundation trilogy, Isaac Asimov, Sci-Fi, PC
+
+Tue, 18 Aug 2026 05:00:12 GMT
+
+https://screenrant.com/foundation-galactic-frontier-season-2-release/
+
+Apple's adaptation of Isaac Asimov's iconic Foundation saga continues this month with a brand-new season and the return of beloved franchise icons.
+---------
+
 # 28 Years Later, A 10/10 PS1 Masterpiece Is Completely Free With PlayStation Plus
 
 Gaming, PlayStation Plus, PlayStation, PlayStation (Original), Resident Evil, Resident Evil 2
