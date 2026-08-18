@@ -1,3 +1,146 @@
+# Crunchyroll Begins Huge Anime And Manga Purge In End Of 12-Year Era
+
+Anime, Crunchyroll
+
+Tue, 18 Aug 2026 16:50:44 GMT
+
+https://screenrant.com/crunchyroll-store-anime-manga-purge/
+
+Crunchyroll has been hit with controversy after its store updated to remove a massive amount of anime and manga titles, leaving fans uncertain.
+---------
+
+# 48 Years Later, Garfield's Best Line Remains the Most Famous Quote in Comic Strip History
+
+Comics, Garfield
+
+Tue, 18 Aug 2026 16:40:26 GMT
+
+https://screenrant.com/garfield-best-quote-all-time-comic-strip/
+
+Garfield has been making readers laugh for 48 years, and one of his most iconic lines is also the most recognizable quote in comic strip history.
+---------
+
+# Ted Lasso Season 4 Interview with Jason Sudeikis, Tanya Reynolds & Brendan Hunt
+
+Interviews, Ted Lasso, Ted Lasso - Season 4, Jason Sudeikis
+
+Tue, 18 Aug 2026 16:36:57 GMT
+
+https://screenrant.com/video/ted-lasso-season-4-jason-sudeikis-tanya-reynolds-brendan-hunt-interview/
+
+Ted Lasso stars Jason Sudeikis, Tanya Reynolds, and Brendan Hunt tease the direction of season 4's main storyline while squashing rumors about a spinoff having been planned.
+---------
+
+# New Epic Movie Based On 400-Year-Old Story Paradise Lost Sets Release Date
+
+Movies, Paradise Lost
+
+Tue, 18 Aug 2026 16:35:51 GMT
+
+https://screenrant.com/roger-avery-paradise-lost-release-date/
+
+A new epic movie based on the famously unadaptable 400-year-old story Paradise Lost has officially set its release date for next year.
+---------
+
+# No Fantasy Show Does Magic Systems Like The 3-Season Witch Series With A Near-Perfect RT Score
+
+Network TV, Masked Recs, Disney+
+
+Tue, 18 Aug 2026 16:30:11 GMT
+
+https://screenrant.com/motherland-fort-salem-best-magic-fantasy-series/
+
+Disney’s 3-season fantasy series is an alternate America where inherited vocal spells become military-grade battlecraft in a perfect weekend binge.
+---------
+
+# Ted Lasso Season 4 Interview with Hannah Waddingham & Juno Temple
+
+TV, Ted Lasso, Ted Lasso - Season 4, Hannah Waddingham, Juno Temple
+
+Tue, 18 Aug 2026 16:29:01 GMT
+
+https://screenrant.com/video/ted-lasso-season-4-hannah-waddingham-juno-temple-interview/
+
+Ted Lasso stars Hannah Waddingham and Juno Temple tease their storylines in season 4, including how Rebecca's relationship with Boat Guy (or Matthijs) may lead to her renewed interest in motherhood, as well as whether Keeley and Roy Kent can ever be on again.
+---------
+
+# Say Goodbye to Peacock's Streaming Prices as NBCUniversal Confirms Major Changes
+
+TV, Peacock
+
+Tue, 18 Aug 2026 16:40:46 GMT
+
+https://www.cbr.com/peacock-price-increase-2026/
+
+Peacock raised its prices four times in the last four years.
+---------
+
+# Lanterns Just Revealed the Shocking Truth About the Green Lantern Ring
+
+CBR Exclusives, Lanterns
+
+Tue, 18 Aug 2026 16:24:28 GMT
+
+https://www.cbr.com/lanterns-aaron-pierre-kyle-chandler-green-lantern-ring-truth/
+
+The Green Lantern ring has more meaning than what fans may think.
+---------
+
+# Crunchyroll Begins Massive Purge Today, Removing Manga & Anime Releases
+
+Anime, Crunchyroll, Crunchyroll Premium, Manga
+
+Tue, 18 Aug 2026 16:23:33 GMT
+
+https://www.cbr.com/crunchyroll-anime-manga-store-purge/
+
+Crunchyroll is officially purging anime Blu-rays, manga, light novels and more ahead of its controversial decision to paywall its online store.
+---------
+
+# The 6 Best Movie Performances Since 2020
+
+Movie, Cillian Murphy, Mikey Madison, Paul Mescal, Marianne Jean-Baptiste
+
+Tue, 18 Aug 2026 16:45:15 GMT
+
+https://collider.com/best-movie-performances-since-2020-ranked/
+
+No AI could've given these masterful performances.
+---------
+
+# New Law & Order Spin-Off Officially Sets Release Date
+
+TV News, Law & Order Toronto: Criminal Intent, Law & Order, The CW, Law & Order: Special Victims Unit
+
+Tue, 18 Aug 2026 16:42:55 GMT
+
+https://collider.com/law-and-order-toronto-season-2-us-release-date-october-2026/
+
+Law & Order Toronto: Criminal Intent Season 2 has officially set a US premiere date on The CW. Here’s when you can watch it.
+---------
+
+# Jon Bernthal’s 10/10 ‘John Wick’ Meets ‘The Equalizer’ Action Hit Is Officially Missing From Us Streaming
+
+Movie News, The Accountant, Jon Bernthal, Ben Affleck, The Accountant 2
+
+Tue, 18 Aug 2026 16:30:15 GMT
+
+https://collider.com/jon-bernthal-the-accountant-not-streaming-us/
+
+Jon Bernthal's critically acclaimed action film with Ben Affleck is missing from US streaming services. Find out where you can still catch it.
+---------
+
+# New 'Dune 3' Teaser Released as Tickets Go on Sale for Early Screenings
+
+Movie News, Dune: Part Three
+
+Tue, 18 Aug 2026 16:52:14 GMT
+
+https://movieweb.com/dune-3-teaser-tickets-early-screenings/
+
+Tickets for early screenings of 'Dune 3' are now on sale, and the movie also has a new teaser to build up hype for its release.
+---------
+
 # The Best Shark Movie Since Jaws Is Quickly Devouring Netflix's Streaming Charts
 
 Movies, Masked Recs
