@@ -1,3 +1,47 @@
+# 28 Years Later, A 10/10 PS1 Masterpiece Is Completely Free With PlayStation Plus
+
+Gaming, PlayStation Plus, PlayStation, PlayStation (Original), Resident Evil, Resident Evil 2
+
+Tue, 18 Aug 2026 04:30:11 GMT
+
+https://screenrant.com/playstation-ps1-masterpiece-ps-plus-resident-evil-2/
+
+This PlayStation 1 game is nearly flawless and serves as one of the best sequels ever made, now completely free for PS Plus subscribers.
+---------
+
+# 7 Thriller Books That Are Perfect From First Page to Last
+
+Books and Comics, Thriller, Gone Girl, Agatha Christie, Stephen King
+
+Tue, 18 Aug 2026 04:18:14 GMT
+
+https://collider.com/thriller-books-perfect-first-page-to-last/
+
+From Agatha Christie's And Then There Were None to Stieg Larsson's The Girl with the Dragon Tattoo, these thriller books are truly flawless.
+---------
+
+# This Ralph Fiennes Ancient Greek Epic Is The Perfect 'Odyssey' Replacement
+
+Movie Features, The Odyssey, The Return, Ralph Fiennes, Christopher Nolan
+
+Tue, 18 Aug 2026 04:05:14 GMT
+
+https://collider.com/ralph-fiennes-the-return-christopher-nolan-the-odyssey-streaming/
+
+Ralph Fiennes' 2024 film The Return adapts The Odyssey from a different angle than Christopher Nolan's hit, focusing entirely on Odysseus' return.
+---------
+
+# Reason for Highly Anticipated Spin-Off 'NCIS: Tony & Ziva' Cancellation Confirmed
+
+TV News, NCIS, NCIS: Tony & Ziva
+
+Tue, 18 Aug 2026 04:22:38 GMT
+
+https://movieweb.com/ncis-tony-and-ziva-cancellation-reason-confimed/
+
+Fans now have a better idea of what led to "NCIS: Tony & Ziva" only running for one season on Paramount+ before its cancellation.
+---------
+
 # Terminator Meets Fallout In This Free Survival Game
 
 Gaming, Terminator, Triple-A Games
