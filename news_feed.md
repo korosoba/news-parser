@@ -1,3 +1,190 @@
+# GTA 6 Gameplay Leaks Ahead Of Official Netflix Stream
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games, PC
+
+Tue, 18 Aug 2026 19:03:40 GMT
+
+https://screenrant.com/grand-theft-auto-6-gameplay-leak-netflix-stream/
+
+Grand Theft Auto 6 is set to show off some new gameplay in just a few days now, but a major leak has seemingly beat the official reveal to the punch.
+---------
+
+# Avengers: Doomsday Trailer Is Hiding Doom’s Real Plan
+
+Movies, Originals, Avengers: Doomsday
+
+Tue, 18 Aug 2026 19:00:12 GMT
+
+https://screenrant.com/video/avengers-doomsday-trailer-is-hiding-doom-s-real-plan/
+
+Avengers Doomsday: Doom’s “Stolen Lives” Explained — Marvel’s latest D23 footage may have revealed exactly what Robert Downey Jr.’s Doctor Doom wants and how Steve Rogers could be connected to the MCU’s coming collapse.
+---------
+
+# Shogun Meets John Wick In Netflix's 8-Part Action Series
+
+Streaming TV, Masked Recs
+
+Tue, 18 Aug 2026 19:00:12 GMT
+
+https://screenrant.com/blue-eye-samurai-shogun-meets-john-wick-netflix/
+
+The constant and suspenseful action of John Wick meshes perfectly with the historical and political drama of Shōgun in Netflix's best series.
+---------
+
+# Comics Industry Reacts As Alleged 'So Many of Us' Offender Returns To Image
+
+Comics, image comics
+
+Tue, 18 Aug 2026 18:38:50 GMT
+
+https://screenrant.com/warren-ellis-return-image-comics-reactions/
+
+Alleged serial abuser Warren Ellis is returning to Image Comics.
+---------
+
+# Nickelodeon's Hey Arnold! In Talks For Revival, According To Producer
+
+TV, Hey Arnold!
+
+Tue, 18 Aug 2026 18:31:56 GMT
+
+https://screenrant.com/hey-arnold-revival-talks-joe-purdy/
+
+After ending in 2004, Hey Arnold! came back in 2017 with a critically acclaimed movie. Now one of the producers is teasing a proper TV revival.
+---------
+
+# Found Could Have Been NBC's Best New Procedural, But Then Season 2 Happened
+
+Network TV, Found, NBC
+
+Tue, 18 Aug 2026 18:30:12 GMT
+
+https://screenrant.com/nbc-found-procedural-tv-show-season-2-problem/
+
+Found season 1's elegant case of the week engine let M&amp;A shine while season 2 piled on kidnappers, hidden siblings, and mounting conspiracies.
+---------
+
+# Anson Mount's Gritty 5-Season Western Is the Most Addictive Wild West Show of the 2010s
+
+TV, Hell on Wheels, Western, Innovation
+
+Tue, 18 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/amc-hell-on-wheels-addictive-2010s-western-show/
+
+A gritty must-watch Western tale of one man's journey through the raw American frontier, fueled by revenge and self-discovery.
+---------
+
+# 10 Greatest Thrillers That Will Leave You Questioning Reality
+
+Movies, The Usual Suspects, Final Destination, Smile, Shutter Island, Thriller
+
+Tue, 18 Aug 2026 19:00:15 GMT
+
+https://www.cbr.com/best-reality-warping-thrillers-list/
+
+These 10 Hollywood thrillers successfully make the audience question the reality of perception.
+---------
+
+# Florence Pugh's Modern Adaptation of Classic Novel Finally Sets Netflix Release Date
+
+TV, East of Eden, Netflix
+
+Tue, 18 Aug 2026 18:55:17 GMT
+
+https://www.cbr.com/florence-pugh-east-of-eden-netflix-release-date/
+
+East of Eden, starring Florence Pugh, is premiering on Netflix this fall.
+---------
+
+# Cult Classic Neo-Western Named by Quentin Tarantino Officially Takes Over HBO Max
+
+Movie News, Once Upon a Time in Mexico, Robert Rodriguez, Antonio Banderas, HBO Max
+
+Tue, 18 Aug 2026 19:00:15 GMT
+
+https://collider.com/once-upon-a-time-in-mexico-hbo-max-streaming-success-august-2026/
+
+A neo-Western that was christened by Quentin Tarantino is having a resurgence on HBO Max, 23 years after its theatrical release.
+---------
+
+# 8 Upcoming Action Shows, Ranked by Anticipation
+
+TV, Action, Blade Runner 2099, The Last of Us, Neagley
+
+Tue, 18 Aug 2026 18:52:15 GMT
+
+https://collider.com/upcoming-action-shows-ranked-anticipation/
+
+From Tomb Raider to The Gentlemen, these action shows are getting us hyped!
+---------
+
+# Last Year's Weirdest Sci-Fi Movie Officially Makes Streaming Comeback
+
+Movie News, Bugonia, Emma Stone, Sci-Fi, HBO Max
+
+Tue, 18 Aug 2026 18:30:15 GMT
+
+https://collider.com/bugonia-emma-stone-sci-fi-hbo-max-streaming-success-august-2026/
+
+A divisive sci-fi movie starring Emma Stone and Jesse Plemons is redeeming itself on HBO Max after a disappointing box-office run.
+---------
+
+# What Happened To the Original Rumored Rogue Actor For Marvel's X-Men Movie?
+
+Features, X-Men, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home)
+
+Tue, 18 Aug 2026 19:00:13 GMT
+
+https://movieweb.com/x-men-cailee-spaeny-rogue-casting-change/
+
+Marvel's X-Men movie will be released on May 5, 2028, and there have been many rumors about who will play Rogue.
+---------
+
+# Crunchyroll's Perfect 'Berserk' Replacement Is Already a Massive Hit
+
+Movie News, Clevatess
+
+Tue, 18 Aug 2026 19:00:13 GMT
+
+https://movieweb.com/clevatess-berserk-stream-crunchyroll-august-2026/
+
+Fans of Kentaro Miura's dark fantasy classic need to check out Crunchyroll's new hyper-violent series.
+---------
+
+# Henry Cavill Netflix Spy Action Movie Expands Cast With 'Harry Potter' Star
+
+Movie News, Henry Cavill, Netflix, Jason Isaacs
+
+Tue, 18 Aug 2026 18:53:26 GMT
+
+https://movieweb.com/henry-cavill-netflix-spy-movie-jason-isaacs/
+
+Jason Isaacs has joined Cavill's previously announced spy comedy for Netflix.
+---------
+
+# 10 Best Far Side Comics From the 1990s
+
+Movie Lists, The Far Side
+
+Tue, 18 Aug 2026 18:30:13 GMT
+
+https://movieweb.com/far-side-best-strips-90s/
+
+The Far Side ended its run in the 1990s, but Larson left behind some of his best work; these 10 strips prove it.
+---------
+
+# 'The Batman 2' Images Finally Confirm Long-Held Theory About Robert Pattinson Sequel
+
+Movie News, The Batman Part II
+
+Tue, 18 Aug 2026 18:25:51 GMT
+
+https://movieweb.com/the-batman-2-images-christmas-setting/
+
+It's been a long road for 'The Batman 2,' but it sounds an exciting new change is headed for the DC sequel.
+---------
+
 # 6 Groundbreaking Science Fiction Novels from Across the World
 
 Books, Masked Recs
