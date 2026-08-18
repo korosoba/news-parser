@@ -1,3 +1,234 @@
+# 6 Standalone Action Movies From The 1980s That Should've Started Franchises
+
+Movies, Action
+
+Tue, 18 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/action-movies-1980s-deserve-sequels-franchises/
+
+These six classic 1980s action flicks had all the makings of excellent franchises, and it's hard to believe that none of them received sequels.
+---------
+
+# Forgotten 4-Part Sci-Fi Drama From Reacher Creator Is A Hidden Gem On Paramount+
+
+Classic TV, Scorpion
+
+Tue, 18 Aug 2026 15:30:11 GMT
+
+https://screenrant.com/scorpion-show-from-reacher-creator-sci-fi-hidden-gem/
+
+This show from the creator of Reacher featured high stakes, found family, and plenty of inventive scenarios.
+---------
+
+# 30 Years Later, Tomb Raider Is Officially Switching Genres
+
+Gaming, Tomb Raider: Legacy of Atlantis, Tomb Raider, Triple-A Games, PC
+
+Tue, 18 Aug 2026 15:25:27 GMT
+
+https://screenrant.com/tomb-raider-legacy-of-atlantis-rpg-elements-confirmed/
+
+Lara Croft's first outing is returning next year, but the latest update confirms that it won't work in the same way as the original game.
+---------
+
+# Taylor Sheridan's Lioness Criticized By Real-Life Team That Inspired Show: "Makes Me Mad"
+
+TV, Lioness
+
+Tue, 18 Aug 2026 15:17:28 GMT
+
+https://screenrant.com/taylor-sheridan-lioness-show-criticisms-real-life-team-response/
+
+Taylor Sheridan once again struck TV gold when he created the spy thriller Lioness, but the series is now being criticized over its lack of accuracy.
+---------
+
+# It's Officially The Start Of An Era For HBO's House Of The Dragon Replacement
+
+Streaming TV, Masked Recs
+
+Tue, 18 Aug 2026 15:15:42 GMT
+
+https://screenrant.com/lanterns-hbo-max-house-of-the-dragon-replacement-new-era/
+
+HBO's House of the Dragon replacement has been released, and it has already started a new era for a popular franchise in the best way possible.
+---------
+
+# PlayStation Releases 2 Freebies You Have Until August 31 To Download, No PS Plus Required
+
+Gaming, PlayStation 5, Triple-A Games
+
+Tue, 18 Aug 2026 15:12:39 GMT
+
+https://screenrant.com/playstation-2-freebies-august-31-no-ps-plus/
+
+If you own a PlayStation 5, you'll want to dive in and check out these free downloads, but you only have a certain amount of time to grab them.
+---------
+
+# The Rivals of Amziah King Interview with Matthew McConaughey, Angelina LookingGlass & Andrew Patterson
+
+Videos, The Rivals of Amziah King, Matthew McConaughey
+
+Tue, 18 Aug 2026 15:03:23 GMT
+
+https://screenrant.com/video/the-rivals-of-amziah-king-matthew-mcconaughey-angelina-lookingglass-andrew-patterson-interview/
+
+The Rivals Of Amziah King stars Matthew McConaughey and Angelina LookingGlass explain how the new Western fit them perfectly, while director Andrew Patterson reveals just how keen Kurt Russell was to hop on board.
+---------
+
+# Stephen King Meets Mean Girls In Showtime’s 3-Part Psychological Thriller Series
+
+Classic TV, Masked Recs
+
+Tue, 18 Aug 2026 15:00:11 GMT
+
+https://screenrant.com/yellowjackets-stephen-king-meets-mean-girls/
+
+What if you took the psychological warfare of teenage girlhood in Mean Girls and gave it a Stephen King twist? You'd get this Showtime thriller show.
+---------
+
+# Apple TV's New 94% RT Sci-Fi Show Is Becoming 1 of TV's Rare Perfect Spinoffs
+
+TV, For All Mankind, Star City, Apple TV, Sci-Fi, Innovation
+
+Tue, 18 Aug 2026 15:30:15 GMT
+
+https://www.cbr.com/apple-tv-star-city-for-all-mankind-perfect-spinoff/
+
+Not every TV spinoff is as successful as its predecessor, but Apple TV's newest sci-fi series is quickly becoming one of the service's best shows.
+---------
+
+# Jensen Ackles' Tracker Season 4 Return Confirmed by Justin Hartley After Major Location Change
+
+TV, Tracker
+
+Tue, 18 Aug 2026 15:15:15 GMT
+
+https://www.cbr.com/tracker-season-4-jensen-ackles-return-confirmed/
+
+Tracker lead Justin Hartley teases the upcoming Season 4 episode featuring Jensen Ackles.
+---------
+
+# Battle Royale Meets Spider-Man in Sci-Fi Series You Can Stream for Free
+
+Anime, Tubi, Kamen Rider, Spider-Man
+
+Tue, 18 Aug 2026 15:15:15 GMT
+
+https://www.cbr.com/battle-royale-meets-spider-man-sci-fi-series-stream-for-free/
+
+Before superhero battle royales became commonplace, Kamen Rider Ryuki pitted 13 heroes against each other in a deadly fight for survival.
+---------
+
+# 5 Essential R-Rated 80s Thrillers That Are Still Perfect Today
+
+Movies, Thriller
+
+Tue, 18 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/must-watch-r-rated-80s-thriller-list/
+
+The 80s is a decade that never gets enough credit for its thriller output, but these perfect r-rated classics prove it's among the genre's best eras.
+---------
+
+# Will Smith's 115-Minute Sci-Fi Thriller Masterpiece Scores Big on Streaming
+
+Movies, will smith, I, Robot, Apple TV
+
+Tue, 18 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/will-smith-i-robot-sci-fi-apple-tv-success-august-2026/
+
+One of Will Smith's biggest action movies ever is surging on streaming.
+---------
+
+# 10 Most Powerful Autobots From the G1 Era, Ranked
+
+Anime, Transformers
+
+Tue, 18 Aug 2026 15:00:15 GMT
+
+https://www.cbr.com/transformers-most-powerful-autobots-from-the-g1-era-ranked/
+
+While the G1 era of Transformers isn't the strongest, it was still home to some powerful Autobots.
+---------
+
+# 'Breaking Bad' Is Officially Coming to Theaters for One Day Only [Exclusive]
+
+TV News, Breaking Bad, Alamo Drafthouse, Vince Gilligan, Bryan Cranston
+
+Tue, 18 Aug 2026 15:01:15 GMT
+
+https://collider.com/breaking-bad-day-alamo-drafthouse-tickets/
+
+Celebrate Breaking Bad Day at the Alamo Drafthouse this September. Read on for more,
+---------
+
+# Iconic Found Footage Horror Series Officially Returns With the Best Trailer Yet [Exclusive]
+
+TV News, The Creep Tapes, Creep, Mark Duplass, Patrick Brice
+
+Tue, 18 Aug 2026 15:01:15 GMT
+
+https://collider.com/the-creep-tapes-season-3-trailer-kate-siegel-mark-duplass/
+
+Watch the exclusive The Creep Tapes Season 3 trailer featuring Mark Duplass’ Peachfuzz, Kate Siegel, and a new group of potential victims.
+---------
+
+# 'Toy Story 5' Is Officially Available to Watch at Home [Exclusive]
+
+Movie News, Toy Story 5, Greta Lee, Pixar, Tom Hanks
+
+Tue, 18 Aug 2026 15:01:15 GMT
+
+https://collider.com/toy-story-5-digital-streaming-sneak-peek/
+
+A new sneak peek at Toy Story 5 ahead of its digital release digs into Lilypad, the newest antagonist threatening playtime, voiced by Greta Lee.
+---------
+
+# Alan Ritchson's WWII Thriller Is Perfect for Fans of Horror and War Movies
+
+Features, Alan Ritchson, Horror, War
+
+Tue, 18 Aug 2026 15:30:13 GMT
+
+https://movieweb.com/alan-ritchson-ghosts-of-war-underrated-horror-movie/
+
+'Reacher' star Alan Ritchson appeared in an excellent war horror movie that came out at the wrong time.
+---------
+
+# Chris Hansen Reacts to Robert Pattinson's 'To Catch A Predator' Movie
+
+Movie News, Chris Hansen, Primetime, Robert Pattinson, To Catch a Predator
+
+Tue, 18 Aug 2026 15:25:14 GMT
+
+https://movieweb.com/chris-hansen-reacts-robert-pattinson-primetime/
+
+Who would Chris Hansen have gotten to play himself?
+---------
+
+# The Best Spy Thriller Series on Streaming Returns With New Trailer
+
+TV News, Slow Horses
+
+Tue, 18 Aug 2026 15:02:07 GMT
+
+https://movieweb.com/slow-horses-season-6-official-trailer/
+
+Apple TV has unveiled a new trailer for 'Slow Horses' Season 6, which is set to premiere Sept. 16.
+---------
+
+# 16 Years After 'Med School,' the 'Scrubs' Revival Finds Its Perfect JD Replacement
+
+Features, Scrubs, Zach Braff
+
+Tue, 18 Aug 2026 15:00:12 GMT
+
+https://movieweb.com/scrubs-finally-finds-its-perfect-jd-replacement/
+
+'Scrubs' tried to replace JD in 2010 and keep the sitcom going, but it didn't work. Hopefully, JD's new replacement is more successful. Read on.
+---------
+
 # Widow’s Bay Season 2 Gets First New Story Plans & Character Focus From Apple TV+ Show Creator
 
 TV, Widow's Bay
