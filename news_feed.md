@@ -1,3 +1,91 @@
+# Casting Buffy The Vampire Slayer If It Was Made In 2026
+
+Classic TV, Buffy The Vampire Slayer
+
+Tue, 18 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-recast-2026-actors/
+
+Hulu's Buffy the Vampire Slayer reboot may not be happening, but it's still fun to fan-cast which actors would play the Scoobies, villains, and more.
+---------
+
+# Harry Potter Meets Twilight In This $90 Million Fantasy Movie That's Now On Netflix
+
+Movies, Masked Recs
+
+Tue, 18 Aug 2026 23:21:15 GMT
+
+https://screenrant.com/the-mortal-instruments-city-of-bones-movie-streaming-netflix-august-2026/
+
+Netflix's new fantasy arrival is a movie that is Harry Potter mixed with Twilight, based on hit novels, and genre fans will want to check it out.
+---------
+
+# New Series Returns To Marvel's Best Modern Era
+
+Marvel Comics, Marvel
+
+Tue, 18 Aug 2026 23:20:55 GMT
+
+https://screenrant.com/incursions-comics-secret-wars/
+
+Marvel's new series revisits the most influential era of the franchise, raising anticipation for Avengers: Doomsday's multiversal plot.
+---------
+
+# 20 Greatest Murder Mystery Anime Of All Time, Ranked
+
+Anime, Monster, higurashi, in/spectre, Death Note, danganronpa, Erased, Steins;Gate, Beastars
+
+Tue, 18 Aug 2026 23:35:11 GMT
+
+https://www.cbr.com/best-anime-murder-mystery/
+
+Murder mystery anime, like Death Note and ID Invaded, keep fans on the edge of their seats as the truth unravels with twists at every corner.
+---------
+
+# 10 Strongest Dojutsu in Naruto, Ranked
+
+Anime, Naruto
+
+Tue, 18 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/naruto-strongest-dojutsu-ranked-list/
+
+Dojutsu is behind some of Naruto's strongest abilities, and some Naruto Dojutsu are virtually unstoppable.
+---------
+
+# Karen Gillan and Arthur Darvill Officially Return to 'Doctor Who' With New Series
+
+TV News, Doctor Who, Matt Smith, Karen Gillan, Arthur Darvill
+
+Tue, 18 Aug 2026 23:34:01 GMT
+
+https://collider.com/karen-gillan-and-arthur-darvill-officially-return-to-doctor-who-with-new-series/
+
+Doctor Who stars Karen Gillan and Arthur Darvill reunite for The Pondcast, a new podcast revisiting their adventures as Amy Pond and Rory Williams.
+---------
+
+# Forget 'Game of Thrones,' This Epic Fantasy Masterpiece Deserves a Streaming TV Adaptation
+
+TV Features, Books, Fantasy, Streaming, Television
+
+Tue, 18 Aug 2026 23:18:11 GMT
+
+https://collider.com/gael-song-books-fantasy-masterpiece-deserves-streaming-tv-adaptation/
+
+The Gael Song trilogy is a captivating fantasy masterpiece perfect for TV adaptation, with rich history and strong characters.
+---------
+
+# 10 Best Thriller Books of the 1990s
+
+Books and Comics, Books, Thriller, 1990s, Thomas Harris
+
+Tue, 18 Aug 2026 23:15:11 GMT
+
+https://collider.com/best-thriller-books-1990s-ranked/
+
+Hannibal by Thomas Harris, The Firm by John Grisham, and Along Came a Spider by James Patterson are among the best thriller books of the 1990s.
+---------
+
 # The Last Calvin and Hobbes Strip Is Still the Greatest Goodbye in Comics 31 Years Later
 
 Comics, Calvin and Hobbes
