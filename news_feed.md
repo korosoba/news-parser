@@ -1,3 +1,113 @@
+# Widow’s Bay Season 2 Gets First New Story Plans & Character Focus From Apple TV+ Show Creator
+
+TV, Widow's Bay
+
+Tue, 18 Aug 2026 14:38:46 GMT
+
+https://screenrant.com/widows-bay-season-2-story-plans-important-characters-katie-dippold/
+
+Creator Katie Dippold shares a new tease about Widow’s Bay season 2, revealing which characters could become a focus in the new episodes.
+---------
+
+# 8 Supernatural Episodes That Do Not Hold Up Today
+
+Classic TV, Supernatural
+
+Tue, 18 Aug 2026 14:30:11 GMT
+
+https://screenrant.com/supernatural-episodes-not-hold-up-well/
+
+Supernatural lasted 15 seasons, which means that some of its episodes were better than others, and some simply don’t hold up well today.
+---------
+
+# Rick & Morty Season 10 Release Window Officially Confirmed By Showrunners
+
+TV, Rick and Morty
+
+Tue, 18 Aug 2026 14:27:41 GMT
+
+https://screenrant.com/rick-and-morty-season-10-release-window-confirmed-harmon-marder/
+
+Rick and Morty showrunners Dan Harmon and Scott Marder officially confirm the release window for season 10, teasing when the show will return.
+---------
+
+# All 9 Movies In Classic 50-Year-Old Franchise Are Officially Leaving Netflix After Just 3 Months
+
+Movies, Masked Recs
+
+Tue, 18 Aug 2026 14:12:11 GMT
+
+https://screenrant.com/rocky-creed-movies-franchise-leaving-netflix-september-2026/
+
+All 9 Rocky and Creed movies are leaving Netflix after just three months, with August 31 the final day to watch the franchise.
+---------
+
+# Jensen Ackles’ Tracker Season 4 Return Status Confirmed By Justin Hartley
+
+TV, Tracker
+
+Tue, 18 Aug 2026 14:09:41 GMT
+
+https://screenrant.com/tracker-season-4-jensen-ackles-return-justin-hartley/
+
+Justin Hartley reveals some big news about Jensen Ackles returning for Tracker season 4, previewing what to expect from the Shaw sibling reunion.
+---------
+
+# Transformers Gives Optimus Prime's Classic G1 Design a Massive 23-Inch Upgrade
+
+Anime, Transformers, merchandise, collectibles, hasbro
+
+Tue, 18 Aug 2026 14:20:15 GMT
+
+https://www.cbr.com/transformers-optimus-prime-replica-bust-release/
+
+Transformers fans are getting another stunning collectible to celebrate one of the franchise's most important milestones, and it is perfect.
+---------
+
+# 10 Best-Written Anime Villains That Set the Gold Standard
+
+Anime, One Piece, Berserk
+
+Tue, 18 Aug 2026 14:15:15 GMT
+
+https://www.cbr.com/best-written-anime-villains-gold-standard/
+
+These anime villains stand out for their complex motivations, memorable personalities, and exceptional character writing.
+---------
+
+# Forget James Bond, Daniel Craig's 9/10 Modern Thriller Classic Is Now Streaming on Netflix
+
+Movie News, Daniel Craig, The Girl With the Dragon Tattoo, Crime, Thriller, Netflix
+
+Tue, 18 Aug 2026 14:30:12 GMT
+
+https://movieweb.com/girl-with-dragon-tattoo-stream-netflix-august-2026/
+
+From director David Fincher, this mystery thriller masterpiece has just landed on the popular streaming platform.
+---------
+
+# Taylor Sheridan Offers Update on Making the Most-Requested 'Yellowstone' Spin-Off
+
+TV News, Taylor Sheridan, Yellowstone
+
+Tue, 18 Aug 2026 14:22:40 GMT
+
+https://movieweb.com/taylor-sheridan-updates-yellowstone-spin-off/
+
+Will we ever see the 'Yellowstone' spin-off series from Taylor Sheridan?
+---------
+
+# 'Dexter: Original Sin' Cancellation After Season 2 Renewal Finally Explained
+
+TV News, Dexter: Original Sin
+
+Tue, 18 Aug 2026 14:09:38 GMT
+
+https://movieweb.com/paramount-explains-dexter-original-sin-cancellation/
+
+Paramount confirmed the real reason 'Dexter: Original Sin' was scrapped.
+---------
+
 # Colony Clip Offers A Peek Into Train To Busan Director's Zombie Genre Return
 
 Exclusive, Colony
