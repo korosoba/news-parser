@@ -1,3 +1,157 @@
+# 24 Years Later, The Wire’s Best Scene Is Still 4 Minutes Of Genius
+
+Classic TV, The Wire
+
+Tue, 18 Aug 2026 22:45:14 GMT
+
+https://screenrant.com/the-wire-f-bomb-scene-genius/
+
+The best scene in HBO's masterpiece The Wire wasn't a tragic death or a beautifully worded quote, but it still proved the writer's were geniuses.
+---------
+
+# 36 Years Later, Firefly Beat Star Trek At Its Own Game
+
+Classic TV, Firefly, Star Trek
+
+Tue, 18 Aug 2026 22:32:14 GMT
+
+https://screenrant.com/firefly-space-western-beat-star-trek/
+
+Star Trek was originally pitched as "Wagon Train to the stars," but Firefly adheres to that iconic elevator pitch a lot more literally.
+---------
+
+# Brand New Day Ignored Venom, But Marvel Studios' Spider-Man Will Officially Have A Symbiote Arc
+
+Streaming TV, Spider-Man
+
+Tue, 18 Aug 2026 22:31:14 GMT
+
+https://screenrant.com/your-friendly-neighborhood-spider-man-symbiote-arc-marvel-studios/
+
+Spider-Man: Brand New Day disappointingly ignored Venom's MCU presence, but a different version of Spider-Man is finally meeting the symbiote.
+---------
+
+# Star Trek's Greatest Movie Line Is Still A Top 10 Quote In Sci-Fi History
+
+Movies, Star Trek, Star Trek II: The Wrath of Khan
+
+Tue, 18 Aug 2026 22:31:14 GMT
+
+https://screenrant.com/star-trek-ii-wrath-of-khan-spock-sci-fi-movie-best-quote/
+
+Spock's tragic final words in The Wrath of Khan flip conquer cold logic in a way that transcends even the enduring appeal of Star Trek.
+---------
+
+# 3 Popular PlayStation 2 Games That Aged Poorly
+
+Gaming, PlayStation, PlayStation 2
+
+Tue, 18 Aug 2026 22:31:14 GMT
+
+https://screenrant.com/playstation-2-games-aged-poorly-since-launch/
+
+These PlayStation 2 games have not aged the best, despite being some of the most popular of the era.
+---------
+
+# GTA 6 Full Map Reveals Huge Open World
+
+Gaming, Grand Theft Auto 6
+
+Tue, 18 Aug 2026 22:23:54 GMT
+
+https://screenrant.com/grand-theft-auto-6-map-leak-netflix-stream/
+
+Grand Theft Auto 6 is no stranger to leaks, and the latest one proposes what the full open-world map may look like a week before the Netflix stream.
+---------
+
+# Scotty Doesn’t Know His Star Trek Future, But Strange New Worlds Can't Stop Joking About It
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Tue, 18 Aug 2026 22:15:14 GMT
+
+https://screenrant.com/star-trek-strange-new-worls-scotty-future-jokes/
+
+Star Trek: Strange New Worlds can't stop telling jokes about things that will happen in Scotty's future that the young engineer has no idea about.
+---------
+
+# Taylor Sheridan's Paramount+ Plans Teased by Exec Ahead of Major Exit
+
+TV, Paramount Plus, Tulsa King
+
+Tue, 18 Aug 2026 22:37:28 GMT
+
+https://www.cbr.com/taylor-sheridan-paramount-plus-exit-plans/
+
+Paramount+ isn't done with Taylor Sherdian yet.
+---------
+
+# Fallout Officially Drops New $429 Release Available for Preorder Now
+
+Games, Fallout
+
+Tue, 18 Aug 2026 22:35:11 GMT
+
+https://www.cbr.com/fallout-official-new-release-rust-power-armor-preorder-now/
+
+Passionate Fallout fans and collectors absolutely need to get their hands on this exclusive piece of merchandise.
+---------
+
+# 5 Strongest Magical Weapons in Anime History, Ranked
+
+Anime, Black Clover, Inuyasha, Naruto
+
+Tue, 18 Aug 2026 22:15:11 GMT
+
+https://www.cbr.com/strongest-magical-weapons-in-anime-history-ranked/
+
+Anime magic has produced some of the strongest weapons in all of fiction.
+---------
+
+# ‘Sicario’ Producer Officially Reveals the “Trojan Horse” Trick That Made the Taylor Sheridan Movie a Hit
+
+Movie News, Sicario, Denis Villeneuve, Action, Taylor Sheridan
+
+Tue, 18 Aug 2026 22:31:11 GMT
+
+https://collider.com/sicario-taylor-sheridan-action-movie-thriller-marketing-explained/
+
+Sicario producer Basil Iwanyk revealed the marketing masterstroke that turned the neo-Western thriller into a box-office hit.
+---------
+
+# Netflix Finds New Global Streaming Hit in 110-Minute Apocalyptic Thriller With Jaw-Dropping RT Score
+
+Movie News, Extinction, Hot on Streaming, Netflix
+
+Tue, 18 Aug 2026 22:31:13 GMT
+
+https://movieweb.com/extinction-netflix-streaming-hit-august-2026/
+
+Finally, one of the most underrated post-apocalypse films made in recent years finds redemption on streaming.
+---------
+
+# New Look at the MCU's Professor X Actor's Netflix Historical Epic Revealed
+
+TV News, East of Eden, Netflix
+
+Tue, 18 Aug 2026 22:29:17 GMT
+
+https://movieweb.com/east-of-eden-netflix-christopher-abbott-new-photos/
+
+Netflix landed two MCU actors for this seven-part historical epic, 'East of Eden,' including Christopher Abbott and Florence Pugh.
+---------
+
+# Original 'NCIS' Star LL Cool J Officially Returns in 'New York' Spin-Off Trailer
+
+TV News, NCIS: New York, LL Cool J
+
+Tue, 18 Aug 2026 22:24:08 GMT
+
+https://movieweb.com/ncis-new-york-official-trailer-ll-cool-j/
+
+LL Cool J is back in the 'NCIS' world, reprising his role as Special Agent Sam Hanna in the new trailer for the 'NCIS: New York' spin-off.
+---------
+
 # Godzilla’s Official Crossover With a 2,700-Year Old Classic is an S-Tier Masterpiece
 
 Comics, Godzilla
