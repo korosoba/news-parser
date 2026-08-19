@@ -1,3 +1,14 @@
+# Taylor Sheridan's Neo-Western Masterpiece Officially Smashes Another Streaming Milestone
+
+TV News, Taylor Sheridan, Landman, Streaming, Paramount Plus
+
+Wed, 19 Aug 2026 09:00:11 GMT
+
+https://collider.com/taylor-sheridan-landman-300-days-streaming-milestone-august-2026-paramount-plus/
+
+Taylor Sheridan’s Landman crosses 300 days in Paramount+’s U.S. Top 10 as fans await Billy Bob Thornton’s return in Season 3.
+---------
+
 # PlayStation Officially Unveils New Hardware Arriving November 2026
 
 Gaming, PlayStation
