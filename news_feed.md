@@ -1,3 +1,113 @@
+# Prime Video's New Viking Series Adds House Of The Dragon Star Amid Major Bloodaxe Production Update
+
+TV, Bloodaxe
+
+Wed, 19 Aug 2026 17:30:42 GMT
+
+https://screenrant.com/prime-video-bloodaxe-season-2-cast-filming-update/
+
+Prime Video's upcoming Vikings drama from a well-known creator has bulked up its cast with a major House of Dragon star and several others.
+---------
+
+# 100 Years Later, Agatha Christie’s Greatest Twist Could Finally Happen Onscreen
+
+TV, Agatha Christie, Hercule Poirot
+
+Wed, 19 Aug 2026 17:30:14 GMT
+
+https://screenrant.com/agatha-christie-murder-of-roger-ackroyd-twist-bbc-poirot/
+
+A century on from when it was first published, Agatha Christie's greatest literary achievement might at last be adapted as it was written.
+---------
+
+# 6 Most Rewatchable War Movies Of The 21st Century That Are 10/10 Every Time
+
+Movies, War
+
+Wed, 19 Aug 2026 17:22:40 GMT
+
+https://screenrant.com/most-rewatchable-war-movies-21st-century/
+
+From blood-soaked revenge to claustrophobic tales of individual heroism, the war genre has given us some of the best repeat-viewing movies since 2000.
+---------
+
+# 10 Greatest Fantasy Villains of All Time, Ranked
+
+Movies, Fantasy, The Lord of the Rings, Harry Potter
+
+Wed, 19 Aug 2026 17:30:11 GMT
+
+https://www.cbr.com/greatest-fantasy-villains-of-all-time-ranked-list/
+
+These fantasy villains anchor all that whimsical magic to something deeply human, tragic, or terrifying, making them greatest of all time.
+---------
+
+# 5 Classic '90s RPGs That Have Aged Like Milk
+
+Games, Role Playing Game, Video Games, Final Fantasy
+
+Wed, 19 Aug 2026 17:30:11 GMT
+
+https://www.cbr.com/90s-rpgs-aged-poorly-unplayable-today/
+
+Some RPGs from the '90s, such as Quest 64 and Final Fantasy VII, just haven't stood the test of time.
+---------
+
+# More GTA 6 Gameplay Leaks As Part of Memecoin Pump-&-Dump Scam
+
+Games, Grand Theft Auto
+
+Wed, 19 Aug 2026 17:26:11 GMT
+
+https://www.cbr.com/gta-6-gameplay-leak-cyberleek-crypto-scam/
+
+A new video of Grand Theft Auto 6 gameplay has surfaced with the leaker claiming noble intentions—and also asking you to buy their crypto.
+---------
+
+# The Summer 2026 Anime That Surged 250% on Google in Just 4 Episodes
+
+Anime
+
+Wed, 19 Aug 2026 17:20:11 GMT
+
+https://www.cbr.com/summer-2026-anime-chainsmoker-cat-google-surge/
+
+The infamous 'dark horse' of Summer 2026 defies expectations to become the season's no. 1 highest trending anime series.
+---------
+
+# 'KPop Demon Hunters' Is Officially Back With New Release
+
+Movie News, KPop Demon Hunters, Netflix
+
+Wed, 19 Aug 2026 17:36:45 GMT
+
+https://collider.com/kpop-demon-hunters-new-release-criterion-collection/
+
+KPop Demon Hunters returns with a stunning new release featuring HUNTR/X and other characters from the Netflix phenomenon.
+---------
+
+# Sarah Pidgeon Reveals the Thinking Behind 'Love Story’s Approach to Carolyn Bessette and JFK Jr.’s Final Moments
+
+Exclusives, Love Story, Ladies Night, Emmy Awards, Sarah Pidgeon
+
+Wed, 19 Aug 2026 17:34:28 GMT
+
+https://collider.com/love-story-john-f-kennedy-jr-carolyn-bessette-plane-scene-sarah-pidgeon/
+
+While on Collider Ladies Night, Sarah Pidgeon discussed some of Love Story's biggest moments, including Carolyn Bessette and JFK Jr.’s last scene.
+---------
+
+# Live-Action 'Star Wars: The Clone Wars' Series Addressed by Franchise Icon
+
+TV News, Star Wars: The Clone Wars, Star Wars, Ahsoka, Hayden Christensen
+
+Wed, 19 Aug 2026 17:25:58 GMT
+
+https://movieweb.com/star-wars-clone-wars-live-action-remake/
+
+Hayden Christensen hints at wanting to reunite with his 'Star Wars' prequel co-stars Ewan McGregor, Natalie Portman, and Samuel L. Jackson.
+---------
+
 # Luffy's Straw Hat Pirates Spotlighted In LEGO One Piece Key Art (Exclusive)
 
 TV, One Piece, LEGO
