@@ -1,3 +1,201 @@
+# Florence Pugh's $87.6 Million R-Rated Psychological Thriller Deserves Its Global HBO Max Streaming Success
+
+Movies, Masked Recs
+
+Wed, 19 Aug 2026 14:45:30 GMT
+
+https://screenrant.com/hbo-max-dont-worry-darling-streaming-charts-rise-august-2026/
+
+Florence Pugh's R-rated thriller is quite underrated, and it deserves its global HBO Max streaming success, which comes at the perfect moment.
+---------
+
+# Apple TV’s Hit Space Opera Series Adds Steve Buscemi & 24 Others To Stacked Murderbot Season 2 Cast
+
+TV, Murderbot
+
+Wed, 19 Aug 2026 14:41:56 GMT
+
+https://screenrant.com/apple-tv-murderbot-season-2-cast-steve-buscemi-tramell-tillman-michael-sheen/
+
+Apple TV's highly anticipated space opera sci-fi series' return is coming with a stacked season 2 cast that includes Steve Buscemi and Michael Sheen.
+---------
+
+# Stranger Things Officially Confirms 2026 Return Date With New Tales From ’85 Images
+
+TV, Stranger Things: Tales from '85, Stranger Things, Netflix
+
+Wed, 19 Aug 2026 14:40:20 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-season-2-release-date-images/
+
+Netflix officially confirms Stranger Things' 2026 return date this fall as they also unveil the first images from Tales from '85 season 2.
+---------
+
+# Star Wars Officially Confirms Timothy Olyphant’s 2026 Return & Major Recasting
+
+Star Wars
+
+Wed, 19 Aug 2026 14:32:12 GMT
+
+https://screenrant.com/timothy-olyphant-star-wars-lego-mandalorian-return-confirmed-greef-karga-recast/
+
+A new Star Wars announcement reveals the return of Timothy Olyphant (The Mandalorian, The Book of Boba Fett) and the recasting of a major character.
+---------
+
+# A Knight Of The Seven Kingdoms Sets New Release This November Amid Season 2 Wait
+
+TV, Game of Thrones, A Knight Of The Seven Kingdoms
+
+Wed, 19 Aug 2026 14:26:27 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-season-1-soundtrack-physical-release-date/
+
+As the wait continues for A Knight of the Seven Kingdoms season 2, the Game of Thrones spinoff has set an exciting new release for later this year.
+---------
+
+# Netflix & KPop Demon Hunters Accused Of “Exploitation” In Shocking New Lawsuit
+
+Movies, KPop Demon Hunters, Netflix
+
+Wed, 19 Aug 2026 14:17:40 GMT
+
+https://screenrant.com/netflix-kpop-demon-hunters-lawsuit-exploitation-accusations/
+
+Netflix is being hit with a lawsuit over their groundbreaking hit KPop Demon Hunters as a music group accuses the film of "exploitation."
+---------
+
+# Batman Finally Has An Enemy That His Prep Time Can't Beat
+
+DC Comics, Batman
+
+Wed, 19 Aug 2026 14:15:14 GMT
+
+https://screenrant.com/batman-bad-seeds-parliament-trees/
+
+Batman's next enemies are an invincible force of nature that negate any prep-time strategy he could ever come up with, forcing him to improvise.
+---------
+
+# Backrooms’ First Sequel Quietly Releases After Record-Smashing Box Office Run
+
+Movies, Backrooms
+
+Wed, 19 Aug 2026 14:13:20 GMT
+
+https://screenrant.com/backrooms-sequel-release-quiet-kane-parsons/
+
+After directing his very first feature-length film, Backrooms, Kane Parsons is back with the first follow-up to the $393 million hit horror movie.
+---------
+
+# Vince Vaughn's Hit Apple TV Series Bad Monkey Lands Season 2 Release Date & First Images
+
+TV, Bad Monkey
+
+Wed, 19 Aug 2026 14:09:53 GMT
+
+https://screenrant.com/vince-vaughn-bad-monkey-season-2-apple-tv-release-date-first-images/
+
+Vince Vaughn is almost back for Bad Monkey, as Apple TV reveals the return date and first photos of the popular crime dramedy adaptation.
+---------
+
+# Marvel Officially Reveals That Dan Slott's Spectacular Spider-Man is Now an Ongoing Series as it Hits the 'Big Time'
+
+Comics, Spider-Man
+
+Wed, 19 Aug 2026 14:40:12 GMT
+
+https://www.cbr.com/marvel-reveals-dan-slott-spectacular-spider-man-ongoing/
+
+In a CBR exclusive announcement/interview, Dan Slott discusses his Spectacular Spider-Man graduating to an ongoing series as it hits the "Big Time"
+---------
+
+# CBS Quietly Rewrites Scott Caan's Hawaii Five-0 Role in NCIS & Breaks Franchise Canon
+
+TV, NCIS, NCIS: New York, Hawaii Five-0, Innovation
+
+Wed, 19 Aug 2026 14:30:30 GMT
+
+https://www.cbr.com/scott-caan-comeback-cbs-ncis-new-york-break-franchise-canon/
+
+CBS's latest NCIS spinoff will completely shift expectations for Scott Caan of Hawaii Five-0 fame, officially breaking the Navy franchise's rules.
+---------
+
+# Transformers Officially Adds Optimus Prime, Megatron & 10 More to Minecraft
+
+Anime, Transformers, Minecraft.
+
+Wed, 19 Aug 2026 14:20:11 GMT
+
+https://www.cbr.com/transformers-minecraft-add-on-optimus-prime-megatron/
+
+Transformers and Minecraft team up to bring some of the most iconic robot rivalries to the hit video game.
+---------
+
+# 7 Forgotten High Fantasy Anime No One Remembers
+
+Anime, Fantasy, Record Of Lodoss War
+
+Wed, 19 Aug 2026 14:15:11 GMT
+
+https://www.cbr.com/forgotten-high-fantasy-anime/
+
+High fantasy anime's older sword-and-sorcery traditions often receive less attention than the trends shaping today's releases.
+---------
+
+# ‘Jeopardy!’s Greatest Winning Streak Has Still Never Been Topped Over 20 Years Later
+
+TV Features, Jeopardy, Alex Trebek, Ken Jennings, ABC
+
+Wed, 19 Aug 2026 14:52:11 GMT
+
+https://collider.com/jeopardy-greatest-game-winning-streak-record-ken-jennings-74-games/
+
+Jeopardy! champion Ken Jennings' historic 74-game winning streak still hasn't been topped 22 years after his record-setting run.
+---------
+
+# 'John Wick' Meets 'The Grey' as Joel Kinnaman’s Relentless Thriller Officially Arrives on Prime Video
+
+Movie News, Icefall, Joel Kinnaman, John Wick, The Grey
+
+Wed, 19 Aug 2026 14:45:11 GMT
+
+https://collider.com/icefall-streaming-release-prime-video-august-2026/
+
+John Wick meets The Grey in Joel Kinnaman’s epic thrill-ride officially streaming now on Prime Video.
+---------
+
+# Netflix’s New Spielbergian Sci-Fi Thriller Explodes With 110M+ Hours Watched
+
+Movie News, The Last House, Wagner Moura, Netflix, Sci-Fi
+
+Wed, 19 Aug 2026 14:15:11 GMT
+
+https://collider.com/last-house-60-million-hours-watched/
+
+Netflix's new Spielbergian sci-fi thriller with Wagner Moura and Greta Lee has officially crossed 110 million hours watched in two weeks.
+---------
+
+# 10 Movies So Good They Created the Blueprint for a Whole Genre
+
+Movie Lists
+
+Wed, 19 Aug 2026 14:31:13 GMT
+
+https://movieweb.com/movies-so-good-they-created-blueprint-for-a-whole-genre/
+
+Some movies come around and change an entire genre; these 10 films did just that.
+---------
+
+# 'Wildwood' Trailer Reveals 'Coraline' Creators' Gothic Fantasy Adventure
+
+Movie News, Wildwood, Coraline, The Chronicles of Narnia
+
+Wed, 19 Aug 2026 14:17:29 GMT
+
+https://movieweb.com/wildwood-trailer-2026-fantasy-adventure/
+
+The minds behind 'Coraline' have a thrilling new adventure to highlight in a new look at the upcoming 'Wildwood' movie.
+---------
+
 # 10 Greatest Harry Potter Movie Scenes That Weren't In The Books
 
 Movies, Harry Potter
