@@ -1,3 +1,168 @@
+# Insidious 6 Officially Sets All-Time Rotten Tomatoes Record With Debut Score
+
+Movies, Insidious: Out of the Further, Insidious, Horror
+
+Wed, 19 Aug 2026 21:10:45 GMT
+
+https://screenrant.com/insidious-6-out-of-the-further-rotten-tomatoes-score-debut-franchise-record/
+
+Reviews are rolling out for Insidious: Out of the Further and critics have granted the film a new all-time record score on Rotten Tomatoes.
+---------
+
+# Fallout 76: How to Defeat The Wendigo Colossus (& Where to Find It)
+
+Game Guides, Fallout 76
+
+Wed, 19 Aug 2026 21:00:16 GMT
+
+https://screenrant.com/fallout-76-defeat-wendigo-colossus/
+
+Fallout 76 is filled with many creatures, none more elusive than the difficult Wendigo Colossus, here's exactly how to find and defeat it.
+---------
+
+# 10 Fantasy Series Without A Single Bad Book
+
+Books, Fantasy
+
+Wed, 19 Aug 2026 21:00:14 GMT
+
+https://screenrant.com/best-fantasy-series-without-single-bad-book/
+
+From A Song of Ice and Fire's scheming politics and wars to Discworld's sly satire, here are 10 fantasy series that do not have a single bad book.
+---------
+
+# Guy Ritchie & Henry Cavill's Underrated World War 2 Movie Is Now Streaming For Free
+
+Classic Movies, The Ministry of Ungentlemanly Warfare
+
+Wed, 19 Aug 2026 21:00:14 GMT
+
+https://screenrant.com/ministry-of-ungentlemanly-warfare-streaming-tubi-august-2026/
+
+There is a highly underrated Guy Ritchie World War II movie starring Henry Cavill that is streaming for free for anyone who wants to see it.
+---------
+
+# High Potential’s Underrated Character Needs To Evolve After Season 2’s Absence
+
+Network TV, High Potential
+
+Wed, 19 Aug 2026 21:00:14 GMT
+
+https://screenrant.com/high-potential-season-3-ludo-character-taran-killam-bigger-role/
+
+One specific High Potential character wasn't around much for season 2, but there's an opportunity for a much more prominent role in season 3.
+---------
+
+# Nathan Fillion's New 8-Part HBO Detective Series Is Already One Of Its Best
+
+Streaming TV, Lanterns, DC Universe
+
+Wed, 19 Aug 2026 20:59:59 GMT
+
+https://screenrant.com/hbo-max-lanterns-detective-sci-fi-series-best/
+
+HBO's new detective series might have just been released, but it is already one of its best for a few core reasons, including a talented cast.
+---------
+
+# Taylor Jenkins Reid’s 2027 Novel Enlists Sopranos & The L Word Alums For Star-Studded Audiobook
+
+Books
+
+Wed, 19 Aug 2026 20:59:05 GMT
+
+https://screenrant.com/taylor-jenkins-reid-last-days-vic-coco-audiobook-cast/
+
+Taylor Jenkins Reid’s first novel since 2025’s Atmosphere is coming out in 2027, and the star-studded audiobook cast has just been revealed.
+---------
+
+# 10 Most Powerful Yu-Gi-Oh! Decks of the 2000s, Ranked
+
+Games, Yu-Gi-Oh!, TCG, Tabletop
+
+Wed, 19 Aug 2026 21:15:11 GMT
+
+https://www.cbr.com/most-powerful-yu-gi-oh-decks-2000s-ranked/
+
+Yu-Gi-Oh was always about more than just summoning Dark Magician or Flame Swordsman, and these decks showcase just how powerful the game can be.
+---------
+
+# 5 Greatest Detective Thrillers Based On Books, Ranked
+
+Movies, Thriller, The Silence of the Lambs, L.A. Confidential
+
+Wed, 19 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/best-detective-thrillers-based-on-books-list/
+
+Detective stories have dominated thriller fiction since the golden age, and the best out there draw on beloved novels to find success.
+---------
+
+# Mahershala Ali’s Epic Fantasy Adventure Set to Break Historic Record 2 Months Before Release
+
+Movies, Wildwood, Fantasy, Animation
+
+Wed, 19 Aug 2026 20:53:28 GMT
+
+https://www.cbr.com/wildwood-longest-stop-motion-movie-ever-record/
+
+One of the biggest fantasy adventure films of the year is just two months away from setting a brand-new record, and it won't be easy to beat
+---------
+
+# Every Jimi Hendrix Studio Album, Ranked
+
+Music News, Music, Jimi Hendrix, Rock, Jimi Hendrix: Live at Woodstock
+
+Wed, 19 Aug 2026 21:15:11 GMT
+
+https://collider.com/every-jimi-hendrix-studio-album-ranked/
+
+From Are You Experienced to Axis: Bold as Love and Electric Ladyland, every Jimi Hendrix album, ranked.
+---------
+
+# 10 'Star Trek: The Original Series' Episodes Everyone Should Watch at Least Once
+
+TV, Star Trek, Star trek, Sci-Fi, NBC
+
+Wed, 19 Aug 2026 21:10:11 GMT
+
+https://collider.com/star-trek-original-series-episodes-everyone-should-watch/
+
+"Amok Time," "Balance of Terror," and "The City on the Edge of Forever" are among the best, most essential Star Trek: The Original Series episodes.
+---------
+
+# 7 Best NC-17 Romance Movies of All Time
+
+Movie, Blue is the Warmest Color, The Cook, the Thief, His Wife & Her Lover, Lust, Caution, Showgirls
+
+Wed, 19 Aug 2026 20:54:11 GMT
+
+https://collider.com/best-nc-17-romance-movies-all-time-ranked/
+
+Some of the best romance movies rated NC-17 include The Dreamers, The Cook, the Thief, His Wife & Her Lover, and Blue Is the Warmest Color.
+---------
+
+# 'Landman' Season 3 Update Confirms Harsh Reality For Taylor Sheridan's Neo-Western
+
+Features, Landman, Taylor Sheridan, Western
+
+Wed, 19 Aug 2026 21:00:13 GMT
+
+https://movieweb.com/landman-season-3-update-delays/
+
+'Landman' is one of Taylor Sheridan's most popular Western TV shows and stars Michelle Randolph, Billy Bob Thornton, and Ali Larter.
+---------
+
+# Netflix Revives Johnny Depp's 115-Minute Dark Classic Ahead of New Series
+
+Movie News, Charlie and the Chocolate Factory, Johnny Depp, Hot on Streaming, Netflix
+
+Wed, 19 Aug 2026 21:00:13 GMT
+
+https://movieweb.com/charlie-and-the-chocolate-factory-johnny-depp-netflix-hit-august-2026/
+
+Ahead of a new series and film remake, Netflix has breathed new life into one of Johnny Depp and Tim Burton's best movies.
+---------
+
 # John Dutton Meets Raylan Givens In Streaming’s Most Overlooked Neo-Western Series
 
 TV, Longmire
