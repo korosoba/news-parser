@@ -1,3 +1,14 @@
+# PlayStation Officially Unveils New Hardware Arriving November 2026
+
+Gaming, PlayStation
+
+Wed, 19 Aug 2026 07:45:40 GMT
+
+https://screenrant.com/playstation-new-hardware-pulse-elevate-wireless-speakers/
+
+Discover the sleek new PlayStation hardware that's launching November 2026, using advanced technology to make gaming sessions better.
+---------
+
 # Xbox Game Pass Subscribers, Mark Your Calendars For August 31
 
 Gaming, Xbox Game Pass, Live Service Games, Triple-A Games
