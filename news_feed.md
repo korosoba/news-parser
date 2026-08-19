@@ -1,3 +1,146 @@
+# 85 Years Later, Wonder Woman Gets a New First Costume in DC Lore Rewrite
+
+DC Comics, Wonder Woman
+
+Wed, 19 Aug 2026 16:50:07 GMT
+
+https://screenrant.com/wonder-woman-new-first-costume/
+
+DC has embarked on the monumental task of reimagining Diana’s origin, and with this new interpretation has come a new first costume for Wonder Woman.
+---------
+
+# Alien Unleashes the Ultimate Form of Ripley's Iconic Power Lifter
+
+Comics, Alien
+
+Wed, 19 Aug 2026 16:48:08 GMT
+
+https://screenrant.com/alien-power-lifter-mech-upgrade/
+
+Marvel's new Alien finale turns industrial exoskeleton aesthetics into body horror as Ripley's iconic mechanized avatar meets the Xenomorph.
+---------
+
+# Hulu & Ellen Pompeo’s Good American Family Series Officially Returning For More Episodes
+
+TV, Good American Family
+
+Wed, 19 Aug 2026 16:47:22 GMT
+
+https://screenrant.com/ellen-pompeo-good-american-family-season-2-anthology-lorena-bobbitt-story-details-report/
+
+Hulu’s Good American Family with Ellen Pomeo is coming back for another season, as the series moves on to another sensational real-life story.
+---------
+
+# 18 Years Later, The Dark Knight Trilogy's Secret Fourth Movie Is Still One Of Batman's Best Films
+
+Movies, Masked Recs, Batman
+
+Wed, 19 Aug 2026 16:30:14 GMT
+
+https://screenrant.com/gotham-knight-batman-best-movies-dark-knight-trilogy/
+
+Batman: Gotham Knight is the secret fourth installment in The Dark Knight trilogy, and it's one of the Bat's greatest animated adventures.
+---------
+
+# Paramount Adaptation of Hit Fantasy Book Condemned by Author
+
+Movies, Children of Blood and Bone, Fantasy, viola davis
+
+Wed, 19 Aug 2026 16:30:11 GMT
+
+https://www.cbr.com/children-of-blood-and-bone-book-author-condemns-paramount-movie/
+
+The author also shared a screenshot of blocking the movie's star Amandla Stenberg, telling her to never mention her name again.
+---------
+
+# 5 Years Later, Taylor Sheridan Confirms His Best Yellowstone Spinoff Is Dead for Good
+
+TV, Yellowstone, Dutton Ranch, Marshals
+
+Wed, 19 Aug 2026 16:22:23 GMT
+
+https://www.cbr.com/taylor-sheridan-confirms-yellowstone-spinoff-6666-is-dead/
+
+This is very disappointing news for Yellowstone fans everywhere.
+---------
+
+# Netflix’s Anya Taylor-Joy & Chris Evans Action-Adventure Unveils First Look
+
+Movies, Sacrifice, Adventure, Netflix, Innovation
+
+Wed, 19 Aug 2026 16:22:22 GMT
+
+https://www.cbr.com/netflix-sacrifice-anya-taylor-joy-chris-evans-first-look/
+
+Netflix has revealed the first look at Sacrifice, which teams Anya Taylor-Joy with the Avengers star for a wild adventure.
+---------
+
+# HBO Officially Confirms New Fantasy Series Will Replace 'The Last of Us'
+
+TV News, The Last of Us, Baldur's Gate, HBO Max, Craig Mazin
+
+Wed, 19 Aug 2026 16:45:11 GMT
+
+https://collider.com/baldurs-gate-series-replacing-the-last-of-us-season-3/
+
+HBO has officially tipped their hat that The Last of Us will be replaced by another big-budget video game adaptation.
+---------
+
+# Marvel Officially Announces New X-Men Series After Live-Action Debut
+
+Books and Comics News, Marvel, X-Men, Spider-Man: Brand New Day
+
+Wed, 19 Aug 2026 16:45:11 GMT
+
+https://collider.com/marvel-comics-jean-grey-series/
+
+Marvel is officially launching a brand-new Jean Grey comic run following Sadie Sink's live-action debut.
+---------
+
+# 'The Goonies’ Meets ‘The Outsiders’ in Netflix Hit Returning for its Final Season
+
+TV Features, Outer Banks, Netflix, The Goonies, The Outsiders
+
+Wed, 19 Aug 2026 16:45:11 GMT
+
+https://collider.com/netflix-replacement-series-goonies-outsiders-outer-banks-season-5/
+
+Returning for one final mission, Netflix’s Outer Banks mixes the treasure hunting of The Goonies and the social politics of The Outsiders.
+---------
+
+# All 10 Pixar Movies of the 2020s, Ranked
+
+Movie, Pixar, Inside Out 2, Soul, Onward
+
+Wed, 19 Aug 2026 16:34:11 GMT
+
+https://collider.com/pixar-movies-2020s-ranked/
+
+In the 2020s so far, Pixar has produced ten movies, from mediocre efforts like Lightyear to surprising hits like Hoppers, but which is the greatest?
+---------
+
+# 'Stranger Things' Officially Brings Back Eddie Munson For New Spin-Off
+
+TV News, Stranger Things, Joseph Quinn, Stranger Things: Tales from '85, Netflix
+
+Wed, 19 Aug 2026 16:33:05 GMT
+
+https://collider.com/stranger-things-spin-off-dungeons-and-dragons-eddie-munson/
+
+Stranger Things fans can continue Eddie Munson’s story by joining the Hellfire Club and playing through his unfinished Dungeons & Dragons campaign.
+---------
+
+# New 'Whalefall' Trailer Unleashes Most Intense Survival Thriller of the Year
+
+Movie News, Whalefall
+
+Wed, 19 Aug 2026 16:29:01 GMT
+
+https://movieweb.com/whalefall-trailer-2026/
+
+A wild new trailer for 'Whalefall' was released online, showing fans what could be one of the most intense new movies of the year.
+---------
+
 # Josh Brolin's Undersea Lessons Are Key To Austin Abrams' Survival Inside A Whale In New Whalefall Trailer
 
 Movies, Whalefall
