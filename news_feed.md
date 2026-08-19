@@ -1,3 +1,223 @@
+# Netflix's 10/10 Fantasy Series Is The Lord Of The Rings But Bigger
+
+Streaming TV, Masked Recs
+
+Wed, 19 Aug 2026 00:30:14 GMT
+
+https://screenrant.com/one-piece-fantasy-lore-makes-lord-of-the-rings-small/
+
+Middle-earth may by synonymous with expansive worldbuilding as far as pop culture is concerned, but one Netflix series has it beaten at its own game.
+---------
+
+# Over 25 Major Easter Eggs, References, And DCU Ties in Lanterns Episode 1
+
+Streaming TV, Lanterns, DC Universe
+
+Wed, 19 Aug 2026 00:22:13 GMT
+
+https://screenrant.com/lanterns-easter-eggs-references-and-dcu-ties-episode-1/
+
+DC Studios' new Lanterns series has premiered on HBO Max, featuring a epic collection of Easter eggs, comic book references, and key ties to the DCU.
+---------
+
+# Cormac McCarthy's Movie Adaptation For Final Twin Novels Is No Longer Happening
+
+Movies, Drama
+
+Wed, 19 Aug 2026 00:18:32 GMT
+
+https://screenrant.com/cormac-mccarthy-the-passenger-stella-maris-books-movie-adaptation-update/
+
+Director Jeff Nichols explained why his film adaptation of Cormac McCarthy's final two books, The Passenger and Stella Maris, have been scrapped.
+---------
+
+# A New Anime Announcement Guarantees That Solo Leveling's Reign Will End In 2028
+
+Anime, Masked Recs
+
+Wed, 19 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/omniscient-readers-viewpoint-end-solo-leveling-reign-2028/
+
+With Solo Leveling winding toward its final arcs, Omniscient Reader's anime and game rollout in 2028 signals a huge shift in dominance.
+---------
+
+# Kurt Russell’s Surprising Return In Taylor Sheridan’s New Western Is Perfectly Timed
+
+TV, Kurt Russell, Taylor Sheridan
+
+Wed, 19 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/kurt-russell-the-madison-season-2-return-well-timed-rivals-of-amziah-king/
+
+Kurt Russell has returned to the Western genre in a major way, which makes his bigger role in Taylor Sheridan's new TV show even more exciting.
+---------
+
+# 5 Perfect RPGs No One Remembers
+
+Games, RPG, Marvel, The Lord of the Rings
+
+Wed, 19 Aug 2026 00:45:11 GMT
+
+https://www.cbr.com/perfect-rpgs-no-one-remembers/
+
+Tons of incredible RPGs have released over the years, making it easy for some classic titles to go completely forgotten.
+---------
+
+# Only One Sci-Fi Movie Has Better Fight Scenes Than The Matrix
+
+Movies, Sci-Fi
+
+Wed, 19 Aug 2026 00:30:11 GMT
+
+https://www.cbr.com/upgrade-better-fight-scene-than-the-matrix/
+
+The Matrix remains one of the most iconic action movies in history, but there's another sci-fi movie that arguably has better fight scenes.
+---------
+
+# Hunter x Hunter Finally Brings Back Chrollo With First Look at His New Design
+
+Anime, Hunter X Hunter
+
+Wed, 19 Aug 2026 00:20:11 GMT
+
+https://www.cbr.com/hunter-x-hunter-nen-x-survivor-chrollo-new-design/
+
+Hunter X Hunter's most complex villain and the leader of the Phantom Troupe is officially back with a new look in the latest Nen X Survivor update.
+---------
+
+# 10 Greatest Anime Movies Since 2021
+
+Anime, Studio Ghibli, Sword Art Online, Mobile Suit Gundam
+
+Wed, 19 Aug 2026 00:15:11 GMT
+
+https://www.cbr.com/greatest-anime-movies-since-2021/
+
+Everyone remembers classic anime movies like Spirited Away and Perfect Blue, but the 2020s have also introduced some truly great films to the world.
+---------
+
+# KPop Demon Hunters Officially Returns With New Release Available Now
+
+Games, KPop Demon Hunters
+
+Wed, 19 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/k-pop-demon-hunters-official-return-new-release/
+
+Rumi, Mira, and Zoey are officially back in a surprise new K-Pop Demon Hunters release.
+---------
+
+# Forgotten 10-Part Post-Apocalyptic Sci-Fi Series Shoots Up Streaming Charts
+
+TV, Extinct, Prime Video
+
+Wed, 19 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/extinct-sci-fi-prime-video-success-august-2026/
+
+Nearly a decade after the cancellation, the post-apocalyptic sci-fi show is climbing back up the charts.
+---------
+
+# Minions & Monsters is the Best in the Franchise
+
+Movies, Illumination Entertainment, Minions & Monsters, Despicable Me
+
+Wed, 19 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/minions-and-monsters-best-in-the-franchise/
+
+Despite being the lowest-grossing installment in the animated franchise to date, this summer's Minions & Monsters proved to be the best by far.
+---------
+
+# Barbie Sequel Is Officially Happening After Greta Gerwig’s 2023 Hit
+
+Comics, Barbie
+
+Wed, 19 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/dark-horse-barbie-comic-confirmed/
+
+Barbie fans have a brand-new title to look forward to, although it isn't going to be the big-budget feature film follow-up they were expecting.
+---------
+
+# 3 Christopher Nolan Movie Lines That Sound Clunky but Are Secretly Brilliant
+
+Movie, Christopher Nolan, The Odyssey, Interstellar, The Dark Knight Rises
+
+Wed, 19 Aug 2026 00:32:11 GMT
+
+https://collider.com/christopher-nolan-movie-lines-clunky-secretly-brilliant/
+
+Lines of dialogue from Christopher Nolan movies Interstellar and The Odyssey have been criticized for being clunky, but they're actually brilliant.
+---------
+
+# Prime Video's 9 Greatest Action Shows That Are 10/10, No Notes
+
+TV, Action, Prime Video, Reacher, The Boys
+
+Wed, 19 Aug 2026 00:11:11 GMT
+
+https://collider.com/best-prime-video-action-shows-no-notes/
+
+From the animated superhero series Invincible to the buddy comedy Ride or Die, we highlight the best action shows currently streaming on Prime Video.
+---------
+
+# The Best SEAL Team Series Officially Arrives on Netflix in 24 Hours
+
+TV News, SEAL Team, Netflix, Paramount Plus, CBS
+
+Wed, 19 Aug 2026 00:00:11 GMT
+
+https://collider.com/the-best-seal-team-series-netflix-release-in-24-hours/
+
+The best SEAL Team series, which ended in 2024, arrives on Netflix in many regions worldwide tomorrow. Here's all to know.
+---------
+
+# Robin Williams' 'Aladdin' Replacement Returning for New Disney Spin-Off
+
+Movie News, Descendants, Disney, Darren Criss, Robin Williams
+
+Wed, 19 Aug 2026 00:43:51 GMT
+
+https://movieweb.com/aladdin-robin-williams-replacement-voice-descendants-spin-off/
+
+Tony-winning actor James Monroe Inglehart will play the Genie in Disney Channel's latest 'Descendants' movie.
+---------
+
+# Apple TV Makes First Major Change to Streamer in 7 Years
+
+Movie News, Apple TV
+
+Wed, 19 Aug 2026 00:37:26 GMT
+
+https://movieweb.com/apple-tv-library-update-classic-movies/
+
+The service has finally added licensed content to its streaming library, instead of only offering original movies and TV shows.
+---------
+
+# Forget 'Reacher': These 5 Action Thrillers Are Your Next Weekend Binge
+
+TV Lists, Reacher, Lioness, Bosch
+
+Wed, 19 Aug 2026 00:00:13 GMT
+
+https://movieweb.com/reacher-replacement-action-thrillers/
+
+'Reacher' fans who enjoy the Amazon Prime Video action thriller starring Alan Ritchson will love these bingeworthy shows, too.
+---------
+
+# One of the All-Time Best Action Epic Films Officially Returns in New Release
+
+Movie News, Troy
+
+Tue, 18 Aug 2026 23:56:53 GMT
+
+https://movieweb.com/troy-movie-4k-blu-ray-release-limited-edition/
+
+A new 4K Ultra HD Blu-ray release of 'Troy' is on shelves now.
+---------
+
 # Casting Buffy The Vampire Slayer If It Was Made In 2026
 
 Classic TV, Buffy The Vampire Slayer
