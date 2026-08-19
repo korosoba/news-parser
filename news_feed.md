@@ -1,3 +1,91 @@
+# 61 Years Later, The Greatest Opening Line In Sci-Fi Remains Unmatched
+
+Gaming, Sci-Fi, Dune
+
+Wed, 19 Aug 2026 11:00:15 GMT
+
+https://screenrant.com/greatest-opening-sci-fi-line-frank-herbert/
+
+After 61 years, this perfect opener is still the greatest in the history of the genre, setting the stage for the most epic sci-fi story ever told.
+---------
+
+# 10 Best The Far Side Frankenstein’s Monster Comics, Ranked
+
+Comics, The Far Side
+
+Wed, 19 Aug 2026 11:00:11 GMT
+
+https://www.cbr.com/best-the-far-side-comics-frankensteins-monster-ranked/
+
+Out of the many fictional characters The Far Side placed in steady rotation, Frankenstein's monster was surprisingly one Larson featured most often.
+---------
+
+# The 10 Darkest Comedy Movies of All Time, Ranked
+
+Movie, Comedy, Fargo, In Bruges, Pink Flamingos
+
+Wed, 19 Aug 2026 11:16:11 GMT
+
+https://collider.com/dark-comedy-movies-ranked/
+
+Movies like Pink Flamingos and In Bruges are among the darkest comedies out there, finding the humor in the bleakest of circumstances.
+---------
+
+# 10 Great Gangster Movies You Probably Haven't Seen
+
+Movie, The Sicilian Clan, Gangs of Wasseypur, A Prophet (2009), Bound by Honor
+
+Wed, 19 Aug 2026 11:08:16 GMT
+
+https://collider.com/great-gangster-movies-you-havent-seen/
+
+Great gangster movies that are also somewhat underseen include the likes of Gangs of Wasseypur, The Sicilian Clan, and The Roaring Twenties.
+---------
+
+# Rebecca Ferguson’s 10/10 Sci-Fi Series Officially Secures a Major Win on Apple TV
+
+TV News, Silo, Rebecca Ferguson, Sci-Fi, Apple TV
+
+Wed, 19 Aug 2026 11:00:11 GMT
+
+https://collider.com/silo-rebecca-ferguson-sci-fi-masterpiece-apple-tv-viewership-nielsen-ratings/
+
+The latest Nielsen ratings are in, and Rebecca Ferguson's sci-fi sensation Silo has gained viewers after its Season 3 premiere.
+---------
+
+# Forget 'Taken,' 89-Minute Revenge Action Thriller Officially Scores Big on Streaming
+
+Movie News, One Mile: Chapter One, Hot on Streaming
+
+Wed, 19 Aug 2026 11:00:14 GMT
+
+https://movieweb.com/one-mile-streaming-success-paramount-plus-global-august-2026/
+
+The "father of the day" award goes to Ryan Phillippe.
+---------
+
+# 'Ted Lasso' Season 4 Risks Repeating Divisive Season 2 Storyline
+
+Features, Ted Lasso, Comedy, Apple TV, Jason Sudeikis, Brett Goldstein
+
+Wed, 19 Aug 2026 11:00:14 GMT
+
+https://movieweb.com/ted-lasso-season-4-alice-nate-villain-arc/
+
+Nate's villain storyline in 'Ted Lasso' Season 2 was met with a lot of backlash, but is Season 4 going to do the same with Alice?
+---------
+
+# 'Terminator Meets Die Hard' Sci-Fi Thriller Hailed as 'One of the Best Action Movies of the Year'
+
+Movie News, Onslaught, Action, Thriller, Sci-Fi
+
+Wed, 19 Aug 2026 10:56:12 GMT
+
+https://movieweb.com/onslaught-early-reactions-2026-best-action-thriller/
+
+Early reactions have heaped praise on the throwback sci-fi action thriller 'Onslaught,' but there are some caveats.
+---------
+
 # Super Mario Eclipse Is The Sunshine Sequel We Always Wanted
 
 Gaming, Super Mario, Super Mario Sunshine
