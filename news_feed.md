@@ -1,3 +1,201 @@
+# David Boreanaz's 7-Part Action Thriller Series Hits Netflix's Official Charts
+
+TV, Masked Recs
+
+Wed, 19 Aug 2026 18:07:48 GMT
+
+https://screenrant.com/david-boreanaz-seal-team-show-netflix-chart-august-2026/
+
+David Boreanaz's seven-part action thriller series has stormed onto Netflix's official charts, gaining attention from audiences worldwide.
+---------
+
+# Salma Hayek Wants Revenge In First Trailer For Angelina Jolie's New Bestselling Movie Without Blood
+
+Movies, Without Blood
+
+Wed, 19 Aug 2026 18:06:09 GMT
+
+https://screenrant.com/without-blood-trailer-salma-hayek-angelina-jolie/
+
+The first trailer for Without Blood has been released, showcasing Salma Hayek's quest for revenge in a film by Angelina Jolie based on a bestseller.
+---------
+
+# NYT Connections Solution And Hints For August 19, 2026
+
+Gaming, Connections
+
+Wed, 19 Aug 2026 18:01:14 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-19-2026/
+
+Quickness and secrecy are two themes behind today's Connections, which has a wide variety in its topics to make any solution tricky to find.
+---------
+
+# What Happened To Hal Jordan & 4 Other Mysteries Lanterns Has To Answer
+
+Streaming TV, Lanterns
+
+Wed, 19 Aug 2026 18:01:14 GMT
+
+https://screenrant.com/lanterns-hbo-mysteries-unanswered-questions/
+
+Lanterns season 1 has gotten off to a strong start, but there are a lot of unanswered questions and mysteries to resolve before the finale.
+---------
+
+# Elden Ring Is Officially Returning, And New Gameplay Looks Incredible
+
+Gaming, Elden Ring, Elden Ring: Tarnished Edition, Nintendo, Nintendo Switch 2, PC
+
+Wed, 19 Aug 2026 18:01:14 GMT
+
+https://screenrant.com/elden-ring-tarnished-edition-gameplay-showcase/
+
+After an extremely long wait, Elden Ring is finally back, and fans can catch a glimpse of its incredible new gameplay.
+---------
+
+# Warner Bros. & Tom Hanks In Talks To Adapt Movie For Bestselling Fictional Novel Theo Of Golden
+
+Movies, Tom Hanks
+
+Wed, 19 Aug 2026 18:00:16 GMT
+
+https://screenrant.com/theo-of-golden-movie-development-tom-hanks-casting/
+
+After the success of Toy Story 5, Tom Hanks is lining up his next film project: an adaptation of the hit 2026 novel Theo of Golden by Allen Levi.
+---------
+
+# Naruto Announces Epic New Project, And Fans Should Get Hyped For October 10th
+
+Anime, Naruto
+
+Wed, 19 Aug 2026 17:52:19 GMT
+
+https://screenrant.com/naruto-new-project-october-10th/
+
+The Naruto franchise has been having a thrilling 2026 so far, with Fall's big announcement perhaps being the one fans have been seeking.
+---------
+
+# Kevin Bacon's New Horror Movie Family Movie Gets 2027 Release Date After Stellar Rotten Tomatoes Score
+
+Movies, Family Movie, Horror
+
+Wed, 19 Aug 2026 17:48:13 GMT
+
+https://screenrant.com/kevin-bacon-family-movie-release-date/
+
+Critics love Kevin Bacon and Kyra Sedgwick's new co-directed horror movie, and now the 93% fresh pick has secured a release date in 2027.
+---------
+
+# Apple TV's 5-Star Spy Show With 97% RT Surges on Streaming Ahead of Season 6 Format Change
+
+TV, Slow Horses, Apple TV, Thriller
+
+Wed, 19 Aug 2026 18:17:08 GMT
+
+https://www.cbr.com/slow-horses-spy-thriller-apple-tv-spy-success-august-2026/
+
+Apple TV and Gary Oldman's critically acclaimed spy thriller Slow Horses is rising on the streaming charts ahead of the Season 6 premiere.
+---------
+
+# Chris Pine's Controversial Sci-Fi Thriller Officially Crowned One of Streaming's Biggest Hits
+
+Movies, Don't Worry Darling, chris pine, Netflix
+
+Wed, 19 Aug 2026 18:15:14 GMT
+
+https://www.cbr.com/dont-worry-darling-sci-fi-thriller-success-hbo-max-august-2026/
+
+Pine and Harry Styles star in a controversial sci-fi thriller that's soaring on streaming.
+---------
+
+# Hayden Panettiere's 4-Season Superhero Series Returns as PVOD Hit
+
+TV, Heroes, NBC, Apple TV
+
+Wed, 19 Aug 2026 18:00:47 GMT
+
+https://www.cbr.com/hayden-panettiere-heroes-sci-fi-apple-tv-store-success-august-2026/
+
+Just days after Hayden Panettiere's sudden death, her 4-season superhero series, Heroes, has shot to the top of the Apple TV Store charts.
+---------
+
+# Project Hail Mary Officially Returns This Year With Journey Among the Stars
+
+Games, Project Hail Mary
+
+Wed, 19 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/project-hail-mary-official-return-new-release-journey-among-the-stars/
+
+Project Hail Mary fans won't have to wait much longer before they can Journey Among the Stars alongside Rocky in the title's very first video game.
+---------
+
+# Ben 10 Officially Confirms a New Era Is Beginning
+
+Comics, Ben 10
+
+Wed, 19 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/ben-10-6-release-window-joe-casey-return/
+
+It's an excellent time for Ben 10 fans, as one of the series' most talented writers returns for the next comic release.
+---------
+
+# The Best Classic Sci-Fi Show in TV History Returns as PVOD Hit After New Full-Series Release
+
+TV, Battlestar Galactica, Sci-Fi
+
+Wed, 19 Aug 2026 17:59:00 GMT
+
+https://www.cbr.com/battlestar-galactica-sci-fi-success-pvod-apple-tv-store/
+
+Battlestar Galactica is rising in the digital charts.
+---------
+
+# X-Men '97 S2: Gambit's Return Was Secret for 2 Years | Collider BTS
+
+TV, X-Men '97
+
+Wed, 19 Aug 2026 18:15:11 GMT
+
+https://collider.com/video/x-men-97-s2-gambit-s-return-was-secret-for-2-years-collider-bts/
+
+A.J. LoCascio knew Gambit could return long before fans did — and had to dodge questions about it for years.In Collider’s X-Men '97 interview, A.J. LoCascio explains what happened after he learned Gambit would die in Episode 5. Months later, he received a picture of Gambit as Death and a “shush” emoji, giving him an early hint about the character’s future. LoCascio says he kept the secret for at least two years while fans repeatedly asked whether Gambit was coming back.
+---------
+
+# Zoe Saldaña's Surprisingly Faithful 2-Part Horror Adaptation Is Officially Streaming for Free
+
+TV Features, Zoe Saldana, Rosemary's Baby, NBC, Patrick J. Adams
+
+Wed, 19 Aug 2026 18:11:12 GMT
+
+https://collider.com/zoe-saldana-horror-miniseries-rosemarys-baby-adaptation-streaming-tubi/
+
+The 2014 miniseries remake of Rosemary's Baby succeeds in updating the horror classic, honoring the original while bringing a modern flavor.
+---------
+
+# 'The Big Bang Theory's Sci-Fi Spin-Off Is Officially Changing Its Formula With Every Episode
+
+Exclusives, Stuart Fails to Save the Universe, The Big Bang Theory, Chuck Lorre, HBO Max
+
+Wed, 19 Aug 2026 17:51:19 GMT
+
+https://collider.com/stuart-fails-to-save-the-universe-opening-credits-song-change-chuck-lorre/
+
+The creators of Stuart Fails to Save the Universe discuss getting the spinoff made, their wildly ambitious episodes, and those unforgettable credits.
+---------
+
+# ‘Buffy the Vampire Slayer’s Greatest Quote Is Still the Most Unforgettable
+
+Features, Buffy The Vampire Slayer, Great Line, Fantasy
+
+Wed, 19 Aug 2026 18:00:13 GMT
+
+https://movieweb.com/buffy-the-vampire-slayer-best-fantasy-quote/
+
+'Buffy the Vampire Slayer,' which aired from 1997 to 2003, has many memorable quotes, but one in particular is one of the best of any fantasy TV show.
+---------
+
 # Prime Video's New Viking Series Adds House Of The Dragon Star Amid Major Bloodaxe Production Update
 
 TV, Bloodaxe
