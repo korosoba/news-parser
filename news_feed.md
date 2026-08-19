@@ -1,3 +1,69 @@
+# Pokémon Officially Unveils Tropical Pikachu Redesign For Series' 30th Anniversary
+
+Gaming, Pokemon
+
+Wed, 19 Aug 2026 11:34:38 GMT
+
+https://screenrant.com/pokmon-unveils-tropical-pikachu-30th-anniversary/
+
+Pokémon's 30th anniversary TCG release is on the way very soon, and one of the Pikachu designs has now been revealed as part of that.
+---------
+
+# 10 Best Harry Potter Video Games
+
+Gaming, Harry Potter, Hogwarts Legacy, Video Game, Fantasy
+
+Wed, 19 Aug 2026 11:36:11 GMT
+
+https://collider.com/best-harry-potter-video-games-ranked/
+
+From the recent juggernaut Hogwarts Legacy to the criminally underrated Quidditch World Cup, these are the best Harry Potter video games ever made.
+---------
+
+# Anne Hathaway’s $80M Sci-Fi Thriller Crosses Major Box Office Milestone
+
+Movie News, The End of Oak Street, The Thing, J.J. Abrams, Box Office
+
+Wed, 19 Aug 2026 11:30:11 GMT
+
+https://collider.com/end-of-oak-street-jj-abrams-box-office-overtakes-the-thing/
+
+The recently released sci-fi film The End of Oak Street has overtaken the lifetime box-office haul of one of the greatest creature features ever made.
+---------
+
+# ‘One Tree Hill’ Meets ‘The Summer I Turned Pretty’ in Netflix’s Top 10 Returning Series
+
+TV Features, My Life with the Walter Boys, Netflix, Romance, Drama
+
+Wed, 19 Aug 2026 11:27:11 GMT
+
+https://collider.com/netflix-best-young-adult-series-my-life-with-the-walter-boys-season-3/
+
+Netflix's My Life With the Walter Boys, the perfect blend of One Tree Hill and The Summer I Turned Pretty, has returned to the Top 10 with Season 3.
+---------
+
+# Zack Snyder Reportedly Returning to Netflix for Long-Awaited Action Fantasy Prequel
+
+TV News, Zack Snyder, 300, Netflix, Action, Fantasy
+
+Wed, 19 Aug 2026 11:39:54 GMT
+
+https://movieweb.com/zack-snyder-direct-300-prequel-netflix/
+
+The series has been in the works for some time, with interest renewed following the success of 'The Odyssey.'
+---------
+
+# 'Reacher' Season 4 Finally Confirms a Break From Predictable 4-Year-Old Tradition
+
+Features, Reacher
+
+Wed, 19 Aug 2026 11:30:13 GMT
+
+https://movieweb.com/reacher-season-4-lila-twist/
+
+'Reacher' has a set of boxes it tries to tick each season, but this time around, the show has subverted expectations. Read on for more.
+---------
+
 # 61 Years Later, The Greatest Opening Line In Sci-Fi Remains Unmatched
 
 Gaming, Sci-Fi, Dune
