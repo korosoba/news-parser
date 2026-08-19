@@ -1,3 +1,146 @@
+# KPop Demon Hunters Officially Joins An Elite Netflix Club & It Makes The Sequel More Exciting
+
+Movies, KPop Demon Hunters
+
+Wed, 19 Aug 2026 22:15:14 GMT
+
+https://screenrant.com/kpop-demon-hunters-criterion-collection-netflix/
+
+KPop Demon Hunters continues its long streak of success, and it's now officially part of an elite Netflix club that fans will appreciate.
+---------
+
+# All 17 Clones Tatiana Maslany Played In Orphan Black
+
+Classic TV, Orphan Black
+
+Wed, 19 Aug 2026 22:15:14 GMT
+
+https://screenrant.com/orphan-black-tatiana-maslany-every-clone-character/
+
+Orphan Black star Tatiana Maslany played 17 different clones over the show's five seasons, all with the same face but radically different looks.
+---------
+
+# Is God Is: Greek Tragedy Meets Spaghetti Western In Prime's New 97% RT Thriller
+
+Movies, Masked Recs
+
+Wed, 19 Aug 2026 22:10:14 GMT
+
+https://screenrant.com/prime-video-is-god-is-greek-tragedy-spaghetti-western/
+
+Prime Video just added Is God Is, a new thriller movie with a 97% Rotten Tomatoes score and a unique mashup of Greek tragedy and spaghetti Western.
+---------
+
+# Ridley Scott Meets Paul Verhoeven In 2-Part Netflix Sci-Fi Series
+
+TV, Masked Recs
+
+Wed, 19 Aug 2026 22:03:14 GMT
+
+https://screenrant.com/altered-carbon-ridley-scott-meets-paul-verhoeven-netflix/
+
+Visceral cyberpunk worldbuilding blends ultraviolent satire and haunting atmosphere in Netflix's compact, bold two-part sci-fi masterpiece.
+---------
+
+# PlayStation Plus Makes 10/10 100 Hour Open World Masterpiece Free To Play
+
+Gaming, PlayStation Plus, PlayStation, Kingdom Come: Deliverance II
+
+Wed, 19 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/playstation-plus-free-100-hour-rpg-kingdom-come-2/
+
+This legendary 10/10 open-world RPG that offers well over 100 hours of content is being made free-to-play via PlayStation Plus.
+---------
+
+# All Main Fruits Basket Characters & Their Chinese Zodiac Signs, Explained
+
+Lists, Fruits Basket
+
+Wed, 19 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/zodiac-signs-fruits-basket-characters/
+
+The characters in Fruit Basket are each based on an animal within the Zodiac. Here are the thirteen listed and some info about them.
+---------
+
+# Dakota Fanning's Must-Binge 6-Part Netflix Psychological Thriller Series Is 'Knives Out Meets Succession'
+
+TV, Masked Recs
+
+Wed, 19 Aug 2026 21:57:32 GMT
+
+https://screenrant.com/netflix-the-perfect-couple-thriller-series-knives-out-meets-succession/
+
+Dakota Fanning's Netflix psychological thriller series is a must-binge that mixes elements from the popular Knives Out franchise and HBO's Succession.
+---------
+
+# 10 Most Overpowered Anime Transformations, Officially Ranked
+
+Anime, shonen anime, JoJo's Bizarre Adventure, Hunter x Hunter
+
+Wed, 19 Aug 2026 22:15:11 GMT
+
+https://www.cbr.com/most-op-anime-transformations-officially-ranked/
+
+OP anime transformations can turn an already powerful character into something that barely resembles an ordinary hero.
+---------
+
+# Tom Holland’s Uncharted Is Prime Video’s Most Forgotten Movie
+
+Movies, Uncharted, tom holland, Prime Video
+
+Wed, 19 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/tom-holland-uncharted-forgotten-action-adventure-gem/
+
+After four years, it's time to admit that this Prime Video action adventure movie starring Tom Holland deserves more love than it first received.
+---------
+
+# 10 Most Perfect Fantasy Shows of the Last 25 Years
+
+TV, Fantasy, Game Of Thrones, What We Do in the Shadows, Interview with the Vampire
+
+Wed, 19 Aug 2026 22:03:11 GMT
+
+https://collider.com/most-perfect-fantasy-shows-last-25-years-ranked/
+
+Game of Thrones, Lost, Arcane, and What We Do in the Shadows are among the best fantasy shows of the last 25 years, but which is the greatest?
+---------
+
+# Marvel’s Newest Series Is Finally Paying Off a Forgotten MCU Easter Egg 15 Years Later
+
+TV Features, VisionQuest, Captain America: The First Avenger, WandaVision, Disney Plus
+
+Wed, 19 Aug 2026 21:54:11 GMT
+
+https://collider.com/visionquest-marvel-captain-america-human-torch-easter-egg-meaning/
+
+VisionQuest features different forms of artificial intelligence, including an Easter egg from Captain America: The First Avenger.
+---------
+
+# 6 Best Sci-Fi Movies Released Since 1990
+
+Movie, Sci-Fi, Interstellar, The Matrix, Everything Everywhere All at Once
+
+Wed, 19 Aug 2026 21:51:11 GMT
+
+https://collider.com/best-sci-fi-movies-since-1990/
+
+Sci-fi has been a consistently great genre throughout film history, although the genre especially had some masterful releases after 1990.
+---------
+
+# Tim Burton's Wild Sci-Fi Cult Classic Shines 30 Years Later With New Release
+
+Features, Mars Attacks!, Tim Burton, Jack Nicholson, Sci-Fi
+
+Wed, 19 Aug 2026 22:00:13 GMT
+
+https://movieweb.com/tim-burton-mars-attacks-sci-fi-4k-release/
+
+After 30 years, an underrated Tim Burton gem gets even better with an exciting new release. Here's our breakdown of the changes.
+---------
+
 # 13 Years Later, Anakin Skywalker's Greatest Star Wars Quote Still Has No Equal
 
 Star Wars
