@@ -1,3 +1,102 @@
+# Metal Gear Solid Online Unveiled In Impressive New Trailer
+
+Gaming, Metal Gear Solid
+
+Wed, 19 Aug 2026 10:11:08 GMT
+
+https://screenrant.com/metal-gear-solid-online-multiplayer-mod/
+
+The original Metal Gear Solid is still one of the best games of all time, and its multiplayer return is long in the making.
+---------
+
+# Xbox Game Pass Is Losing A True 10/10 Open World Masterpiece On August 31
+
+Gaming, Xbox Game Pass, Xbox, The Witcher 3: Wild Hunt
+
+Wed, 19 Aug 2026 10:06:51 GMT
+
+https://screenrant.com/xbox-game-pass-losing-witcher-3-august-31/
+
+After being on the service for quite some time, one of the greatest open-world games ever made is leaving Xbox Game Pass very soon.
+---------
+
+# Who Is Nathaniel Milbury? Adam Driver’s Mister Sinister, Explained
+
+Movies, X-Men, Marvel Cinematic Universe, adam driver, mister sinister
+
+Wed, 19 Aug 2026 10:00:11 GMT
+
+https://www.cbr.com/mcu-nathaniel-milbury-mister-sinister-adam-driver/
+
+Adam Driver has been confirmed to finally be joining the MCU, but he'll be bringing Mister Sinister into live-action with a twist.
+---------
+
+# Netflix Is Quietly Changing Wednesday's Format & Setting Up Its Ending
+
+TV, Wednesday, Netflix
+
+Wed, 19 Aug 2026 10:00:11 GMT
+
+https://www.cbr.com/wednesday-season-3-leaving-nevermore-academy/
+
+Wednesday began when Wednesday Addams transferred to Nevermore Academy, but Jenna Ortega confirms her time at the school is ending soon.
+---------
+
+# This Legendary Grunge Band was Kicked Out of Their Own Album Release Party
+
+Music Features, Nirvana, Kurt Cobain, Rock, Music
+
+Wed, 19 Aug 2026 10:22:11 GMT
+
+https://collider.com/nirvana-grunge-rock-nevermind-album-release-party/
+
+Grunge rock band Nirvana was kicked out of their own Nevermind album release party in 1991 for getting drunk and having a food fight
+---------
+
+# ’The X-Files’ Meets ‘Flight of the Conchords’ in 1 of the Greatest Comedy Series Ever
+
+TV Features, The Mighty Boosh, British TV, The X-Files, Flight of the Conchords
+
+Wed, 19 Aug 2026 10:07:11 GMT
+
+https://collider.com/best-comedy-show-mighty-boosh-bbc/
+
+The Mighty Boosh isn't just the BBC's best surrealist comedy; it's one of the greatest comedy series ever, and here's why it's worth the watch.
+---------
+
+# This Underrated Vampire Dark Comedy is Streaming on Tubi
+
+Movie Features, Vampire, Tubi, Henry Rollins, He Never Died
+
+Wed, 19 Aug 2026 10:05:11 GMT
+
+https://collider.com/he-never-died-vampire-movie-henry-rollins-streaming-free-tubi-august-2026/
+
+Henry Rollins stars in the 2015 vampire dark comedy, He Never Died, which is now streaming free on Tubi.
+---------
+
+# John Wick Producer Officially Decodes the Key to Jason Statham and Gerard Butler’s Success
+
+Movie News, Jason Statham, Gerard Butler, John Wick, Action
+
+Wed, 19 Aug 2026 10:00:11 GMT
+
+https://collider.com/jason-statham-gerard-butler-success-explained-john-wick-producer/
+
+Jason Statham and Gerard Butler continue to deliver box-office hits at a time when most stars are balancing their careers with streaming projects.
+---------
+
+# 'Fast & Furious' Star Has the Perfect Plan for Taylor Sheridan-Inspired Spin-off Series
+
+Movie News, The Fast and the Furious
+
+Wed, 19 Aug 2026 10:00:37 GMT
+
+https://movieweb.com/fast-furious-jordana-brewster-taylor-sheridan-inspired-spin-off/
+
+One of the actors from the original film has a very specific vision to continue their story.
+---------
+
 # Nintendo Switch 2's Most Impressive Game Is Free To Download For A Limited Time
 
 Gaming, Nintendo Switch 2, No Man's Sky
