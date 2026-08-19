@@ -1,3 +1,245 @@
+# The Rookie’s Next Spinoff Series Casts The Night Agent Star As New Police Officer
+
+TV
+
+Wed, 19 Aug 2026 18:52:35 GMT
+
+https://screenrant.com/the-rookie-north-curtis-lum-casting/
+
+The Rookie's upcoming spinoff television series just added a new actor to its cast ahead of its highly anticipated release next year.
+---------
+
+# KPop Demon Hunters' New 2026 Release Is An Exciting Trend Netflix Needs Way More Of
+
+Movies, KPop Demon Hunters
+
+Wed, 19 Aug 2026 18:38:25 GMT
+
+https://screenrant.com/kpop-demon-hunters-movie-4k-blu-ray-release-netflix/
+
+KPop Demon Hunters is coming back with a new release in 2026, and it is exactly what Netflix needs to start doing more of for its biggest projects.
+---------
+
+# Disney Casts Aladdin's Genie & 5 Other Famous Sidekicks In New Fairytale Spinoff Movie
+
+Movies, Descendants
+
+Wed, 19 Aug 2026 18:35:28 GMT
+
+https://screenrant.com/disney-descendants-spinoff-movie-hidden-heroes-genie-jiminy-cricket-casting/
+
+Disney's upcoming spinoff film of a major franchise just announced several new additions to its cast including Genie from Aladdin.
+---------
+
+# 6 Far Side Comics Set In the City That Are 10/10 Perfect
+
+Comics, The Far Side
+
+Wed, 19 Aug 2026 18:33:15 GMT
+
+https://screenrant.com/far-side-city-jokes-best-comics/
+
+The Far Side takes Manhattan!
+---------
+
+# Prime Video's Epic 6-Season Sci-Fi Series Deserves Kudos For NOT Ending Properly
+
+Classic TV, Masked Recs
+
+Wed, 19 Aug 2026 18:30:14 GMT
+
+https://screenrant.com/the-expanse-deserves-credit-ending/
+
+A proper ending is so often the measure of a successful series, but Prime Video's flagship sci-fi series deserves credit for doing the opposite.
+---------
+
+# GTA 6 Leak Reveals New Combat Gameplay
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games, PC
+
+Wed, 19 Aug 2026 18:29:27 GMT
+
+https://screenrant.com/gta-6-leak-reveals-new-combat-gameplay/
+
+Another Grand Theft Auto 6 leak has already surfaced, and this one shows Jason in action with something more dangerous than a basketball.
+---------
+
+# Superman's New Armor Transforms Clark Kent into DC's Iron Man
+
+Comics, Superman
+
+Wed, 19 Aug 2026 18:26:27 GMT
+
+https://screenrant.com/superman-new-armor-kryptonite/
+
+Superman has gone full Iron Man mode as the Man of Steel debuts what is essentially DC Comics’ version of Tony Stark’s iconic Hulkbuster (Mark XLIV).
+---------
+
+# New Matt Dinniman-Recommended LitRPG Series Launches This Week That Dungeon Crawler Carl Fans Must Read
+
+Books, Dungeon Crawler Carl
+
+Wed, 19 Aug 2026 18:23:34 GMT
+
+https://screenrant.com/apocalypse-parenting-time-to-play-new-release-matt-dinniman-approved/
+
+Dungeon Crawler Carl fans are in luck, because Matt Dinniman just recommended a new traditionally published LitRPG series by Tor Books.
+---------
+
+# Taylor Sheridan Officially Confirms a Historic Yellowstone & Justified Team-Up
+
+TV, Justified, Yellowstone
+
+Wed, 19 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-season-2-justified-benjamin-cavell/
+
+Yellowstone officially confirms a promising franchise collaboration with key ties to Timothy Olyphant's outstanding neo-Western series, Justified.
+---------
+
+# Absolute Flash Confirms Absolute Superman Crossover As Brainiac Appears
+
+Comics, Absolute Universe, Flash, Superman, brainiac
+
+Wed, 19 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/absolute-flash-absolute-superman-brainiac-crossover-confirmed/
+
+Another two corners of the Absolute Universe collide.
+---------
+
+# 5 Greatest Sci-Fi Movie Mashups of All Time, Ranked
+
+Movies, Sci-Fi
+
+Wed, 19 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/best-sci-fi-movie-genre-mashups-list/
+
+Sci-Fi can be one of the most diverse genres in filmmaking, blending elements of horror, comedy and beyond to create some of the best films ever made.
+---------
+
+# Splatoon Raiders Is the Switch 2 Game Fans Have Been Waiting For
+
+Games, Nintendo
+
+Wed, 19 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/splatoon-raiders-switch-2-review/
+
+Splatoon Raiders is the latest from the main Splatoon franchise and it's the most fun thanks to its customization and alluring levels.
+---------
+
+# 5 Masterpiece Dark Shonen Anime Better Than Demon Slayer
+
+Anime, Chainsaw Man, Jujutsu Kaisen, Demon Slayer
+
+Wed, 19 Aug 2026 18:45:11 GMT
+
+https://www.cbr.com/masterpiece-dark-shonen-anime-better-than-demon-slayer/
+
+Demon Slayer may be a modern shonen hit, but these dark masterpieces make a strong case for why fans should look elsewhere.
+---------
+
+# Lanterns Hints at What the Green Lantern Ring Knows About Its Heroes
+
+CBR Exclusives, Lanterns
+
+Wed, 19 Aug 2026 18:39:33 GMT
+
+https://www.cbr.com/lanterns-aaron-pierre-kyle-chandler-lantern-ring-chosen-heroes/
+
+Aaron Pierre and Kyle Chandler reveal exactly why Hal Jordan and John Stewart were chosen by the rings.
+---------
+
+# Castlevania Game Will Officially Disappear Forever On September 3
+
+Games, Castlevania, Video Games, Apple
+
+Wed, 19 Aug 2026 18:36:11 GMT
+
+https://www.cbr.com/castlevania-game-official-delisted-forever-september-3/
+
+A Castlevania game will be unavailable forever starting from September 3, leaving fans with no official way to play it for the foreseeable future.
+---------
+
+# ABC's Canceled 13-Part Military Drama Returns as a Streaming Smash Hit
+
+TV, Last Resort, ABC, Prime Video
+
+Wed, 19 Aug 2026 18:26:49 GMT
+
+https://www.cbr.com/last-resort-military-drama-prime-video-success-august-2026/
+
+ABC's canceled military drama Last Resort is a streaming hit on Prime Video, cracking the Top 10 TV shows in the U.S.
+---------
+
+# Marvel Officially Reveals New Daredevil Costume
+
+Gaming News, Marvel, Daredevil, Daredevil: Born Again, Superhero
+
+Wed, 19 Aug 2026 18:46:21 GMT
+
+https://collider.com/daredevil-new-look-marvel-rivals-attorney-at-law-costume/
+
+Daredevil reveals a stylish new “Attorney at Law” costume for Marvel Rivals, giving Matt Murdock a dramatically different look.
+---------
+
+# Chilling 107-Minute Thriller Masterpiece (With the Best Plot Twist in History) Arrives on Streaming
+
+Movie News, The Sixth Sense, Coming/Leaving Streaming
+
+Wed, 19 Aug 2026 19:00:07 GMT
+
+https://movieweb.com/the-sixth-sense-streaming-apple-tv-august-2026/
+
+The film is part of Apple TV’s new experimental approach to the streaming landscape.
+---------
+
+# 'Insidious: Out of the Further' Rotten Tomatoes Score Officially Revealed
+
+Movie News, Insidious: Out of the Further, Insidious
+
+Wed, 19 Aug 2026 18:55:44 GMT
+
+https://movieweb.com/insidious-out-of-the-further-rotten-tomatoes-score/
+
+Reviews for the new sequel are some of the best in the franchise since it launched in 2011.
+---------
+
+# Apple TV's Near-Perfect Sci-Fi Action Series Moves Forward With New Cast
+
+TV News, Murderbot, Sci-Fi, Apple TV
+
+Wed, 19 Aug 2026 18:55:42 GMT
+
+https://movieweb.com/apple-tv-murderbot-season-2-steve-buscemi/
+
+The cast is going to be enormous.
+---------
+
+# 'Avengers: Doomsday' Star Drops Spoiler About Robert Downey's Doctor Doom
+
+Movie News, Avengers: Doomsday, David Harbour, Robert Downey Jr.
+
+Wed, 19 Aug 2026 18:51:53 GMT
+
+https://movieweb.com/avengers-doomsday-david-harbour-doctor-doom-tony-stark/
+
+A star from Marvel Studios' 'Avengers: Doomsday' may have shared shocking new information about the MCU's take on Doctor Doom.
+---------
+
+# Angelina Jolie's Epic War Thriller Revealed in Stunning First Trailer
+
+Movie News, Without Blood, Salma Hayek Pinault, Angelina Jolie
+
+Wed, 19 Aug 2026 18:33:24 GMT
+
+https://movieweb.com/angelina-jolie-salma-hayek-without-blood-trailer/
+
+'Without Blood', which stars Salma Hayek and Demián Bichir, is set to open in theaters on September 18, 2026.
+---------
+
 # David Boreanaz's 7-Part Action Thriller Series Hits Netflix's Official Charts
 
 TV, Masked Recs
