@@ -1,3 +1,14 @@
+# Xbox Game Pass Subscribers, Mark Your Calendars For August 31
+
+Gaming, Xbox Game Pass, Live Service Games, Triple-A Games
+
+Wed, 19 Aug 2026 07:00:14 GMT
+
+https://screenrant.com/xbox-game-pass-games-leaving-august-31/
+
+August 31 will be a big day for Xbox Game Pass members, and if they want to check out certain games in the catalog, this is their last chance.
+---------
+
 # Game Of Thrones: Invasion & Open War Arrive August 22
 
 Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: Conquest, Game Of Thrones: Dragonfire, PC
