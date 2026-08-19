@@ -1,3 +1,168 @@
+# Spider-Man Returns To ‘Big Time’ Era For New Series From All-Star Writer
+
+Marvel Comics, Spider-Man, Marvel
+
+Wed, 19 Aug 2026 19:34:16 GMT
+
+https://screenrant.com/spider-man-new-dan-slot-series-big-time/
+
+Spider-Man is revisiting another nostalgic comic book era and graduating to a full ongoing series from one of the character's most legendary writers.
+---------
+
+# Mike Flanagan Will Never Have A Better Chance To Launch A Stephen King Shared Universe
+
+Streaming TV, Masked Recs
+
+Wed, 19 Aug 2026 19:30:15 GMT
+
+https://screenrant.com/mike-flanagan-the-dark-tower-stephen-king-shared-universe/
+
+One of Mike Flanagan's upcoming Stephen King adaptations has a chance to create a shared universe that connects every one of King's horror stories.
+---------
+
+# Doctor Who Writer Suspects End Of Era For Long-Running Sci-Fi Series After BBC Overhaul
+
+TV, Doctor Who
+
+Wed, 19 Aug 2026 19:26:47 GMT
+
+https://screenrant.com/doctor-who-bbc-tender-process-doomed-future-mark-gatiss/
+
+Doctor Who writer Mark Gatiss explained why he thinks the franchise's current revival era is ending following the BBC's major overhaul.
+---------
+
+# Project Hail Mary Directors Set Next Sci-Fi Novel Adaptation At Universal
+
+Movies, Christopher Miller
+
+Wed, 19 Aug 2026 19:19:38 GMT
+
+https://screenrant.com/universal-paradox-inc-movie-adaptation-development-lord-miller/
+
+Project Hail Mary directors set their next sci-fi novel adaptation at Universal after their previous movie's $684 million success at the box office.
+---------
+
+# When Reacher Season 4, Episode 5 Releases On Prime Video
+
+Streaming TV, Reacher
+
+Wed, 19 Aug 2026 19:14:40 GMT
+
+https://screenrant.com/when-reacher-season-4-episode-5-releases/
+
+Discover when Reacher season 4 episode 5 airs on Prime Video and what to expect from this high-stakes thriller next, as well as its upcoming spinoff.
+---------
+
+# Classic Flash Villain Debuts Their Best Redesign of All Time
+
+Comics, The Flash
+
+Wed, 19 Aug 2026 19:01:14 GMT
+
+https://screenrant.com/absolute-flash-redesign-abra-kadabra/
+
+Scary dude.
+---------
+
+# 28 Years Ago, Spike's Best Buffy Quote Changed Fantasy TV Forever
+
+Classic TV, Buffy The Vampire Slayer
+
+Wed, 19 Aug 2026 19:01:14 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-spike-best-quote/
+
+Fan-favorite character Spike is beloved for his bad boy demeanor, but his best quote in Buffy the Vampire Slayer speaks to his romantic side.
+---------
+
+# Spider-Man: Why Brand New Day Beats Superhero Fatigue
+
+Movies, Originals, Spider-Man: Brand New Day
+
+Wed, 19 Aug 2026 19:01:14 GMT
+
+https://screenrant.com/video/spider-man-did-brand-new-day-kill-superhero-fatigue/
+
+Spider-Man Brand New Day: Why Superheroes Aren’t Dead. After years of talk about superhero fatigue, Spider-Man has delivered another enormous theatrical success. But Brand New Day doesn’t necessarily prove audiences suddenly love comic book movies again.
+---------
+
+# The 11 Rarest NES Games (& How Much They're Worth)
+
+Games, Nintendo, retro games
+
+Wed, 19 Aug 2026 19:35:11 GMT
+
+https://www.cbr.com/rarest-nes-games-prices/
+
+As PriceCharting shows, some NES games are harder to come by than others, including Cheetahmen II and Little Samson.
+---------
+
+# Beauty and the Beast Officially Returns for a New Disney Sequel After Happily Ever After
+
+Anime, webtoon, Disney, Beauty and the Beast
+
+Wed, 19 Aug 2026 19:20:11 GMT
+
+https://www.cbr.com/curse-of-the-forsaken-heart-webtoon-release/
+
+One of the most iconic fairy tales of all time is getting the WEBTOON treatment thanks to Disney's latest unexpected storytelling initiative.
+---------
+
+# In Just 5 Days, New Netflix Crime Drama Nobody's Heard of Becomes 1 of the World's Most-Watched Shows
+
+TV, Umthetho, Netflix
+
+Wed, 19 Aug 2026 19:15:33 GMT
+
+https://www.cbr.com/netflix-crime-drama-umthetho-streaming-success/
+
+One of the most-watched Netflix series in the world is one nobody knew existed.
+---------
+
+# Jason Statham’s New 95-Minute Action Thriller RT Score Revealed After Full Movie Leaks on Prime
+
+Movies, Mutiny
+
+Wed, 19 Aug 2026 19:07:46 GMT
+
+https://www.cbr.com/jason-statham-mutiny-rotten-tomatoes-score-amazon-leak/
+
+Jason Statham's newest action movie was leaked just ahead of its release this weekend.
+---------
+
+# 10 Best Billboard Hot 100 Number Ones of All Time
+
+Music Features, The Beatles, The Beach Boys, The Weeknd, Blondie
+
+Wed, 19 Aug 2026 19:19:11 GMT
+
+https://collider.com/best-number-one-songs-billboard-hot-100-ranked/
+
+More than 1000 songs have hit number one on the Billboard Hot 100, with the best including "Good Vibrations," "Heart of Glass," and "Blinding Lights."
+---------
+
+# Timothy Olyphant Is Officially Returning to Star Wars as Cobb Vanth
+
+TV News, The Mandalorian, Timothy Olyphant, Lego Star Wars, Star Wars
+
+Wed, 19 Aug 2026 19:11:11 GMT
+
+https://collider.com/star-wars-timothy-olyphant-cobb-vanth-return-lego-the-mandalorian/
+
+Star Wars brings Timothy Olyphant back as Cobb Vanth and casts Carl Lumbly as Greef Karga for the new LEGO Mandalorian Disney+ special.
+---------
+
+# Tim Allen's Disney Series Marks Major Reunion 9 Years in the Making
+
+TV News, Shifting Gears, 2 Broke Girls
+
+Wed, 19 Aug 2026 19:10:54 GMT
+
+https://movieweb.com/shifting-gears-2-broke-girls-beth-behrs-reunion/
+
+One of TV's best odd couples are returning in a different sitcom: Beth Behrs is officially reuniting with Kat Denning on-screen.
+---------
+
 # The Rookie’s Next Spinoff Series Casts The Night Agent Star As New Police Officer
 
 TV
