@@ -1,3 +1,124 @@
+# Classic Batgirl’s True Mother Revealed, And Your Jaw Will Hit The Floor
+
+DC Comics, Batgirl
+
+Wed, 19 Aug 2026 23:02:36 GMT
+
+https://screenrant.com/batgirl-new-mother-amanda-waller/
+
+Barbara Gordon's mother is revealed to be the treacherous villain who has authored all the pain and suffering in this unique DC series.
+---------
+
+# Tracker Major Character Update Sets Up A Better Season 4
+
+Network TV, Tracker
+
+Wed, 19 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/tracker-season-4-jensen-ackles-russell-shaw-return-better/
+
+Jensen Ackles' guest starring role of Russell Shaw returns for Tracker season 4, which promises a fresh sense of excitement amid big series changes.
+---------
+
+# Godzilla X Kong: Supernova's Release Repeats A Big Monsterverse Problem 2 Years Later
+
+Movies, Godzilla x Kong: Supernova
+
+Wed, 19 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/godzilla-x-kong-supernova-movie-godzilla-minus-zero-problem/
+
+Godzilla x Kong: Supernova is releasing at a very strange and exciting time in the legacy of one of cinema’s greatest and most terrifying monsters.
+---------
+
+# Netflix's Teen Drama Based on Popular Bestselling Book Finds Redemption as it Shoots to No. 1
+
+TV, My Life with the Walter Boys, Netflix, Drama
+
+Wed, 19 Aug 2026 23:09:41 GMT
+
+https://www.cbr.com/my-life-with-the-walter-boys-drama-success-netflix-august-2026/
+
+The biggest returning teen drama of the year for Netflix has officially taken over the global streaming charts two weeks after its Season 3 debut.
+---------
+
+# Batman: The Animated Series Officially Returns With New Release Out Now
+
+Games, Batman: The Animated Series, Batman, Innovation
+
+Wed, 19 Aug 2026 23:05:11 GMT
+
+https://www.cbr.com/batman-animated-series-official-new-release-2026-gotham/
+
+Batman: The Animated Series is back with Enemies of Gotham City.
+---------
+
+# Dragon Ball's Original Super Saiyan 4 Goku Officially Returns to the U.S. This October
+
+Anime, Dragon Ball, Dragon Ball GT, merchandise, New York Comic Con, bandai, Dragon Ball Super: Beerus
+
+Wed, 19 Aug 2026 23:05:11 GMT
+
+https://www.cbr.com/dragon-ball-gt-ssj4-goku-nycc-exclusive-figure/
+
+Dragon Ball GT's version of Super Saiyan 4 Goku is kicking Dragon Ball DAIMA's out of the spotlight during New York Comic Con this year.
+---------
+
+# Patrick Stewart's Favorite Star Trek Episode Deserves to Be Called a Sci-Fi Masterpiece
+
+TV, Star Trek: The Next Generation, Sci-Fi, Paramount
+
+Wed, 19 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/star-trek-the-next-generation-patrick-stewart-favorite-episode-inner-light/
+
+Patrick Stewart has named his favorite Star Trek episode, and it is more than worthy of the actor's praise.
+---------
+
+# 8 Things From The Harry Potter And the Prisoner of Azkaban Book That Everyone Forgets About
+
+Movies, Harry Potter, Harry Potter and the Prisoner of Azkaban, Fantasy
+
+Wed, 19 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/harry-potter-prisoner-of-azkaban-book-forgotten-facts-list/
+
+Although the movie version of Harry Potter and the Prisoner of Azkaban is somewhat faithful to the book, there are a few details it didn't include.
+---------
+
+# Netflix's The Office Replacement Sees Big Viewership Increase With Season 3
+
+TV, Tires, Netflix
+
+Wed, 19 Aug 2026 22:56:32 GMT
+
+https://www.cbr.com/tires-season-3-netflix-viewership-increase/
+
+The third season of Shane Gillis' workplace comedy Tires is seeing a big increase in viewership, debuting in the global top 10 for its first week.
+---------
+
+# Emma Stone’s 118-Minute Remake of a Sci-Fi Classic Is 1 of the Most-Streamed Movies Worldwide
+
+Movies, Bugonia, Save the Green Planet, Sci-Fi
+
+Wed, 19 Aug 2026 22:48:25 GMT
+
+https://www.cbr.com/bugonia-sci-fi-success-hbo-max-august-2026/
+
+The critically acclaimed remake has reappeared on streaming.
+---------
+
+# 'Reacher' Season 4 Officially Changes the Show's Formula After 4 Years
+
+Features, Reacher
+
+Wed, 19 Aug 2026 23:00:13 GMT
+
+https://movieweb.com/reacher-season-4-no-backstory/
+
+Alan Ritchson's character often has his past explored in 'Reacher,' but Season 4 has opted for a different approach. Read on for more.
+---------
+
 # Prime Video's Invincible Is Beating Brand New Day At Its Own Game
 
 Streaming TV, Invincible
