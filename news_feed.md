@@ -1,3 +1,91 @@
+# Netflix Finally Has A Charles Manson Documentary Worth Watching
+
+TV, Masked Recs
+
+Wed, 19 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/charles-manson-tapes-netflix-doc-conversations-with-a-killer-must-watch/
+
+The latest documentary Netflix has released about Charles Manson is at the top end of the streaming charts, and it deserves to be there.
+---------
+
+# 5 Anime Villains More Powerful Than Sukuna
+
+Anime, Jujutsu Kaisen, Innovation
+
+Wed, 19 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/jjk-anime-villains-stronger-than-sukuna-power-list/
+
+Ryomen Sukuna from JJK may be powerful, but he's definitely not the strongest anime villain of all time.
+---------
+
+# The 3-Part True-Crime Mindhunter Replacement Becomes an Instant Netflix Streaming Hit
+
+TV, Mindhunter, Netflix, Conversations With A Killer: The Ted Bundy Tapes
+
+Wed, 19 Aug 2026 23:28:38 GMT
+
+https://www.cbr.com/conversations-with-a-killer-charles-manson-success-netflix-august-2026/
+
+The Charles Manson Tapes is No. 2 on Netflix.
+---------
+
+# Harlan Coben’s 8-Part Crime Drama Jumps Up Netflix's Most Prestigious List
+
+TV, I Will Find You, Netflix, Drama
+
+Wed, 19 Aug 2026 23:21:56 GMT
+
+https://www.cbr.com/i-will-find-you-harlan-coben-crime-drama-netflix-success-august-2026/
+
+I Will Find You is one of Netflix's most successful shows to date.
+---------
+
+# 60 Years of Star Trek Officially Has a Free New Streaming Home
+
+TV Features, Star Trek, Pluto TV, Gene Roddenberry, Sci-Fi
+
+Wed, 19 Aug 2026 23:24:11 GMT
+
+https://collider.com/star-trek-free-streaming-pluto-tv/
+
+Star Trek's classic series and movies now have a new streaming home on Pluto TV, covering the last 60 years of the franchise.
+---------
+
+# 10 Best Thriller Books of the 1980s
+
+Books and Comics, Books, Thriller, Tom Clancy, Michael Crichton
+
+Wed, 19 Aug 2026 23:21:11 GMT
+
+https://collider.com/best-thriller-books-1980s-ranked/
+
+The Hunt for Red October by Tom Clancy and Misery by Stephen King are among the best thriller books of the 1980s.
+---------
+
+# Supernatural Fantasy Movie 'Wildwood' Confirms Record-Setting Runtime
+
+Movie News, Wildwood
+
+Wed, 19 Aug 2026 23:41:04 GMT
+
+https://movieweb.com/wildwood-runtime-longest-stop-motion-animated-film/
+
+Travis Knight's 'Wildwood' runs two hours and twenty minutes, making it the longest stop-motion animated film ever.
+---------
+
+# Jake Gyllenhaal's 10/10 Dark Thriller Officially Returns to Streaming
+
+Movie News, Zodiac, Apple TV, Hot on Streaming
+
+Wed, 19 Aug 2026 23:30:13 GMT
+
+https://movieweb.com/zodiac-jake-gyllenhaal-stream-apple-august-2026/
+
+One of the best thrillers of this century is back on streaming.
+---------
+
 # Classic Batgirl’s True Mother Revealed, And Your Jaw Will Hit The Floor
 
 DC Comics, Batgirl
