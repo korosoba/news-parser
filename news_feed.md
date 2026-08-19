@@ -1,3 +1,124 @@
+# Prime Video's Invincible Is Beating Brand New Day At Its Own Game
+
+Streaming TV, Invincible
+
+Wed, 19 Aug 2026 22:45:14 GMT
+
+https://screenrant.com/prime-video-invincible-superhero-series-beat-brand-new-day/
+
+Spider-Man: Brand New Day is flying high at the box office, but a Prime Video superhero series is doing the same thing slightly better.
+---------
+
+# All 5 Meanings Of "Bear" In The Bear Explained
+
+Streaming TV, The Bear
+
+Wed, 19 Aug 2026 22:30:15 GMT
+
+https://screenrant.com/the-bear-show-bear-nickname-restaurant-meanings/
+
+FX's The Bear has an interesting title in that it gives away little about the show, but it makes sense once considering its multiple meanings.
+---------
+
+# Star Trek Unveils the Ultimate Anti-Borg Weapon
+
+Comics, Star Trek
+
+Wed, 19 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/star-trek-ultimate-borg-weapon/
+
+At last!
+---------
+
+# The Matrix Meets Lucifer In Prime Video's 26-Part Fantasy Series
+
+Streaming TV, Masked Recs
+
+Wed, 19 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/prime-video-american-gods-the-matrix-meets-lucifer-fantasy/
+
+Prime Video's 26-part series brings self-aware humor to some of the biggest legends, and while imperfect, deserves more credit for what it does right.
+---------
+
+# Netflix Gets Sued by Christian Metal Band Over KPop Demon Hunters
+
+Movies, KPop Demon Hunters, Netflix
+
+Wed, 19 Aug 2026 22:45:12 GMT
+
+https://www.cbr.com/netflix-kpop-demon-hunters-lawsuit-demon-hunter/
+
+A Christian metal band has cried foul about KPop Demon Hunters with a new lawsuit filed against Netflix.
+---------
+
+# The Godfather Meets Sicario in Former Bond Star's Action Thriller That's Conquering Streaming
+
+Movies, Violent Ends, Hulu, Thriller
+
+Wed, 19 Aug 2026 22:37:47 GMT
+
+https://www.cbr.com/violent-ends-thriller-success-hulu-august-2026/
+
+Billy Magnussen stars in an action movie that's dominating streaming.
+---------
+
+# 35 Best Anime Trios Of All Time, Officially Ranked
+
+Anime, Naruto: Shippuden, Haikyu!!, Samurai Champloo, Naruto, Pokemon, Dragon Ball, Neon Genesis Evangelion, Cowboy Bebop, The Promised Neverland, Fruits Basket, My Hero Academia, One Piece, Berserk, Demon Slayer: Kimetsu no Yaiba, Attack on Titan
+
+Wed, 19 Aug 2026 22:35:11 GMT
+
+https://www.cbr.com/anime-best-trios-all-time-ranked/
+
+From Goku, Vegeta and Piccolo to Eren, Mikasa and Armin, the iconic anime trio has been a staple in the medium for decades.
+---------
+
+# Tubi Officially Launches a New Era of Horror on Free Streaming
+
+Movies, Tubi, Horror
+
+Wed, 19 Aug 2026 22:24:01 GMT
+
+https://www.cbr.com/tubi-launches-new-horror-era-free-streaming/
+
+Horror fans who enjoy free streaming are getting some awesome news from Tubi.
+---------
+
+# 'Avengers: Doomsday' Might Be Hiding Doctor Doom's Goal in Plain Sight
+
+Movie Features, Avengers: Doomsday, Avengers: Secret Wars, The Fantastic Four: First Steps, Avengers: Endgame
+
+Wed, 19 Aug 2026 22:21:11 GMT
+
+https://collider.com/avengers-doomsday-doctor-doom-mural-mother-history-meaning/
+
+The poster and special look for Avengers: Doomsday is hinting that Doctor Doom's motives hinge on saving the one person he loves.
+---------
+
+# Darth Maul's Home Planet Is Finally Coming To Star Wars in Live-Action
+
+Features, Star Wars, Ahsoka
+
+Wed, 19 Aug 2026 22:36:04 GMT
+
+https://movieweb.com/ahsoka-dathomir-darth-maul-live-action/
+
+'Ahsoka' Season 2 will mark the live-action debut of Darth Maul's home world, which originated before 'The Phantom Menace' was released.
+---------
+
+# Josh Holloway Reveals What Happened to Sawyer After The 'Lost' Ending
+
+TV News, Lost
+
+Wed, 19 Aug 2026 22:28:12 GMT
+
+https://movieweb.com/lost-josh-holloway-sawyer-ending/
+
+Josh Holloway offered some closure for Sawyer's character arc.
+---------
+
 # KPop Demon Hunters Officially Joins An Elite Netflix Club & It Makes The Sequel More Exciting
 
 Movies, KPop Demon Hunters
