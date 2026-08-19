@@ -1,3 +1,80 @@
+# 13 Years Later, Anakin Skywalker's Greatest Star Wars Quote Still Has No Equal
+
+Star Wars
+
+Wed, 19 Aug 2026 21:30:14 GMT
+
+https://screenrant.com/star-wars-anakin-skywalker-best-quote-clone-wars/
+
+13 years later, Anakin Skywalker's most powerful Star Wars quote still has no equal. Who knows what might have happened if he'd revealed the truth?
+---------
+
+# Bridgerton Demotes Most Important Character To Reduced Season 5 Role
+
+TV, Bridgerton
+
+Wed, 19 Aug 2026 21:19:37 GMT
+
+https://screenrant.com/bridgerton-season-5-penelope-bridgerton-role-demotion-casting-update/
+
+One of Bridgerton's most recognizable stars is unfortunately stepping out of the spotlight as their role has been reduced in the hit Netflix show.
+---------
+
+# Phil Lord & Chris Miller Find Next Sci-Fi Book Adaptation After Project Hail Mary
+
+Movies, Project Hail Mary, Sci-Fi
+
+Wed, 19 Aug 2026 21:45:52 GMT
+
+https://www.cbr.com/parodox-inc-sci-fi-movie-lord-miller-universal/
+
+Hot off the success of Project Hail Mary, Phil Lord and Christopher Miller are getting involved with another sci-fi book adaptation.
+---------
+
+# Star Wars Confirms Major Luke Skywalker and Princess Leia Return
+
+Comics, Star Wars
+
+Wed, 19 Aug 2026 21:30:11 GMT
+
+https://www.cbr.com/star-wars-galaxys-edge-echoes-of-the-empire-luke-leia/
+
+Star Wars' most iconic duo is returning this fall in a brand-new comic release.
+---------
+
+# 10 Crime Books That Are Perfectly Written
+
+Books and Comics, Books, The Talented Mr. Ripley, Crime, The Name Of The Rose
+
+Wed, 19 Aug 2026 21:29:11 GMT
+
+https://collider.com/crime-books-perfectly-written/
+
+In Cold Blood, Red Dragon, and The Name of the Rose are some of the stellar crime books where the writing is just as compelling as the plot itself.
+---------
+
+# 'Scary Movie' Officially Confirms Streaming Release Date
+
+Movie News, Scary Movie, Comedy
+
+Wed, 19 Aug 2026 21:45:41 GMT
+
+https://movieweb.com/scary-movie-6-streaming-release-date/
+
+The Wayans' brothers' 'Scary Movie' "rebootquel" hits Paramount+ in September.
+---------
+
+# 'Project Hail Mary' Directors Find New Sci-Fi Project in Time-Travel Story
+
+Movie News, Phil Lord, Chris Miller, Project Hail Mary
+
+Wed, 19 Aug 2026 21:30:53 GMT
+
+https://movieweb.com/paradox-inc-phil-lord-chris-miller/
+
+The directors of 'Project Hail Mary,' one of 2026's biggest hits, now have a new sci-fi project lined up for development.
+---------
+
 # Insidious 6 Officially Sets All-Time Rotten Tomatoes Record With Debut Score
 
 Movies, Insidious: Out of the Further, Insidious, Horror
