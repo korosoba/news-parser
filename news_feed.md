@@ -1,3 +1,14 @@
+# Game Of Thrones: Invasion & Open War Arrive August 22
+
+Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: Conquest, Game Of Thrones: Dragonfire, PC
+
+Wed, 19 Aug 2026 06:00:14 GMT
+
+https://screenrant.com/game-of-thrones-invasion-open-war-august-22/
+
+Game of Thrones returns on August 22 with Invasion & Open War as part of the larger War for the Throne event coming this weekend.
+---------
+
 # Brandon Sanderson's Stormlight: Showdown in Shadesmar Officially Arrives In 2027
 
 Gaming, Brandon Sanderson, The Cosmere RPG
