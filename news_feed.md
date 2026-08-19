@@ -1,3 +1,256 @@
+# Ewan McGregor Reveals Obi-Wan Kenobi Star Wars Return Story He Pitched To Dave Filoni
+
+Movies, Star Wars
+
+Wed, 19 Aug 2026 13:21:38 GMT
+
+https://screenrant.com/star-wars-obi-wan-kenobi-return-ewan-mcgregor-pitch/
+
+Ewan McGregor reveals his interest in returning as Obi-Wan Kenobi for a future Star Wars project, explaining what he pitched to Dave Filoni.
+---------
+
+# X-Men Debuts Histoic New Villain, The Child Of Mystique
+
+Marvel Comics, X-Men
+
+Wed, 19 Aug 2026 13:15:15 GMT
+
+https://screenrant.com/x-men-new-villain-mirrormind/
+
+Marvel reveals its new X-Men villain, who possesses a dangerous combination of Mystique's shapeshifting powers and another villain's unique mutation.
+---------
+
+# Star Trek Officially Debuts Captain Kirk's Hardcore New Design
+
+Comics, Star Trek
+
+Wed, 19 Aug 2026 13:00:14 GMT
+
+https://screenrant.com/star-trek-new-captain-kirk-design/
+
+Kirk has taken some gnarly battle damage.
+---------
+
+# 3 10/10 PlayStation 2 Games Turning 25 This Year
+
+Gaming, PlayStation 2, Grand Theft Auto, Final Fantasy, Metal Gear Solid 2: Sons of Liberty
+
+Wed, 19 Aug 2026 13:00:14 GMT
+
+https://screenrant.com/best-playstation-2-games-2001-turning-25/
+
+Sony's PlayStation 2 sees a number of its games turning 25 this year, but there were a few releases in 2001 that were easily 10/10 experiences.
+---------
+
+# Mutiny Review: Jason Statham's Formulaic Action Flick Is Destined To Induce Déjà Vu
+
+New Movies, Mutiny
+
+Wed, 19 Aug 2026 13:00:14 GMT
+
+https://screenrant.com/mutiny-2026-movie-review/
+
+Jason Statham’s latest movie is as uninspired as it is lacking in tension. Even viewers expecting nothing more than solid action may be disappointed.
+---------
+
+# All 6 The Sopranos Seasons, Ranked
+
+Classic TV, The Sopranos
+
+Wed, 19 Aug 2026 13:00:14 GMT
+
+https://screenrant.com/the-sopranos-seasons-ranked/
+
+The Sopranos is one of the greatest TV shows ever, and it's a show where no season feels light-years better than another, but let's rank them anyway.
+---------
+
+# Daniel Radcliffe's Greatest Non-Harry Potter Movie Is Now Streaming On Netflix
+
+Movies, Masked Recs
+
+Wed, 19 Aug 2026 13:00:14 GMT
+
+https://screenrant.com/daniel-radcliffe-swiss-army-man-movie-streaming-netflix-august-2026/
+
+Daniel Radcliffe's greatest movie that isn't part of the Harry Potter franchise is now streaming on Netflix at the perfect time.
+---------
+
+# A 2006 PlayStation 2 Classic Is Officially Free With PS Plus Right Now
+
+Gaming, PlayStation Plus, Triple-A Games, RPG, Onimusha: Dawn of Dreams
+
+Wed, 19 Aug 2026 12:58:19 GMT
+
+https://screenrant.com/playstation-ps2-2006-classic-free-ps-plus/
+
+A beloved RPG released for the PlayStation 2 back in 2006 is now officially free to download and play for members subscribed to PlayStation Plus.
+---------
+
+# Brandon Sanderson's Mistborn: The Well Of Ascension Officially Arrives November 2026
+
+Gaming, Mistborn, Brandon Sanderson
+
+Wed, 19 Aug 2026 12:42:59 GMT
+
+https://screenrant.com/brandon-sanderson-mistborn-well-of-ascension-november-2026/
+
+Mistborn is arguably the most popular work in Brandon Sanderson's arsenal right now, and a new adaptation is on the way soon.
+---------
+
+# DC Studios' Wonder Woman Movie Gets First Update In 14 Months
+
+Movies, Wonder Woman (DCU), Wonder Woman, DC Universe
+
+Wed, 19 Aug 2026 12:34:41 GMT
+
+https://screenrant.com/wonder-woman-movie-dc-update-tom-king/
+
+Over a year after announcing that a new Wonder Woman movie is in the works, the upcoming reboot film at DC Studios finally gets a new update.
+---------
+
+# Cyberpunk 2077 Officially Drops $125 New Release Out This August
+
+Games, cyberpunk 2077, Cyberpunk 2077
+
+Wed, 19 Aug 2026 13:18:11 GMT
+
+https://www.cbr.com/cyberpunk-2077-official-new-release-august-2026-gunnar/
+
+Cyberpunk 2077 fans have a new piece of merchandise to look forward to that is perfect for channeling their inner Dexter DeShawn.
+---------
+
+# 5 Forgotten Cartoon Network Anime That Aged Like Fine Wine
+
+Anime, Shonen, Cartoon Network, Vampire Hunter D, Cardcaptor Sakura, Astro Boy
+
+Wed, 19 Aug 2026 13:15:11 GMT
+
+https://www.cbr.com/forgotten-cartoon-network-anime-age-gracefully/
+
+Fans weren't able to appreciate every classic that aired on Cartoon Network at the time, even still, these anime managed to age like fine wine.
+---------
+
+# Tombstone's Final Quote Is the Greatest 3 Words in Western History
+
+Movies, Western, Tombstone, kurt russell
+
+Wed, 19 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/tombstone-best-ending-quote-western-history/
+
+Tombstone gave the Western some of its greatest quotes, but the final line of the film features the 3 most powerful words the genre has ever known.
+---------
+
+# Marvel's Just Officially Killed Off a Main Avenger
+
+Books and Comics, Marvel Comics, What If, Runaways, Captain America
+
+Wed, 19 Aug 2026 13:15:11 GMT
+
+https://collider.com/marvel-runaways-what-if-ultron-son-kills-captain-america/
+
+Marvel’s new Runaways What If story turns Victor Mancha into a villain who kills Captain America and sets his sights on the Avengers.
+---------
+
+# Taylor Sheridan's Most Controversial 'Yellowstone' Spin-Off Is Officially Cancelled
+
+TV News, Taylor Sheridan, Yellowstone, Western, Paramount
+
+Wed, 19 Aug 2026 13:11:25 GMT
+
+https://collider.com/yellowstone-spin-off-6666-cancelled/
+
+Taylor Sheridan officially announces that a previously announced Yellowstone spin-off is officially not happening.
+---------
+
+# Justin Hartley Officially Confirms Jensen Ackles’ 'Tracker' Season 4 Fate
+
+TV News, Tracker, Jensen Ackles, Justin Hartley, CBS
+
+Wed, 19 Aug 2026 13:03:21 GMT
+
+https://collider.com/tracker-season-4-jensen-ackles-return/
+
+Justin Hartley officially addresses whether Jensen Ackles' Russell Shaw will return in Tracker Season 4.
+---------
+
+# Marvel Is Officially Bringing Back The Punisher’s Biggest Rivalry
+
+Books and Comics News, Marvel Comics, Punisher, Spider-Man, Superhero
+
+Wed, 19 Aug 2026 13:00:11 GMT
+
+https://collider.com/punisher-vs-the-amazing-spider-man-issue-2-frank-castle-rematch-rhino-marvel-comics/
+
+The latest issue of Punisher vs. The Amazing Spider-Man puts Frank face-to-face with one of the web-slinger's oldest foes for the first time in years.
+---------
+
+# Laika's Ambitious Stop-Motion Fantasy Adaptation Officially Debuts a Jaw-Dropping New Trailer
+
+Movie News, Wildwood, Laika, Peyton Elizabeth Lee, Travis Knight
+
+Wed, 19 Aug 2026 12:30:11 GMT
+
+https://collider.com/wildwood-trailer-laika/
+
+Laika has unveiled a new trailer for its much-anticipated fantasy book adaptation Wildwood, teasing a gorgeous, emotional stop-motion adventure.
+---------
+
+# Titus Welliver’s 'The Departed' Meets 'Heat' Thriller Is Officially an HBO Max Favorite
+
+Movie News, The Town, Ben Affleck, HBO Max, Titus Welliver
+
+Wed, 19 Aug 2026 12:30:11 GMT
+
+https://collider.com/the-town-titus-welliver-thriller-hbo-max-streaming-success-august-2026/
+
+The critically acclaimed crime-thriller movie The Town, directed by and starring Ben Affleck, has re-emerged on the HBO Max viewership charts.
+---------
+
+# Tom Holland Is Pocketing Massive Paycheck From 'Spider-Man: Brand New Day'
+
+Movie News, Spider-Man: Brand New Day, Tom Holland
+
+Wed, 19 Aug 2026 13:24:42 GMT
+
+https://movieweb.com/tom-holland-spider-man-brand-new-day-paycheck/
+
+Tom Holland has quickly become one of Hollywood's most bankable stars.
+---------
+
+# Amazon Accidentally Streams Jason Statham's New 95-Minute Action Thriller Ahead of Theatrical Release
+
+Movie News, Jason Statham, Mutiny, Action, Thriller
+
+Wed, 19 Aug 2026 13:19:17 GMT
+
+https://movieweb.com/amazon-stream-jason-statham-mutiny-mistake/
+
+Statham's latest action thriller 'Mutiny' was reportedly released by mistake onto Prime Video.
+---------
+
+# 'Reacher' Season 4 Now Has 2 Unforgivable Plot Holes
+
+Features, Reacher
+
+Wed, 19 Aug 2026 13:00:13 GMT
+
+https://movieweb.com/reacher-season-4-plot-holes/
+
+Alan Ritchson's 'Reacher' series is better than it has been in years, but it's not quite perfect. Read on for more.
+---------
+
+# 'Mutiny' Review: It's 'Die Hard' on the High Seas for Jason Statham
+
+3 star movies, Mutiny, Jason Statham, Action, Thriller
+
+Wed, 19 Aug 2026 13:00:13 GMT
+
+https://movieweb.com/mutiny-review/
+
+A bodyguard seeking vengeance discovers a dark secret on a cargo ship.
+---------
+
 # Star Wars Fans Heartbroken Over Cancelled Mandalorian Project
 
 Gaming, Star Wars, The Mandalorian
