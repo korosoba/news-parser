@@ -1,3 +1,234 @@
+# Dune 3's Biggest BTS Change Is Paying Off More Than I Ever Expected
+
+Movies, Dune: Part Three, Dune
+
+Wed, 19 Aug 2026 15:30:14 GMT
+
+https://screenrant.com/dune-3-movie-cinematographer-change-linus-sandgren-payoff/
+
+Dune: Part Three includes one massive behind-the-scenes change, but it's one that's paying off more than I ever expected it to.
+---------
+
+# Apple TV's Pluribus Succeeded At An Impossible Task
+
+Streaming TV, Pluribus
+
+Wed, 19 Aug 2026 15:30:14 GMT
+
+https://screenrant.com/pluribus-apple-tv-succeed-better-call-saul/
+
+Apple TV has renewed one of its best science fiction shows, which has the unenviable task of following up one of the greatest series ever.
+---------
+
+# 41 Years Later, This Super Mario Bros. Line Is The Greatest Quote In Video Game History
+
+Gaming, Super Mario, Super Mario Bros.
+
+Wed, 19 Aug 2026 15:28:32 GMT
+
+https://screenrant.com/super-mario-bros-greatest-quote-gaming-history/
+
+Explore the lasting impact of Super Mario's famous line in gaming culture.
+---------
+
+# Taylor Sheridan’s Dutton Ranch Officially Returns Today With Exciting New Yellowstone Release
+
+TV, Dutton Ranch, Yellowstone, Taylor Sheridan
+
+Wed, 19 Aug 2026 15:26:39 GMT
+
+https://screenrant.com/taylor-sheridan-dutton-ranch-digital-release-august-2026/
+
+The latest spinoff of Taylor Sheridan's Yellowstone universe Dutton Ranch is officially returning with an exciting new release now available.
+---------
+
+# Scary Movie Officially Sets Major New Release In Just 2 Weeks
+
+Movies, Scary Movie
+
+Wed, 19 Aug 2026 15:24:32 GMT
+
+https://screenrant.com/scary-movie-6-paramount-plus-streaming-date-september-2026/
+
+The newest installment in the Scary Movie franchise grossed $231 million at the box office. Audiences will soon be able stream the film at home.
+---------
+
+# Jason Statham's New R-Rated Revenge Thriller Mutiny Polarizes Critics On Rotten Tomatoes
+
+Movies, Mutiny, Jason Statham
+
+Wed, 19 Aug 2026 15:15:04 GMT
+
+https://screenrant.com/jason-statham-mutiny-movie-rotten-tomatoes-score/
+
+Jason Statham's new revenge thriller underwhelms critics and leads to a disappointing Rotten Tomatoes score ahead of its August release.
+---------
+
+# DC Reveals Black Manta's New Design for Its Post-Jason Momoa Aquaman Era
+
+Comics, Aquaman
+
+Wed, 19 Aug 2026 15:13:02 GMT
+
+https://screenrant.com/dark-knights-steel-redesign-black-manta/
+
+Jason Momoa will always be remembered as Aquaman, but a new era has begun for the King of Atlantis at DC Comics, including his greatest villain.
+---------
+
+# Anya Taylor-Joy & Chris Evans’ Netflix Thriller Sacrifice Revealed In Wild New Images
+
+Movies
+
+Wed, 19 Aug 2026 15:10:14 GMT
+
+https://screenrant.com/sacrifice-netflix-movie-anya-taylor-joy-chris-evans-new-images/
+
+Anya Taylor-Joy is intent on cleansing the Earth and Chris Evans is an insecure movie star in wild new images from the Netflix thriller Sacrifice.
+---------
+
+# Netflix Reportedly Sets New Prequel Release For Hit 5-Season Adventure Series
+
+TV
+
+Wed, 19 Aug 2026 15:08:04 GMT
+
+https://screenrant.com/netflix-outer-banks-prequel-series-development-report/
+
+Netflix is not ready to say goodbye to one of its hit shows just yet, as the streamer finds a path forward for a defining adventure drama.
+---------
+
+# Join Us For An Exclusive Screening Of Ryan Reynolds & Kenneth Branagh's Action Comedy Mayday
+
+Exclusive, Mayday, Ryan Reynolds
+
+Wed, 19 Aug 2026 15:08:02 GMT
+
+https://screenrant.com/mayday-screening-ryan-reynolds-kenneth-branagh-free-event/
+
+ScreenRant is hosting an early screening of the new Apple TV action film, Mayday, starring Ryan Reynolds and Kenneth Branagh in Montréal.
+---------
+
+# Paramount’s $231M Horror Hit With Just 23% RT Finally Sets Paramount+ Streaming Date
+
+Movies, Scary Movie, Paramount Plus
+
+Wed, 19 Aug 2026 15:26:38 GMT
+
+https://www.cbr.com/scary-movie-streaming-date-paramount-plus/
+
+Paramount's horror hit that beat the critics is headed to Paramount+.
+---------
+
+# Terminator 2 Officially Returns in Upcoming New Release
+
+Games, Terminator 2: Judgment Day, Tabletop, Terminator
+
+Wed, 19 Aug 2026 15:20:11 GMT
+
+https://www.cbr.com/terminator-2-official-return-new-release-board-game/
+
+People who want to experience the story of Terminator 2: Judgment Day will be able to do so in a brand-new release that's coming to Kickstarter.
+---------
+
+# Bleach TYBW Season 4, Episode 5 Release Date & Time
+
+Anime, Bleach: Thousand Year Blood War, shonen anime, Bleach
+
+Wed, 19 Aug 2026 15:15:11 GMT
+
+https://www.cbr.com/bleach-tybw-season-4-episode-5-release-date-time/
+
+Bleach TYBW returns with another highly anticipated episode. Find out when Season 4, Episode 5 arrives and where to watch it.
+---------
+
+# Obi-Wan Kenobi's Has the Darkest Star Wars Quote in Sci-Fi History
+
+Movies, Star Wars: Episode II - Attack of the Clones
+
+Wed, 19 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/star-wars-attack-of-the-clone-obi-wan-darkest-quote/
+
+A single sentence spoken by Ewan McGregor's version of Obi-Wan Kenobi in the Star Wars prequels subtly highlighted the tragedy of the Skywalker Saga.
+---------
+
+# 5 2026 Anime Everyone Slept On
+
+Anime, Snowball Earth, MF Ghost, Fist Of The North Star
+
+Wed, 19 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/2026-anime-everyone-slept-on/
+
+2026 has been a monumental year for anime, but some of its most interesting titles, like Shiboyugi and Snowball Earth, slipped through the cracks.
+---------
+
+# ‘Project Hail Mary’ Is Officially Getting an Expansive New 2026 Release
+
+Movie News, Project Hail Mary, Ryan Gosling, Prime Video, Sci-Fi
+
+Wed, 19 Aug 2026 15:15:11 GMT
+
+https://collider.com/project-hail-mary-journey-among-stars-story/
+
+After box office success, Project Hail Mary is officially getting an expansive new 2026 release.
+---------
+
+# Anya Taylor-Joy Officially Joins an Avenger in First Look at Netflix's New Blockbuster Thriller
+
+Movie News, Anya Taylor-Joy, Captain America, Sacrifice, Chris Evans
+
+Wed, 19 Aug 2026 15:11:24 GMT
+
+https://collider.com/anya-taylor-joy-chris-evans-sacrifice-netflix-images/
+
+Learn more about the new thriller Sacrifice with Anya Taylor-Joy and Chris Evans, premiering on Netflix October 16, 2026.
+---------
+
+# Yash Officially Unleashes His Darkest Role Yet in ‘Toxic’ Trailer [Exclusive]
+
+Movie News, Exclusive Media, International, Crime, Fantasy
+
+Wed, 19 Aug 2026 15:02:27 GMT
+
+https://collider.com/yash-toxic-fairy-tale-trailer-double-role/
+
+Watch Yash take on a double role in the exclusive new trailer for Toxic: A Fairy Tale for Grown-Ups, arriving August 26.
+---------
+
+# Star Trek Officially Returns With Its Strangest Enterprise Crew Yet [Exclusive]
+
+TV News, Star Trek: Strange New Worlds, The Jim Henson Company, Star Trek, Ethan Peck
+
+Wed, 19 Aug 2026 15:00:03 GMT
+
+https://collider.com/star-trek-strange-new-worlds-episode-5-level-five-transporter-accident-sneak-peek/
+
+Watch an exclusive clip from Star Trek: Strange New Worlds Season 4 as a transporter accident turns nearly the entire Enterprise crew into puppets.
+---------
+
+# Disney+ Just Confirmed a New Actor to Play Luke Skywalker
+
+Movie News, LEGO Star Wars: The Mandalorian, LEGO Star Wars, Star Wars, Eric Bauza, luke skywalker
+
+Wed, 19 Aug 2026 15:15:46 GMT
+
+https://movieweb.com/disney-luke-skywalker-lego-star-wars/
+
+A new 'Star Wars' special is right around the corner.
+---------
+
+# Catherine Zeta-Jones Assassin Thriller Series Sets Prime Video Release Date
+
+TV News, Amazon, Catherine Zeta-Jones
+
+Wed, 19 Aug 2026 15:02:37 GMT
+
+https://movieweb.com/catherine-zeta-jones-kill-jackie-prime-video-release-date/
+
+Catherine Zeta-Jones is back in action in the new streaming assassin thriller.
+---------
+
 # Florence Pugh's $87.6 Million R-Rated Psychological Thriller Deserves Its Global HBO Max Streaming Success
 
 Movies, Masked Recs
