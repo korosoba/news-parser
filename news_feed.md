@@ -1,3 +1,234 @@
+# How Powerful Is The DCU's Hal Jordan Compared To Superman? Lanterns Has The Answer
+
+Streaming TV, Lanterns, Superman, DC Universe
+
+Wed, 19 Aug 2026 02:11:13 GMT
+
+https://screenrant.com/lanterns-hal-jordan-superman-powerscaling/
+
+Kyle Chandler's Hal Jordan is an impressive hero in HBO's Lanterns, and the new DC Universe series seems to reveal whether he could defeat Superman.
+---------
+
+# 12 Crunchyroll Alternatives Every Anime Fan Should Know About
+
+Anime, Crunchyroll, Crunchyroll Premium
+
+Wed, 19 Aug 2026 02:06:32 GMT
+
+https://screenrant.com/best-alternatives-to-crunchyroll-streaming-services/
+
+Discover a world of anime streaming beyond Crunchyroll with these 12 alternative sites, some of which are completely free and available anywhere!
+---------
+
+# The Witcher Meets Game Of Thrones In 3-Part Prime Video High Fantasy Series
+
+Streaming TV, Masked Recs
+
+Wed, 19 Aug 2026 02:00:24 GMT
+
+https://screenrant.com/the-wheel-of-time-witcher-meets-game-of-thrones-prime-video/
+
+Game of Thrones set the tone, and The Witcher followed suit. Where these two high fantasy TV shows meet in the middle is Prime Video's own offering.
+---------
+
+# Zelda: Twilight Princess Is The Unexpected Star Of Zelda’s 40th Anniversary
+
+Gaming, The Legend of Zelda: Twilight Princess, The Legend of Zelda
+
+Wed, 19 Aug 2026 02:00:24 GMT
+
+https://screenrant.com/zelda-twilight-princess-40th-anniversary-star/
+
+Explore how Twilight Princess can bring excitement to Zelda's 40th anniversary amid quiet celebrations.
+---------
+
+# Just By Including This Original X-Men Hero, The MCU's Reboot Can Do One Thing Fox's Franchise Never Did
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Wed, 19 Aug 2026 02:00:24 GMT
+
+https://screenrant.com/x-men-mcu-reboot-angel-member-first-time/
+
+If Marvel incorporates this original member of the X-Men into the reboot's time lineup, it'll offer something we missed out on with Fox's movies.
+---------
+
+# Star Wars' New Lightsaber Color Breaks Canon (But It's Worth It)
+
+Streaming TV, Star Wars
+
+Wed, 19 Aug 2026 01:30:14 GMT
+
+https://screenrant.com/star-wars-ninth-jedi-silver-lightsaber-lore-meaning/
+
+A new Star Wars show introduced a new lightsaber color that doesn't fit with the franchise's established canon at all, but it's well worth a retcon.
+---------
+
+# Fallout Officially Returns January 2027 With New Release For Gamers
+
+Gaming, Fallout, Bethesda, PC
+
+Wed, 19 Aug 2026 01:00:14 GMT
+
+https://screenrant.com/fallout-january-2027-return-statue-t60/
+
+Fallout is making a huge return in January 2027 with an unbelievably expensive new release that's sure to turn fans' heads.
+---------
+
+# Every Type Of Dinosaur In The End of Oak Street
+
+Movies, The End of Oak Street, Jurassic Park
+
+Wed, 19 Aug 2026 01:00:14 GMT
+
+https://screenrant.com/the-end-of-oak-street-movie-dinosaur-species/
+
+No good dinosaur movie premieres without an impressive selection of creatures, and The End of Oak Street does not disappoint in that department.
+---------
+
+# Every X-Men Character Officially Announced for the MCU, Explained
+
+Movies, Marvel Cinematic Universe, X-Men
+
+Wed, 19 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/every-confirmed-mcu-x-men-character-list/
+
+Even before Avengers: Doomsday, the MCU is preparing to move into the Mutant Saga and there are a ton of X-Men coming to the world of Marvel.
+---------
+
+# Ganon's Best Legend of Zelda Line Is the Greatest Quote in Video Game History
+
+Games, The Legend of Zelda, Adventure, Video Games
+
+Wed, 19 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/legend-of-zelda-greatest-ganon-quote/
+
+The Legend of Zelda's Ganon is one of the most iconic villains in gaming history, and this quote proves why he deserves the popularity.
+---------
+
+# 10 Hardest Metroidvanias of All Time, Officially Ranked
+
+Games, Lists, Video Games, Metroid
+
+Wed, 19 Aug 2026 01:45:11 GMT
+
+https://www.cbr.com/hardest-metroidvanias-of-all-time-officially-ranked/
+
+Metroid Dread and Hollow Knight are just the tip of the iceberg when it comes to the hardest Metroidvanias.
+---------
+
+# 10 Best Dark Fantasy Anime Like Solo Leveling
+
+Anime, Solo Leveling
+
+Wed, 19 Aug 2026 01:25:11 GMT
+
+https://www.cbr.com/best-dark-fantasy-anime-like-solo-leveling/
+
+For everyone waiting for Solo Leveling Season 3, there are a host of dark fantasy anime to enjoy in the meantime.
+---------
+
+# Star Trek: The Last Starship Officially Changes Captain Kirk's Destiny
+
+Comics, Star Trek
+
+Wed, 19 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/star-trek-the-last-starship-captain-kirk/
+
+This comic boldly goes where Star Trek has rarely gone before.
+---------
+
+# Andy Serkis' $47M War Epic Turns Into PVOD Hit After Dividing Critics & Audiences
+
+Movies, Young Washington
+
+Wed, 19 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/andy-serkis-young-washington-war-digital-success-august-2026/
+
+The most divisive historical war drama of the year is officially making a home for itself on the streaming charts ahead of its upcoming sequel.
+---------
+
+# David Duchovny’s Best X-Files Line Is Still Sci-Fi’s Greatest Quote 33 Years Later
+
+TV, The X-Files, Sci-Fi
+
+Wed, 19 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/x-files-best-david-duchovny-line-sci-fi-greatest-quote/
+
+Chris Carter's The X-Files had a legendary run throughout the 1990s, and one key David Duchovny quote is still one of the best sci-fi lines ever.
+---------
+
+# 2 Broke Girls Stars Finally Reunite on TV 9 Years After CBS Cancellation
+
+TV, 2 Broke Girls, Shifting Gears
+
+Wed, 19 Aug 2026 00:55:58 GMT
+
+https://www.cbr.com/2-broke-girls-reunion-shifting-gears-season-3/
+
+Kat Dennings and Beth Behrs have an on-screen reunion almost a decade after their CBS sitcom was unceremoniously canceled.
+---------
+
+# The Perfect 'Bridgerton' Replacement Series Is Ready To Be Adapted for Streaming
+
+TV Features, Bridgerton, Netflix, Romance, History
+
+Wed, 19 Aug 2026 01:27:11 GMT
+
+https://collider.com/bridgerton-replacement-wallflowers-series-lisa-kleypas/
+
+Lisa Kleypas' The Wallflowers book series is ideal for adaptation after Bridgerton's success.
+---------
+
+# The Highest-Rated Film on Letterboxd Is a Near-Perfect Anime Cult Classic
+
+Movie Features, Chainsaw Man, Chainsaw Man - The Movie: Reze Arc, Crunchyroll, Anime
+
+Wed, 19 Aug 2026 01:13:11 GMT
+
+https://collider.com/chainsaw-man-the-movie-reze-arc-highest-rated-letterboxd/
+
+Chainsaw Man — The Movie: Reze Arc became Letterboxd's highest-rated film of 2025, due to its mix of faithful adaptation and emotional storytelling.
+---------
+
+# The Perfect ‘Game of Thrones’ Cast if the Show Were Made in 2026
+
+TV, Game Of Thrones, George R.R. Martin, HBO, Peter Dinklage
+
+Wed, 19 Aug 2026 00:55:11 GMT
+
+https://collider.com/game-of-thrones-cast-made-today-2026/
+
+From MCU heroes to big-name Hollywood stars, these actors would fit perfectly in Westeros if Game of Thrones were cast today.
+---------
+
+# ‘The Last of Us’ Season 3 Is Making Its Biggest Story Change Yet
+
+TV Features, The Last of Us, Neil Druckmann, Kaitlyn Dever, Craig Mazin
+
+Wed, 19 Aug 2026 00:52:11 GMT
+
+https://collider.com/the-last-of-us-season-3-abby-anderson-kaitlyn-dever-perspective/
+
+The Last of Us Season 3 will make tonal and thematic changes as Abby Anderson takes the front seat in the dystopian story.
+---------
+
+# 10 Sci-Fi Movies With Flawless Space Travel
+
+Movie Lists, Sci-Fi, Science Fiction
+
+Wed, 19 Aug 2026 02:00:23 GMT
+
+https://movieweb.com/sci-fi-movies-flawless-space-travel/
+
+From sci-fi classics to modern masterpieces, these movies perfectly capture the thrill and awe of space travel.
+---------
+
 # Netflix's 10/10 Fantasy Series Is The Lord Of The Rings But Bigger
 
 Streaming TV, Masked Recs
