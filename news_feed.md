@@ -1,3 +1,47 @@
+# Terminator 2 Is Officially Returning With A Brand-New Retelling
+
+Gaming, Terminator, Terminator 2: Judgment Day, Terminator 3: Rise of the Machines, PC
+
+Wed, 19 Aug 2026 04:31:14 GMT
+
+https://screenrant.com/terminator-2-new-board-game-confirmed/
+
+Terminator 2 officially returns with a fresh adaptation, bringing back John and Sarah Connor and the iconic T-800 for an exciting new adventure.
+---------
+
+# Adult Swim's Longest-Running Sci-Fi Is So Good, Its Spin-Off Has Already Been Renewed for Season 2
+
+TV Features, President Curtis, Rick and Morty, Cartoon Network, Adult Swim
+
+Wed, 19 Aug 2026 04:46:11 GMT
+
+https://collider.com/rick-and-morty-sci-fi-spinoff-president-curtis-renewed-season-2/
+
+Rick and Morty's new sci-fi spin-off, President Curtis, is so good that it's already been renewed for Season 2 on Adult Swim.
+---------
+
+# 6 Thriller Books That Will Keep You Hooked From Start to Finish
+
+Books and Comics, Thriller, Books, Blake Crouch, Stephen King
+
+Wed, 19 Aug 2026 04:27:11 GMT
+
+https://collider.com/thriller-books-hooked-start-to-finish/
+
+From Gone Girl to The Silent Patient, these thriller novels deliver chilling twists, tension, and sleepless nights.
+---------
+
+# 8 Most Suspenseful Thrillers of the Last 100 Years
+
+Movie, Thriller, Psycho, The Silence of the Lambs, Uncut Gems
+
+Wed, 19 Aug 2026 04:14:11 GMT
+
+https://collider.com/most-suspenseful-thriller-movies-last-100-years-ranked/
+
+Critically acclaimed thrillers like Psycho, Uncut Gems, and The Silence of the Lambs are among the most suspenseful thrillers of the last 100 years.
+---------
+
 # Steam Gamers Have 24 Hours To Grab A 9/10 Adventure Game Totally Free
 
 Gaming, Steam, Triple-A Games
