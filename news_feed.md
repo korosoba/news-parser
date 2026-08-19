@@ -1,3 +1,102 @@
+# Nintendo Switch 2's Most Impressive Game Is Free To Download For A Limited Time
+
+Gaming, Nintendo Switch 2, No Man's Sky
+
+Wed, 19 Aug 2026 09:51:23 GMT
+
+https://screenrant.com/nintendo-switch-2-no-mans-sky-port-free-demo/
+
+The Nintendo Switch 2 really is a stellar console, and there's a notably brilliant offer available right now for those who have one.
+---------
+
+# KPop Demon Hunters Returns With New Game Ahead Of 2029 Netflix Sequel
+
+Gaming, KPop Demon Hunters, PC, Netflix
+
+Wed, 19 Aug 2026 09:44:53 GMT
+
+https://screenrant.com/kpop-demon-hunters-game-release-available-now/
+
+The legendary KPop Demon Hunters is finally getting a brand-new game before its upcoming sequel is released.
+---------
+
+# The Legend Of Zelda Spring 2027 Return Officially Confirms The Wilds Era Isn’t Over
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Tears of the Kingdom
+
+Wed, 19 Aug 2026 09:22:30 GMT
+
+https://screenrant.com/legend-of-zelda-spring-2027-return-wilds-era-confirmed/
+
+Though many fans are ready to move on The Legend of Zelda's Wilds era is well worth celebrating before we say goodbye forever.
+---------
+
+# GTA 6 Gameplay Leaker Sends Rockstar A List Of Demands, Threatens More Leaks
+
+Gaming, Grand Theft Auto 6, Rockstar Games, Take-Two Interactive
+
+Wed, 19 Aug 2026 09:18:25 GMT
+
+https://screenrant.com/gta-6-gameplay-leaker-rockstar-demands/
+
+A hacker collective known as CyberLeek floods the internet with GTA VI footage and a manifesto calling out industry monetization practices.
+---------
+
+# Quentin Tarantino's Near-Perfect Western Masterpiece Is Officially Soaring on Streaming
+
+Movie Features, Django Unchained, Quentin Tarantino, Jamie Foxx, Christoph Waltz
+
+Wed, 19 Aug 2026 09:38:11 GMT
+
+https://collider.com/quentin-tarantino-django-unchained-streaming-free-pluto-tv-august-2026/
+
+Quentin Tarantino's Best Picture-nominated Western masterpiece, Django Unchained, is now streaming for free on Pluto TV.
+---------
+
+# 10 Shows From 2026 That Are Officially Becoming Sleeper Hits
+
+TV, Widow's Bay, His & Hers, The Five-Star Weekend, Margo's Got Money Troubles
+
+Wed, 19 Aug 2026 09:34:11 GMT
+
+https://collider.com/2026-shows-sleeper-hits/
+
+Widow's Bay, I Will Find You, His & Hers, Little House on the Prairie, and more make up our list of this year's sleeper hit shows.
+---------
+
+# The Beatles Are Officially Back on Abbey Road in Incredible Biopic First Look
+
+Movie News, The Beatles, The Beatles - Four Films, Sam Mendes, Paul Mescal
+
+Wed, 19 Aug 2026 09:30:11 GMT
+
+https://collider.com/beatles-four-film-cinematic-event-abbey-road-first-look/
+
+The four films will debut in April 2028.
+---------
+
+# 25 Best Sci-Fi Movies of All Time, Ranked According to IMDb
+
+Movie, Sci-Fi, Inception, Interstellar, The Matrix
+
+Wed, 19 Aug 2026 09:24:11 GMT
+
+https://collider.com/best-sci-fi-movies-of-all-time-ranked-imdb/
+
+IMDb users have determined the best sci-fi movies ever made, which include genre-defining classics like Alien and mind-bending films like Inception.
+---------
+
+# 39 Years Later, the Ridley Scott Thriller You've Never Seen Is Officially Streaming
+
+Movie Features, Someone to Watch Over Me, Ridley Scott, Tom Berenger, Lorraine Bracco
+
+Wed, 19 Aug 2026 09:08:11 GMT
+
+https://collider.com/ridley-scott-thriller-someone-to-watch-over-me-streaming-free-tubi-august-2026/
+
+Ridley Scott's 1987 thriller Someone to Watch Over Me is ready for rediscovery by a generation of new fans now that it is streaming free on Tubi.
+---------
+
 # Taylor Sheridan's Neo-Western Masterpiece Officially Smashes Another Streaming Milestone
 
 TV News, Taylor Sheridan, Landman, Streaming, Paramount Plus
