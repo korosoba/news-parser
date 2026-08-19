@@ -1,3 +1,146 @@
+# Star Wars Fans Heartbroken Over Cancelled Mandalorian Project
+
+Gaming, Star Wars, The Mandalorian
+
+Wed, 19 Aug 2026 12:04:43 GMT
+
+https://screenrant.com/star-wars-cancelled-mandalorian-game-reactions/
+
+The Mandalorian is one of the better Star Wars adaptations of recent times, and it could easily have been a lot bigger than it currently is.
+---------
+
+# Star Trek: Strange New Worlds’ Secret Scott Bakula Enterprise Tribute Is Great
+
+TV, Star Trek, Star Trek: Enterprise, Star Trek: Strange New Worlds
+
+Wed, 19 Aug 2026 12:00:14 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-new-vulcan-enterprise-tribute/
+
+Star Trek: Strange New Worlds season 4 introduced a new character who is a subtle callback to the crew dynamics of Captain Archer's NX-01 Enterprise.
+---------
+
+# The MCU’s X-Men Movie Has Chosen Its Perfect Loki Replacement
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Wed, 19 Aug 2026 12:00:14 GMT
+
+https://screenrant.com/mcu-xmen-movie-mister-sinister-casting-loki-replacement/
+
+The announcements for the new MCU X-Men movie sets up a promising Loki replacement for the team's first major solo film in the franchise.
+---------
+
+# The MCU’s New Cast Update All But Dooms 7 Avengers: Doomsday Heroes
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Wed, 19 Aug 2026 12:00:14 GMT
+
+https://screenrant.com/mcu-xmen-avengers-doomsday-movie-cast-fox-characters-fate/
+
+The newest MCU cast updates about the franchise paint an increasingly dire looking picture for a selection of heroes featuring in Avengers: Doomsday.
+---------
+
+# New Horror Comic Channels Clayface—and It’s Seriously Creepy
+
+Comics, DCU, DC Comics, Clayface
+
+Wed, 19 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/new-horror-comic-channels-dc-clayface/
+
+This might be the most unnerving comic series ever — even Clayface fans agree.
+---------
+
+# John Lithgow's New HBO Fantasy Show Is Already Bigger Than Game of Thrones in Every Way
+
+TV, Harry Potter, Innovation, Fantasy
+
+Wed, 19 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/hbo-harry-potter-bigger-fantasy-series-game-of-thrones/
+
+John Lithgow's upcoming HBO Max series is about to overtake Game of Thrones as the biggest television fantasy franchise.
+---------
+
+# 5 Historical Fiction Books Perfect for Fans of Shōgun
+
+Books and Comics, Shogun, Series, Books, FX
+
+Wed, 19 Aug 2026 12:24:11 GMT
+
+https://collider.com/historical-fiction-books-like-shogun/
+
+Loved Shōgun? Discover five historical fiction books packed with political intrigue, war, cultural conflict, ambition, and unforgettable characters.
+---------
+
+# 10 Most Suspenseful Mystery Movies of All Time
+
+Movie, Mystery, Blue Velvet, Se7en, The Fugitive
+
+Wed, 19 Aug 2026 12:20:11 GMT
+
+https://collider.com/most-suspenseful-mystery-movies-all-time-ranked/
+
+Mystery movies like Blue Velvet and Blow Out are among the most suspenseful ever made, keeping audiences on edge with a mix of intrigue and intensity.
+---------
+
+# Netflix Officially Adds Perfect 2-Part ‘Virgin River’ Replacement
+
+TV News, When Hope Calls, Netflix, Virgin River, Heartland
+
+Wed, 19 Aug 2026 12:01:11 GMT
+
+https://collider.com/netflix-coziest-western-spin-off-when-hope-calls-september-release-date/
+
+The heartwarming Western drama When Hope Calls debuts on Netflix US in a few weeks. Here's all to know.
+---------
+
+# Hayden Panettiere's 7 Best Movies and Shows, Ranked
+
+Movie, Hayden Panettiere, Scream 4, Heroes, Ice Princess
+
+Wed, 19 Aug 2026 11:51:11 GMT
+
+https://collider.com/hayden-panettiere-best-movies-shows-ranked/
+
+From Scream 4, to Heroes, to Remember the Titans, these are the best movies and TV shows starring the late Hayden Panettiere.
+---------
+
+# Netflix's Best Action Series of 2026 Is Crushing the Streaming Charts With 514M Hours Watched
+
+TV Features, Teach You A Lesson, Netflix, South Korea, Action
+
+Wed, 19 Aug 2026 11:49:11 GMT
+
+https://collider.com/netflix-teach-you-a-lesson-korean-action-tv-series/
+
+Netflix's Teach You a Lesson tackles school bullying in South Korea through intense action and deep societal questions.
+---------
+
+# Liam Neeson's 9/10 Action Thriller Is Officially One of the Biggest Movies on Streaming
+
+Movie News, In the Land of Saints and Sinners
+
+Wed, 19 Aug 2026 12:01:13 GMT
+
+https://movieweb.com/in-the-land-of-saints-and-sinner-action-netflix-streaming-tudum/
+
+Liam Neeson's hit Netflix action thriller is just as good as 'The Grey.'
+---------
+
+# Zack Snyder's First New Movie In 3 Years Is a "Civil War Meets Apocalypse Now" Thriller
+
+Features, Zack Snyder, Upcoming Tease
+
+Wed, 19 Aug 2026 12:01:13 GMT
+
+https://movieweb.com/the-last-photograph-zack-snyder-upcoming-thriller/
+
+Zack Snyder is working on a new thriller movie three years after 'Rebel Moon,' the space opera movie released in 2023 starring Djimon Hounsou.
+---------
+
 # Pokémon Officially Unveils Tropical Pikachu Redesign For Series' 30th Anniversary
 
 Gaming, Pokemon
