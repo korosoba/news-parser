@@ -1,3 +1,168 @@
+# 10 Greatest Harry Potter Movie Scenes That Weren't In The Books
+
+Movies, Harry Potter
+
+Wed, 19 Aug 2026 14:01:20 GMT
+
+https://screenrant.com/harry-potter-movies-best-scenes-not-in-books/
+
+These 10 great Harry Potter movie scenes weren’t in the books, but they became some of the franchise’s most memorable moments.
+---------
+
+# 16 Years Later, This 10/10 PS3 Open-World RPG Is Free With PlayStation Plus
+
+Gaming, PlayStation Plus, PlayStation 3, Fallout: New Vegas
+
+Wed, 19 Aug 2026 14:00:14 GMT
+
+https://screenrant.com/playstation-ps3-open-world-rpg-fallout-ps-plus/
+
+The PS3 might have been the weakest console from Sony to date, but it did play host to some amazing releases nonetheless.
+---------
+
+# 56-Year-Old Disaster Movie Masterpiece That Started The Genre Is Leaving Netflix (With Its 2 Sequels)
+
+Movies, Masked Recs
+
+Wed, 19 Aug 2026 14:00:14 GMT
+
+https://screenrant.com/airport-1970-disaster-movie-leaving-netflix-september-2026/
+
+The foundational film in the disaster movie genre is set to leave Netflix soon, and the 1970s classic is a must-watch 56 years later.
+---------
+
+# Marvel Debuts Official Villain Design for Ultron's Son
+
+Comics, Marvel
+
+Wed, 19 Aug 2026 13:59:07 GMT
+
+https://screenrant.com/ultron-son-victorious-costume-runaways/
+
+Victorious rises...
+---------
+
+# Sherlock Creator's Hit Detective Series Officially Returning With New Episodes Next Year
+
+TV, Bookish
+
+Wed, 19 Aug 2026 13:57:46 GMT
+
+https://screenrant.com/mark-gatiss-bookish-season-3-renewal-special-release-date/
+
+The creator of Sherlock has a hit detective series that's officially returning with new episodes next year, as two new releases are revealed.
+---------
+
+# Avengers Reveals SHIELD's Permanent New Codename, And It Changes Everything
+
+Comics, The Avengers
+
+Wed, 19 Aug 2026 13:30:14 GMT
+
+https://screenrant.com/avengers-reveals-shields-permanent-new-codename-and-it-changes-everything/
+
+Nick Fury vs the Avengers.
+---------
+
+# Taylor Sheridan's Best Show Surges on Streaming After Paramount Abandons Its Winning Format
+
+TV, Landman
+
+Wed, 19 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/taylor-sheridan-landman-paramount-success-format-change-august-2026/
+
+After Sheridan left Paramount, the streamer teased it's moving in a new direction...but his best show continues to prove it has a winning formula.
+---------
+
+# Apple TV's 10/10 Crime Series Is Officially Returning After 2 Year Delay
+
+TV News, Bad Monkey, Vince Vaughn, Natalie Martinez, Apple TV
+
+Wed, 19 Aug 2026 14:00:11 GMT
+
+https://collider.com/bad-monkey-season-2-release-date-images/
+
+Apple TV's Bad Monkey returns Dec 2 with new adventures for Vince Vaughn's Yancy in a fresh crime thriller season.
+---------
+
+# An Iconic Fantasy Video Game Is Officially Back With a First Look at the New Release [Exclusive]
+
+Books and Comics News, Thief, Fantasy, Comics, Action
+
+Wed, 19 Aug 2026 14:00:11 GMT
+
+https://collider.com/thief-pulse-of-promise-comic-soundtrack-celldweller/
+
+Bit Bot Media has released the first track from Celldweller's official soundtrack for the Thief: Pulse of Promise graphic novel. Listen to it here!
+---------
+
+# Apple TV's 'Lucky' Was Always Building to That Gut-Punch Ending Between Anya Taylor-Joy and Timothy Olyphant
+
+Exclusives, Lucky, Anya Taylor-Joy, Timothy Olyphant, Apple TV
+
+Wed, 19 Aug 2026 14:00:11 GMT
+
+https://collider.com/lucky-show-apple-tv-finale-showrunner-cassie-pappas-interview/
+
+Lucky co-showrunner Cassie Pappas explains why Apple TV's crime thriller was always building to that final shot of Anya Taylor-Joy.
+---------
+
+# 43 Years Later, Star Wars Just Reunited Luke Skywalker With His Greatest Enemy
+
+Books and Comics News, Star Wars, Return of the Jedi, Marvel Comics, Star Wars: Galaxy's Edge
+
+Wed, 19 Aug 2026 13:45:11 GMT
+
+https://collider.com/star-wars-luke-skywalker-emperor-palpatine-return-echoes-of-the-empire/
+
+Luke Skywalker encounters Emperor Palpatine again in a new Star Wars story, but the surprising reunion is not what it initially seems.
+---------
+
+# Marvel Officially Changes Gambit Forever
+
+Books and Comics News, X-Men, Uncanny X-Men, Marvel Comics, Gambit
+
+Wed, 19 Aug 2026 13:30:11 GMT
+
+https://collider.com/gambit-new-demon-transformation-uncanny-x-men-34/
+
+Marvel gives Gambit a terrifying new form in Uncanny X-Men #34, leaving Remy LeBeau permanently changed.
+---------
+
+# The Bloodiest And Horniest Action TV Show in History Will Leave Netflix in Just a Few Days
+
+TV News, Netflix, Spartacus, Coming/Leaving Streaming
+
+Wed, 19 Aug 2026 14:00:13 GMT
+
+https://movieweb.com/spartacus-leaving-netflix-september-2026/
+
+You only have a few days to stream what is genuinely the best predecessor to 'Game of Thrones.'
+---------
+
+# Where Every Main Avenger Was Last Seen Before 'Doomsday' & What They Were Doing
+
+Movie Lists, Avengers: Doomsday, Marvel Cinematic Universe
+
+Wed, 19 Aug 2026 14:00:13 GMT
+
+https://movieweb.com/where-every-avenger-is-before-doomsday/
+
+From Spider-Man to Captain America, who from the main Avengers will be in 'Doomsday' and where are they now?
+---------
+
+# Jason Statham's New 'Die Hard'-Esque Action Thriller Lands Rotten Tomatoes Score
+
+Movie News, Mutiny, Jason Statham
+
+Wed, 19 Aug 2026 13:54:14 GMT
+
+https://movieweb.com/jason-statham-mutiny-rotten-tomatoes-score/
+
+Jason Statham stages a mutiny in the new 95-minute action thriller releasing this week.
+---------
+
 # Ewan McGregor Reveals Obi-Wan Kenobi Star Wars Return Story He Pitched To Dave Filoni
 
 Movies, Star Wars
