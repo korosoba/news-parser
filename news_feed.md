@@ -1,3 +1,58 @@
+# Super Mario Eclipse Is The Sunshine Sequel We Always Wanted
+
+Gaming, Super Mario, Super Mario Sunshine
+
+Wed, 19 Aug 2026 10:35:46 GMT
+
+https://screenrant.com/super-mario-sunshine-eclipse-fan-sequel/
+
+Super Mario Sunshine was a relatively divisive game for the beloved series, but a sequel would still be a very exciting prospect.
+---------
+
+# As James Bond Casting List Officially Narrows, A New Contender Has Emerged
+
+Gaming, James Bond, Triple-A Games
+
+Wed, 19 Aug 2026 10:30:14 GMT
+
+https://screenrant.com/james-bond-casting-list-narrowed-down-patrick-gibson-odds/
+
+The race is heating up for the next James Bond, and it seems like someone has shot up on the interest list in short order this time.
+---------
+
+# Reacher Season 4's Massive Villain Twist Explained
+
+Streaming TV, Reacher, Reacher - Season 4
+
+Wed, 19 Aug 2026 10:30:08 GMT
+
+https://screenrant.com/reacher-season-4-lila-villain-twist-explained/
+
+After following seemingly straightforward story, Reacher season 4 drops a massive villain twist that completely changes the direction of its story.
+---------
+
+# 10 Greatest American Books of the Last 15 Years
+
+Books and Comics, Books, All The Light We Cannot See, The Goldfinch, Annihilation
+
+Wed, 19 Aug 2026 10:38:11 GMT
+
+https://collider.com/best-american-books-last-15-years-ranked/
+
+Pulitzer Prize-winning works like The Underground Railroad and complex gems like The Goldfinch are among the best American books of the last 15 years.
+---------
+
+# Hayden Panettiere’s 4-Season Sci-Fi Series Officially Scores Nearly 600M Minutes Watched on Netflix
+
+TV News, Hayden Panettiere, Heroes, Sci-Fi, Superhero
+
+Wed, 19 Aug 2026 10:30:11 GMT
+
+https://collider.com/heroes-hayden-pannettiere-superhero-series-netflix-viewership-nielsen-ratings/
+
+Hayden Panettiere's superhero series Heroes drew a massive audience on Netflix in the weeks before her tragic death.
+---------
+
 # Metal Gear Solid Online Unveiled In Impressive New Trailer
 
 Gaming, Metal Gear Solid
