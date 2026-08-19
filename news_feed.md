@@ -1,3 +1,102 @@
+# Luffy's Straw Hat Pirates Spotlighted In LEGO One Piece Key Art (Exclusive)
+
+TV, One Piece, LEGO
+
+Wed, 19 Aug 2026 17:01:16 GMT
+
+https://screenrant.com/lego-one-piece-luffy-straw-hat-pirates-going-merry-key-art/
+
+Exclusive: ScreenRant presents a first look at the key art for LEGO One Piece, which highlights the Straw Hat Pirates and their beloved ship.
+---------
+
+# 5 Nintendo GameCube RPGs That Are 10/10 Masterpieces
+
+Gaming, Nintendo GameCube, RPG, Triple-A Games
+
+Wed, 19 Aug 2026 17:01:16 GMT
+
+https://screenrant.com/nintendo-gamecube-masterpiece-rpgs/
+
+The Nintendo GameCube didn't have a massive RPG selection compared to the PlayStation 2, but a few all-time classics released on the system.
+---------
+
+# It: Welcome To Derry Is Officially Switching Casts In Season 2
+
+TV, It: Welcome to Derry
+
+Wed, 19 Aug 2026 17:01:16 GMT
+
+https://screenrant.com/it-welcome-to-derry-season-2-switching-casts/
+
+Season two of HBO's record-breaking Stephen King series introduces an even harsher Derry, where hardened outlaws confronting unspeakable terrors.
+---------
+
+# Netflix's Spin-Off News Moves the Lincoln Lawyer Further Away from Bosch
+
+TV, Bosch, The Lincoln Lawyer, Netflix
+
+Wed, 19 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/netflix-the-lincoln-lawyer-bosch-universe-crossover/
+
+Netflix's Lincoln Lawyer universe is further distancing itself from Prime Video's Bosch universe with its latest spin-off announcement.
+---------
+
+# Liam Neeson’s 8/10 Thriller Officially Pulls Another 3.3 Million Netflix Views
+
+Movie News, In the Land of Saints and Sinners, Liam Neeson, Netflix, Kerry Condon
+
+Wed, 19 Aug 2026 17:07:42 GMT
+
+https://collider.com/liam-neeson-in-the-land-of-saints-and-sinners-netflix-streaming-hit-august-2026/
+
+Liam Neeson’s 83%-rated action thriller In the Land of Saints and Sinners continues its Netflix resurgence with millions of views worldwide.
+---------
+
+# Netflix Developing Prequel to Popular Action Adventure Series
+
+TV News, Outer Banks, Netflix
+
+Wed, 19 Aug 2026 17:03:04 GMT
+
+https://movieweb.com/outer-banks-netflix-prequel-kildare/
+
+Netflix has a prequel to 'Outer Banks' in development, set 20 years earlier, as the YA hit ends with Season 5 on Aug. 20.
+---------
+
+# 'Taken' Meets 'Tulsa King' in Netflix's New #1 Smash Hit Action Crime Thriller
+
+Movie News, Action, Hot on Streaming, Crime, Thriller, Netflix
+
+Wed, 19 Aug 2026 17:01:15 GMT
+
+https://movieweb.com/nando-between-two-worlds-crime-thriller-netflix-hit-august-2026/
+
+It's 'Taken' meets 'Tulsa King' in Netflix's latest crime thriller smash, which has quickly emerged as a force to be reckoned with on streaming.
+---------
+
+# 14 Best Bollywood Movies on Netflix
+
+Movie Lists, Netflix, International
+
+Wed, 19 Aug 2026 17:01:15 GMT
+
+https://movieweb.com/20-best-bollywood-movies-on-netflix/
+
+Netflix Has One of the largest selections of Bollywood films, including original movies; these are the best.
+---------
+
+# Nicolas Cage Battles Cannibals in New Post-Apocalyptic Action Thriller
+
+Movie News, Nicolas Cage
+
+Wed, 19 Aug 2026 16:56:43 GMT
+
+https://movieweb.com/nicolas-cage-parish-action-thriller/
+
+Nicolas Cage survives a nuclear apocalypse and fights cannibals in the "visceral" new action thriller.
+---------
+
 # 85 Years Later, Wonder Woman Gets a New First Costume in DC Lore Rewrite
 
 DC Comics, Wonder Woman
