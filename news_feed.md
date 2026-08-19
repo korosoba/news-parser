@@ -1,3 +1,289 @@
+# Josh Brolin's Undersea Lessons Are Key To Austin Abrams' Survival Inside A Whale In New Whalefall Trailer
+
+Movies, Whalefall
+
+Wed, 19 Aug 2026 16:16:32 GMT
+
+https://screenrant.com/whalefall-movie-trailer-josh-brolin/
+
+20th Century Fox has officially released a brand-new trailer for it's upcoming survival thriller film, Whalefall.
+---------
+
+# Every Upcoming Jason Statham Movie Releasing In 2026 And Beyond
+
+New Movies, Jason Statham
+
+Wed, 19 Aug 2026 16:15:14 GMT
+
+https://screenrant.com/upcoming-jason-statham-movies-release/
+
+Jason Statham is attached to star in multiple major movies, many of the action variety. Several have release dates set for 2026 and beyond.
+---------
+
+# It's Officially The Start Of An Era For John Krasinski's Jack Ryan
+
+Movies, Jack Ryan, Tom Clancy's Jack Ryan: Ghost War
+
+Wed, 19 Aug 2026 16:11:39 GMT
+
+https://screenrant.com/jack-ryan-ghost-war-prime-video-streaming-charts-rise-august-2026/
+
+John Krasinski's Jack Ryan has proven himself one of the best action heroes in recent years, and a positive update shows how he could return.
+---------
+
+# Nicolas Cage Is Set To Fight Against Cannibals In New Survival Thriller Parish
+
+Movies, Nicolas Cage
+
+Wed, 19 Aug 2026 16:01:10 GMT
+
+https://screenrant.com/nicolas-case-parish-movie-plot-details-report/
+
+Nicolas Cage has now set a new movie project called Parish, and the post-apocalyptic thriller will feature the actor battling cannibals.
+---------
+
+# The Best Order For Playing The Devil May Cry Games
+
+Gaming, Devil May Cry
+
+Wed, 19 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/devil-may-cry-games-best-order/
+
+If you're looking to hop into the Devil May Cry series after watching the show or in preparation for the rumored DMC 6, here's where to start.
+---------
+
+# Every Banned South Park Episode (& Why They Were Controversial)
+
+Classic TV, South Park
+
+Wed, 19 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/south-park-banned-censored-episodes-controversies-explained/
+
+Over 25 seasons, South Park has seen only six out of more than 300 episodes banned and censored. What made these outings so uniquely controversial?
+---------
+
+# One Woman Can't Get Her Life Together In Trailer For Offbeat Comedy The Snake
+
+Exclusive, Trailer
+
+Wed, 19 Aug 2026 16:00:14 GMT
+
+https://screenrant.com/video/the-snake-susan-kent-offbeat-comedy-trailer/
+
+Exclusive: ScreenRant presents an exclusive first look at the trailer for offbeat comedy The Snake, written by and starring Susan Kent.
+---------
+
+# Insidious: Out Of The Further Review - Terrifyingly Dull & Unintentionally Funny
+
+New Movies, Insidious: Out of the Further, Insidious
+
+Wed, 19 Aug 2026 16:00:14 GMT
+
+https://screenrant.com/insidious-out-of-the-further-movie-review/
+
+The next chapter in the Insidious franchise focuses on brand new heroes, but it fails to capture the strengths of previous entries.
+---------
+
+# Kurt Russell's 7 Greatest Quotes As Wyatt Earp In Tombstone, Ranked
+
+Movies, Tombstone, Western
+
+Wed, 19 Aug 2026 15:50:14 GMT
+
+https://screenrant.com/tombstone-movie-kurt-russell-wyatt-earp-best-quotes/
+
+Almost every line that comes out of Kurt Russell's mouth as Wyatt Earp in Tombstone is a memorable quote, but here are some of the very best.
+---------
+
+# Magneto's Rebooted Backstory Rewrites His Origin For The Modern Day
+
+Marvel Comics, Magneto, X-Men
+
+Wed, 19 Aug 2026 15:39:11 GMT
+
+https://screenrant.com/x-men-magneto-new-origin-ultimate/
+
+Marvel Studios' X-Men reboot already has a new origin story for the MCU's Magneto, reinvented in an alternate timeline within the multiverse.
+---------
+
+# 5 Strongest Anime Final Forms in History, Ranked
+
+Anime, Dragon Ball Super, One Piece, Fire Force
+
+Wed, 19 Aug 2026 16:15:11 GMT
+
+https://www.cbr.com/strongest-anime-final-forms-of-all-time-ranked/
+
+An anime protagonist is only as strong as their final form, and the likes of Luffy and Goku have achieved the most powerful transformations ever.
+---------
+
+# Netflix’s Hit 5-Season Action-Adventure’s Future Revealed 1 Day Ahead of Finale
+
+TV, Outer Banks, Netflix
+
+Wed, 19 Aug 2026 16:07:01 GMT
+
+https://www.cbr.com/netflix-outer-banks-prequel-series-kildare/
+
+Netflix is expanding another one of its popular original series with a new offshoot.
+---------
+
+# It's Officially the End of an Era for The Incredibles Movies After 22 Years
+
+Movies, The Incredibles, Pixar, Incredibles 3
+
+Wed, 19 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/the-incredibles-3-brad-bird-director-pixar-formula-change/
+
+The Incredibles is making a drastic change in its upcoming sequel (will it destroy the franchise?).
+---------
+
+# 29 Years Later, Event Horizon Prequel Gets Its First Official Look
+
+Comics, Event Horizon
+
+Wed, 19 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/event-horizon-pandemonium-first-look/
+
+The hotly-anticipated prequel to Event Horizon has finally been unveiled, and it looks even more terrifying than the latest sequel series.
+---------
+
+# Yellowstone's 10/10 Sequel Announces New Release After Replacing John Dutton
+
+TV, Dutton Ranch
+
+Wed, 19 Aug 2026 15:36:25 GMT
+
+https://www.cbr.com/yellowstone-dutton-ranch-season-1-now-on-digital/
+
+The future of Yellowstone is in good hands with this sequel series that is now available to watch in a whole new way.
+---------
+
+# David Robert Mitchell and J.J. Abrams Break Down 'The End of Oak Street's Most Shocking Twist
+
+Exclusives, The End of Oak Street, J.J. Abrams, It Follows, Ewan McGregor
+
+Wed, 19 Aug 2026 16:18:40 GMT
+
+https://collider.com/the-end-of-oak-street-ending-meaning-jj-abrams-david-robert-mitchell-interview/
+
+J.J. Abrams and David Robert Mitchell discuss the inspiration behind their dino thriller and tease the It Follows sequel and The Great Beyond.
+---------
+
+# Yellowstone Officially Returns With New Beth and Rip Release
+
+TV News, Dutton Ranch, Taylor Sheridan, Paramount Plus, Cole Hauser
+
+Wed, 19 Aug 2026 16:15:41 GMT
+
+https://collider.com/dutton-ranch-season-1-digital-release-date-august-2026/
+
+Dutton Ranch Season 1 is now available to own, bringing Kelly Reilly and Cole Hauser back as Beth Dutton and Rip Wheeler across nine episodes.
+---------
+
+# David Tennant is Officially Returning to 'Doctor Who'
+
+TV News, Doctor Who, David Tennant, Sci-Fi, BBC
+
+Wed, 19 Aug 2026 16:15:11 GMT
+
+https://collider.com/david-tennant-doctor-who-return-audio-drama/
+
+David Tennant is officially returning to Doctor Who with a brand-new Big Finish audio drama.
+---------
+
+# The Teenage Mutant Ninja Turtles Officially Return With a Totally Bodacious New Release [Exclusive]
+
+TV News, Action Figures, Ninja Turtles, Mondo, Teenage Mutant Ninja Turtles
+
+Wed, 19 Aug 2026 16:00:11 GMT
+
+https://collider.com/teenage-mutant-ninja-turtles-shredder-mondo-figure-first-look/
+
+Get an exclusive first look at Mondo’s $265 1/6 scale Teenage Mutant Ninja Turtles Shredder figure, inspired by decades of TMNT history.
+---------
+
+# 'Insidious: Out of the Further' Takes the Franchise on an Unexpected Journey  | Review
+
+Movie Reviews, Insidious: Out of the Further, Insidious, Amelia Eve, James Wan
+
+Wed, 19 Aug 2026 16:00:11 GMT
+
+https://collider.com/insidious-6-out-of-the-further-movie-review/
+
+In the new Insidious: Out of the Further, the sixth entry in the franchise moves away from straight scares into new, more adventurous territory.
+---------
+
+# Prime Video Is Officially Replacing 'Maxton Hall' With New Boarding School Romance Series
+
+TV News, Prime Video, Maxton Hall: The World Between Us, Romance, Books
+
+Wed, 19 Aug 2026 15:45:11 GMT
+
+https://collider.com/house-of-crowns-tv-series-amazon-mgm/
+
+Amazon MGM is officially adapting Anna Todd's new boarding school romance as a new TV series.
+---------
+
+# 'Supergirl' Star Makes Shock Retirement Announcement
+
+Movie News, David Krumholtz
+
+Wed, 19 Aug 2026 16:04:51 GMT
+
+https://movieweb.com/supergirl-david-krumholtz-announces-retirement/
+
+The actor says they're done with Hollywood.
+---------
+
+# 'Insidious: Out of the Further' Review: The Franchise Falls Further into Mediocrity
+
+Movie Reviews, Insidious, Insidious: Out of the Further
+
+Wed, 19 Aug 2026 16:01:26 GMT
+
+https://movieweb.com/insidious-out-of-the-further-review/
+
+Patrick Wilson and Rose Byrne wisely stay away from this useless continuation that sees the series' evil spirits entering the real world
+---------
+
+# Crunchyroll's 10/10 'Fullmetal Alchemist' Successor Is One of the Biggest Anime on Streaming
+
+TV News, Daemons of the Shadow Realm, Crunchyroll, Hot on Streaming, Anime
+
+Wed, 19 Aug 2026 16:00:13 GMT
+
+https://movieweb.com/daemons-of-the-shadow-realm-fullmetal-alchemist-stream-crunchyroll/
+
+Forget 'Fullmetal Alchemist: Brotherhood,' this is the anime you should be watching on Crunchyroll.
+---------
+
+# Ridley Scott's New Epic Is 'Pirates of the Caribbean Meets Gladiator'
+
+Features, Pirates of the Caribbean, Gladiator, Ridley Scott, Upcoming Tease
+
+Wed, 19 Aug 2026 16:00:13 GMT
+
+https://movieweb.com/ridley-scott-treasure-island-historical-epic/
+
+Ridley Scott's new historical epic movie will remind audiences of 'Pirates of the Caribbean' and his beloved war film 'Gladiator.'
+---------
+
+# Anya Taylor-Joy & Chris Evans' Upcoming Netflix Action Film 'Sacrifice' Releases New Photos
+
+Movie News, Chris Evans, Anya Taylor-Joy, Netflix
+
+Wed, 19 Aug 2026 15:41:34 GMT
+
+https://movieweb.com/anya-taylor-joy-chris-evans-sacrifice-netflix-action-images/
+
+'Furiosa: A Mad Max Saga's' Anya Taylor-Joy and 'Avengers: Doomsday' actor Chris Evans star in the new Netflix action film 'Sacrifice.'
+---------
+
 # Dune 3's Biggest BTS Change Is Paying Off More Than I Ever Expected
 
 Movies, Dune: Part Three, Dune
