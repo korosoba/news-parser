@@ -1,3 +1,201 @@
+# Charlie Hunnam’s Sons Of Anarchy Return Revealed With New Spinoff Series
+
+TV, Sons of Anarchy
+
+Wed, 19 Aug 2026 20:09:00 GMT
+
+https://screenrant.com/sons-of-anarchy-spinoff-series-legends-charlie-hunnam-cast-returns/
+
+Charlie Hunnam is reteaming with FX to get the Sons of Anarchy gang back together for a very meta thriller that speaks to a changing Hollywood.
+---------
+
+# New Sci-Fi With 113.9M Hours Viewed Continues A Great Netflix Trend
+
+Movies, Masked Recs
+
+Wed, 19 Aug 2026 20:08:40 GMT
+
+https://screenrant.com/the-last-house-movie-netflix-sci-fi-trend/
+
+Netflix's new Sci-Fi movie has already racked up 113.9 million hours watched on the streaming service, and counting, continuing a successful streak.
+---------
+
+# New Wolverine Series Completes Trilogy Revealing His Origin
+
+Marvel Comics, Wolverine, X-Men
+
+Wed, 19 Aug 2026 20:08:15 GMT
+
+https://screenrant.com/wolverine-origins-dark-age/
+
+Marvel officially announces a Wolverine origin story series that delves into his unseen days between World War II and the Weapon X program.
+---------
+
+# The Audacity: After 4 Months, Netflix's New 8-Part Thriller Is One Of Its Best To Binge
+
+Streaming TV, Masked Recs
+
+Wed, 19 Aug 2026 20:03:14 GMT
+
+https://screenrant.com/netflix-the-audacity-best-thriller-to-binge/
+
+The Audacity, just added on Wednesday, August 19, 2026, is one of Netflix's best new 8-part shows to binge this week for fans of HBO's Succession.
+---------
+
+# X-Men Officially Debuts New Hero REPENT
+
+Marvel Comics, X-Men
+
+Wed, 19 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/x-men-new-hero-repent-debut/
+
+Marvel's new X-Men hero is the Doctor Strange equivalent of mutantkind, capable of facing the supernatural threats no other mutant dares to fight.
+---------
+
+# 5 Open-World RPGs Where Your Choices Genuinely Matter
+
+Gaming, RPG, PC
+
+Wed, 19 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/top-open-world-rpgs-choices-matter/
+
+Making decisions in games doesn’t always have true consequences, but there are some RPGs that feature choices that really impact the story and world.
+---------
+
+# Rick & Morty Meets Quantum Leap In HBO's Hit New Sci-Fi Series With 10 Episodes
+
+TV, Masked Recs
+
+Wed, 19 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-hbo-sci-fi-series-rick-and-morty-quantum-leap/
+
+A wild multiverse road trip, HBO's sci-fi sitcom blends R-rated humor with retro sci‑fi twists as a hapless protagonist leaps through realities.
+---------
+
+# 3 Years Later, Levi's Greatest Attack On Titan Line Is Still the Most Powerful Quote in Anime History
+
+Anime, Attack On Titan, Attack on Titan, hajime isayama
+
+Wed, 19 Aug 2026 20:15:11 GMT
+
+https://www.cbr.com/levi-ackerman-best-attack-on-titan-quote/
+
+Levi Ackerman's poignant thanks to his fallen soldiers is a gut-punch of a speech that reinforces Attack on Titan's powerful themes.
+---------
+
+# 10 Spoilery Spider-Man Comics That Fans of Brand New Day Should Read, Ranked
+
+Comics, Spider-Man: Brand New Day
+
+Wed, 19 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/best-spoiler-comics-to-read-after-spider-man-brand-new-day/
+
+These comics will take you back into the Marvel Universe, picking up on some of the plot threads that the MCU left.
+---------
+
+# Doctor Doom Revealed the MCU's 2 Strongest Heroes
+
+Movies, MCU, Avengers: Doomsday, Avengers
+
+Wed, 19 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/avengers-doomsday-thor-captain-marvel-mcu-most-powerful-heroes/
+
+A minor detail of Avengers: Doomsday has revealed the two heroes who scare Doctor Doom most in the MCU.
+---------
+
+# Zendaya Stole the Show in 1 of the Best Sci-Fi Series of the 21st Century
+
+TV, The OA, zendaya, Sci-Fi, Innovation
+
+Wed, 19 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/zendaya-stole-show-netflix-the-oa/
+
+Long before starring in Spider-Man: Brand New Day, The Odyssey, and the upcoming Dune: Part Three, Zendaya appeared in an acclaimed sci-fi series.
+---------
+
+# Power Rangers Unlimited #2 Review: The Series Finds Its Morphinomenal Voice
+
+Comics, Power Rangers
+
+Wed, 19 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/review-power-rangers-unlimited-2/
+
+Some of the greatest Power Rangers of all time just met their latest most terrifying enemy, and none of them are used to their new normal just yet.
+---------
+
+# The Cast of Buddy Tell Us What It Takes to Make a Cheerful, Bright Horror Movie
+
+Movies, Buddy, Originals
+
+Wed, 19 Aug 2026 19:59:24 GMT
+
+https://www.cbr.com/video/the-cast-of-buddy-tell-us-what-it-takes-to-make-a-cheerful-bright-horror-movie/
+
+What do the Shining and Buddy have in common? They are bright and will make you SCREAM. Keegan-Michael Key, Casper Kelly and Delaney Quinn talk the making-of this future cult classic in a special edition of DRAW with Grae Drake.
+---------
+
+# 31 Years Later, Classic CBS Drama Blows Up on Streaming Thanks to Gibbs' NCIS Return
+
+TV, JAG, NCIS, Drama
+
+Wed, 19 Aug 2026 19:57:24 GMT
+
+https://www.cbr.com/jag-darama-success-pvod-apple-tv-store-august-2026-gibbs-ncis-return/
+
+Gibbs' return to the NCIS franchise has boosted the popularity of a different CBS series 31 years later.
+---------
+
+# Netflix Scores Big With 105-Minute Twister Substitute Disaster Thriller
+
+Movies, The Wave
+
+Wed, 19 Aug 2026 19:51:05 GMT
+
+https://www.cbr.com/the-wave-disaster-movie-netflix-success-august-2026/
+
+The underseen disaster movie from the director of Tomb Raider is finding new audiences on Netflix.
+---------
+
+# The 'Sons of Anarchy' Cast Is Officially Returning for New Thriller Series
+
+TV News, Sons of Anarchy, Charlie Hunnam, Ron Perlman, Katey Sagal
+
+Wed, 19 Aug 2026 20:13:53 GMT
+
+https://collider.com/sons-of-anarchy-cast-new-series-legends/
+
+Charlie Hunnam and the entire cast of Sons of Anarchy are officially returning for a brand-new thriller series.
+---------
+
+# Netflix's Explosive New 6-Part Action Thriller Smash Has Sights Set on Season 2
+
+TV News, Elite Force, Hot on Streaming, Action, Netflix
+
+Wed, 19 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/elite-force-action-season-2-netflix-hit-august-2026/
+
+'Elite Force' has been dominating Netflix since its arrival on streaming last month, and now it appears closer than ever to getting a second season.
+---------
+
+# Doctor Doom's New MCU Backstory, Explained
+
+Features, Avengers: Doomsday
+
+Wed, 19 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/doctor-doom-mcu-backstory/
+
+The trailers for 'Avengers: Doomsday' have teased a slightly altered origin for Doctor Doom, one that changes his relationship to the Fantastic Four.
+---------
+
 # Spider-Man Returns To ‘Big Time’ Era For New Series From All-Star Writer
 
 Marvel Comics, Spider-Man, Marvel
