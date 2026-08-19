@@ -1,3 +1,124 @@
+# Relax, Star Trek Was Already Doing Puppet Episodes 60 Years Ago
+
+TV, Star Trek, Star Trek: Strange New Worlds, Star Trek: The Original Series
+
+Wed, 19 Aug 2026 03:15:14 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-puppets-original-series/
+
+Star Trek: Strange New Worlds season 4's puppet episode is here, but Star Trek: The Original Series made use of puppets since Kirk's early voyages.
+---------
+
+# Game Of Thrones: The Winterfell Trial Officially Arrives This Month
+
+Gaming, Game of Thrones, Game Of Thrones, PC
+
+Wed, 19 Aug 2026 03:00:15 GMT
+
+https://screenrant.com/game-of-thrones-winter-is-coming-the-winterfell-trial/
+
+Game of Thrones: The Winterfell Trial takes fans North to partake in an official new competition featuring Lords, Commanders, and Dragons.
+---------
+
+# The 20 Funniest SpongeBob SquarePants Episodes, Ranked
+
+Classic TV, SpongeBob SquarePants
+
+Wed, 19 Aug 2026 02:45:14 GMT
+
+https://screenrant.com/funniest-spongebob-squarepants-episodes/
+
+SpongeBob SquarePants is well-known and beloved for its humor, but which episodes are the series' funniest?
+---------
+
+# 10 Long GameCube Games That Take Forever to Complete
+
+Games, Nintendo, Video Games
+
+Wed, 19 Aug 2026 03:15:11 GMT
+
+https://www.cbr.com/long-gamecube-games-take-forever-to-complete/
+
+The GameCube has a plethora of lengthy games, including Animal Crossing and Pikmin.
+---------
+
+# Supergirl Actor Retires Amid Hollywood Frustrations: 'Not Sure What I'm Gonna Do'
+
+Movies, Supergirl
+
+Wed, 19 Aug 2026 03:13:10 GMT
+
+https://www.cbr.com/david-krumholtz-announces-acting-retirement/
+
+The announcement follows Supergirl having a disastrous run at the box office.
+---------
+
+# 25 Years Later, Gundam Finally Brings Back a Lost Piece of Its Hand-Drawn Era
+
+Anime, Mobile Suit Gundam, merchandise
+
+Wed, 19 Aug 2026 03:06:11 GMT
+
+https://www.cbr.com/edge-of-gundam-re-release/
+
+EDGE of GUNDAM, one of the greatest Gundam art books released, is back with high-quality scans that showcase unreal visuals the series is known for.
+---------
+
+# 5 Forgotten Near-Perfect Yu-Gi-Oh! Formats
+
+Games, Yu-Gi-Oh!, TCG
+
+Wed, 19 Aug 2026 02:46:11 GMT
+
+https://www.cbr.com/yugioh-forgotten-near-perfect-formats/
+
+GOAT format isn't the only classic Yu-Gi-Oh! era worth remembering.
+---------
+
+# Taylor Sheridan's 121-Minute Masterpiece is the Greatest Crime Thriller of the 2010s
+
+Movies, Sicario, Denis Villeneuve, emily blunt
+
+Wed, 19 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/sicario-taylor-sheridan-greatest-crime-thriller-masterpiece-2010s/
+
+Taylor Sheridan's brand of neo-Westerns all started with his crime thriller that has never been topped.
+---------
+
+# Found Footage Horror Series With 100% RT Score Finally Returns for New Season
+
+TV, The Creep Tapes
+
+Wed, 19 Aug 2026 02:32:50 GMT
+
+https://www.cbr.com/the-creep-tapes-season-3-trailer-shudder-amc-plus/
+
+The acclaimed horror series is returning to streaming with all-new episodes.
+---------
+
+# The Strongest Black Bulls in Black Clover, Ranked
+
+Anime, Black Clover
+
+Wed, 19 Aug 2026 02:30:11 GMT
+
+https://www.cbr.com/black-clover-strongest-black-bulls-ranked/
+
+The Black Bulls may be chaotic, but they are also incredibly powerful. These ten members rank among Black Clover's strongest fighters.
+---------
+
+# Paramount+’s 2-Part Masterpiece Spy Thriller Is Exactly What ‘Day of the Jackal’ Fans Should Watch Next
+
+TV Features, Paramount Plus, The Agency, The Day of the Jackal, Michael Fassbender
+
+Wed, 19 Aug 2026 03:12:11 GMT
+
+https://collider.com/day-of-the-jackal-series-replacement-the-agency-paramount-plus/
+
+As fans wait for The Day of the Jackal Season 2, Paramount+’s The Agency delivers another globe-trotting, action-packed thriller.
+---------
+
 # How Powerful Is The DCU's Hal Jordan Compared To Superman? Lanterns Has The Answer
 
 Streaming TV, Lanterns, Superman, DC Universe
