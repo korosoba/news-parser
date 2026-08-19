@@ -1,3 +1,25 @@
+# Brandon Sanderson's Stormlight: Showdown in Shadesmar Officially Arrives In 2027
+
+Gaming, Brandon Sanderson, The Cosmere RPG
+
+Wed, 19 Aug 2026 05:30:14 GMT
+
+https://screenrant.com/brandon-sanderson-showdown-in-shadesmar-2027/
+
+Brandon Sanderson's Cosmere is getting a new release in 2027 thanks to Showdown in Shadesmar, releasing as part of the official Cosmere RPG.
+---------
+
+# Foundation: Navigation Day Officially Releases August 19
+
+Gaming, Foundation, Isaac Asimov, PC, Sci-Fi
+
+Wed, 19 Aug 2026 05:00:14 GMT
+
+https://screenrant.com/foundation-galactic-frontier-navigation-day-august-19-launch/
+
+Foundation is officially back with a brand-new release titled Navigation Day, where fans can "celebrate the routes that keep civilization connected."
+---------
+
 # Terminator 2 Is Officially Returning With A Brand-New Retelling
 
 Gaming, Terminator, Terminator 2: Judgment Day, Terminator 3: Rise of the Machines, PC
