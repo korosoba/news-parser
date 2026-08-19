@@ -1,3 +1,91 @@
+# John Dutton Meets Raylan Givens In Streaming’s Most Overlooked Neo-Western Series
+
+TV, Longmire
+
+Wed, 19 Aug 2026 20:30:14 GMT
+
+https://screenrant.com/longmire-walt-like-john-dutton-raylan-givens/
+
+Yellowstone and Justified feature two of the greatest protagonists in Western TV history, but the hero of another series combines them both.
+---------
+
+# The Conjuring Will Start An Exciting New Era In 2027
+
+Movies, The Conjuring Universe
+
+Wed, 19 Aug 2026 20:30:14 GMT
+
+https://screenrant.com/the-conjuring-first-communion-movie-prequel-new-era/
+
+The Conjuring: First Communion could kickstart a great new era for one of the biggest horror movie franchises of the 21st century.
+---------
+
+# Insidious: Out of the Further Debuts With a Record-Breaking Rotten Tomatoes Score
+
+Movies, Insidious, Insidious: Out of the Further, Rotten Tomatoes
+
+Wed, 19 Aug 2026 20:45:14 GMT
+
+https://www.cbr.com/insidious-out-of-the-further-rotten-tomatoes-score/
+
+The newest Insidious movie gets a surprising Rotten Tomatoes score.
+---------
+
+# The 9anime and HiAnime Era Is Over – Here's Where Anime Streamers Are Going Instead, New Study Finds
+
+Anime, piracy, Toei Animation
+
+Wed, 19 Aug 2026 20:35:11 GMT
+
+https://www.cbr.com/telegram-new-anime-piracy-hub/
+
+Toei’s titles are the most pirated on this new platform, which has amassed over 4 billion views on illegal content.
+---------
+
+# GTA 6’s New Wanted System Revealed As Leaks Continue
+
+Games, Grand Theft Auto
+
+Wed, 19 Aug 2026 20:25:11 GMT
+
+https://www.cbr.com/gta-6-new-wanted-system-gameplay-leak/
+
+Grand Theft Auto 6 leaks have suddenly become rampant, with the latest gameplay clip showing how the series' trademark wanted system has changed.
+---------
+
+# Charlie Hunnam's Long-Awaited Sons of Anarchy Follow-Up Show Confirmed, But With a Twist
+
+TV, Sons of Anarchy, FX, Thriller, Innovation
+
+Wed, 19 Aug 2026 20:21:38 GMT
+
+https://www.cbr.com/sons-of-anarchy-reunion-legends-series-fx/
+
+The Sons of Anarchy cast finally returns after 12 years.
+---------
+
+# 8 Near-Perfect HBO Miniseries That Everyone Forgot About
+
+TV, Mildred Pierce, The Night Of, Station Eleven, TV Miniseries
+
+Wed, 19 Aug 2026 20:24:11 GMT
+
+https://collider.com/near-perfect-forgotten-hbo-miniseries/
+
+Mildred Pierce, The Night Of, Station Eleven, John Adams, and more make up our list of near-perfect HBO miniseries everyone forgot about.
+---------
+
+# Original 'Sons of Anarchy' Cast Officially Return for a New Meta Thriller
+
+TV News, Sons of Anarchy, Charlie Hunnam, Ron Perlman
+
+Wed, 19 Aug 2026 20:27:00 GMT
+
+https://movieweb.com/legends-fx-series-charlie-hunnam-sons-of-anarchy/
+
+Charlie Hunnam developed the series in which the stars play fictional versions of themselves fighting a threat at a fan convention.
+---------
+
 # Charlie Hunnam’s Sons Of Anarchy Return Revealed With New Spinoff Series
 
 TV, Sons of Anarchy
