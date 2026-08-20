@@ -1,3 +1,113 @@
+# Mass Effect 5 Just Got A Very Concerning Update
+
+Gaming, Mass Effect
+
+Thu, 20 Aug 2026 10:18:34 GMT
+
+https://screenrant.com/mass-effect-5-update-ea/
+
+The Mass Effect series has looked a little up in the air since the disastrous release of Andromeda, and the latest update is not a good one.
+---------
+
+# Animal Crossing Meets Disney Pixar In New Cozy Sim You Can Play Free Now
+
+Gaming, Animal Crossing, Pixar, PC, Disney, Steam
+
+Thu, 20 Aug 2026 10:14:18 GMT
+
+https://screenrant.com/animal-crossing-meets-disney-pixar-free-cozy-sim-demo/
+
+This brand-new cozy sim is the perfect blend of Animal Crossing and Disney Pixar, and the best part is you can play it for free right now.
+---------
+
+# 36 Years Ago, One Far Side Comic Predicted The Future Of Video Games
+
+Gaming, The Far Side
+
+Thu, 20 Aug 2026 09:58:52 GMT
+
+https://screenrant.com/far-side-nintendo-comic-gaming-future-predictions/
+
+The Far Side is one of the most legendary single panic comics of all time, and it was also pretty canny in its predictions on occasion.
+---------
+
+# CBS Abandons Its Historic NCIS Formula With a New Spinoff Show
+
+TV, NCIS: New York, NCIS, CBS
+
+Thu, 20 Aug 2026 10:23:33 GMT
+
+https://www.cbr.com/cbs-ncis-new-york-formula-change-scott-caan-hawaii-five-0-return/
+
+NCIS is breaking its formula this fall with a new series, as CBS undermines the logic of the network's established NCIS verse characters.
+---------
+
+# 57 Years Later, Spock’s Best Star Trek Line Is Still the Greatest Quote in Sci-Fi History
+
+TV, Star Trek, Spock, Sci-Fi
+
+Thu, 20 Aug 2026 10:08:43 GMT
+
+https://www.cbr.com/star-trek-best-spock-quote-all-our-yesterdays/
+
+Spock’s heartfelt line in this beloved episode perfectly summarizes the importance of his friendships with Kirk and McCoy.
+---------
+
+# Keira Knightley's Pulpy 6-Episode Netflix Spy Thriller Deserves Its Near-Perfect RT Score
+
+TV, Black Doves, Thriller, Netflix
+
+Thu, 20 Aug 2026 10:00:11 GMT
+
+https://www.cbr.com/keira-knightley-netflix-black-doves-earned-near-perfect-rt-score/
+
+Keira Knightley's Black Doves is a standout Netflix spy thriller with a 91% Rotten Tomatoes score that the series has more than earned with fans.
+---------
+
+# Paramount's Call of Duty Movie Combines Sicario and Black Hawk Down
+
+Movies, Call of Duty, Sicario, Black Hawk Down
+
+Thu, 20 Aug 2026 10:00:11 GMT
+
+https://www.cbr.com/call-of-duty-movie-combines-sicario-and-black-hawk-down/
+
+One of 2028's most anticipated blockbusters is this video game adaptation from two known talents, including Taylor Sheridan.
+---------
+
+# Florence Pugh’s $88M Sci-Fi Hit Is Officially Getting a Second Chance on HBO Max
+
+Movie News, Florence Pugh, Don't Worry Darling, Harry Styles, HBO Max
+
+Thu, 20 Aug 2026 10:30:11 GMT
+
+https://collider.com/florence-pugh-dont-worry-darling-hbo-max-streaming-hit-august-2026/
+
+Florence Pugh’s R-rated sci-fi thriller Don’t Worry Darling is finding new life on HBO Max as the film climbs the global streaming charts.
+---------
+
+# 15 Shows To Watch if You Love 'Silo'
+
+TV, Silo, Westworld, Severance, Snowpiercer
+
+Thu, 20 Aug 2026 10:03:11 GMT
+
+https://collider.com/shows-like-silo/
+
+Fans of Apple TV's Silo can check out similar shows with twisty narratives and chilling settings, from Westworld to Severance.
+---------
+
+# Lost Star Wars RPG Officially Resurfaces Online
+
+Gaming News, Star Wars, Torchlight, Video Game, Star Wars: Starfighter
+
+Thu, 20 Aug 2026 10:00:11 GMT
+
+https://collider.com/star-wars-magellan-cancelled-rpg-jedi-mandalorian-gameplay/
+
+Canceled Star Wars RPG Magellan resurfaces with gameplay showing playable Jedi and Mandalorians, multiplayer combat, and shoot-and-loot mechanics.
+---------
+
 # A Beloved Gen-1 Pokémon Is Getting A New Evolution After Nearly 30 Years
 
 Gaming, Pokemon, Pokemon Winds and Waves
