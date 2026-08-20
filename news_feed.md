@@ -1,3 +1,58 @@
+# A Beloved Gen-1 Pokémon Is Getting A New Evolution After Nearly 30 Years
+
+Gaming, Pokemon, Pokemon Winds and Waves
+
+Thu, 20 Aug 2026 09:36:36 GMT
+
+https://screenrant.com/pokemon-gen-10-new-onix-evolution-leak/
+
+The Gen 1 Pokémon don't get quite as much attention as they used to in the evolution department, but one is getting a new one after three decades.
+---------
+
+# Alien: Isolation 2 Prologue Demo Officially Confirmed
+
+Gaming, Alien: Isolation, Alien: Isolation 2
+
+Thu, 20 Aug 2026 09:18:45 GMT
+
+https://screenrant.com/alien-isolation-2-free-demo-confirmed/
+
+Alien: Isolation is one of the most visceral horror games of all time, and we've just had confirmation on a demo for the sequel.
+---------
+
+# Spider-Man's Greatest Superpower Has Nothing To Do With Web-Slinging
+
+Movie Features, Spider-Man: Brand New Day, Tom Holland, Spider-Man
+
+Thu, 20 Aug 2026 09:51:11 GMT
+
+https://collider.com/spider-man-brand-new-day-peter-parker-true-super-powers/
+
+While he may possess super strength and the ability to swing from buildings, Spider-Man's greatest power resides in his connection to his hometown.
+---------
+
+# HBO's Best Thriller Series Just Scored a 'Silo' Star
+
+TV News, HBO, Industry, Thriller, Silo
+
+Thu, 20 Aug 2026 09:30:11 GMT
+
+https://collider.com/industry-season-5-cast-jessica-brown-findlay/
+
+HBO’s Industry adds Cary Elwes, Dianna Agron, Jessica Brown Findlay and more to the cast of its fifth and final season.
+---------
+
+# Ellen Pompeo's True-Crime Hit Officially Returns With a Notorious New Case
+
+TV News, Ellen Pompeo, Good American Family
+
+Thu, 20 Aug 2026 09:23:44 GMT
+
+https://movieweb.com/ellen-pompeo-good-american-family-season-2/
+
+Hulu has officially renewed 'Good American Family' for Season 2 as an anthology, with the new installment dramatizing the Lorena Bobbitt case.
+---------
+
 # 5 10/10 Xbox 360 Games You Can Play Free With Game Pass
 
 Gaming, Xbox, Xbox Game Pass
