@@ -1,3 +1,267 @@
+# Steven Spielberg Meets Isaac Asimov In Prime Video's Near-Perfect 8-Part Sci-Fi Series
+
+TV, Masked Recs
+
+Thu, 20 Aug 2026 19:04:14 GMT
+
+https://screenrant.com/tales-from-the-loop-prime-video-spielberg-asimov/
+
+A visually stunning, criminally underrated Prime Video sci-fi series blending Spielbergian wonder with Asimov‑style physics puzzles in a small town.
+---------
+
+# The Original Xbox Is Officially Returning For Its 25th Anniversary
+
+Gaming, Xbox, Xbox (Original)
+
+Thu, 20 Aug 2026 19:00:14 GMT
+
+https://screenrant.com/original-xbox-25th-anniversary-new-release/
+
+Fans of the original Xbox can rejoice as it is officially returning for a brand-new 25th anniversary project in collaboration with Mattel.
+---------
+
+# David Tennant Breaks Silence On Doctor Who's Uncertain Future & Return Hopes After BBC Overhaul
+
+TV, Doctor Who, David Tennant
+
+Thu, 20 Aug 2026 18:55:42 GMT
+
+https://screenrant.com/doctor-who-time-lord-return-bbc-overhaul-reaction-david-tennant/
+
+Doctor Who is going through a turbulent time, and David Tennant is now revealing his thoughts on the franchise’s future and whether he’ll return.
+---------
+
+# 6 Classic Far Side Comics Set In the Kitchen
+
+Comics, The Far Side
+
+Thu, 20 Aug 2026 18:34:14 GMT
+
+https://screenrant.com/far-side-comics-best-kitchen-cooking-jokes/
+
+Let Gary Larson cook.
+---------
+
+# Pokémon Announces Team Rocket’s Official Return On August 27
+
+Gaming, Pokemon, Pokemon Trading Card Game Pocket, Pokemon Trading Card Game, PC
+
+Thu, 20 Aug 2026 18:32:28 GMT
+
+https://screenrant.com/pokemon-team-rockets-ambition-announcement/
+
+Prepare for trouble and make it double as Team Rocket officially returns to celebrate Pokémon's 30th Anniversary in a brand-new release.
+---------
+
+# Tom Holland’s $400 Million Fantasy Movie Is A Streaming Hit At The Perfect Time For A Sequel
+
+Movies, Masked Recs
+
+Thu, 20 Aug 2026 18:30:14 GMT
+
+https://screenrant.com/uncharted-tom-holland-streaming-hit-sequel/
+
+Tom Holland's Uncharted movie is trending on streaming in the wake of his recent box office success, and it's about time we finally got a sequel.
+---------
+
+# Spider-Man: Brand New Day Finally Ends A Frustrating Billion Dollar Post-Infinity Saga Trend
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
+
+Thu, 20 Aug 2026 18:30:14 GMT
+
+https://screenrant.com/spider-man-brand-new-day-movie-box-office-billion-dollars-mcu-cameos/
+
+The biggest MCU movies since Endgame have one thing in common, but Spider-Man's behemoth box office success rewrites the formula. For now.
+---------
+
+# 2 Days After Jumping to Netflix, David Boreanaz's Bones Replacement Is a Global Streaming Hit
+
+TV, SEAL Team, Netflix, Action
+
+Thu, 20 Aug 2026 19:04:30 GMT
+
+https://www.cbr.com/seal-team-action-netflix-success-august-2026/
+
+David Boreanaz's hit military action series SEAL Team is climbing the streaming chart just days after arriving on Netflix.
+---------
+
+# Masters of the Universe’s Original He-Man Star Reveals Why He Walked Away From Fantasy Reboot
+
+Movies, Masters of the Universe
+
+Thu, 20 Aug 2026 19:03:30 GMT
+
+https://www.cbr.com/masters-of-the-universe-reboot-noah-centineo-exit-explained/
+
+Nicholas Galitzine wasn't the first actor who was set to play the new He-Man in the Masters of the Universe reboot.
+---------
+
+# Marvel Report Reveals MCU Television’s Future With Multiple New Projects
+
+TV, Marvel Cinematic Universe
+
+Thu, 20 Aug 2026 19:00:34 GMT
+
+https://www.cbr.com/mcu-television-shows-future-disney-plus-report/
+
+Marvel Television is reportedly working on multiple new series beyond VisionQuest and Daredevil: Born Again Season 3.
+---------
+
+# 10 Best Portal Fantasy Classics of the Last 25 Years, Ranked
+
+Movies, Fantasy, books
+
+Thu, 20 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/best-portal-fantasy-last-25-years-list/
+
+Slipping through doors, mirrors, and rabbit holes, contemporary portal fantasies take inspiration from the classics but bring modern and unique twists
+---------
+
+# Prime Video Confirms Fate of New Jeffrey Dean Morgan Series Just 15 Days After Debut
+
+TV, Sterling Point, Prime Video
+
+Thu, 20 Aug 2026 18:48:28 GMT
+
+https://www.cbr.com/prime-video-sterling-point-season-2-renewal/
+
+Just over two weeks after its premiere, Jeffrey Dean Morgan's new Prime series Sterling Point has been renewed for Season 2.
+---------
+
+# 10 Seinfeld Jokes That Wouldn't Fly Today
+
+TV, Seinfeld
+
+Thu, 20 Aug 2026 18:30:11 GMT
+
+https://www.cbr.com/seinfeld-jokes-didnt-age-well-list/
+
+Seinfeld is an iconic sitcom that has endured since its finale aired in 1998, but some jokes haven't stood the test of time.
+---------
+
+# Hello Kitty & Friends: Hello World #1 Is the Perfect Introduction to Sanrio
+
+Comics, Hello Kitty
+
+Thu, 20 Aug 2026 18:30:11 GMT
+
+https://www.cbr.com/hello-kitty-friends-hello-world-1-review/
+
+The world of Hello Kitty and Friends just got the comic book debut that fans have been waiting years for, and it is a pitch-perfect mystery.
+---------
+
+# Venom’s Classic Origin Story Is Officially Getting Reimagined
+
+Comics, Spider-Man
+
+Thu, 20 Aug 2026 18:26:26 GMT
+
+https://www.cbr.com/venom-pov-release-date-confirmed/
+
+Venom is back again, for the very first time.
+---------
+
+# Apple TV’s Bonkers Sci-Fi Series Officially Levels Up With Massive Season 2 Update
+
+TV News, Murderbot, Apple TV, Alexander Skarsgard, Sci-Fi
+
+Thu, 20 Aug 2026 19:00:11 GMT
+
+https://collider.com/apple-tv-sci-fi-series-murderbot-season-2-cast-tramell-tillman-topher-grace-steve-buscemi/
+
+Apple TV's mind-blowing sci-fi series levels up with a massive new update, casting 25 people to star in Season 2.
+---------
+
+# 29 Years Later, This 6-Part Sci-Fi Sitcom Is Still Funnier Than ‘The Big Bang Theory’
+
+TV Features, Big Bang Theory, 3rd Rock From the sun, William Shatner, NBC
+
+Thu, 20 Aug 2026 18:58:11 GMT
+
+https://collider.com/big-bang-theory-series-replacement-3rd-rock-from-the-sun/
+
+3rd Rock from the Sun remains a hilarious sci-fi sitcom and a must-watch for fans of The Big Bang Theory.
+---------
+
+# Charles Melton Officially Eyes Major Role in MCU Director's New Franchise Movie
+
+Movie News, Destin Daniel Cretton, Naruto - Live Action, Charles Melton, Naruto
+
+Thu, 20 Aug 2026 18:49:03 GMT
+
+https://collider.com/naruto-movie-cast-charles-melton-kakashi/
+
+After weeks of Marvel rumors, Charles Melton is eyeing a role in MCU director Destin Daniel Cretton's new movie.
+---------
+
+# Jason Statham’s ‘Die Hard’ Replacement Officially Gets a Rotten Tomatoes Reality Check
+
+Movie News, Mutiny, Jason Statham, Rotten Tomatoes, Annabelle Wallis
+
+Thu, 20 Aug 2026 18:31:56 GMT
+
+https://collider.com/jason-statham-action-movie-mutiny-rotten-tomatoes-score-is-it-good/
+
+Jason Statham's new Die Hard-style action thriller, less than two hours long, earns a poor debut score from critics on Rotten Tomatoes
+---------
+
+# Paramount's 4-Part Survival Thriller Finally Teases the Story We've Wanted
+
+Features, Yellowjackets, Paramount Plus, Thriller
+
+Thu, 20 Aug 2026 19:00:13 GMT
+
+https://movieweb.com/yellowjackets-season-4-story-tease-third-timeline/
+
+Paramount's four-part survival thriller is teasing the story we've been waiting years for, and done correctly, it could be its most interesting yet.
+---------
+
+# Jon Bernthal's 132-Minute Action Thriller Refuses To Back Down on Streaming
+
+Movie News, The Accountant 2, Jon Bernthal, Hot on Streaming, Action, Prime Video
+
+Thu, 20 Aug 2026 19:00:13 GMT
+
+https://movieweb.com/jon-bernthal-the-accountant-2-action-streaming-prime-video-august-2026/
+
+'The Punisher' star's long-awaited action sequel has returned to become one of the biggest hits in the world on Prime Video.
+---------
+
+# Ridley Scott's Sci-Fi Masterpiece 25 Years in the Making is Free on YouTube
+
+Features, Blade Runner, Ridley Scott, Sci-Fi
+
+Thu, 20 Aug 2026 19:00:13 GMT
+
+https://movieweb.com/blade-runner-ridley-scott-sci-fi-free-youtube/
+
+Ridley Scott's sci-fi movie is now streaming free on YouTube, and it's the version that fans of the acclaimed director will most want to see.
+---------
+
+# Top Contender for Amazon's James Bond Reboot Officially Rejects 007 Role
+
+Movie News, James Bond, james bond, Theo James
+
+Thu, 20 Aug 2026 18:56:33 GMT
+
+https://movieweb.com/james-bond-reboot-theo-james-exits-casting/
+
+Theo James claims he's "too old" to play Bond and wouldn't be interested in the public attention the role would bring.
+---------
+
+# Josh Hartnett's 6-Part Supernatural Netflix Series Is Mandatory Viewing for Fall 2026
+
+Features, Below, Netflix, Thriller, Josh Hartnett, Upcoming Tease
+
+Thu, 20 Aug 2026 18:45:13 GMT
+
+https://movieweb.com/below-netflix-josh-hartnett-must-watch/
+
+Josh Hartnett is starring in a new Netflix thriller series that will be released in fall 2026, and it's a must-watch for fans of the actor.
+---------
+
 # Naruto Reportedly Finds Its Live-Action Kakashi With Bad Boys Star
 
 Movies, Naruto - Live Action, Naruto
