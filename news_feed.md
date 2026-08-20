@@ -1,3 +1,113 @@
+# Netflix's 8-Part Western Series Hits 2.1 Billion Minutes Viewed In Less Than 2 Weeks
+
+TV, Masked Recs, Netflix
+
+Thu, 20 Aug 2026 14:20:35 GMT
+
+https://screenrant.com/little-house-on-the-prairie-show-2-billion-minutes-viewed-netflix/
+
+A major new Netflix Western series is a hit, taking in more than 2 billion viewing minutes during the first two weeks of its run on the platform.
+---------
+
+# 6 Heist Movie Plot Twists That Absolutely Nobody Saw Coming
+
+Movies, The Thomas Crown Affair, Crime, Now You See Me, Den of Thieves, Ocean's Eleven, Fast Five
+
+Thu, 20 Aug 2026 14:08:18 GMT
+
+https://screenrant.com/heist-movie-plot-twists-nobody-saw-coming/
+
+These six heist movie plot twists completely changed the job, revealing hidden plans, secret masterminds, and clever betrayals.
+---------
+
+# Stephen King's Welcome To Derry Can Last Forever After Switching Casts
+
+Streaming TV, Masked Recs
+
+Thu, 20 Aug 2026 14:00:14 GMT
+
+https://screenrant.com/stephen-king-it-welcome-to-derry-last-forever/
+
+HBO's smash-hit prequel series to a Stephen King masterpiece has the potential to continue reinventing itself for many seasons to come.
+---------
+
+# Skyrim Players Warned New Update May Wreck Their Saves
+
+Gaming, The Elder Scrolls V: Skyrim, Triple-A Games
+
+Thu, 20 Aug 2026 13:56:57 GMT
+
+https://screenrant.com/skyrim-update-2026-bethesda-warning/
+
+A new update is coming to Skyrim, and fans aren't exactly happy about it, given how the previous patches have impacted the game.
+---------
+
+# Transformers Gives Optimus Prime 3 Dark New G2 Designs
+
+Anime, Transformers, toys, merchandise
+
+Thu, 20 Aug 2026 14:20:11 GMT
+
+https://www.cbr.com/transformers-optimus-prime-g2-new-designs-du-wu/
+
+One of the most iconic heroes in fiction has just be redesigned to appear like two of his greatest enemies in a look that's more than meets the eye.
+---------
+
+# One Piece's New Elbaph Episodes Have 1 Major Catch on Netflix
+
+Anime, One Piece, Netflix, Crunchyroll
+
+Thu, 20 Aug 2026 14:15:11 GMT
+
+https://www.cbr.com/one-piece-netflix-elbaph-episodes-major-catch/
+
+The Elbaph Arc is inarguably one of One Piece's most significant story lines, and Netflix might have dropped the ball on it big time.
+---------
+
+# Pokémon Team Rocket's Ambition Officially Coming August 26
+
+Games, Pokemon TCG, Pokemon
+
+Thu, 20 Aug 2026 14:05:11 GMT
+
+https://www.cbr.com/pokemon-team-rocket-ambition-official-new-release-august-26/
+
+The most wicked villains of the Pokémon world are returning, as the Team Rocket's Ambition expansion is launching worldwide on August 26.
+---------
+
+# Netflix Star's 82% RT Rated Action Thriller Crowd-Pleaser Sets New Release
+
+Movie News, Shadow Force, Action
+
+Thu, 20 Aug 2026 14:25:58 GMT
+
+https://movieweb.com/shadow-force-4k-blu-ray-release/
+
+Lionsgate Home Entertainment is preparing a 4K Blu-ray release of Omar Sy's divisive 2025 action thriller crowd-pleaser 'Shadow Force.'
+---------
+
+# Star Trek's Controversial Muppets Crossover Quietly Repeats Dark Captain Pike Twist
+
+Features, star trek: strange new worlds, Star Trek, Star Trek II: The Wrath of Khan
+
+Thu, 20 Aug 2026 14:00:13 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-spock-death/
+
+Captain Pike has already seen what's coming for him, and now he's not the only Enterprise crew member who can say that. Read on for more.
+---------
+
+# Chris Pratt Is Back in Action in First 'The Terminal List' Season 2 Trailer
+
+TV News, The Terminal List
+
+Thu, 20 Aug 2026 13:59:13 GMT
+
+https://movieweb.com/the-terminal-list-season-2-trailer-chris-pratt/
+
+Chris Pratt returns in the first teaser trailer for Amazon's hit action thriller series 'The Terminal List.'
+---------
+
 # "Disastrous" New GTA 6 Leak Sparks Concerns Over Game's Ending
 
 Gaming, Grand Theft Auto 6
