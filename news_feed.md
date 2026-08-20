@@ -1,3 +1,102 @@
+# Apple TV's 10/10 Sci-Fi Series Deserves The Credit For Turning A Boring Read Into A Masterpiece
+
+TV, Masked Recs
+
+Thu, 20 Aug 2026 20:03:15 GMT
+
+https://screenrant.com/foundation-book-boring-apple-tv-adaptation-better/
+
+A daring streaming overhaul reshapes an iconic sci-fi author's stolid future history by adding intense political drama and vivid human stakes.
+---------
+
+# The Madison: Paramount+'s 6-Part Western Proves Taylor Sheridan Doesn't Need Critics
+
+Streaming TV, Masked Recs
+
+Thu, 20 Aug 2026 19:55:14 GMT
+
+https://screenrant.com/paramount-plus-the-madison-taylor-sheridan-critics/
+
+Paramount+'s The Madison series proves that Taylor Sheridan doesn't need critics, placing the acclaimed Yellowstone creator in a rare category.
+---------
+
+# 5 Video Game Anime Better Than Sword Art Online
+
+Anime, Sword Art Online, Shangri-La Frontier, Log Horizon, Isekai
+
+Thu, 20 Aug 2026 20:15:11 GMT
+
+https://www.cbr.com/video-game-anime-better-than-sword-art-online/
+
+Sword Art Online is praised as a high-stakes anime that traps characters in a MMORPG, but titles like Log Horizon and .hack//Sign top its heights.
+---------
+
+# Netflix's 'Highly Bingeable' Drama With 245M Hours Streamed Finally Returns in 3 Months
+
+TV, The Hunting Wives
+
+Thu, 20 Aug 2026 20:12:52 GMT
+
+https://www.cbr.com/the-hunting-wives-season-2-netflix-premiere-date/
+
+Netflix finally sets a return date for the easy-to-binge drama series.
+---------
+
+# Paul Dano's Ruby Sparks Was The Original Obsession
+
+Movies, Ruby Sparks
+
+Thu, 20 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/paul-sano-ruby-sparks-original-obsession-movie/
+
+Obsession has been the horror movie of the summer, but Paul Dano's movie, Ruby Sparks, is the original version of the story.
+---------
+
+# Every Emma Frost Comic Samara Weaving Is Reading for Her X-Men Role, Explained
+
+Comics, X-Men
+
+Thu, 20 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/every-emma-frost-comic-samara-weaving-is-reading-explained/
+
+Samara Weaving is gearing up to bring Emma Frost back to the big screen, and she seems to understand the assignment.
+---------
+
+# Prime Video’s 100% Rotten Tomatoes Fantasy Series Is ‘The Lord of the Rings’ Meets ‘Discworld’
+
+TV Features, The Mighty Nein, The Lord of the Rings, Discworld, Prime Video
+
+Thu, 20 Aug 2026 20:07:11 GMT
+
+https://collider.com/prime-video-the-mighty-nein-the-lord-of-the-rings-meets-discworld/
+
+Prime Video's The Mighty Nein is a perfect marriage between the fantastical world of The Lord of the Rings and Terry Pratchett's humor of Discworld.
+---------
+
+# Michelle Rodriguez Is Officially Done With ‘Fast & Furious’ Going Full James Bond
+
+Movie News, Fast Forever, Fast and Furious, Michelle Rodriguez, Vin Diesel
+
+Thu, 20 Aug 2026 20:00:11 GMT
+
+https://collider.com/fast-forever-michelle-rodriguez-james-bond-street-racing-final-movie/
+
+Michelle Rodriguez expressed that she's no fan of the creative direction the Fast and Furious franchise has taken over the last decade.
+---------
+
+# 35 Years Later, ‘Seinfeld’s Greatest George Quote Keeps Getting Better
+
+Features, Seinfeld, Great Line, Comedy
+
+Thu, 20 Aug 2026 20:01:13 GMT
+
+https://movieweb.com/seinfeld-george-chinese-restaurant-quote/
+
+'Seinfeld' has many popular and famous quotes, including this line from Jason Alexander's fan-favorite character George Costanza.
+---------
+
 # Every NCIS Spinoff Explained
 
 Network TV, NCIS, NCIS: Hawai'i, NCIS: Sydney, NCIS: Origins, NCIS: Los Angeles
