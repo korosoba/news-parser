@@ -1,3 +1,146 @@
+# 8 Greatest Kids' Shows Set In The '90s
+
+Classic TV
+
+Thu, 20 Aug 2026 23:15:14 GMT
+
+https://screenrant.com/greatest-kids-shows-set-in-the-1990s/
+
+The 1990s were some of the greatest years of television, particularly when it came to kids' TV shows that are still beloved even to this day.
+---------
+
+# Jason Bourne Meets Stranger Things In Prime Video’s 2-Part Action Thriller
+
+Classic TV, Masked Recs
+
+Thu, 20 Aug 2026 23:03:14 GMT
+
+https://screenrant.com/prime-video-hanna-show-stranger-things-meets-jason-bourne/
+
+A secret program forges a super‑soldier who longs for a normal adolescence while evading international manhunts in Prime Video's action thriller.
+---------
+
+# Mass Effect Meets Dungeons & Dragons In New Turn-Based Sci-Fi RPG
+
+Gaming, Steam, Triple-A Games
+
+Thu, 20 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/mass-effect-meets-dungeons-dragons-new-turn-based-rpg/
+
+You'll want to check out this new turn-based sci-fi RPG, as it is somehow looking to mix things up quite a bit, while promising more.
+---------
+
+# Coyote Vs. Acme And One Of Netflix's Biggest Hits Have A Surprising Shared Origin
+
+Movies, Coyote Vs. Acme, Wednesday
+
+Thu, 20 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/coyote-vs-acme-movie-netflix-wednesday-origin-shared/
+
+The new film Coyote vs. Acme, Brokeback Mountain, and one of Netflix’s biggest and best shows ever all come from the same unexpected place.
+---------
+
+# 10 Shonen Anime Arcs That Are 10/10, No Notes
+
+Anime, One Piece, Haikyuu!!, Naruto, Death Note, Hunter x Hunter, My Hero Academia, Bleach, Dragon Ball Z, Jujutsu Kaisen, Attack On Titan, shonen anime
+
+Thu, 20 Aug 2026 23:15:11 GMT
+
+https://www.cbr.com/perfect-shonen-anime-arcs-no-notes/
+
+Shonen anime is known for its many memorable arcs, but series like Jujutsu Kaisen and Naruto have standout arcs fans won't ever forget.
+---------
+
+# The Longest-Running Sitcom in America Blows Up on Streaming Following Season 18 Premiere
+
+TV, It's Always Sunny in Philadelphia, Hulu, FX
+
+Thu, 20 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/its-always-sunny-in-philadelphia-season-18-streaming-success/
+
+It's Always Sunny in Philadelphia is soaring on streaming.
+---------
+
+# 5 Best The Lord of the Rings Characters Invented For the Movies, Ranked
+
+Movies, The Lord of the Rings, Fantasy
+
+Thu, 20 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/best-original-characters-in-lotr-movies-list/
+
+In addition to the iconic characters from J. R. R. Tolkien's novel, Peter Jackson's films created some new inhabitants of Middle-earth.
+---------
+
+# Prime Video’s ‘God of War’ Officially Confirms Kratos Replacement
+
+TV News, God of War
+
+Thu, 20 Aug 2026 23:16:23 GMT
+
+https://collider.com/god-of-war-dave-bautista-kratos-cast-ryan-hurst-replacement/
+
+Dave Bautista is officially the new Kratos in Prime Video’s God of War series, replacing original lead Ryan Hurst.
+---------
+
+# 10 Great Sci-Fi Movies That Were Ahead of Their Time
+
+Movie, Sci-Fi, alien, Star Wars: Episode IV - A New Hope, Her
+
+Thu, 20 Aug 2026 23:12:11 GMT
+
+https://collider.com/best-sci-fi-movies-ahead-their-time/
+
+From V for Vendetta to Alien, these science fiction movies were way ahead of their time!
+---------
+
+# 16 Years Later, ‘Justified’s Best Quote Still Defines Timothy Olyphant’s Western
+
+TV Features, Justified, FX, Timothy Olyphant, Walton Goggins
+
+Thu, 20 Aug 2026 23:04:11 GMT
+
+https://collider.com/justified-timothy-olyphant-raylan-givens-best-quote-meaning/
+
+A single line from FX's Justified helps define the series and the core relationship that drives it.
+---------
+
+# ‘Resident Evil’ Officially Returns to Netflix With 6 Movies Next Month
+
+Movie News, Resident Evil, Capcom, Netflix
+
+Thu, 20 Aug 2026 23:00:11 GMT
+
+https://collider.com/netflix-sci-fi-horror-video-game-franchise-resident-evil-september-release/
+
+Netflix is bringing six Resident Evil films in September 2026, including fan favorites, days before Zach Cregger's reboot debuts.
+---------
+
+# AMC's 4-Part Crime Thriller Masterpiece Shows 'True Detective' How It's Done
+
+TV Features, Dark Winds, AMC, Zahn McClarnon, Thriller
+
+Thu, 20 Aug 2026 22:58:11 GMT
+
+https://collider.com/dark-winds-amc-crime-thriller-masterpiece/
+
+AMC's crime thriller masterpiece Dark Winds, starring Zahn McClarnon, surpasses even True Detective in both storytelling and suspense.
+---------
+
+# Forget Die Hard, Bruce Willis's Most Rewatchable Deep Cut Just Took Over Apple TV
+
+Movie Features, Looper, Bruce Willis, Die Hard, Sci-Fi
+
+Thu, 20 Aug 2026 22:54:11 GMT
+
+https://collider.com/bruce-willis-looper-rewatchable-deep-cut-apple-tv/
+
+One of the most rewatchable and entertaining movies of Bruce Willis's career is 2012's Looper, which has been popular on Apple TV as of late.
+---------
+
 # Sons of Anarchy’s Official Sequel Brings The Club Back
 
 Streaming TV, Sons of Anarchy
