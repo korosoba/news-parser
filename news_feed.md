@@ -1,3 +1,146 @@
+# Taika Waititi’s 97% RT Adventure Masterpiece Is Getting An Exciting New Release
+
+Movies, Masked Recs
+
+Thu, 20 Aug 2026 15:02:46 GMT
+
+https://screenrant.com/taika-waititi-hunt-for-the-wilderpeople-4k-digital-release-september-2026/
+
+After charming critics and audiences, Taika Waititi’s beloved family adventure movie has just set a surprising new release for this fall.
+---------
+
+# John Cena Joins Forces With Foghorn Leghorn In Coyote Vs. Acme Clip (Exclusive)
+
+Exclusive, Coyote Vs. Acme, John Cena
+
+Thu, 20 Aug 2026 15:01:14 GMT
+
+https://screenrant.com/video/coyote-vs-acme-john-cena-foghorn-leghorn-clip/
+
+Exclusive: ScreenRant presents a clip from Coyote Vs. Acme, featuring John Cena's Buddy Crane engaged in a serious discussion with Foghorn Leghorn.
+---------
+
+# Breaking Bad Meets Fargo In Netflix's 4-Part Crime Thriller Masterpiece
+
+TV, Masked Recs
+
+Thu, 20 Aug 2026 15:01:14 GMT
+
+https://screenrant.com/ozark-breaking-bad-fargo-netflix-crime-thriller/
+
+Pitch black humour meets small town menace as quirky locals collide with an antihero whose hubris unravels his empire in Netflix's crime masterpiece.
+---------
+
+# Yellowjackets Season 4 Sets Official Release Date For Final Episodes
+
+TV, Yellowjackets
+
+Thu, 20 Aug 2026 15:01:14 GMT
+
+https://screenrant.com/yellowjackets-season-4-release-date-paramount-plus/
+
+After several major cliffhangers at the end of season 3, the release date has been revealed for the fourth and final season of Yellowjackets.
+---------
+
+# Transformers: CYBERWORLD Season 2 Release Date, Trailer & Details Officially Revealed (Exclusive)
+
+Streaming TV, Transformers, Hasbro
+
+Thu, 20 Aug 2026 14:59:09 GMT
+
+https://screenrant.com/transformers-cyberworld-season-2-premiere-date-trailer/
+
+Transformers: CYBERWORLD Season 2 premieres August 22 with Energon Surge. Watch the exclusive trailer and see new images and story details.
+---------
+
+# It's Officially The Start Of An Era For Ryan Reynolds' $237.2 Million Space Opera
+
+Movies, Masked Recs
+
+Thu, 20 Aug 2026 14:56:26 GMT
+
+https://screenrant.com/green-lantern-hbo-max-streaming-charts-rise-august-2026/
+
+Ryan Reynolds' space opera has become a global streaming sensation at the perfect time, as it answers requests from a popular franchise's fans.
+---------
+
+# Callum Turner & Elle Fanning’s New Thriller Remake Rosebush Pruning Officially Releases On Streaming This Week
+
+Movies, Rosebush Pruning
+
+Thu, 20 Aug 2026 14:55:53 GMT
+
+https://screenrant.com/rosebush-pruning-streaming-digital-release-date/
+
+Callum Turner, Riley Keough, and Elle Fanning's new 2026 satirical thriller movie is finally releasing on streaming and digital this week.
+---------
+
+# Disney's Hit Spider-Man Series Confirms Time Jump & Green Goblin Return For Season 2
+
+TV, Masked Recs, Spider-Man, Marvel Cinematic Universe, Disney+
+
+Thu, 20 Aug 2026 14:44:28 GMT
+
+https://screenrant.com/disneys-hit-spider-man-series-confirms-time-jump-green-goblin-return-for-season-2/
+
+Marvel Studios' major Spider-Man TV show is coming back for season 2, as the showrunner addresses the time jump and Green Goblin's rise in the series.
+---------
+
+# A Fistful of Dollars is a Secret Sequel to The Good, The Bad and the Ugly
+
+Movies, A Fistful of Dollars
+
+Thu, 20 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/fistful-of-dollars-secret-sequel-the-good-the-bad-the-ugly/
+
+Despite marking the first entry in Sergio Leone's Dollars Trilogy, there's strong evidence that A Fistful of Dollars isn't the actual start of it.
+---------
+
+# ‘Yellowjackets’ Officially Sets Final Season Release Date
+
+TV News, Yellowjackets, Paramount+ with Showtime, Sophie Thatcher, Melanie Lynskey
+
+Thu, 20 Aug 2026 15:00:11 GMT
+
+https://collider.com/yellowjackets-season-4-release-date-november-final-season-teaser/
+
+Yellowjackets Season 4 officially sets Paramount+ release date, with the final season’s first teaser revealing the survivors’ long-awaited homecoming.
+---------
+
+# Apple TV's 'Ted Lasso' Replacement Officially Returns With First Look at Season 2
+
+TV News, Stick, Owen Wilson, Apple TV, Rhea Seehorn
+
+Thu, 20 Aug 2026 15:00:11 GMT
+
+https://collider.com/stick-season-2-release-date-first-look/
+
+Apple TV has officially set the return of Owen Wilson's sports comedy series Stick with a new set of images. Check them out here!
+---------
+
+# ‘Ted Lasso’ Star’s New Alien Abduction Sci-Fi Movie Officially Gets Bonkers First Look [Exclusive]
+
+Exclusives, Sam Richardson, Fantastic Fest, Collider Exclusive Preview, David Cross
+
+Thu, 20 Aug 2026 15:00:11 GMT
+
+https://collider.com/into-the-sky-image-sam-richardson-sci-fi-fantastic-fest-preview/
+
+A new image from the Fantastic Fest sci-fi comedy Into the Sky sees Sam Richardson looking up at something beyond explanation.
+---------
+
+# 'John Wick' Star's 112-Minute "Bloodsport Meets Great Escape" Action War Thriller Hits Streaming
+
+Movie News, Scott Adkins, Action, War, Thriller, Streaming
+
+Thu, 20 Aug 2026 15:01:13 GMT
+
+https://movieweb.com/scott-adkins-prisoner-war-streaming-action-thriller/
+
+Action icon Scott Adkins delivers punches and a powerful performance in this martial arts World War II action thriller.
+---------
+
 # Netflix's 8-Part Western Series Hits 2.1 Billion Minutes Viewed In Less Than 2 Weeks
 
 TV, Masked Recs, Netflix
