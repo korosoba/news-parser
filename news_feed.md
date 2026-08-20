@@ -1,3 +1,14 @@
+# Blade Runner Officially Returns In 2027 With A Brand-New Era
+
+Gaming, Blade Runner, Blade Runner 2049, Blade Runner 2099, PC
+
+Thu, 20 Aug 2026 05:30:14 GMT
+
+https://screenrant.com/blade-runner-2027-return-new-era/
+
+Blade Runner is making an official return in 2027, ushering in a new era for the franchise.
+---------
+
 # Foundation: Aromabloom Officially Announced For Galactic Frontier Season 2
 
 Gaming, Foundation, PC
