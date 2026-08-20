@@ -1,3 +1,47 @@
+# Foundation: Aromabloom Officially Announced For Galactic Frontier Season 2
+
+Gaming, Foundation, PC
+
+Thu, 20 Aug 2026 05:00:14 GMT
+
+https://screenrant.com/foundation-galactic-frontier-aromabloom-announcement/
+
+Foundation is making a 2026 return with a brand-new season and the launch of Aromabloom, marking the start of a new era for the franchise.
+---------
+
+# PlayStation Plus Gamers Have One Last Chance To Download Hit 2000 PS1 Game
+
+Gaming, PlayStation, PlayStation (Original), PlayStation Plus, Toy Story
+
+Thu, 20 Aug 2026 04:45:14 GMT
+
+https://screenrant.com/playstation-plus-ps1-game-leaving-august/
+
+PlayStation Plus users will need to rush to download this iconic PS1 game before it is gone from the service forever.
+---------
+
+# KPop Demon Hunters Meets GTA 6 In New Free Open-World Game
+
+Gaming, Grand Theft Auto, KPop Demon Hunters, PC
+
+Thu, 20 Aug 2026 04:30:14 GMT
+
+https://screenrant.com/kpop-demon-hunters-meets-gta-6-free-open-world-game/
+
+Fans of Grand Theft Auto and KPop Demon Hunters will want to check out this brand-new and completely free open-world game.
+---------
+
+# 13 Years Later, Matt Damon's Gritty Sci-Fi Thriller Finds Redemption on Streaming
+
+Movie Features, Elysium, Neil Blomkamp, Matt Damon, Jodie Foster
+
+Thu, 20 Aug 2026 04:07:11 GMT
+
+https://collider.com/matt-damon-sci-fi-thriller-elysium/
+
+Matt Damon's 2013 sci-fi thriller Elysium was critically divisive when it was released, but its themes of inequality are more relevant than ever.
+---------
+
 # The Legend Of Zelda Returns September 2026 With Long-Awaited Collector's Item
 
 Gaming, The Legend of Zelda, Triple-A Games
