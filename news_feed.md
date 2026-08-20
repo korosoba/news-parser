@@ -1,3 +1,91 @@
+# Sons of Anarchy’s Official Sequel Brings The Club Back
+
+Streaming TV, Sons of Anarchy
+
+Thu, 20 Aug 2026 22:45:14 GMT
+
+https://screenrant.com/sons-of-anarchy-legends-tv-show-club-back/
+
+Sons of Anarchy's Charlie Hunnam is developing a project that serves as a special sequel to the show, bringing the club back with a wild twist.
+---------
+
+# 33 Years Later, Bart's Best Quote In The Simpsons Is Quietly Genius
+
+Streaming TV, The Simpsons
+
+Thu, 20 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/the-simpsons-best-bart-quote-genius/
+
+Bart Simpson is one of the most quotable characters in The Simpsons, and his line in the show's best parody episodes is timeless meta comedy gold.
+---------
+
+# 6 Biggest Godzilla Minus Zero Theories, Ranked By How Much We Hope They're True
+
+Movies, Godzilla Minus Zero
+
+Thu, 20 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/godzilla-minus-zero-movie-best-theories-ranked/
+
+Several Godzilla Minus Zero theories offer exciting possibilities when it comes to kaiju that could appear alongside the King of the Monsters.
+---------
+
+# Pokémon Is Officially Continuing Ash and Pikachu's Journey on September 9
+
+Anime, Pokémon, Pokemon, Disney+
+
+Thu, 20 Aug 2026 22:35:11 GMT
+
+https://www.cbr.com/pokemon-indigo-league-disney-september-2026-release/
+
+There's good news for Pokémon fans, with Ash and Pikachu confirmed to be coming back next month.
+---------
+
+# God of War Confirms Its New Kratos After Major Recasting
+
+TV, God of War
+
+Thu, 20 Aug 2026 22:31:14 GMT
+
+https://www.cbr.com/god-of-war-confirms-dave-bautista-kratos/
+
+Prime Video's search for the new Kratos is over following the departure of original actor Ryan Hurst.
+---------
+
+# Harry Potter Star Officially Joins Henry Cavill’s New Netflix Spy Movie
+
+Movie News, Henry Cavill, Netflix, Harry Potter, Jason Isaacs
+
+Thu, 20 Aug 2026 22:30:11 GMT
+
+https://collider.com/henry-cavill-netflix-spy-movie-cast-harry-potter-star-jason-isaacs/
+
+Henry Cavill and Kevin Hart’s new Netflix spy movie officially adds a Harry Potter star and more to its cast.
+---------
+
+# 'Insidious 6' Director Reveals the Common Fear That Sparked 2026 Sequel
+
+Exclusives, Insidious: Out of the Further, Horror
+
+Thu, 20 Aug 2026 22:43:15 GMT
+
+https://movieweb.com/insidious-6-jacob-chase-common-fear-exclusive/
+
+The filmmaker explains how the fears that come with being a parent influenced 'Out of the Further.'
+---------
+
+# Amazon's 'God of War' Officially Confirms New Kratos Actor After Recasting
+
+TV News
+
+Thu, 20 Aug 2026 22:38:48 GMT
+
+https://movieweb.com/god-of-war-series-dave-bautista-kratos/
+
+Following a devastating injury, Amazon picked the actor who will replace Ryan Hurst as Kratos in the live-action 'God of War' series.
+---------
+
 # 5 Essential R-Rated 90s Shows That Are Still Perfect Today
 
 Classic TV, television show
