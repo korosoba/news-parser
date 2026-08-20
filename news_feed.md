@@ -1,3 +1,179 @@
+# New Xbox Hardware Appears Online Alongside Price Details
+
+Gaming, Xbox, Xbox Series X/S
+
+Thu, 20 Aug 2026 11:05:55 GMT
+
+https://screenrant.com/xbox-new-hardware-leak-official-reveal/
+
+There's plenty of exciting hardware on the way for Xbox fans, and we now have a release date and price for one of the nicest of those.
+---------
+
+# Calvin And Hobbes Has Never Had Official Toys Or Board Games For One Good Reason
+
+Gaming, Calvin and Hobbes
+
+Thu, 20 Aug 2026 11:00:14 GMT
+
+https://screenrant.com/calvin-hobbes-no-official-games-toys-explained/
+
+Calvin and Hobbes preserved the strip's unique voice and enduring mystery for over 40 years.
+---------
+
+# GTA 6 Fans Are Being Offered 4 Days Off To Play By The Army
+
+Gaming, Grand Theft Auto 6, Rockstar Games, Take-Two Interactive, PlayStation 5
+
+Thu, 20 Aug 2026 10:46:39 GMT
+
+https://screenrant.com/gta-6-launch-us-army-days-off/
+
+Soldiers can get four days off to play GTA VI if they re-enlist for two years. Discover this unique military incentive plan. IS that a good deal?
+---------
+
+# GTA 6’s November 19 Release Date Now Officially Has A Rival Game
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Thu, 20 Aug 2026 10:46:08 GMT
+
+https://screenrant.com/gta-6-november-19-release-date-rival-game/
+
+There's no doubt that many big upcoming releases have been avoiding GTA VI, but one game is brave enough to give it a go regardless.
+---------
+
+# Zelda Meets Animal Crossing In New 10/10 Open-World RPG That'll Consume Your Life
+
+Gaming, Animal Crossing, The Legend of Zelda, Fantasy Life i: The Girl Who Steals Time, Nintendo Switch, RPG
+
+Thu, 20 Aug 2026 10:41:09 GMT
+
+https://screenrant.com/zelda-meets-animal-crossing-fantasy-life-mobile-release/
+
+Animal Crossing fans looking for a whole new game will want to check out this incredible open-world RPG that's a lot like Zelda.
+---------
+
+# The Funniest Far Side Detective Comics and Murder Mysteries, Ranked
+
+Comics, The Far Side
+
+Thu, 20 Aug 2026 11:00:11 GMT
+
+https://www.cbr.com/the-funniest-far-side-comics-with-detectives-and-murder-mysteries/
+
+Gary Larson's classic comic strip The Far Side periodically aimed at cops, detectives, and murder mysteries. Here are 10 of the very best examples.
+---------
+
+# Mike Flanagan's New Stephen King Show on Prime Video Is Already a 5-Star Classic
+
+TV, Carrie, Prime Video, Stephen King, Innovation
+
+Thu, 20 Aug 2026 10:39:17 GMT
+
+https://www.cbr.com/prime-video-mike-flanagan-carrie-modern-stephen-king-tv-classic/
+
+Flanagan has stressed that Carrie's TV adaptation expands Stephen King's original novel in ways that film adaptations simply could not.
+---------
+
+# 10 Best Hong Kong Martial Arts Movies of the 1970s
+
+Movie, Enter the Dragon, The 36th Chamber of Shaolin, A Touch of Zen, Last Hurrah For Chivalry
+
+Thu, 20 Aug 2026 11:04:11 GMT
+
+https://collider.com/best-hong-kong-martial-arts-movies-1970s-ranked/
+
+The best Hong Kong martial arts movies that came out in the 1970s include classics like The Avenging Eagle, The Way of the Dragon, and Drunken Master.
+---------
+
+# Vin Diesel's 'Fast Forever' Gets Official Shooting Date
+
+Movie News, Vin Diesel, Fast Forever, Fast and the Furious, Action
+
+Thu, 20 Aug 2026 11:00:11 GMT
+
+https://collider.com/fast-forever-filming-december-2026-vin-diesel/
+
+Vin Diesel reveals that Fast Forever, the final Fast & Furious movie, is targeting a December 2026 production start ahead of its 2028 release.
+---------
+
+# 8 Classic '70s Shows That Are Officially Relevant Again
+
+TV, 1970s, Columbo, Laverne & Shirley, The Mary Tyler Moore Show
+
+Thu, 20 Aug 2026 10:53:11 GMT
+
+https://collider.com/1970s-shows-newly-relevant-again/
+
+Laverne & Shirley, Columbo, All in the Family, The Mary Tyler Moore Show, and more make up our list of 1970s shows that feel more relevant than ever.
+---------
+
+# This Near-Perfect Streaming Hit Is a Sequel That's Better Than the Original Movie
+
+Movie Features, Top Gun: Maverick, Tom Cruise, Glen Powell, Miles Teller
+
+Thu, 20 Aug 2026 10:42:11 GMT
+
+https://collider.com/top-gun-maverick-streaming-paramount-plus-august-2026/
+
+2022's Top Gun: Maverick, which was more critically acclaimed than 1986's Top Gun, is one of the top 10 most streamed films on Paramount+.
+---------
+
+# 30 Best Coming-of-Age Movies of All Time, Ranked
+
+Movie, Stand By Me, The Breakfast Club, Boyhood, Moonlight
+
+Thu, 20 Aug 2026 10:36:11 GMT
+
+https://collider.com/coming-of-age-movies-best-all-time-ranked/
+
+From The 400 Blows to Stand by Me to Almost Famous, this is Collider's ranking of the best coming-of-age movies ever.
+---------
+
+# 'The Rookie' Spin-off Casts Netflix Action Star as New Officer
+
+TV News, The Rookie, The Night Agent
+
+Thu, 20 Aug 2026 11:04:10 GMT
+
+https://movieweb.com/the-rookie-north-curtis-lum-cast/
+
+Curtis Lum, who played Cisco Jenkins in Netflix's 'The Night Agent,' will recur as Officer Charley Furst in ABC's 'The Rookie: North'.
+---------
+
+# Netflix Makes Waves on Streaming With Blake Lively's Solid 86-Minute Nail-Biting Suspense Thriller
+
+Movie News, The Shallows, Netflix, Blake Lively, Hot on Streaming
+
+Thu, 20 Aug 2026 11:00:13 GMT
+
+https://movieweb.com/the-shallows-netflix-streaming-hit-august-2026/
+
+While relatively unknown, this is one of the best thrillers of the 21st century, no notes.
+---------
+
+# Huge 'Reacher' Season 4 Spoiler Is Hiding in Plain Sight Before Watching Episode 4
+
+Features, Reacher, Prime Video, Action
+
+Thu, 20 Aug 2026 11:00:13 GMT
+
+https://movieweb.com/reacher-season-4-episode-4-spoiler/
+
+The latest episode of 'Reacher' Season 4 might have spoiled its twist with a spoiler you could see before you ever click play.
+---------
+
+# Netflix Confirms 'Stranger Things: Tales From '85' Season 2 Release Date
+
+TV News, Stranger Things: Tales from '85, Stranger Things, Netflix
+
+Thu, 20 Aug 2026 10:46:41 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-season-2-release-date/
+
+Netflix has confirmed 'Stranger Things: Tales From '85' Season 2 will premiere in September, just a few months after the animated spinoff's debut.
+---------
+
 # Mass Effect 5 Just Got A Very Concerning Update
 
 Gaming, Mass Effect
