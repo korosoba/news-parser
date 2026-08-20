@@ -1,3 +1,157 @@
+# Paramount Animates Iconic '80s Video Game Franchise Into New Fantasy Series Releasing Next Month In Official Trailer
+
+TV, Golden Axe (2025)
+
+Thu, 20 Aug 2026 15:49:50 GMT
+
+https://screenrant.com/paramount-golden-axe-show-release-date-trailer-casting/
+
+Paramount+ has released the first trailer for Golden Axe, as well as revealed the video game adaptation's main cast and when it will be released.
+---------
+
+# Guy Ritchie’s 10/10 Gangster Classic Is The Blueprint For MobLand Season 2
+
+TV, Guy Ritchie, MobLand
+
+Thu, 20 Aug 2026 15:30:15 GMT
+
+https://screenrant.com/mobland-season-2-like-lock-stock-two-smoking-barrels/
+
+From what we know so far, MobLand's second season is harder-hitting than season 1, with a Guy Ritchie gangster classic as its guide to action.
+---------
+
+# Peter Krause’s Line Of Fire Puts His Law Enforcement Agency At Risk In New NBC Series Trailer
+
+TV, Line of Fire
+
+Thu, 20 Aug 2026 15:29:01 GMT
+
+https://screenrant.com/line-of-fire-trailer-nbc-peter-krause/
+
+NBC shares the official trailer for its upcoming drama Line of Fire, which premieres in September and stars Peter Krause in his return to network TV.
+---------
+
+# Netflix Confirms The Hunting Wives Season 2 Release Date With Official Image Drop
+
+TV, The Hunting Wives - Season 2
+
+Thu, 20 Aug 2026 15:27:23 GMT
+
+https://screenrant.com/the-hunting-wives-season-2-release-date-images-netflix-official/
+
+Netflix confirms The Hunting Wives Season 2’s release date and reveals new cast members.
+---------
+
+# Stephen King-Celebrated Exorcism Horror Movie Never After Dark Unveils First Trailer
+
+Movies
+
+Thu, 20 Aug 2026 15:18:49 GMT
+
+https://screenrant.com/never-after-dark-2026-movie-trailer-stephen-king-review/
+
+Never After Dark, a new exorcism horror movie celebrated by Stephen King, unveils a first trailer ahead of the movie's upcoming theatrical release.
+---------
+
+# Disney+’s Hit Spider-Man Series Confirms Another Iconic Marvel Villain’s Debut For New Season
+
+TV, Your Friendly Neighborhood Spider-Man, Spider-Man
+
+Thu, 20 Aug 2026 15:17:36 GMT
+
+https://screenrant.com/your-friendly-neighborhood-spiderman-season-2-eddie-brock-debut-confirmed/
+
+When Disney+ premieres its hit animated Spider-Man series in 2027, an iconic villain will be introduced, as confirmed by the actor himself.
+---------
+
+# Timothy Olyphant's Hit Apple TV Series Stick Officially Returns With New Episodes This Fall
+
+TV, Stick, San Diego Comic-Con
+
+Thu, 20 Aug 2026 15:06:38 GMT
+
+https://screenrant.com/stick-season-2-release-date-apple-tv/
+
+Apple TV has now officially announced when Owen Wilson's hit golf comedy series Stick will return with season 2 after a year-long wait.
+---------
+
+# Paramount+’s 4-Season Thriller With 94% RT Returns With Final Episodes in 3 Months
+
+TV, Yellowjackets, Paramount Plus, Thriller
+
+Thu, 20 Aug 2026 15:48:12 GMT
+
+https://www.cbr.com/yellowjackets-season-4-release-date-trailer-paramount-plus/
+
+Paramount+'s hit thriller will finally end later this year.
+---------
+
+# 10 Strongest Dinobots in Transformers, Ranked
+
+Anime, Transformers, Beast Wars: Transformers
+
+Thu, 20 Aug 2026 15:32:11 GMT
+
+https://www.cbr.com/transformers-strongest-dinobots-ranked/
+
+Verified strength ratings, confirmed battle wins, and specific canon achievements replace the original notion of Dinobots just smashing things.
+---------
+
+# 10 Greatest Anime Series Since 2016
+
+Anime, Jujutsu Kaisen, Frieren: Beyond Journey's End
+
+Thu, 20 Aug 2026 15:15:11 GMT
+
+https://www.cbr.com/best-anime-series-since-2016-list/
+
+The past decade has produced some exceptional anime, and these ten titles have made the biggest impact since 2016.
+---------
+
+# Netflix’s 10-Episode Revenge Thriller Is Too Good To Miss for ‘John Wick’ Fans
+
+TV Features, Agent Kim Reactivated, Netflix, Action, Thriller
+
+Thu, 20 Aug 2026 15:49:11 GMT
+
+https://collider.com/netflix-revenge-thriller-agent-kim-reactivated-john-wick/
+
+Netflix's Agent Kim Reactivated is a thrilling series blending espionage and action, perfect for John Wick fans.
+---------
+
+# 7 Greatest Shows With Fewer Than 30 Episodes
+
+TV, Television, The Leftovers, Band of Brothers, Fleabag
+
+Thu, 20 Aug 2026 15:37:11 GMT
+
+https://collider.com/best-tv-shows-under-30-episodes/
+
+HBO's The Leftovers, BBC's Happy Valley, Fox's Firefly, and Prime Video's Fleabag are among the greatest shows that have less than 30 episodes total.
+---------
+
+# Russell Crowe's "Fascinating" Netflix Thriller Based on Crime That Shook America Hits Streaming Next Month
+
+Interviews, Unabomber, Russell Crowe, Netflix, Annabelle Wallis
+
+Thu, 20 Aug 2026 15:49:21 GMT
+
+https://movieweb.com/netflix-unabomber-annabelle-wallis-tease/
+
+The movie will give audiences a whole new perspective on an infamous figure.
+---------
+
+# Netflix Officially Sued by Christian Metal Band Over 'KPop Demon Hunters'
+
+Movie News, KPop Demon Hunters, Netflix
+
+Thu, 20 Aug 2026 15:03:17 GMT
+
+https://movieweb.com/netflix-sued-christian-metal-band-kpop-demon-hunters/
+
+The Christian metal band is very mad at Netflix and 'KPop Demon Hunters.'
+---------
+
 # Taika Waititi’s 97% RT Adventure Masterpiece Is Getting An Exciting New Release
 
 Movies, Masked Recs
