@@ -1,3 +1,91 @@
+# Netflix's New 7-Part Military Thriller Is Taylor Sheridan Meets American Sniper
+
+TV, Masked Recs
+
+Thu, 20 Aug 2026 23:45:14 GMT
+
+https://screenrant.com/seal-team-netflix-like-taylor-sheridan-american-sniper/
+
+Netflix has just dropped arguably the biggest military thriller on TV, which combines Taylor Sheridan's writing style with Clint Eastwood's visuals.
+---------
+
+# Supernatural Meets Wednesday In The CW's Underrated 4-Part Fantasy Series
+
+Classic TV, Masked Recs
+
+Thu, 20 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/legacies-supernatural-meets-wednesday-cw-fantasy-series/
+
+Monster hunting met teen romance in an underrated show that had Supernatural's monster-of-the-week plots and Wednesday's supernatural school setting.
+---------
+
+# Prime Video’s 140 Minute Fantasy Epic Nets 1.1 Billion Minutes Viewed In 7 Days After Box Office Flop
+
+Movies, Masters of the Universe
+
+Thu, 20 Aug 2026 23:22:26 GMT
+
+https://screenrant.com/he-man-prime-video-1-billion-minute-viewership/
+
+After becoming available to watch on Prime Video less than two months after its release, Masters of the Universe has become a streaming hit.
+---------
+
+# 'Doctor Who' Officially Gets "Doomy" Update From Former Writer
+
+TV News, Doctor Who, Doctor Who / Whoniverse, BBC, Mark Gatiss
+
+Thu, 20 Aug 2026 23:30:11 GMT
+
+https://collider.com/doctor-who-mark-gatiss-doomy-prediction-sci-fi-franchise-cancelled/
+
+Mark Gatiss shares a pessimistic outlook on Doctor Who's future amid the BBC's reboot plans and indefinite hiatus. Here's all to know.
+---------
+
+# New Animated Movie Makes Over 1000X Its Budget in Just 5 Days
+
+Movie News, Animation
+
+Thu, 20 Aug 2026 23:28:12 GMT
+
+https://collider.com/niu-lai-china-animated-movie-4-million-box-office-hit/
+
+Chinese animated movie Niu Lai has surged past $4 million at the box office after going viral for its bizarre, low-budget animation.
+---------
+
+# 10 Best Avengers Movie Character Entrances
+
+Movie, MCU, Superhero, Avengers: Endgame, Marvel
+
+Thu, 20 Aug 2026 23:21:11 GMT
+
+https://collider.com/best-avengers-movie-character-entrances-ranked/
+
+The MCU's Avengers movies have no shortage of unforgettable character entrances, from the finale of Endgame to the opening scene of Age of Ultron.
+---------
+
+# Marvel Confirms New 'Avengers: Doomsday' Project With Underrated MCU Star
+
+Movie News, Avengers: Doomsday, Iman Vellani
+
+Thu, 20 Aug 2026 23:38:22 GMT
+
+https://movieweb.com/avengers-doomsday-podcast-iman-vellani/
+
+'Avengers: Doomsday' will be the subject of another Marvel-centric project ahead of its long-awaited theatrical debut.
+---------
+
+# Amazon's 96% Rated Action Hit Suffers Streaming Setback as Future Remains Uncertain
+
+TV News, Ride or Die, Prime Video, Hot on Streaming, Action
+
+Thu, 20 Aug 2026 23:30:13 GMT
+
+https://movieweb.com/ride-or-die-action-streaming-failure-prime-august-2026/
+
+Prime Video's 'Reacher' replacement has already been replaced on streaming.
+---------
+
 # 8 Greatest Kids' Shows Set In The '90s
 
 Classic TV
