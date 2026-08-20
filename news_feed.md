@@ -1,3 +1,69 @@
+# Avatar Legends: Voyage Of The Unity Officially Releases October 2026
+
+Gaming, Avatar
+
+Thu, 20 Aug 2026 11:44:50 GMT
+
+https://screenrant.com/avatar-legends-voyage-of-unity-release/
+
+Avatar is in more mediums than ever before, and there's a new one coming down the pipeline that could be the best of the bunch.
+---------
+
+# Nintendo Switch 2 Price Increase Officially Confirmed With New Pricing
+
+Gaming, Nintendo Switch 2
+
+Thu, 20 Aug 2026 11:44:01 GMT
+
+https://screenrant.com/nintendo-switch-2-price-increase-new-pricing-confirmed/
+
+Nintendo has officially outlined the latest pricing details for the Nintendo Switch 2
+---------
+
+# 8 Greatest Remakes of Classic Horror Movies
+
+Movie, The Fly, The Ring, The Thing, The Blob
+
+Thu, 20 Aug 2026 11:43:11 GMT
+
+https://collider.com/best-classic-horror-movie-remakes-ranked/
+
+Many remakes of classic horror movies are dead on arrival, but re-imaginings of The Fly, The Thing, and Suspiria more than justified their existence.
+---------
+
+# 10 Greatest American Rock Albums of All Time
+
+Music Features, Music, Rock, Nirvana, Bob Dylan
+
+Thu, 20 Aug 2026 11:31:11 GMT
+
+https://collider.com/best-american-rock-albums-all-time-ranked/
+
+Pet Sounds by the Beach Boys, Nevermind by Nirvana, and Born to Run by Bruce Springsteen are among the best American rock albums ever.
+---------
+
+# Karl Urban’s $129M Box Office Flop Is Officially the No. 1 HBO Max Movie Worldwide
+
+Movie News, Karl Urban, Mortal Kombat II, Action, HBO Max
+
+Thu, 20 Aug 2026 11:30:11 GMT
+
+https://collider.com/mortal-kombat-2-hbo-max-number-one-streaming-karl-urban/
+
+Mortal Kombat II becomes the No. 1 HBO Max movie worldwide as Karl Urban’s $129 million action sequel officially redeems itself on streaming.
+---------
+
+# Only 4 Upcoming 2026 Movies Can Cross the Billion-Dollar Mark
+
+Movie, Avengers: Doomsday, Dune: Part Three, The Hunger Games: Sunrise on the Reaping, Jumanji: Open World
+
+Thu, 20 Aug 2026 11:21:11 GMT
+
+https://collider.com/2026-movies-can-cross-one-billion-dollars-box-office/
+
+Many movies are still to come in 2026, but only four can reasonably hope to gross more than a billion, from Dune: Part Three to Avengers: Doomsday.
+---------
+
 # New Xbox Hardware Appears Online Alongside Price Details
 
 Gaming, Xbox, Xbox Series X/S
