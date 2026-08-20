@@ -1,3 +1,168 @@
+# Multiple Marvel Live-Action Shows, Including X-Men, Reportedly In Development At Disney+
+
+TV, Marvel Cinematic Universe, X-Men, Disney+
+
+Thu, 20 Aug 2026 03:10:24 GMT
+
+https://screenrant.com/marvel-disney-plus-live-action-shows-report/
+
+Despite recent cancellations like Wonder Man, Disney+ is reportedly developing multiple Marvel TV shows, including a live-action X-Men series.
+---------
+
+# Game Of Thrones: The Witch's Visions Is Coming To Dragonfire
+
+Gaming, House of the Dragon, Game of Thrones, Game Of Thrones, Game Of Thrones: Dragonfire, PC
+
+Thu, 20 Aug 2026 03:00:14 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-witchs-visions-event/
+
+Game of Thrones returns to unravel the mysteries of Harrenhal in The Witch's Visions, a unique new release that's available now.
+---------
+
+# 4 Years Later, One Stoic Reacher Line Hits Even Deeper After A Season 4 Scene
+
+Streaming TV, Reacher, Reacher - Season 4
+
+Thu, 20 Aug 2026 03:00:14 GMT
+
+https://screenrant.com/reacher-season-4-stoic-line-hits-deep/
+
+One of Reacher’s most recurring stoic lines from the Prime Video show now has even deeper meaning after an intriguing scene from season 4, episode 4.
+---------
+
+# HBO's 21-Episode Series Keeps Getting Better And Could Go On Forever
+
+TV, Masked Recs
+
+Thu, 20 Aug 2026 02:56:14 GMT
+
+https://screenrant.com/the-white-lotus-hbo-anthology-getting-better-last-forever/
+
+Sun-soaked settings hide bruised egos, escalating stakes, and dead bodies as a rotating A-list cast sharpens this dark HBO hit's satire each season.
+---------
+
+# Dune's 'Game Of Thrones In Space' Spinoff Is A Harsh Reminder About George RR Martin
+
+Streaming TV, Dune: Prophecy
+
+Thu, 20 Aug 2026 02:34:14 GMT
+
+https://screenrant.com/dune-prophecy-game-of-thrones-harsh-reminder-grrm/
+
+HBO's Dune: Prophecy has been described as 'Game of Thrones in space,' but Dune came first, so Game of Thrones is really 'medieval Dune.'
+---------
+
+# Crunchyroll Just Got Its Biggest Anime Streaming Rival (And It's Free)
+
+Anime, Crunchyroll
+
+Thu, 20 Aug 2026 02:30:14 GMT
+
+https://screenrant.com/crunchyroll-just-got-its-biggest-anime-streaming-rival-its-way-cheaper/
+
+Bilibili is officially challenging Crunchyroll’s anime streaming dominance with a new global app offering cheaper anime plans and a huge catalog.
+---------
+
+# 10 Greatest Metroidvanias of All Time, Ranked
+
+Games, metroidvania
+
+Thu, 20 Aug 2026 03:15:11 GMT
+
+https://www.cbr.com/greatest-metroidvanias-all-time-ranked-official-list/
+
+From older titles like Super Metroid to modern classics like Hollow Knight: Silksong, these are the best Metroidvanias ever.
+---------
+
+# Life Is Strange’s Raúl Castillo Officially Confirms a Faithful Character Look in the TV Adaptation
+
+TV, Life is Strange, Life Is Strange, Prime Video
+
+Thu, 20 Aug 2026 03:06:12 GMT
+
+https://www.cbr.com/life-is-strange-tv-series-adaptation-raul-castillo-david-madsen/
+
+Raúl Castillo reveals how Prime Video’s Life Is Strange is recreating David Madsen’s familiar look for the live-action series.
+---------
+
+# Another Major Anime Streaming Site Shuts Down in Less Than 1 Week
+
+Anime, piracy, Streaming
+
+Thu, 20 Aug 2026 03:05:11 GMT
+
+https://www.cbr.com/cineby-website-shut-down/
+
+The piracy site attracted 160 million visitors in the last month alone, before operators voluntarily decided to shut it down.
+---------
+
+# 10 Strongest Benders in Avatar: The Last Airbender, Officially Ranked
+
+Anime, Avatar: The Last Airbender
+
+Thu, 20 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-strongest-benders-officially-ranked/
+
+With the release of Avatar Aang: The Last Airbender, it's more clear than ever who the strongest Benders are.
+---------
+
+# 5 Classic Sega Genesis RPGs That Are 10/10 Masterpieces
+
+Games, Shining Force, Sega Genesis, RPG
+
+Thu, 20 Aug 2026 02:30:11 GMT
+
+https://www.cbr.com/classic-sega-genesis-rpg-masterpieces/
+
+The Sega Genesis gave gamers a myriad of excellent RPG titles, with a select few achieving masterpiece status.
+---------
+
+# 28 Years Later, Spike Spiegel's Best Cowboy Bebop Line Is Still the Greatest Quote in Sci-Fi History
+
+Anime, Cowboy Bebop
+
+Thu, 20 Aug 2026 02:15:11 GMT
+
+https://www.cbr.com/spike-spiegel-cowboy-bebop-greatest-quote-sci-fi-history/
+
+28 years later, Spike Spiegel's best Cowboy Bebop quote still captures the anime's powerful ideas about life, death, regret, and moving on.
+---------
+
+# Star Wars’ New 91% RT Series Quietly Settles the Franchise’s Biggest Debate About the Force
+
+TV Features, Star Wars: Visions Presents - The Ninth Jedi, Star Wars: Visions, Star Wars, Disney+
+
+Thu, 20 Aug 2026 03:15:11 GMT
+
+https://collider.com/star-wars-new-series-ninth-jedi-settles-force-franchise-debate/
+
+Star Wars' new series The Ninth Jedi has quietly settled the franchise's biggest debate about the Force and the existence of Grey Jedi.
+---------
+
+# Before ‘Yellowstone,’ James Stewart’s Oscar-Nominated Western Became a 2-Part Sleeper Hit
+
+TV Features, James Stewart, Broken Arrow (1950), Western, Yellowstone
+
+Thu, 20 Aug 2026 03:09:11 GMT
+
+https://collider.com/james-stewart-best-western-broken-arrow-tv-series/
+
+Broken Arrow, Jimmy Stewart’s 1950 Western, inspired an ABC television series that ran for two seasons and 72 episodes.
+---------
+
+# 33 Years Later, This 'Reacher' Meets 'Bourne Identity' Action Thriller Is Officially a Streaming Sensation
+
+Movie Features, The Fugitive, Harrison Ford, Tommy Lee Jones, Action
+
+Thu, 20 Aug 2026 03:03:11 GMT
+
+https://collider.com/the-fugitive-harrison-ford-streaming-free-pluto-tv-august-2026/
+
+The Fugitive, which is streaming free on Pluto TV, is as thrilling now as it was in 1993, when the brilliant thriller nearly swept the Oscars.
+---------
+
 # 58 Years Later, Columbo Still Holds The Greatest Line In Murder Mystery History
 
 Classic TV, Columbo
