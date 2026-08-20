@@ -1,3 +1,179 @@
+# Naruto Reportedly Finds Its Live-Action Kakashi With Bad Boys Star
+
+Movies, Naruto - Live Action, Naruto
+
+Thu, 20 Aug 2026 18:11:56 GMT
+
+https://screenrant.com/naruto-live-action-movie-kakashi-cast-charles-melton-negotiations/
+
+Naruto reportedly finds its live-action Kakashi with a star from Bad Boys as development on the upcoming movie adaptation continues.
+---------
+
+# Ridley Scott's New Adaptation Of 143-Year-Old Adventure Classic Gets Filming Date & New Casting Details
+
+Movies, Ridley Scott
+
+Thu, 20 Aug 2026 18:07:58 GMT
+
+https://screenrant.com/ridley-scott-treasure-island-movie-filming-start-date-casting-details/
+
+Ridley Scott's new adaptation of a 143-year-old adventure classic receives a filming start date and new casting details months after it was announced.
+---------
+
+# Prime Video’s R-Rated CSI Replacement Misses A Pivotal Ingredient
+
+TV, Masked Recs
+
+Thu, 20 Aug 2026 18:01:14 GMT
+
+https://screenrant.com/prime-video-scarpetta-csi-replacement/
+
+Dual timelines and graphic forensics may have promised grit and gore in Prime Video's CSI replacement, but odd tonal whiplash killed this appeal.
+---------
+
+# Buffy The Vampire Slayer Meets Stardew Valley In This New Horror RPG
+
+Gaming, Steam, Triple-A Games
+
+Thu, 20 Aug 2026 18:00:14 GMT
+
+https://screenrant.com/buffy-vampire-slayer-meets-stardew-valley-grave-seasons/
+
+If you're into Stardew Valley, and who isn't, you might want to check out this horror-themed simulator that has a lot of moving parts.
+---------
+
+# Dark Horror Stephen King Calls “Amazing and Haunting” Unveils Terrifying First Look
+
+Movies, Stephen King, Horror
+
+Thu, 20 Aug 2026 18:20:49 GMT
+
+https://www.cbr.com/never-after-dark-horror-movie-trailer/
+
+The Stephen King-approved horror movie gets a horrifying first look unveiled.
+---------
+
+# Star Wars Open World RPG Is So Good, You'll Play It All Weekend
+
+Games, Star Wars, Starfield
+
+Thu, 20 Aug 2026 18:20:11 GMT
+
+https://www.cbr.com/star-wars-new-open-world-rpg-genesis/
+
+Star Wars fans can play the open-world RPG of their dreams with the Starfield: Genesis mod.
+---------
+
+# 5 American Anime That Are 10/10 Masterpieces
+
+Anime, The Boondocks, Castlevania
+
+Thu, 20 Aug 2026 18:15:11 GMT
+
+https://www.cbr.com/masterpiece-american-anime-1010/
+
+Some of the best American anime use Japanese anime-inspired aesthetics to convey complex storylines with creative worlds and characters.
+---------
+
+# Rebecca Ferguson's 'Sexy' & 'Violent' Miniseries Conquering US Streaming Charts 13 Years Later
+
+TV, The White Queen
+
+Thu, 20 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/rebecca-ferguson-the-white-queen-miniseries-starz-success-august-2026/
+
+Critics loved Rebecca Ferguson's steamy historical drama, and now it's finding new success in the streaming era.
+---------
+
+# 6 Sci-Fi Horror Movies Better Than Alien
+
+Movies, Alien
+
+Thu, 20 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/best-sci-fi-horror-movies-better-than-alien-list/
+
+Alien is widely regarded as the pinnacle of the sci-fi horror genre, but there are at least six other movies that rival its impact and fear-factor.
+---------
+
+# Charles Melton and Cailee Spaeny Lived Together To Prep for Beef S2
+
+TV, Beef
+
+Thu, 20 Aug 2026 18:15:11 GMT
+
+https://collider.com/video/charles-melton-and-cailee-spaeny-lived-together-to-prep-for-beef-s2/
+
+Beef Season 2: Charles Melton on Austin’s quietest scene and why doing almost nothing could reveal everything about his character.
+---------
+
+# 'Sterling Point' Just Set Up 8 Unexpected Season 2 Mysteries
+
+TV, Sterling Point, Prime Video, Megan Park, Television
+
+Thu, 20 Aug 2026 18:09:11 GMT
+
+https://collider.com/sterling-point-season-2-mysteries/
+
+From unfinished romances to the fate of the island, Prime Video's Sterling Point has left us with burning questions while we wait for Season 2.
+---------
+
+# 'Ahsoka' Star Officially Confirms Season 2 Exit
+
+TV News, Ahsoka, Star Wars, Disney+, Star Wars: Clone Wars
+
+Thu, 20 Aug 2026 18:05:11 GMT
+
+https://collider.com/ahsoka-season-2-exit-claudia-black/
+
+Claudia Black reveals she will not return as Mother Klothow in Ahsoka Season 2, citing Disney pay issues tied to filming in London.
+---------
+
+# 'The Odyssey' Breaks 'Deadpool & Wolverine's All-Time Box Office Record
+
+Movie News, The Odyssey, Deadpool & Wolverine, Box Office
+
+Thu, 20 Aug 2026 18:21:59 GMT
+
+https://movieweb.com/the-odyssey-deadpool-wolverine-r-rated-box-office-record/
+
+Christopher Nolan's 'The Odyssey' reached a level of box office success that even 'Deadpool & Wolverine' did not for the Marvel Cinematic Universe.
+---------
+
+# 10 Greatest Action Thriller Movies of the 21st Century (# 1 Was a Game-Changer)
+
+Movie Lists, Batman, James Bond, John Wick, Taken, Action, Thriller
+
+Thu, 20 Aug 2026 18:20:09 GMT
+
+https://movieweb.com/best-action-thriller-movies-21st-century/
+
+These action thriller movies are some of the most memorable and incredible from the 21st century, with all-star Hollywood casts and exciting scenes.
+---------
+
+# 'Naruto' Officially Finds First Major Cast Member in Rumored 'X-Men' Actor
+
+Movie News, Naruto - Live Action, Naruto
+
+Thu, 20 Aug 2026 18:17:43 GMT
+
+https://movieweb.com/naruto-live-action-charles-melton-kakashi-hatake/
+
+The live-action 'Naruto' movie just found its first major cast member.
+---------
+
+# Netflix's New 96-Minute Stranger-Than-Fiction True-Crime Tale Crowned One of Streaming's Biggest Hits
+
+Movie News, Netflix, Hot on Streaming
+
+Thu, 20 Aug 2026 18:00:13 GMT
+
+https://movieweb.com/child-of-my-own-netflix-streaming-hit-august-2026/
+
+Netflix's latest true crime documentary is sure to make you scratch your head.
+---------
+
 # Outer Banks S5 Review: A Messy Goodbye That Works
 
 TV, Outer Banks
