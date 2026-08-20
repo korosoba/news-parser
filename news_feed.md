@@ -1,3 +1,135 @@
+# Ahsoka Season 2 Thankfully Fixes A Major Season 1 Mistake
+
+Streaming TV, Ahsoka, Ahsoka - Season 2, Star Wars
+
+Thu, 20 Aug 2026 00:30:14 GMT
+
+https://screenrant.com/ahsoka-season-2-fix-emotion-problem-ezra-ghost-crew/
+
+Ahsoka season 2 has a release date and a trailer, with the footage showing that a season 1 mistake is thankfully being fixed in the coming episodes.
+---------
+
+# 7 Years Later, Kylo Ren’s New Star Wars Release Answers Major Rise of Skywalker Questions
+
+Star Wars, Ben Solo/Kylo Ren, Star Wars: Episode IX - The Rise of Skywalker
+
+Thu, 20 Aug 2026 00:17:33 GMT
+
+https://screenrant.com/fall-of-kylo-ren-new-star-wars-release-answers-rise-of-skywalker-questions/
+
+A brand-new Star Wars release starring Kylo Ren is shedding light on parts of Rise of Skywalker that the original movie very much glossed over.
+---------
+
+# There Will Be Blood Meets Yellowstone In Paramount+'s 2-Part Neo-Western Series
+
+Streaming TV, Masked Recs
+
+Thu, 20 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/landman-paramount-plus-there-will-be-blood-meets-yellowstone/
+
+There Will Be Blood and Yellowstone are two of the most acclaimed Westerns of the 21st century, and Paramount+ combined them both into one show.
+---------
+
+# Elden Ring Meets Skyrim in New Dark Fantasy Game You Can Play for Free Now
+
+Games, Video Games, Elden Ring, The Elder Scrolls V: Skyrim
+
+Thu, 20 Aug 2026 00:45:11 GMT
+
+https://www.cbr.com/mortal-shell-ii-elden-ring-skyrim-steam-rpg/
+
+No other game mashes Elden Ring and Skyrim as well as Mortal Shell II.
+---------
+
+# Sung Jinwoo Gets Major Glow Up in New Solo Leveling Exclusive First Look
+
+Anime, Solo Leveling, merchandise, Funko Pop
+
+Thu, 20 Aug 2026 00:20:11 GMT
+
+https://www.cbr.com/solo-leveling-sung-jinwoo-funko-pop-gamestop/
+
+Sung Jinwoo's raid on Jeju Island is getting a literal 'glow-up' by way of a GameStop-exclusive Solo Leveling release dropping later this year.
+---------
+
+# 5 Strongest Black Clover Swordsmen, Ranked
+
+Anime, Black Clover, shonen anime
+
+Thu, 20 Aug 2026 00:15:11 GMT
+
+https://www.cbr.com/strongest-black-clover-swordsmen-ranked/
+
+Black Clover boasts an impressive roster of characters with incredible skills, but many swordsmen in the series represent the peak of strength.
+---------
+
+# Netflix's Don't Say Good Luck Is The Comedy Event of the Summer
+
+Movies, Don't Say Good Luck
+
+Thu, 20 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/adam-sandler-dontsay-good-luck-comedy-event-of-summer/
+
+The Happy Madison production starring Sunny Sandler, Adam Sandler's daughter, is the must-see comedy event of the summer.
+---------
+
+# Forget ‘The Odyssey,’ Matt Damon’s Most Rewatchable Action Movie Is Officially Streaming
+
+Movie News, The Bourne Identity, Matt Damon, Apple TV, The Odyssey
+
+Thu, 20 Aug 2026 00:30:11 GMT
+
+https://collider.com/matt-damon-action-thriller-the-bourne-identity-streaming-apple-tv-august-2026/
+
+Matt Damon's 119-minute blockbuster with shades of James Bond and The Fugitive has officially begun streaming on Apple TV.
+---------
+
+# 7 Netflix Show Endings That Are Genuine Masterpieces
+
+TV, Netflix, BoJack Horseman, The Haunting of Hill House, The Queen's Gambit
+
+Thu, 20 Aug 2026 00:06:11 GMT
+
+https://collider.com/netflix-show-endings-masterpieces/
+
+It's a badge of honor to end a series well, but Netflix shows like BoJack Horseman and The Queen's Gambit have endings that are true masterpieces.
+---------
+
+# ‘Game of Thrones’ Spin-Off Officially Hits Huge HBO Max Milestone
+
+TV News, House of the Dragon, HBO, Fantasy, HBO Max
+
+Thu, 20 Aug 2026 00:00:11 GMT
+
+https://collider.com/house-of-the-dragon-streaming-milestone-150-days-hbo-max-august-2026/
+
+House of the Dragon reaches a massive HBO Max chart milestone following the hugely successful conclusion of Season 3.
+---------
+
+# 32 Years Later, Cult-Classic Supernatural Revenge Thriller Getting New Release
+
+Movie News, The Crow
+
+Thu, 20 Aug 2026 00:23:47 GMT
+
+https://movieweb.com/the-crow-4k-blu-ray-release-steelbook/
+
+'The Crow' is getting a new 4K Ultra HD Blu-ray SteelBook in November.
+---------
+
+# The 3 Missing OG X-Men From the MCU Reboot
+
+Movie Lists, X-Men, Marvel Cinematic Universe
+
+Thu, 20 Aug 2026 00:00:13 GMT
+
+https://movieweb.com/mcu-x-men-reboot-missing-originals/
+
+Which of the three absent superheroes from the upcoming X-Men reboot deserves to be included and will be missed the most?
+---------
+
 # Netflix Finally Has A Charles Manson Documentary Worth Watching
 
 TV, Masked Recs
