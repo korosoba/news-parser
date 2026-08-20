@@ -1,3 +1,102 @@
+# Whisper It, But Firefly Ending After 1 Season Was Kind Of Perfect
+
+Classic TV, Firefly
+
+Thu, 20 Aug 2026 21:31:14 GMT
+
+https://screenrant.com/firefly-ending-after-season-1-perfect/
+
+Joss Whedon's space Western had a multi-season plan that never came to fruition after its season 1 cancellation, but it actually ended on a high note.
+---------
+
+# The Magic Faraway Tree Interview with Andrew Garfield & Claire Foy
+
+Videos, The Magic Faraway Tree, Andrew Garfield, Claire Foy
+
+Thu, 20 Aug 2026 21:29:17 GMT
+
+https://screenrant.com/video/the-magic-faraway-tree-andrew-garfield-claire-foy-interview/
+
+The Magic Faraway Tree stars Andrew Garfield and Claire Foy share the childhood experiences they can't do without, and explain why the new fantasy film touches them so deeply.
+---------
+
+# The Wizard Of Oz Author's Classic 124-Year-Old Book Is Finally Getting A Live-Action Movie
+
+Movies, The Wizard of Oz
+
+Thu, 20 Aug 2026 21:24:23 GMT
+
+https://screenrant.com/the-life-and-adventures-of-santa-claus-movie-live-action-adaptation-report/
+
+The Wizard of Oz author's classic 124-year-old fantasy novel is finally getting a live-action movie following several animated adaptations.
+---------
+
+# Marvel Comics November 2026 Solicitations
+
+Comics, Marvel Comics, solicitations
+
+Thu, 20 Aug 2026 21:30:33 GMT
+
+https://www.cbr.com/marvel-midnight-line-returns-marvel-november-2026-solicitations/
+
+Marvel's Midnight Universe hits its second month as Marvel officially reveals its solicitations for November 2026
+---------
+
+# Winnie the Pooh Voice Actor Agrees With Fans Calling Out Disney's Hall of Legends Snub
+
+TV, Winnie the Pooh, D23
+
+Thu, 20 Aug 2026 21:28:38 GMT
+
+https://www.cbr.com/disney-winnie-the-pooh-actor-jim-cummings-hall-of-legends-snub/
+
+Jim Cummings, who voices Pooh, Darkwing Duck, and many other major roles, was passed over for an induction into Disney's Hall of Legends.
+---------
+
+# Netflix's New Sci-Fi With 21% RT Dominates Global Streaming Charts
+
+Movies, The Last House, Netflix
+
+Thu, 20 Aug 2026 21:27:46 GMT
+
+https://www.cbr.com/the-last-house-sci-fi-success-netflix-august-2026/
+
+Netflix's latest sci-fi thriller is a major winner on the streaming platform.
+---------
+
+# Keanu Reeves’ New Fantasy Movie Is Officially Coming to Prime Video Tomorrow
+
+Movie News, Keanu Reeves, Good Fortune, Prime Video, Fantasy
+
+Thu, 20 Aug 2026 21:31:11 GMT
+
+https://collider.com/good-fortune-keanu-reeves-streaming-prime-video-august-2026/
+
+Keanu Reeves’ new fantasy movie comes to Prime Video August 21, giving the underrated comedy a second chance after its disappointing box office run.
+---------
+
+# BritBox Is Officially Dropping 9 New Agatha Christie Releases on the Same Day
+
+TV News, Agatha Christie, Tommy & Tuppence, The Alphabet Murders, Thirteen at Dinner
+
+Thu, 20 Aug 2026 21:22:10 GMT
+
+https://collider.com/agatha-christie-britbox-release-date-september-2026-tommy-and-tuppence/
+
+BritBox celebrates Agatha Christie with 9 releases, including the new 6-part Tommy & Tuppence series and classic Miss Marple and Poirot mysteries.
+---------
+
+# Netflix's New Spy Thriller Is a "Jason Bourne Meets Expendables" Action Series
+
+TV News, Netflix, Shane Black, Action
+
+Thu, 20 Aug 2026 21:40:16 GMT
+
+https://movieweb.com/bannerman-series-netflix-shane-black-spy-thriller/
+
+Iconic writer/director Shane Black is back in action for Netflix's new spy thriller.
+---------
+
 # 5 Reasons Why Jason Statham's Mutiny Movie Reviews Are So Negative
 
 Movies, Mutiny
