@@ -1,3 +1,190 @@
+# 58 Years Later, Columbo Still Holds The Greatest Line In Murder Mystery History
+
+Classic TV, Columbo
+
+Thu, 20 Aug 2026 02:03:14 GMT
+
+https://screenrant.com/columbo-one-more-thing-best-murder-mystery-quote/
+
+One humble throwaway phrase functioned like a trapdoor revealing suspects’ ruptured alibis and hidden hubris, redefining murder mysteries.
+---------
+
+# Stephen King Meets True Detective In HBO’s 10-Part Psychological Thriller Series With 91% RT Rating
+
+TV, Masked Recs
+
+Thu, 20 Aug 2026 01:04:14 GMT
+
+https://screenrant.com/stephen-king-the-outsider-true-detective-horror/
+
+A simmering Southern noir unfurls into outright paranormal horror as Stephen King's HBO show pushes psychological thrills further than True Detective.
+---------
+
+# 5 Modern Turn-Based RPGs With Gorgeous Pixel Art
+
+Gaming, RPG, PC, Triple-A Games, Indie
+
+Thu, 20 Aug 2026 01:00:14 GMT
+
+https://screenrant.com/turn-based-rpgs-best-modern-pixel-art/
+
+If you’re looking for a turn-based RPG with up-to-date mechanics but that feels retro with beautiful pixel art, know that there are tons of options.
+---------
+
+# 2027 Is Officially The End Of An Era For Square Enix
+
+Games, Final Fantasy, Kingdom Hearts, Square Enix
+
+Thu, 20 Aug 2026 01:45:11 GMT
+
+https://www.cbr.com/final-fantasy-kingdom-heats-2027-end-of-an-era/
+
+2027 is going to be a huge year for Square Enix, as massive Final Fantasy and Kingdom Hearts titles are launching and beginning a new era.
+---------
+
+# The Walking Dead: Dead City’s Star Reveals the Truth About Hershel Jr.’s Darkness
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Thu, 20 Aug 2026 01:43:15 GMT
+
+https://www.cbr.com/walking-dead-dead-city-hershel-darkness-logan-kim/
+
+Logan Kim opens up about Hershel moving on from the Dama, and living up to his grandfather's name.
+---------
+
+# 10 Western Movies I Knew Would Be Masterpieces Within The First 10 Minutes
+
+Movies, Western
+
+Thu, 20 Aug 2026 01:30:11 GMT
+
+https://www.cbr.com/masterpiece-western-movies-perfect-from-start-list/
+
+The Western has a rich history of producing masterpiece movies, and some have audiences absolutely hooked from the first 10 minutes.
+---------
+
+# 7 Forgotten Adult Swim Anime That Have Aged Like Milk
+
+Anime
+
+Thu, 20 Aug 2026 01:25:11 GMT
+
+https://www.cbr.com/forgotten-adult-swim-anime-aged-like-milk/
+
+Adult Swim was a gateway for many fans into the world of anime, but some of its most popular series are now unwatchable today.
+---------
+
+# Hulu's Answer to American Crime Story Is Getting a Second Season About Infamous 1990s Case
+
+TV, Good American Family, Hulu
+
+Thu, 20 Aug 2026 01:15:22 GMT
+
+https://www.cbr.com/good-american-family-renewed-hulu-season-2-lorena-bobbitt/
+
+Hulu officially renews the series over a year after the first season ended to revisit one of the most infamous true crime stories of the 1990s.
+---------
+
+# Prime Video's 2-Part Thriller Based on a James Patterson Novel Gives Reacher a Run for Its Money
+
+TV, Cross, Prime Video, Action
+
+Thu, 20 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/prime-video-cross-rivals-reacher/
+
+Reacher is by far one of the best thrillers on Amazon Prime Video, but it's not the only one worth watching.
+---------
+
+# Tom Hardy’s ‘MobLand’ Season 3 Officially Hits a Major Roadblock at Paramount+
+
+TV News, MobLand, Guy Ritchie, Tom Hardy, Paramount Plus
+
+Thu, 20 Aug 2026 02:00:21 GMT
+
+https://collider.com/mobland-season-3-renewal-uncertain-paramount-plus-tom-hardy-update/
+
+Tom Hardy’s MobLand Season 3 remains unconfirmed as Paramount+ reveals it has not yet made an official decision ahead of Season 2.
+---------
+
+# Taylor Sheridan's 6666 'Yellowstone' Spin-Off Can Still Happen With a Formula Change
+
+TV Features, Taylor Sheridan, Yellowstone, Western, Paramount Plus
+
+Thu, 20 Aug 2026 01:51:11 GMT
+
+https://collider.com/taylor-sheridan-6666-yellowstone-spin-off-not-happening/
+
+Taylor Sheridan reveals the Yellowstone 6666 spin-off is not happening, and there's a good reason, but there's still a way Jimmy's story can be told.
+---------
+
+# Years Before Spider-Man, Tom Holland's Forgotten Historical Drama Remains a Hidden Gem
+
+TV Features, Wolf Hall, Tom Holland, Spider-Man, BBC
+
+Thu, 20 Aug 2026 01:32:11 GMT
+
+https://collider.com/tom-holland-wolf-hall-bbc-historical-drama/
+
+Tom Holland gives a captivating performance in BBC's Wolf Hall, a standout in his early career before Spider-Man.
+---------
+
+# ‘A Court of Thorns and Roses’ Officially Returns With 2 New Releases
+
+Books and Comics News, A Court of Thorns and Roses, Fantasy, Books, Romance
+
+Thu, 20 Aug 2026 01:30:11 GMT
+
+https://collider.com/a-court-of-thorns-and-roses-new-books-titles-release-dates/
+
+Two new A Court of Thorns and Roses novels have been revealed, with Sarah J. Maas’ next ACOTAR books arriving in October 2026 and January 2027.
+---------
+
+# 7 Most Powerful Spider-Man Characters
+
+Books and Comics, Spider-Man, Comics, Superhero
+
+Thu, 20 Aug 2026 01:03:11 GMT
+
+https://collider.com/spider-man-characters-most-powerful-ranked/
+
+From the Venom symbiote to Morlun the energy vampire, Spider-Man crosses paths with plenty of strong characters, but which is the most powerful?
+---------
+
+# Jon Snow's 'Game of Thrones' Return Officially Unveils First Look Trailer
+
+Gaming News, Game Of Thrones, House of the Dragon, Kit Harrington, A Knight Of The Seven Kingdoms
+
+Thu, 20 Aug 2026 01:00:11 GMT
+
+https://collider.com/game-of-thrones-war-for-westeros-gameplay-trailer-jon-snow-night-king/
+
+Game of Thrones: War for Westeros is revealing extended gameplay at Gamescom ahead of a 2027 launch, including Jon Snow’s battle with the Night King.
+---------
+
+# 7 Action Thriller Shows Like 'Lioness' You Can Binge-Watch in One Weekend
+
+TV Lists, Thriller, Lioness, The Night Agent, Taylor Sheridan
+
+Thu, 20 Aug 2026 02:00:23 GMT
+
+https://movieweb.com/action-thriller-tv-shows-like-lioness/
+
+'Lioness' Season 3 is currently streaming on Paramount+ and fans of the Taylor Sheridan action thriller should binge-watch these other great TV shows.
+---------
+
+# 10 Harshest Realities of Starting the 'Game of Thrones' Franchise in 2026
+
+TV Lists, Game of Thrones, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Thu, 20 Aug 2026 01:00:13 GMT
+
+https://movieweb.com/game-of-thrones-franchise-harsh-realities-starting-2026/
+
+Starting the 'Game of Thrones' franchise in 2026 is an exciting and worthwhile undertaking, but it also comes with harsh truths to contend with.
+---------
+
 # Ahsoka Season 2 Thankfully Fixes A Major Season 1 Mistake
 
 Streaming TV, Ahsoka, Ahsoka - Season 2, Star Wars
