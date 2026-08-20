@@ -1,3 +1,256 @@
+# The Odyssey Breaks All-Time Box Office Record As Month 2 Begins
+
+Movies, Box Office, The Odyssey
+
+Thu, 20 Aug 2026 16:25:47 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-highest-grossing-r-rated-movie-box-office-record/
+
+Shortly after concluding its first full month in theaters, Christopher Nolan's epic The Odyssey breaks a huge all-time box office record.
+---------
+
+# Princess Bubblegum And Marceline Return For New Adventure Time Special, And It Looks Incredible (Exclusive)
+
+Comics, Adventure Time
+
+Thu, 20 Aug 2026 16:08:27 GMT
+
+https://screenrant.com/princess-bubblegum-marceline-new-series-cover-reveal/
+
+Adventure Time's beloved Princess Bubblegum and Marceline are officially back in a new series, per this exclusive preview fans don't want to miss.
+---------
+
+# Supernatural’s Sam and Dean Return Next Month For New Era Starting With Wayward
+
+Comics, Supernatural
+
+Thu, 20 Aug 2026 16:06:02 GMT
+
+https://screenrant.com/supernatural-sam-and-dean-series-return-explained/
+
+The Winchester brothers will return to the Golden Era of the franchise, delivering what will essentially be a forgotten chapter of their story.
+---------
+
+# Cameron Diaz’s New Netflix Action Movie Reveals Release Date With First-Look Bad Day Images
+
+Movies, Bad Day, Cameron Diaz
+
+Thu, 20 Aug 2026 16:02:14 GMT
+
+https://screenrant.com/netflix-cameron-diaz-bad-day-movie-release-date-first-images/
+
+Cameron Diaz is returning to Netflix with Bad Day, and both the release date and the first images from this upcoming movie have been revealed.
+---------
+
+# Charlie Hunnam’s Sons Of Anarchy Return Gets First Response From Franchise Creator
+
+TV, Sons of Anarchy, Sons Of Anarchy
+
+Thu, 20 Aug 2026 16:00:16 GMT
+
+https://screenrant.com/sons-of-anarchy-legends-charlie-hunnam-return-kurt-sutter-response/
+
+Sons of Anarchy franchise creator Kurt Sutter speaks out on the show's upcoming meta spinoff, clarifying what it means for the original series.
+---------
+
+# Samara Weaving Meets Kyra Sedgwick In Carolina Caroline Clip (Exclusive)
+
+Exclusive, Carolina Caroline, Samara Weaving
+
+Thu, 20 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/video/carolina-caroline-samara-weaving-kyra-sedgwick-digital-release-clip/
+
+EXCLUSIVE: ScreenRant presents a clip from Carolina Caroline, in which Samara Weaving's Caroline finally meets Kyra Sedgwick’s Deborah.
+---------
+
+# BlizzCon 2026 Reveals Special Guests, Including A K-POP Legend
+
+Gaming, BlizzCon, Triple-A Games
+
+Thu, 20 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/blizzcon-2026-celebrity-reveals-concerts/
+
+Blizzard has unveiled the full celebrity lineup for BlizzCon 2026, and they managed to get some guests that people are going to love.
+---------
+
+# 10 Best Romantasy Books Free On Kindle Unlimited
+
+Books, Romantasy, Kindle Unlimited
+
+Thu, 20 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/best-romantasy-romance-fantasy-books-free-kindle-unlimited-ku/
+
+Discover the best romantasy series available for free with Kindle Unlimited. Dive into exciting worlds of fantasy and romance!
+---------
+
+# PAW Patrol Teams With Colossal Biosciences For Conservation Video
+
+Tech, Colossal Biosciences, PAW Patrol, PAW Patrol: The Dino Movie
+
+Thu, 20 Aug 2026 15:59:16 GMT
+
+https://screenrant.com/paw-patrol-colossal-biosciences-animal-conservation-video/
+
+PAW Patrol and Colossal Biosciences team up on a new video teaching kids about conservation, endangered species and protecting wildlife.
+---------
+
+# Paramount’s New 10-Part Fantasy Based on a Classic 37-Year-Old Game Gets First Trailer
+
+TV, Paramount Plus, Fantasy
+
+Thu, 20 Aug 2026 16:30:11 GMT
+
+https://www.cbr.com/golden-axe-trailer-paramount-plus/
+
+An essential fantasy adventure of the 1980s comes to streaming.
+---------
+
+# Ryan Reynolds' Forgotten Guardians of the Galaxy Meets Top Gun Space Opera Soars on Streaming
+
+Movies, DCU, DC Comics, Green Lantern, Lanterns
+
+Thu, 20 Aug 2026 16:20:37 GMT
+
+https://www.cbr.com/ryan-reynolds-green-lantern-soars-on-streaming-due-to-dc-lanterns/
+
+No one saw this coming in 2026, and Ryan Reynolds wishes it didn't.
+---------
+
+# 10 Greatest Anime Final Arcs of All Time, Ranked
+
+Anime, Attack on Titan, Yu Yu Hakusho, Hunter X Hunter
+
+Thu, 20 Aug 2026 16:15:11 GMT
+
+https://www.cbr.com/greatest-anime-final-arcs-of-all-time-ranked/
+
+Even the best anime often struggle at the finish line, but these series have some of the greatest final arcs of all time.
+---------
+
+# Idiots: Why This Comedy Feels Like a ’90s Throwback
+
+Movies, Idiots
+
+Thu, 20 Aug 2026 16:07:08 GMT
+
+https://www.cbr.com/video/idiots-why-this-comedy-feels-like-a-90s-throwback/
+
+Idiots feels like an outrageous comedy throwback, and Dave Franco, Kiernan Shipka, O’Shea Jackson Jr., and Macon Blair explain why.
+---------
+
+# It's Officially the End of an Era for The Mandalorian Franchise
+
+Movies, The Mandalorian, The Mandalorian and Grogu, Star Wars
+
+Thu, 20 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/the-mandalorian-and-grogu-streaming-release-end-of-a-franchise-era/
+
+Star Wars' most lucrative property has created an era of delight and wonder for the titular Mandalorian and his ward, Grogu.
+---------
+
+# 10 Greatest Books That Are Under 100 Pages
+
+Books and Comics, Books, The Strange Case of Dr. Jekyll & Mr. Hyde, The Metamorphosis, Heart of Darkness
+
+Thu, 20 Aug 2026 16:21:11 GMT
+
+https://collider.com/best-books-under-100-pages/
+
+From Kafka's seminal Metamorphosis to Sun Tzu's timeless The Art of War, these books are masterpieces of the medium despite having 100 pages or fewer.
+---------
+
+# Ridley Scott Officially Eyeing 'Adolescence' Star For New Fantasy Epic With Hugh Jackman [Exclusive]
+
+Movie News, Ridley Scott, Hugh Jackman, The Dog Stars, Adolescence
+
+Thu, 20 Aug 2026 16:09:05 GMT
+
+https://collider.com/ridley-scott-treasure-island-movie-filming-start-cast-hugh-jackman-owen-cooper/
+
+Ridley Scott has confirmed when his Treasure Island remake starts filming and even reveals two potential cast members joining Hugh Jackman.
+---------
+
+# Dylan Sprouse Officially Returns to Disney Channel 15 Years After ‘Suite Life’ Ended [Exclusive]
+
+TV News, Big City Greens, Dylan Sprouse, The Suite Life Of Zack & Cody, Disney
+
+Thu, 20 Aug 2026 16:01:53 GMT
+
+https://collider.com/dylan-sprouse-disney-channel-return-big-city-greens-sneak-peek/
+
+Dylan Sprouse returns to Disney Channel with a guest role in Big City Greens Season 5, 15 years after The Suite Life on Deck ended.
+---------
+
+# 10/10 Ghost Story Stephen King Hailed as "Amazing" Unveils First Trailer
+
+Movie News, Stephen King
+
+Thu, 20 Aug 2026 16:27:33 GMT
+
+https://movieweb.com/never-after-dark-first-trailer-stephen-king/
+
+The chilling horror trailer drops amid glowing praise from Stephen King and Scott Derrickson.
+---------
+
+# A 'Ghost Soldier' Takes Down Corporate Tyranny in New Action Thriller Trailer
+
+Movie Trailers, Action, Thriller
+
+Thu, 20 Aug 2026 16:21:00 GMT
+
+https://movieweb.com/ghost-soldier-trailer/
+
+When corporate greed comes for family farms, one man uses his expertise to fight back in the action packed trailer for 'Ghost Soldier'.
+---------
+
+# Paramount+ Unleashes First Trailer for Classic Action Fantasy Video Game Adaptation
+
+TV News, Paramount Plus, Fantasy
+
+Thu, 20 Aug 2026 16:15:20 GMT
+
+https://movieweb.com/golden-axe-trailer/
+
+Paramount+ has unleashed the first trailer its 'Golden Axe' video game adaptation, reimagining SEGA's iconic arcade beat-'em-up as an animated series.
+---------
+
+# Netflix Scores Big With 114-Episode Action Thriller Taking Over Streaming
+
+TV News, SEAL Team, Hot on Streaming, Action, Netflix
+
+Thu, 20 Aug 2026 16:00:14 GMT
+
+https://movieweb.com/seal-team-netflix-military-action-thriller-streaming-august-2026/
+
+The perfect 'Lioness' replacement is now streaming on Netflix for the first time ever, and it's already made a big splash on the streaming service.
+---------
+
+# Every Upcoming Marvel & Star Wars TV Series on Disney+
+
+TV Lists, Disney+, Star Wars, Marvel Cinematic Universe
+
+Thu, 20 Aug 2026 16:00:14 GMT
+
+https://movieweb.com/every-upcoming-marvel-star-wars-tv-shows-disney/
+
+Disney+ has many upcoming Marvel and Star Wars TV shows that fans won't want to miss, from new entries to returning series.
+---------
+
+# Every Movie & TV Show Featuring Red Hulk
+
+Movie Lists, Captain America: Brave New World
+
+Thu, 20 Aug 2026 16:00:14 GMT
+
+https://movieweb.com/every-red-hulk-movie-tv-show/
+
+The Red Hulk doesn't show up often in TV and movies, but when he does, he makes an impact.
+---------
+
 # Paramount Animates Iconic '80s Video Game Franchise Into New Fantasy Series Releasing Next Month In Official Trailer
 
 TV, Golden Axe (2025)
