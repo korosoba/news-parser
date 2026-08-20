@@ -1,3 +1,168 @@
+# 5 Essential R-Rated 90s Shows That Are Still Perfect Today
+
+Classic TV, television show
+
+Thu, 20 Aug 2026 22:15:14 GMT
+
+https://screenrant.com/essential-r-rated-90s-tv-shows/
+
+The advent of R-rated TV shows only came on with streaming, and before that, there were only a handful of "mature" series, but the '90s had a few.
+---------
+
+# Prime Video’s God Of War Confirms Kratos Recast With Ultimate Fan Choice
+
+TV, God of War
+
+Thu, 20 Aug 2026 22:12:36 GMT
+
+https://screenrant.com/god-of-war-kratos-dave-bautista-recast-confirmed-prime-video/
+
+Prime Video has officially found its new Kratos for its upcoming television adaptation of the hit video game series, God of War.
+---------
+
+# Iconic Marvel Heroes Unleash Permanent New Superpowers for the First Time
+
+Comics, Marvel
+
+Thu, 20 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/cloak-dagger-new-powers-queen-black/
+
+Really cool.
+---------
+
+# 5 Anime That Get Better After Their First Season
+
+Anime
+
+Thu, 20 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/best-anime-better-after-first-season/
+
+While some titles start off strong, these anime series are worth sticking with, as they only get better after their first season.
+---------
+
+# The Vampire Lestat: AMC's 96% RT Series Is Quietly One Of TV's Best To Binge
+
+Streaming TV, Masked Recs
+
+Thu, 20 Aug 2026 21:55:14 GMT
+
+https://screenrant.com/amc-the-vampire-lestat-best-series-to-binge/
+
+AMC's hit vampire series The Vampire Lestat, with a near-perfect 96% Rotten Tomatoes score, is quietly one of the best shows to binge-watch now.
+---------
+
+# Interstellar's Best Line Was The Greatest Sci-Fi Quote Of The 2010s
+
+Movies, Interstellar
+
+Thu, 20 Aug 2026 21:50:28 GMT
+
+https://screenrant.com/interstellar-movie-cooper-best-sci-fi-quote-2010s/
+
+Christopher Nolan's Interstellar is one of the best sci-fi movies of all time, and its greatest quote dominated the genre in the 2010s.
+---------
+
+# Studio Ghibli Meets Jujutsu Kaisen in Netflix's New Sci-Fi Anime Movie
+
+Anime, Jujutsu Kaisen, The Ribbon Hero, Studio Ghibli, Netflix
+
+Thu, 20 Aug 2026 22:15:11 GMT
+
+https://www.cbr.com/netflix-the-ribbon-hero-studio-ghibli-meets-jjk/
+
+Netflix's striking new anime movie, The Ribbon Hero, blends elements of Studio Ghibli and JJK in this modern adaptation of a 70-year-old manga series.
+---------
+
+# Netflix's New Sicario Meets The Godfather Crime Thriller Is a Global Streaming Hit
+
+Movies, Netflix, Thriller, Crime
+
+Thu, 20 Aug 2026 22:06:07 GMT
+
+https://www.cbr.com/nando-between-two-worlds-crime-success-netflix-august-2026/
+
+This spinoff of a Brazilian thriller show has captured audiences worldwide.
+---------
+
+# Absolute Batman 2025 Annual #1 Almost Didn't Include Bold, Necessary Detail
+
+Comics, Absolute Batman, Batman
+
+Thu, 20 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/absolute-batman-2025-annual-1-author-on-imporant-detail/
+
+Who could imagine this Absolute Batman story without this important plot point?
+---------
+
+# Star Trek II's Final Quote Is the Greatest 9 Words in Sci-Fi History
+
+Movies, Star Trek II: The Wrath of Khan, Star Trek, Sci-Fi
+
+Thu, 20 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/star-trek-ii-final-quote-greatest-line-sci-fi-history/
+
+Spock's legendary ending monologue to 1982's The Wrath of Khan remains the single greatest quote in sci-fi movie history.
+---------
+
+# Matthew Fox's Overlooked 28 Days Later Replacement Is Netflix's Latest Smash Hit
+
+Movies, Extinction, Netflix
+
+Thu, 20 Aug 2026 21:57:15 GMT
+
+https://www.cbr.com/extinction-horror-success-netflix-august-2026/
+
+An overlooked zombie movie with a unique twist is soaring on Netflix's charts.
+---------
+
+# 10 Best Thriller Books of the 2000s
+
+Books and Comics, Books, Thriller, dennis lehane, Gillian Flynn
+
+Thu, 20 Aug 2026 22:08:11 GMT
+
+https://collider.com/best-thriller-books-2000s-ranked/
+
+Shutter Island by Dennis Lehane, Sharp Objects by Gillian Flynn, and The Road by Cormac McCarthy are among the best thriller books of the 2000s.
+---------
+
+# 'Heated Rivalry' Officially Returns With New Release Ahead of Season 2
+
+TV News, Heated Rivalry, HBO, Blu-ray, HBO Max
+
+Thu, 20 Aug 2026 22:00:11 GMT
+
+https://collider.com/heated-rivalry-blu-ray-release-date-collectors-edition-confirmed/
+
+Heated Rivalry Season 1 is getting a new collector’s edition on 4K, Blu-ray and DVD ahead of the HBO Max hit’s second season.
+---------
+
+# HBO's New 'True Detective Meets Watchmen' Sci-Fi Thriller Is Already a Global Sensation
+
+TV News, Lanterns, HBO Max, Hot on Streaming, DCU, Sci-Fi
+
+Thu, 20 Aug 2026 22:15:13 GMT
+
+https://movieweb.com/lanterns-dcu-streaming-success-hbo-august-2026/
+
+HBO's latest prime-time Western series is already one of the biggest shows on streaming.
+---------
+
+# Prime Video's New Sci-Fi Series Is Already Bigger Than 'The Expanse' in Every Way
+
+Features, Mass Effect, Prime Video, Sci-Fi, The Expanse
+
+Thu, 20 Aug 2026 22:00:13 GMT
+
+https://movieweb.com/prime-video-mass-effect-bigger-the-expanse/
+
+A beloved sci-fi video game adaptation is currently in development. Will Prime Video hit it out of the park again?
+---------
+
 # Whisper It, But Firefly Ending After 1 Season Was Kind Of Perfect
 
 Classic TV, Firefly
