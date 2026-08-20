@@ -1,3 +1,36 @@
+# 5 10/10 Xbox 360 Games You Can Play Free With Game Pass
+
+Gaming, Xbox, Xbox Game Pass
+
+Thu, 20 Aug 2026 08:56:34 GMT
+
+https://screenrant.com/xbox-game-pass-10-rated-360-games/
+
+These five Xbox 360 classics prove that some of the generation’s best games are still worth playing today, and they are free on Game Pass.
+---------
+
+# 7 Low Fantasy Books With the Greatest Magic Systems
+
+Books and Comics, Books, Harry Potter and the Goblet of Fire, Fantasy, Jonathan Strange & Mr. Norrell
+
+Thu, 20 Aug 2026 09:04:11 GMT
+
+https://collider.com/low-fantasy-books-best-magic-systems/
+
+From popular works like The Magicians to underrated gems like Skulduggery Pleasant, these low fantasy books have the best magic systems in the genre.
+---------
+
+# James Cameron’s Greatest Sci-Fi Sequel Officially Returns for New 2027 Release
+
+Collectibles, Aliens, James Cameron, Alien, Avatar: Fire and Ash
+
+Thu, 20 Aug 2026 09:00:11 GMT
+
+https://collider.com/james-cameron-aliens-queen-prime-1-studio-statue-november-2027-release-date/
+
+James Cameron's sci-fi sequel to Ridley Scott's iconic feature is officially returning next year for a brand-new release.
+---------
+
 # Star Trek Officially Goes Full Muppets in New ‘Strange New Worlds’ Episode [Exclusive]
 
 Exclusives, star trek: strange new worlds, Star Trek, Paramount Plus, Sci-Fi
