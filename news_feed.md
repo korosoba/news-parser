@@ -1,3 +1,113 @@
+# Outer Banks S5 Review: A Messy Goodbye That Works
+
+TV, Outer Banks
+
+Thu, 20 Aug 2026 17:49:37 GMT
+
+https://screenrant.com/video/outer-banks-s5-review-a-messy-goodbye-that-works/
+
+Outer Banks Season 5: Why Kiara Owns The Finale. The Pogues’ final adventure has plenty of treasure hunting, danger, and questionable decisions, but the heart of Season 5 belongs to Kiara Carrera.
+---------
+
+# Brendan Fraser's 115-Minute Crime Thriller Is Officially One Of HBO Max's Biggest Movies
+
+Movies, Masked Recs
+
+Thu, 20 Aug 2026 17:46:36 GMT
+
+https://screenrant.com/brendan-fraser-no-sudden-move-movie-hbo-max-streaming-august-2026/
+
+Brendan Fraser's crime thriller is racking up the streaming minutes on HBO Max to become a major sensation, and it comes with a star-studded cast.
+---------
+
+# Insidious: Out Of The Further Ending Explained
+
+Movies, Insidious: Out of the Further
+
+Thu, 20 Aug 2026 17:45:14 GMT
+
+https://screenrant.com/insidious-out-of-the-further-ending-explained/
+
+The Insidious franchise continues with Insidious: Out of the Further, which tells the story of a young mom haunted by the Further.
+---------
+
+# It's Official: Terminator's New Design Revealed Ahead of 4-Part Crossover With Classic Franchise
+
+Comics, Terminator
+
+Thu, 20 Aug 2026 17:43:21 GMT
+
+https://screenrant.com/archie-vs-the-terminator-design/
+
+The Terminator is returning this year, with the iconic cyborg crossing over with an 84-year-old franchise for one of its boldest chapters yet.
+---------
+
+# New Horror Thriller Inspired By 82-Year-Old Story Earns Strong Rotten Tomatoes Score Ahead Of Release
+
+Movies, It Ends
+
+Thu, 20 Aug 2026 17:34:26 GMT
+
+https://screenrant.com/it-ends-movie-rotten-tomatoes-score/
+
+Neon is about to release its latest horror movie, which has been directed by a first-time filmmaker who’s receiving overwhelming praise.
+---------
+
+# NYT Connections Solution And Hints For August 20, 2026
+
+Gaming, Connections, Mobile
+
+Thu, 20 Aug 2026 17:30:14 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-20-2026/
+
+Today's Connections is all about terms that are part of a larger whole, creating categories within categories that are tough to find without clues.
+---------
+
+# Robert Downey Jr.’s Confirmed Iron Man Return Comes At The Worst Time
+
+Movies, Marvel Cinematic Universe, Avengers: Doomsday
+
+Thu, 20 Aug 2026 17:30:14 GMT
+
+https://screenrant.com/iron-man-robert-downey-jr-return-avengers-doomsday-worst-time/
+
+Tony Stark is officially coming back after 7 years. But as great as it is to see Iron Man again, the timing of his return could have been better.
+---------
+
+# Spider-Man: Brand New Day Already Has the Greatest Scene in MCU History
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man, Spider-Man 4
+
+Thu, 20 Aug 2026 17:31:11 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-best-scene-mcu-history/
+
+The Spider-Man franchise has produced some of the most emotional and memorable moments in the MCU, and Brand New Day has delivered another.
+---------
+
+# Yahya Abdul-Mateen II Officially Reveals Why Marvel Cancelled ‘Wonder Man’
+
+TV News, Wonder Man, Yahya Abdul-Mateen II, Destin Daniel Cretton, Marvel
+
+Thu, 20 Aug 2026 17:37:46 GMT
+
+https://collider.com/wonder-man-cancelled-viewership-yahya-abdul-mateen-ii/
+
+Yahya Abdul-Mateen II reveals what he was told about why Wonder Man was cancelled after the Marvel series had been given a Season 2 greenlight.
+---------
+
+# 'Yellowjackets' Season 4 Release Date Officially Confirmed
+
+TV News, Yellowjackets
+
+Thu, 20 Aug 2026 17:33:40 GMT
+
+https://movieweb.com/yellowjackets-season-4-release-date/
+
+'Yellowjackets' final season will debut on Paramount+ on Nov. 20, 2026, a little over the five-year anniversary of the series premiere.
+---------
+
 # The Pitt Season 3 Cast Adds The Last Of Us Star & 6 Others
 
 TV, The Pitt
