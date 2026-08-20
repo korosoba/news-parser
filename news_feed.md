@@ -1,3 +1,14 @@
+# Star Trek Officially Goes Full Muppets in New ‘Strange New Worlds’ Episode [Exclusive]
+
+Exclusives, star trek: strange new worlds, Star Trek, Paramount Plus, Sci-Fi
+
+Thu, 20 Aug 2026 08:00:11 GMT
+
+https://collider.com/star-trek-strange-new-worlds-puppet-episode-14-puppeteers/
+
+Star Trek: Strange New Worlds reveals how its ambitious puppet episode came together with 14 puppeteers, Henson creations, and extensive planning.
+---------
+
 # Outer Banks Season 5’s Pogues Character Endings Addressed By Main Cast
 
 TV, Outer Banks
