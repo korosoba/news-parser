@@ -1,3 +1,289 @@
+# "Disastrous" New GTA 6 Leak Sparks Concerns Over Game's Ending
+
+Gaming, Grand Theft Auto 6
+
+Thu, 20 Aug 2026 13:34:51 GMT
+
+https://screenrant.com/gta-6-leaked-gameplay-ending-concerns/
+
+A new GTA 6 leak has reared up close to the Netflix stream reveal, and this time, it might be the biggest one yet, with fans issuing warnings.
+---------
+
+# X-Men Officially Reveals Name and Design of Rogue and Gambit's Son
+
+Comics, X-Men
+
+Thu, 20 Aug 2026 13:30:14 GMT
+
+https://screenrant.com/x-men-rogue-gambit-son-jean-luc/
+
+X-Men introduces Jean-Luc LeBeau.
+---------
+
+# The MCU’s New X-Men Villain Casting Makes Guardians Of The Galaxy 3 More Important Than Ever
+
+Movies, Guardians of the Galaxy Vol. 3, X-Men, Marvel Cinematic Universe
+
+Thu, 20 Aug 2026 13:30:14 GMT
+
+https://screenrant.com/mcu-new-xmen-villain-casting-guardians-of-the-galaxy-3-high-evolutionary/
+
+The MCU's newly announced X-Men villain has some fascinating story ties to one prior antagonist who was established earlier in the franchise.
+---------
+
+# The Witcher 3: Revenge of Ofir Is An Ambitious Fan Expansion Coming In 2027
+
+Gaming, The Witcher 3: Wild Hunt, The Witcher, CD Projekt Red
+
+Thu, 20 Aug 2026 13:26:29 GMT
+
+https://screenrant.com/witcher-3-revenge-ofir-fan-expansion-2027/
+
+The Witcher 3: Revenge of Ofir is a new fan-made expansion that will be arriving next year. If you're looking for more Witcher content, check it out.
+---------
+
+# Widow's Bay Season 2 Confirms Major New Cast Change
+
+TV, Widow's Bay
+
+Thu, 20 Aug 2026 13:22:05 GMT
+
+https://screenrant.com/widows-bay-season-2-jeff-hiller-series-regular-upgrade/
+
+Widow's Bay season 2 confirms a major new casting change as development on the Apple TV horror comedy's return continues.
+---------
+
+# It's Officially The End Of An Era For Henry Cavill's R-Rated Action Thriller
+
+Movies, Masked Recs
+
+Thu, 20 Aug 2026 13:18:34 GMT
+
+https://screenrant.com/night-hunter-paramount-plus-streaming-charts-fall-august-2026/
+
+After a successful run, Henry Cavill's R-rated action thriller with Alexandra Daddario is finally at the end of a worldwide streaming era.
+---------
+
+# Chris Pratt's Prime Video Action Series Returns 4 Years Later In Official Season 2 Trailer
+
+TV, The Terminal List
+
+Thu, 20 Aug 2026 13:08:04 GMT
+
+https://screenrant.com/the-terminal-list-season-2-trailer-chris-pratt/
+
+Chris Pratt's R-rated Prime Video action thriller series releases its season 2 trailer, and the-year wait for its new episodes will be worth it.
+---------
+
+# Netflix's Monster Season 4 Reveals Truth Of 134-Year-Old Axe Murders In Bloody Trailer
+
+TV, Monster: The Lizzie Borden Story
+
+Thu, 20 Aug 2026 13:00:14 GMT
+
+https://screenrant.com/monster-the-lizzie-borden-story-trailer-2/
+
+The newest trailer for Monster: The Lizzie Borden Story delivers a bloody look at the woman suspected of two brutal murders from the 1890s.
+---------
+
+# Star Trek: Strange New Worlds Season 4 Episode 5 Ending Explained: Puppets Take The Enterprise
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Thu, 20 Aug 2026 13:00:14 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-episode-5-ending-explained/
+
+When Star Trek: Strange New Worlds transforms most of the USS Enterprise's crew into puppets, chaos ensues but a lot is happening beneath the surface.
+---------
+
+# Major Dutton Family Member’s Marshals & Dutton Ranch Cameo Return Potential Addressed By Yellowstone Star
+
+TV, Yellowstone
+
+Thu, 20 Aug 2026 13:00:14 GMT
+
+https://screenrant.com/yellowstone-marshals-dutton-ranch-lee-cameo-dave-annable-response/
+
+EXCLUSIVE: Yellowstone star Dave Annable addresses whether Lee Dutton could return again in Marshals or Dutton Ranch after his season 4 appearance.
+---------
+
+# Brandon Sanderson Officially Returns With New Stormlight Archive Story Coming 2027
+
+Games, Brandon Sanderson, The Stormlight Archive
+
+Thu, 20 Aug 2026 13:29:11 GMT
+
+https://www.cbr.com/brandon-sanderson-showdown-in-shadesmar-stormlight-archive-2027/
+
+Brandon Sanderson's Cosmere expands once again with an exciting new release coming next year.
+---------
+
+# 5 Jujutsu Kaisen Characters Who Deserved Better
+
+Anime, Jujutsu Kaisen
+
+Thu, 20 Aug 2026 13:15:11 GMT
+
+https://www.cbr.com/jujutsu-kaisen-characters-who-deserved-better/
+
+Jujutsu Kaisen features its fair share of acceptable losses, but a few characters did not deserve their fates
+---------
+
+# Pokémon Celebrates 30th Anniversary With Rarest Mew Card Ever
+
+Games, Pokemon, Tabletop, Pokemon TCG
+
+Thu, 20 Aug 2026 13:02:11 GMT
+
+https://www.cbr.com/pokemon-30th-anniversary-rarest-card-ever-mew-rgb/
+
+Rumors are circulating about the Pokémon Trading Card Game releasing an incredibly rare and colorful Mew card for the series' 30th anniversary.
+---------
+
+# 5 X-Men Villains More Powerful than Mister Sinister
+
+Movies, Marvel Cinematic Universe, X-Men
+
+Thu, 20 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/x-men-villains-more-powerful-than-mister-sinister-list/
+
+Mister Sinister is coming to the big screen for the first time, but there are still some X-Men villains that are far more dangerous.
+---------
+
+# Star Trek: The Last Starship Officially Debuts Captain Kirk's Darkest Redesign Yet
+
+Comics, Star Trek
+
+Thu, 20 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/star-trek-the-last-starship-10-darkest-captain-kirk-redesign/
+
+It's a bold new look for Captain Kirk.
+---------
+
+# Disney Confirms Its New 8-Episode Miniseries Is TV's Next Big Sci-Fi Event
+
+TV, VisionQuest, MCU, Disney+
+
+Thu, 20 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/disney-plus-mcu-visionquest/
+
+Coming later this year, an eight-episode live-action superhero miniseries is about to reinvent sci-fi forever.
+---------
+
+# Prime Video's Gritty 2-Part Action Thriller Officially Returns With First Trailer
+
+TV News, The Terminal List, Chris Pratt, Tom Hopper, Prime Video
+
+Thu, 20 Aug 2026 13:00:11 GMT
+
+https://collider.com/the-terminal-list-season-2-trailer/
+
+The first trailer for The Terminal List Season 2 was released, giving Chris Pratt's vengeful Navy SEAL a violent new purpose and a path to redemption.
+---------
+
+# Denzel Washington's 127-Minute Action Thriller Is Quietly One of the Best Westerns Streaming
+
+Movie Features, The Magnificent Seven, Denzel Washington, Antoine Fuqua, Prime Video
+
+Thu, 20 Aug 2026 12:40:11 GMT
+
+https://collider.com/denzel-washington-the-magnificent-seven-best-western-action-thriller/
+
+Antoine Fuqua's take on The Magnificent Seven remains one of the best modern remakes, thanks to a star-studded cast led by Denzel Washington.
+---------
+
+# The 15 Best 'Breaking Bad' Quotes, Ranked
+
+TV, Breaking Bad, Crime, Vince Gilligan, Drama
+
+Thu, 20 Aug 2026 12:32:11 GMT
+
+https://collider.com/breaking-bad-best-quotes-ranked/
+
+Breaking Bad, one of the best TV shows, has some of the most memorable quotes from characters like Walter White and Jesse Pinkman.
+---------
+
+# 5 ‘Fire & Blood’ Endings ‘House of the Dragon’ Season 4 Could Actually Use
+
+Books and Comics, House of the Dragon, George R.R. Martin, Books, Ryan Condal
+
+Thu, 20 Aug 2026 12:23:11 GMT
+
+https://collider.com/fire-and-blood-book-endings-house-of-the-dragon-season-4/
+
+The Dance of the Dragons is nearing its heartbreaking end. These five Fire & Blood events could shape the arc of House of the Dragon Season 4.
+---------
+
+# 8 Essential Soulslike Video Games
+
+Gaming, Pinocchio, Dark Souls, Video Game
+
+Thu, 20 Aug 2026 12:17:11 GMT
+
+https://collider.com/soulslike-video-games-ranked/
+
+From Nioh to Lies of P, these are the best games for Soulslike fans that aren't made by FromSoftware.
+---------
+
+# ‘Foundation’ Officially Returns With Brand-New Release This Month
+
+TV News, Foundation, Apple TV, Steam, David S. Goyer
+
+Thu, 20 Aug 2026 12:01:11 GMT
+
+https://collider.com/foundation-galactic-frontier-season-2-release-august-2026/
+
+Foundation: Galactic Frontier Season 2 launches this month, giving fans a new trip into Isaac Asimov’s sci-fi universe while they wait for Season 4.
+---------
+
+# 5 Years Later, Jon Bernthal's Violent Movie Is Quietly One of the Best Thrillers Streaming
+
+Movie Features, Jon Bernthal, Small Engine Repair, Shea Whigham, Ciara Bravo
+
+Thu, 20 Aug 2026 11:56:11 GMT
+
+https://collider.com/small-engine-repair-jon-bernthal-best-thriller-netflix/
+
+Jon Bernthal stars in Small Engine Repair, a tense thriller about three high school friends later in life, driven to great violence.
+---------
+
+# Tom Hanks' New 20-Part World War II Series Is Officially One of the Biggest Shows on Streaming
+
+TV News, War, Hot on Streaming, Tom Hanks
+
+Thu, 20 Aug 2026 13:00:13 GMT
+
+https://movieweb.com/world-war-ii-tom-hanks-streaming-hit-prime-apple-august-2026/
+
+The latest documentary series on World War II is an essential watch for the most avid war genre buffs.
+---------
+
+# 'Star Trek: Strange New Worlds' Muppets Crossover Episode Almost Defies All Logic
+
+Features, star trek: strange new worlds, Star Trek
+
+Thu, 20 Aug 2026 13:00:13 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-puppet-logic/
+
+Star Trek's collaboration with the Jim Henson Creature Shop isn't for everyone, but at least it safeguards the canon. Read on for more.
+---------
+
+# ‘Ted Lasso’ Officially Replaces Dani Rojas For Just One Episode
+
+Features, Ted Lasso
+
+Thu, 20 Aug 2026 12:00:13 GMT
+
+https://movieweb.com/ted-lasso-dani-rojas-replacement/
+
+'Ted Lasso' Season 4 is now streaming on Apple TV, and Dani Rojas (Cristo Fernández) is a fan-favorite character on the sports comedy.
+---------
+
 # Avatar Legends: Voyage Of The Unity Officially Releases October 2026
 
 Gaming, Avatar
