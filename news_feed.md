@@ -1,3 +1,157 @@
+# Every NCIS Spinoff Explained
+
+Network TV, NCIS, NCIS: Hawai'i, NCIS: Sydney, NCIS: Origins, NCIS: Los Angeles
+
+Thu, 20 Aug 2026 19:50:14 GMT
+
+https://screenrant.com/every-ncis-spinoff-explained/
+
+NCIS has evolved into a massive franchise with 8 spinoffs to explore. Their key differences make for distinct viewing experiences and characters.
+---------
+
+# Netflix Stranger Things' Return With New Episodes Is Officially 1 Month Away
+
+TV, Stranger Things, Stranger Things: Tales from '85
+
+Thu, 20 Aug 2026 19:36:37 GMT
+
+https://screenrant.com/netflix-stranger-things-tales-from-85-season-2-release-september-2026/
+
+Netflix's Stranger Things will return in a month as the sci-fi franchise's new episodes set up a terrifying new threat for Eleven and her friends.
+---------
+
+# DC's Andor Is Already A Better Superhero Show Than Secret Invasion
+
+Streaming TV, Masked Recs
+
+Thu, 20 Aug 2026 19:30:15 GMT
+
+https://screenrant.com/lanterns-dc-andor-better-secret-invasion/
+
+Remember when Secret Invasion was going to be Marvel's answer to Andor? It was an unmitigated disaster. But Lanterns actually is DC's Andor.
+---------
+
+# ‘Lanterns’ Cast Reveals How HBO’s Superhero Drama Finally ‘Cracked the Nut’
+
+CBR Exclusives, Lanterns
+
+Thu, 20 Aug 2026 19:47:39 GMT
+
+https://www.cbr.com/lanterns-garret-dillahunt-poorna-jagannathan/
+
+There's a reason why this dusty superhero noir is so easy to love.
+---------
+
+# 5 Masterpiece Action Anime That Prove Solo Leveling Is Mid
+
+Anime, Solo Leveling
+
+Thu, 20 Aug 2026 19:45:12 GMT
+
+https://www.cbr.com/action-anime-that-prove-solo-leveling-is-mid-list/
+
+Solo Leveling might be the biggest anime of the 2020s, but compared to anime like Jujutsu Kaisen, it's mid.
+---------
+
+# D&D's 25 Strongest Dragon Types, Ranked
+
+Games, Dungeons and Dragons
+
+Thu, 20 Aug 2026 19:35:11 GMT
+
+https://www.cbr.com/dnd-strongest-dragon-types/
+
+Given the game's title, it's no surprise dragons play an integral role in Dungeons and Dragons. But which prove themselves the most powerful?
+---------
+
+# Resident Evil Officially Reunites Chris Redfield and Jill Valentine on September 1
+
+Anime, Resident Evil, Resident Evil: Death Island, Netflix
+
+Thu, 20 Aug 2026 19:20:11 GMT
+
+https://www.cbr.com/resident-evil-6-movies-netflix-release-date/
+
+Resident Evil fans are just weeks away from being able to revisit their favorite characters across some of the franchise's most underrated films.
+---------
+
+# 5 2026 GOTY Contenders That Haven't Released Yet
+
+Games, Video Games, Marvel, Grand Theft Auto
+
+Thu, 20 Aug 2026 19:15:11 GMT
+
+https://www.cbr.com/best-2026-games-not-released-yet/
+
+Games like Grand Theft Auto VI and Marvel's Wolverine are guaranteed to be Game of the Year contenders.
+---------
+
+# Lanterns Is HBO's Best New Detective Show
+
+TV, Lanterns, True Detective, DCU
+
+Thu, 20 Aug 2026 19:13:56 GMT
+
+https://www.cbr.com/hbo-lanterns-true-detective-replacement/
+
+HBO's new detective show is like True Detective, but with a sci-fi, superhero twist.
+---------
+
+# Netflix’s New Gritty Spy Thriller Officially Sounds Like ‘John Wick’ in the Suburbs
+
+TV News, Netflix, Shane Black, AMC+, John Wick
+
+Thu, 20 Aug 2026 19:41:49 GMT
+
+https://collider.com/netflix-gritty-spy-thriller-bannerman-shane-black/
+
+Netflix and AMC announce Bannerman, a new gritty spy thriller from Shane Black based on John R. Maxim’s five-book espionage series.
+---------
+
+# Netflix’s 3-Part Horror Series Is the Stephen King-Like Show You Probably Missed
+
+TV Features, Locke & Key, Netflix, Series, Stephen King
+
+Thu, 20 Aug 2026 19:39:11 GMT
+
+https://collider.com/locke-key-netflix-stephen-king-horror-series/
+
+Netflix’s Locke & Key blends Stephen King-like horror, dark fantasy and family drama across three complete seasons.
+---------
+
+# 10 Greatest American Movies of the '90s
+
+Movie, The Shawshank Redemption, Pulp Fiction, The Silence of the Lambs, The Lion King
+
+Thu, 20 Aug 2026 19:33:11 GMT
+
+https://collider.com/best-american-movies-90s-ranked/
+
+From blockbuster classics like Jurassic Park to animated gems like Toy Story, these masterpieces define America's cinematic excellence in the '90s.
+---------
+
+# Zoe Saldaña’s Spy Thriller Is Officially the Number 1 Show in the World
+
+TV News, Lioness, Taylor Sheridan, Paramount Plus, Zoe Saldana
+
+Thu, 20 Aug 2026 19:30:11 GMT
+
+https://collider.com/taylor-sheridan-spy-thriller-lioness-streaming-success-paramount-plus-august-2026/
+
+Taylor Sheridan's spy thriller with shades of Reacher and Homeland is officially the #1 show in the world on Paramount+.
+---------
+
+# Liam Neeson's 106-Minute Neo-Western Officially Sets The Groundwork For His Next Era
+
+Features, Liam Neeson, In the Land of Saints and Sinners, Netflix, Action, Thriller
+
+Thu, 20 Aug 2026 19:50:13 GMT
+
+https://movieweb.com/in-the-land-of-saints-sinners-liam-neeson-netflix-hit/
+
+Liam Neeson has starred in many action thriller movies throughout his impressive Hollywood career, including this film that is a global Netflix hit.
+---------
+
 # Steven Spielberg Meets Isaac Asimov In Prime Video's Near-Perfect 8-Part Sci-Fi Series
 
 TV, Masked Recs
