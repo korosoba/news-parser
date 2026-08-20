@@ -1,3 +1,135 @@
+# Elise’s Formula-Changing New Insidious 6 Role Teased By Lin Shaye Ahead Of Out Of The Further
+
+Movies, Insidious: Out of the Further, Insidious, Horror, Lin Shaye
+
+Thu, 20 Aug 2026 20:44:28 GMT
+
+https://screenrant.com/insidious-out-of-the-further-elise-formula-change-role-explained/
+
+Exclusive: Lin Shaye teases Elise's new role in Insidious: Out of the Further and how it changes the franchise's formula for the beloved character.
+---------
+
+# Mutiny Q&A with Annabelle Wallis
+
+Videos, Mutiny, Annabelle Wallis
+
+Thu, 20 Aug 2026 20:42:49 GMT
+
+https://screenrant.com/video/mutiny-annabelle-wallis-screening-interview/
+
+As part of ScreenRant's Screening Series, Liam Crowley speaks to Annabelle Wallis after an early showing of Jason Statham's action-adventure, Mutiny.
+---------
+
+# Lanterns Officially Breaks DC & HBO Max Record With Debut Viewership
+
+TV, Lanterns
+
+Thu, 20 Aug 2026 20:38:11 GMT
+
+https://screenrant.com/lanterns-sets-hbo-max-record-93-million-debut/
+
+DC Studios' new comic book adaptation, Lanterns, has broken a major HBO Max viewership record in just a matter of days since its release.
+---------
+
+# GTA 6 Leaks May Have Just Lost Take-Two $2 Billion
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, PC, Take-Two Interactive
+
+Thu, 20 Aug 2026 20:30:20 GMT
+
+https://screenrant.com/gta-6-leaks-take-two-lose-two-billion-dollars/
+
+Grand Theft Auto 6 leakers are not messing around, and it may have just cost parent company Take-Two over $2 billion in profits.
+---------
+
+# Netflix's One Piece Season 3 Is Sadly Replacing A Fan Favorite Character From Seasons 1 & 2
+
+Streaming TV, One Piece
+
+Thu, 20 Aug 2026 20:30:14 GMT
+
+https://screenrant.com/one-piece-season-3-buggy-role/
+
+Netflix's live-action One Piece adaptation is famous for its excellent casting, but don't expect to see much of one fan favorite in season 3.
+---------
+
+# How Old Larry David Is In Every Curb Your Enthusiasm Season
+
+Classic TV, Curb Your Enthusiasm
+
+Thu, 20 Aug 2026 20:30:14 GMT
+
+https://screenrant.com/curb-your-enthusiasm-seasons-larry-david-ages/
+
+Larry David didn't seem to age a day throughout Curb Your Enthusiasm's run, but the show aired for 25 years. How old was David in each season?
+---------
+
+# Jujutsu Kaisen's New 8-Player PS5 & Switch 2 Game Is About to Become Playable
+
+Anime, Jujutsu Kaisen, PlayStation 5, Nintendo Switch
+
+Thu, 20 Aug 2026 20:35:11 GMT
+
+https://www.cbr.com/jujutsu-kaisen-rumble-survivation-tokyo-game-show-2026/
+
+The fight against Cursed Spirits is about to start again, as JJK fans will soon be able to play the new survivors royale game Rumble: Survivation.
+---------
+
+# 5 Greatest Cozy Mystery Books of All Time, Ranked
+
+Movies, Mystery
+
+Thu, 20 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/best-cozy-mystery-books-of-all-time-list/
+
+The cozy mystery remains popular for good reason, mixing murder investigations with entertaining stories that are just as much fun as they are clever.
+---------
+
+# Netflix Reveals First Look at Stranger Things’ 2026 Return
+
+TV, Stranger Things: Tales from '85, Netflix, Animation
+
+Thu, 20 Aug 2026 20:22:56 GMT
+
+https://www.cbr.com/stranger-things-tales-from-85-season-2-first-look/
+
+Netflix fans can return to Hawkins with more Stranger Things later this year.
+---------
+
+# ‘Baldur’s Gate 3’ Is Officially Revealing Astarion’s Untold Story at NYCC
+
+Gaming News, Baldur's Gate 3, Larian Studios, Neil Newbon, New York Comic Con
+
+Thu, 20 Aug 2026 20:47:56 GMT
+
+https://collider.com/baldurs-gate-3-nycc-panel-details-2026-astarion-backstory/
+
+Baldur’s Gate 3’s NYCC panel will explore Astarion’s untold pre-game history with the vampire spawn’s dark official prequel story.
+---------
+
+# Netflix Officially Revives 11-Year-Old Zombie Thriller
+
+Movie News, Extinction, Matthew Fox, The Last of Us, Netflix
+
+Thu, 20 Aug 2026 20:30:11 GMT
+
+https://collider.com/extinction-matthew-fox-last-of-us-replacement-netflix-sleeper-hit-viewership/
+
+A sci-fi thriller starring a Lost alum has been discovered by audiences on Netflix, more than a decade after its theatrical release. Find out more.
+---------
+
+# 'The Pitt' Season 3 Expands Cast With 'The Last of Us' Actor & More
+
+TV News, The Pitt
+
+Thu, 20 Aug 2026 20:49:32 GMT
+
+https://movieweb.com/the-pitt-season-3-casting-changes/
+
+The third season of the critically acclaimed HBO series is adding seven new members to its recurring cast.
+---------
+
 # Apple TV's 10/10 Sci-Fi Series Deserves The Credit For Turning A Boring Read Into A Masterpiece
 
 TV, Masked Recs
