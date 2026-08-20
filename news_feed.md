@@ -1,3 +1,14 @@
+# Game Of Thrones: Respite & Retribution Release On August 23
+
+Gaming, Game of Thrones, Game of Thrones: Conquest, Game Of Thrones, PC, Game Of Thrones: Dragonfire
+
+Thu, 20 Aug 2026 06:00:14 GMT
+
+https://screenrant.com/game-of-thrones-conquest-respite-retribution-wftt-august-23/
+
+Game of Thrones returns with Respite and Retribution as part of the upcoming War for the Throne weekend event scheduled this week.
+---------
+
 # Blade Runner Officially Returns In 2027 With A Brand-New Era
 
 Gaming, Blade Runner, Blade Runner 2049, Blade Runner 2099, PC
