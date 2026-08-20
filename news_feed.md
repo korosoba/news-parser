@@ -1,3 +1,289 @@
+# The Pitt Season 3 Cast Adds The Last Of Us Star & 6 Others
+
+TV, The Pitt
+
+Thu, 20 Aug 2026 17:18:55 GMT
+
+https://screenrant.com/the-pitt-season-3-cast-details-sexton-chang-clifton-diamantopoulos-tadena-kao-ware/
+
+The Pitt season 3 is rapidly growing its cast as it adds a notable Last of Us franchise alum and six other new stars to its November-set roster.
+---------
+
+# The Biggest Challenges Of Jason Statham's New Action Movie Mutiny Explained By Annabelle Wallis
+
+Exclusive, Mutiny, Annabelle Wallis
+
+Thu, 20 Aug 2026 17:17:20 GMT
+
+https://screenrant.com/mutiny-movie-jason-statham-challenge-annabelle-wallis/
+
+As part of ScreenRant's Screening Series, Liam Crowley speaks to Annabelle Wallis after an early showing of Jason Statham's action-adventure, Mutiny.
+---------
+
+# Warner Bros. New Fantasy Adventure With Sherlock Star Officially Sets 2027 Release Date
+
+Movies, Margie Claus, Warner Bros.
+
+Thu, 20 Aug 2026 17:10:41 GMT
+
+https://screenrant.com/warner-bros-margie-clause-cast-release-date/
+
+Warner Bros. has set a release date for a new fantasy adventure movie, featuring a star-studded cast, including Sherlock and MCU alums.
+---------
+
+# Prime Video Decides Sterling Point's Season 2 Fate For Breakout Summer Hit
+
+TV, Sterling Point
+
+Thu, 20 Aug 2026 17:00:15 GMT
+
+https://screenrant.com/sterling-point-season-2-renewal-confirmed-prime-video/
+
+Prime Video has officially announced whether Sterling Point season 2 is going to happen after the drama series became a global streaming hit.
+---------
+
+# 5 Free Steam Games With Brandon Sanderson-Style Fantasy Worldbuilding
+
+Gaming, Brandon Sanderson, Mistborn, The Cosmere, Steam, PC
+
+Thu, 20 Aug 2026 17:00:15 GMT
+
+https://screenrant.com/free-steam-games-with-brandon-sanderson-worldbuilding/
+
+Brandon Sanderson fans may not have an official Stormlight or Mistborn video game yet, but these free Steam titles are the next best thing.
+---------
+
+# The Walking Dead's Steven Yeun Returns To Supernatural Thrillers For New Netflix Series
+
+TV, Steven Yeun, Netflix
+
+Thu, 20 Aug 2026 16:50:08 GMT
+
+https://screenrant.com/netflix-pagans-steven-yeun-casting-plot-details/
+
+After breaking out with his role in The Walking Dead, Oscar nominee Steven Yeun is returning to thrillers for a buzzy Netflix supernatural drama.
+---------
+
+# Sam Elliott’s 138-Minute Vietnam War Epic Praised For Its Realism Enjoys Major Global Streaming Resurgence
+
+Movies, Masked Recs, Sam Elliott
+
+Thu, 20 Aug 2026 16:46:10 GMT
+
+https://screenrant.com/sam-elliott-we-were-soldiers-realism-praise-lionsgate-global-streaming-success-august-2026/
+
+An epic Vietnam war film praised for its realistic depiction of combat and boasting a cast that includes Sam Elliott blows up on streaming.
+---------
+
+# Why Insidious: Out Of The Further Has The Highest Rotten Tomatoes Score In The Franchise
+
+Movies, Horror, Insidious, Insidious: Out of the Further
+
+Thu, 20 Aug 2026 16:45:15 GMT
+
+https://screenrant.com/insidious-out-further-rotten-tomatoes-score-reviews-explained/
+
+Insidious: Out of the Further has garnered the highest Rotten Tomatoes score in the whole Insidious franchise, outperforming even the iconic original.
+---------
+
+# Star Wars Finally Brings Boba Fett Back To Screens After 4 Years Away
+
+Streaming TV, LEGO Star Wars: The Mandalorian, Star Wars, Boba Fett
+
+Thu, 20 Aug 2026 16:45:15 GMT
+
+https://screenrant.com/boba-fett-star-wars-return-mandalorian-lego-special/
+
+Four years after The Book of Boba Fett finale, the fan-favorite character is set to return in an all-new special episode releasing on Disney+.
+---------
+
+# Scarlett Johansson’s 181-Minute Epic Officially Hits Massive Streaming Milestone
+
+Movies, Streaming Charts, Masked Recs, Scarlett Johansson
+
+Thu, 20 Aug 2026 16:42:34 GMT
+
+https://screenrant.com/scarlett-johansson-avengers-endgame-disney-plus-streaming-milestone-august-2026/
+
+A massive blockbuster epic starring Scarlett Johansson hits a very rare streaming chart milestone thanks to consistently strong viewership.
+---------
+
+# Sarah Paulson Is Unrecognizable as Serial Killer Aileen Wuornos in Returning Netflix Show
+
+TV, Monster: The Lizzie Borden Story, Netflix
+
+Thu, 20 Aug 2026 17:20:24 GMT
+
+https://www.cbr.com/netflix-monster-the-lizzie-borden-story-trailer-sarah-paulson/
+
+American Horror Story's Sarah Paulson transforms into the real-life serial killer Charlize Theron previously won an Oscar for portraying.
+---------
+
+# Avatar: The Last Airbender Officially Revives Its Forgotten 10-Episode Series
+
+Anime, Avatar: The Last Airbender
+
+Thu, 20 Aug 2026 17:20:11 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-chibi-minis-series-revive/
+
+The one Avatar: The Last Airbender series that fans were almost sure they would never see the end of is officially back with brand-new episodes.
+---------
+
+# Ocarina of Time Remake Only Becomes 10/10 After Copying a 2D Zelda
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Thu, 20 Aug 2026 17:15:11 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-oracle-ages-of-ages-time-travel/
+
+Ocarina of Time is still the highest-rated game of all time, but its near-perfect 9/10 rating becomes an easy 10/10 if it just copies Oracle of Ages.
+---------
+
+# 10 Best Green Lantern Stories from the Modern Era, Ranked
+
+Comics, DC Comics, Green Lantern
+
+Thu, 20 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/best-green-lantern-stories-of-the-modern-era-ranked/
+
+No matter the era, Green Lantern's always had some incredible stories.
+---------
+
+# Sons of Anarchy Creator Breaks Silence on Charlie Hunnam’s Reunion Series
+
+TV, Sons of Anarchy, FX, Hulu, Innovation
+
+Thu, 20 Aug 2026 16:55:58 GMT
+
+https://www.cbr.com/son-of-anarchy-reunion-legends-kurt-sutter-reacts/
+
+Kurt Sutter has spoken out about Sons of Anarchy's upcoming reunion show after stepping away from the franchise.
+---------
+
+# Stephen King Gives Seal of Approval to 99-Minute Sci-Fi Dinosaur Movie
+
+Movies, Stephen King, The End of Oak Street
+
+Thu, 20 Aug 2026 16:39:03 GMT
+
+https://www.cbr.com/stephen-king-endorses-the-end-of-oak-street/
+
+Stephen King shares his thoughts on the new sci-fi dinosaur movie produced by J.J. Abrams.
+---------
+
+# DC Rumor Teases Massive Absolute Universe Crossover Event
+
+Comics, Absolute Universe, DC Comics
+
+Thu, 20 Aug 2026 16:38:09 GMT
+
+https://www.cbr.com/dc-absolute-universe-crossover-rumor/
+
+The moment DC's Absolute Universe fans have been waiting for feels closer than ever.
+---------
+
+# Star Wars Finally Delivers The Luke Skywalker Confrontation Fans Waited 43 Years to See
+
+Comics, Star Wars
+
+Thu, 20 Aug 2026 16:30:37 GMT
+
+https://www.cbr.com/star-wars-galaxys-edge-echoes-of-the-empire-luke-leia-palpatine/
+
+Star Wars has officially given fans the long-overdue rematch between Luke Skykwalker and Emperor Palpatine, and it is nothing they expected.
+---------
+
+# Everything Officially Coming to Apple TV+ in Fall 2026
+
+TV, Apple TV, Slow Horses, Mayday, Brothers
+
+Thu, 20 Aug 2026 17:18:11 GMT
+
+https://collider.com/apple-tv-fall-2026-release-calendar/
+
+From Matchbox: The Movie to a new season of Slow Horses, Apple TV is coming in hot this fall. Here's everything coming to the streamer.
+---------
+
+# 6 Most Intense Movies Released Since 2000
+
+Movie, Memento, Mad Max, Whiplash, Uncut Gems
+
+Thu, 20 Aug 2026 17:08:11 GMT
+
+https://collider.com/most-intense-movies-since-2000-ranked/
+
+Heart-pounding thrillers like Memento, Uncut Gems, and Oldboy are among the most intense movies released since the year 2000.
+---------
+
+# Prime Video Officially Decides the Fate of ‘Sterling Point’ After 1 Season
+
+TV News, Sterling Point, Prime Video, YA, Megan Park
+
+Thu, 20 Aug 2026 17:00:11 GMT
+
+https://collider.com/prime-video-sterling-point-season-2-renewed/
+
+Prime Video has decided the fate of Sterling Point, confirming that the show has been renewed and will return for Season 2.
+---------
+
+# Paramount+'s 'Star Trek: Lower Decks' Replacement Goes Full Fantasy in First Trailer
+
+TV News, Matthew Rhys, Danny Pudi, Paramount Plus, Animation
+
+Thu, 20 Aug 2026 16:34:43 GMT
+
+https://collider.com/paramount-star-trek-lower-decks-replacement-golden-axe-trailer-release-date/
+
+The classic video game Golden Axe comes to Paramount+ as a hilarious new series. Watch the trailer now.
+---------
+
+# Amazon Officially Confirms Fate of 90%-Rated Mystery Series Streaming Hit
+
+TV News, Sterling Point, Prime Video, Jeffrey Dean Morgan
+
+Thu, 20 Aug 2026 17:18:37 GMT
+
+https://movieweb.com/sterling-point-season-2-renewed-prime-video/
+
+'Sterling Point' has officially been renewed for a Season 2 on Prime Video.
+---------
+
+# Ridley Scott's Fantasy Adventure Epic Adds Netflix Star Alongside Hugh Jackman
+
+Movie News, Ridley Scott, Hugh Jackman
+
+Thu, 20 Aug 2026 17:18:00 GMT
+
+https://movieweb.com/treasure-island-ridley-scott-cast-owen-cooper/
+
+Ridley Scott and Hugh Jackman are teaming up for an epic new movie, which Scott hopes will include one of the biggest rising stars from Netflix.
+---------
+
+# 'The Shawshank Redemption' Has the Greatest Quote in Stephen King History
+
+Features, Stephen King, The Shawshank Redemption, Great Line
+
+Thu, 20 Aug 2026 17:00:14 GMT
+
+https://movieweb.com/the-shawshank-redemption-quote-stephen-king/
+
+Despite his career in horror, a dramatic quote from 'The Shawshank Redemption' strikes at the heart of Stephen King's greatness.
+---------
+
+# 'Wonder Man' Star Officially Reveals Why Marvel Canceled MCU Series
+
+TV News, Wonder Man
+
+Thu, 20 Aug 2026 16:47:40 GMT
+
+https://movieweb.com/wonder-man-cancellation-revealed-yahya-abdull-mateen/
+
+Yayha Abdull-Mateen reveals 'Wonder Man' was cancelled due to ratings, but points out no numbers have ever been made official.
+---------
+
 # The Odyssey Breaks All-Time Box Office Record As Month 2 Begins
 
 Movies, Box Office, The Odyssey
