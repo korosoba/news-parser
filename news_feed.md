@@ -1,3 +1,212 @@
+# 5 Reasons Why Jason Statham's Mutiny Movie Reviews Are So Negative
+
+Movies, Mutiny
+
+Thu, 20 Aug 2026 21:20:14 GMT
+
+https://screenrant.com/jason-statham-mutiny-movie-reviews-negative-reason/
+
+Jason Statham's latest action effort is getting the cold shoulder from critics, but why are the reviews for Mutiny so negative?
+---------
+
+# Avengers: Doomsday Makes The MCU's Doctor Doom & Franklin Richards Twist Worse
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Thu, 20 Aug 2026 21:01:14 GMT
+
+https://screenrant.com/avengers-doomsday-doctor-doom-fantastic-four-franklin-richards-worse/
+
+Avengers: Doomsday's reveal about RDJ's Doctor Doom and the Fantastic Four makes The First Steps' Franklin Richards' credits scene even darker.
+---------
+
+# Strange New Worlds' Jaw-Dropping Retcon Of Spock’s Star Trek II Death Explained
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Thu, 20 Aug 2026 21:00:14 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-spock-death-retcon/
+
+Star Trek: Strange New Worlds' puppet episode has a shocking nod to Spock's death in Star Trek II: The Wrath of Khan, and then flips the switch on it.
+---------
+
+# Rebecca Ferguson & Andrew Garfield's Fantasy Epic Based On 87-Year-Old Classic Series Releases This Week
+
+Movies, Masked Recs
+
+Thu, 20 Aug 2026 20:57:27 GMT
+
+https://screenrant.com/the-magic-faraway-tree-movie-release-theaters-august-2026/
+
+Andrew Garfield, Rebecca Ferguson, and a great cast return with one of the biggest fantasy movies of the year, adapting an 87-year-old classic.
+---------
+
+# Netflix Officially Teaming With Lethal Weapon Creator To Adapt 5-Book Spy Series
+
+TV, Netflix
+
+Thu, 20 Aug 2026 20:54:53 GMT
+
+https://screenrant.com/bannerman-tv-adaptation-development-netflix-shane-black-details/
+
+It’s been almost 40 years since Shane Black created the Lethal Weapon franchise, and the filmmaker now has a new Netflix project in the works.
+---------
+
+# Tramell Tillman’s Answer About His Spider-Man Villain’s Fate Raises Even More Questions
+
+CBR Exclusives, Spider-Man: Brand New Day
+
+Thu, 20 Aug 2026 21:17:05 GMT
+
+https://www.cbr.com/tramell-tillman-spider-man-brand-new-day-questions/
+
+Why not answer a question with another question?
+---------
+
+# Yahya Abdul-Mateen II Calls Out Marvel Over Wonder Man, Blade: “The Optics Are Obvious”
+
+TV, Wonder Man, Disney+, Marvel
+
+Thu, 20 Aug 2026 21:16:26 GMT
+
+https://www.cbr.com/wonder-man-yahya-abdul-mateen-ii-marvel-optics/
+
+Canceling Wonder Man is bad optics, says Abdul-Mateen.
+---------
+
+# 24 Years Later, The Best PS2 Game Is Officially Topping the Steam Charts
+
+Games, PlayStation 2, Steam, Kingdom Hearts
+
+Thu, 20 Aug 2026 21:15:11 GMT
+
+https://www.cbr.com/kingdom-hearts-greatest-ps2-game-officially-topping-steam-charts/
+
+The Kingdom Hearts series is returning in 2027, but its best entry is already making waves, as it has topped the Steam charts over 24 years later.
+---------
+
+# The Odyssey Officially Breaks Deadpool & Wolverine's R-Rated Record
+
+Movies, The Odyssey, Deadpool & Wolverine, Fantasy
+
+Thu, 20 Aug 2026 21:01:03 GMT
+
+https://www.cbr.com/the-odyssey-box-office-r-rated-record-deadpool-wolverine/
+
+The Odyssey has officially surpassed Deadpool & Wolverine.
+---------
+
+# Karl Urban's Very R-Rated Fantasy Sequel Is 1 of the Biggest Streaming Movies In the World
+
+Movies, Mortal Kombat II, HBO Max, Mortal Kombat
+
+Thu, 20 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/karl-urban-mortal-kombat-sequel-fantasy-hbo-success-august-2026/
+
+Karl Urban's anticipated high fantasy sequel, Mortal Kombat II, is one of the most-watched movies in the world.
+---------
+
+# 5 Jedi More Powerful Than Rey, Ranked
+
+Movies, Star Wars, Sci-Fi
+
+Thu, 20 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/jedi-stronger-rey-skywalker-list/
+
+Rey may be "all the Jedi," but these Jedi Masters are still far more powerful than she is.
+---------
+
+# 10 Sci-Fi Video Games With the Best Worldbuilding
+
+Gaming, Video Game, Horizon Zero Dawn, Science Fiction, Mass Effect
+
+Thu, 20 Aug 2026 21:19:11 GMT
+
+https://collider.com/sci-fi-video-games-best-worldbuilding/
+
+Great sci-fi video games like Mass Effect, BioShock, and Horizon Zero Dawn feature the best, most intricate and engaging worldbuilding in the medium.
+---------
+
+# 8 Most Fun Movies of All Time
+
+Movie, Shrek 2, Mamma Mia!, Pirates of the Caribbean: The Curse of the Black Pearl, Clue
+
+Thu, 20 Aug 2026 21:09:11 GMT
+
+https://collider.com/most-fun-movies-all-time-ranked/
+
+Fan-favorite, highly entertaining and rewatchable classics like Clue, Shrek 2, and Some Like It Hot are among the most fun movies ever made.
+---------
+
+# Cameron Diaz Officially Returns to Netflix With New Action Movie This December
+
+Movie News, Bad Day, Cameron Diaz, Netflix, Danielle Brooks
+
+Thu, 20 Aug 2026 21:05:58 GMT
+
+https://collider.com/cameron-diaz-bad-day-netflix-first-look-release-date/
+
+Cameron Diaz returns to Netflix in the first look at Bad Day, a new action movie from Jury Duty director Jake Szymanski.
+---------
+
+# 'The Odyssey' Officially Poised to Slay the Most Expensive 'Jurassic World' Movie at the Box Office
+
+Movie News, Christopher Nolan, The Odyssey, Jurassic World Fallen Kingdom, Box Office
+
+Thu, 20 Aug 2026 21:00:11 GMT
+
+https://collider.com/the-odyssey-box-office-1-3-billion-christopher-nolan-jurassic-world-fallen-kingdom/
+
+Christopher Nolan's The Odyssey has passed another massive box-office milestone and will next slay the most expensive Jurassic World movie.
+---------
+
+# 10 Most Entertaining Horror Movies of All Time
+
+Movie, American Psycho, Jaws, An American Werewolf In London, Evil Dead II
+
+Thu, 20 Aug 2026 20:57:11 GMT
+
+https://collider.com/most-entertaining-horror-movies-all-time-ranked/
+
+Horror movies like An American Werewolf in London, Dawn of the Dead, and Godzilla Minus One all rank among the most entertaining ever made.
+---------
+
+# Chris Hemsworth's Netflix Action Thriller Pits Idris Elba Against 007 in First Images
+
+Movie News, Extraction, Extraction 3, Action, Thriller, James Bond, james bond, Pierce Brosnan
+
+Thu, 20 Aug 2026 21:18:28 GMT
+
+https://movieweb.com/extraction-3-first-look-james-bond/
+
+Days after announcing their involvement in Netflix's action movie sequel, the James Bond star appears to already be filming.
+---------
+
+# Alan Ritchson's Powerhouse Action Thriller Returns to Officially Become a Global Streaming Smash
+
+TV News, Alan Ritchson, Reacher, Hot on Streaming, Action, Prime Video
+
+Thu, 20 Aug 2026 21:00:13 GMT
+
+https://movieweb.com/alan-ritchson-reacher-season-4-action-prime-video-hit-august-2026/
+
+Ritchson's hulking hero has returned to dominate Prime Video ahead of a new spin-off debuting next month.
+---------
+
+# 'Lanterns' Record-Breaking Streaming Numbers Just Secured the Fate of the DCU
+
+TV News, Lanterns, HBO Max, DCU
+
+Thu, 20 Aug 2026 20:57:49 GMT
+
+https://movieweb.com/lanterns-premiere-streaming-record-hbo-max/
+
+The DCU's newest project, 'Lanterns,' had a record-breaking debut as it added the first Green Lantern-centric story to James Gunn's new saga.
+---------
+
 # Elise’s Formula-Changing New Insidious 6 Role Teased By Lin Shaye Ahead Of Out Of The Further
 
 Movies, Insidious: Out of the Further, Insidious, Horror, Lin Shaye
