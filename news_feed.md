@@ -1,3 +1,256 @@
+# “Say Kirk Stuff”: Sam Witwer Details Replacing William Shatner In Beloved Star Trek Short Film
+
+TV, Star Trek
+
+Fri, 21 Aug 2026 02:17:06 GMT
+
+https://screenrant.com/star-trek-sam-witwer-replace-william-shatner-kirk-short-film/
+
+Sam Witwer talks all about playing Captain Kirk in the popular Star Trek short film 765874 - Unification on Dropping Names with Brent and Jonny.
+---------
+
+# 3 Must-Watch Dinosaur Movies That Aren't Jurassic Park
+
+Movies, Jurassic Park
+
+Fri, 21 Aug 2026 02:00:24 GMT
+
+https://screenrant.com/must-watch-dinosaur-movies-not-jurassic-park/
+
+Jurassic Park is the most famous dinosaur-centric movie ie in film history, but there are plenty of other similar titles that deserve recognition.
+---------
+
+# The Lord Of The Rings Meets A Song Of Ice And Fire In The Biggest Fantasy Event Of The Decade
+
+Movies, Masked Recs
+
+Fri, 21 Aug 2026 01:45:14 GMT
+
+https://screenrant.com/elden-ring-movie-lord-of-the-rings-meets-grrm-fantasy/
+
+It doesn't get bigger than J.R.R. Tolkien and George R.R. Martin, but 2028 is preparing to bring these legendary creators to the screen in new ways.
+---------
+
+# After 4 Years, Star Wars' Obi-Wan Kenobi Replacement Is Finally Here
+
+Star Wars
+
+Fri, 21 Aug 2026 01:30:14 GMT
+
+https://screenrant.com/star-wars-ryan-gosling-obi-wan-kenobi-starfighter/
+
+Obi-Wan Kenobi has been sadly absent from Star Wars for a while, but one upcoming project has already solidified his replacement in a key way.
+---------
+
+# Marvel Studios Begins Avengers: Doomsday Countdown With Weekly Special Starting This Month
+
+Movies, Marvel Cinematic Universe, Avengers: Doomsday
+
+Fri, 21 Aug 2026 01:20:35 GMT
+
+https://screenrant.com/avengers-doomsday-podcast-iman-vellani-mcu/
+
+Ahead of Avengers: Doomsday's release in December, Marvel Studios is kicking off a weekly series to help promote the upcoming superhero movie.
+---------
+
+# Spa Weekend Review: A Mid-Tier R-Rated Comedy That's Good For A Few Laughs
+
+New Movies, Spa Weekend
+
+Fri, 21 Aug 2026 01:00:14 GMT
+
+https://screenrant.com/spa-weekend-movie-review/
+
+Spa Weekend, the new R-rated comedy from the filmmakers behind The Hangover and Bad Moms, is decently entertaining, but mostly unmemorable.
+---------
+
+# New 9/10 Free Steam Game Is A Scarier Five Nights At Freddy's
+
+Gaming, Steam, PC, Five Nights at Freddy's, Indie Games
+
+Fri, 21 Aug 2026 01:00:14 GMT
+
+https://screenrant.com/steam-free-9-out-of-10-fnaf-vibes/
+
+A creepy new horror game that’s inspired by Five Nights at Freddy’s has recently been released for free on Steam, and you may want to check it out.
+---------
+
+# Why Reacher Doesn't Drink The Scotch In Season 4, Episode 4
+
+Streaming TV, Reacher
+
+Fri, 21 Aug 2026 01:00:14 GMT
+
+https://screenrant.com/why-reacher-not-drink-scotch/
+
+Reacher is usually in full control at all times, and a small but key scene in season 4's fourth episode perfectly illustrates this in one moment.
+---------
+
+# Keanu Reeves' Jaws Meets Groundhog Day Sci-Fi Movie Is More Exciting Than John Wick 5
+
+Movies, Masked Recs
+
+Fri, 21 Aug 2026 01:00:14 GMT
+
+https://screenrant.com/keanu-reeves-shiver-movie-john-wick-5/
+
+Reeves’ next big science fiction film will be an Edge of Tomorrow-inspired action movie featuring some of Hollywood’s favourite creatures.
+---------
+
+# Marvel Confirms Iconic Avengers Hero Is Rogue's Sister
+
+Marvel Comics, The Avengers
+
+Fri, 21 Aug 2026 01:00:14 GMT
+
+https://screenrant.com/x-men-rogue-sister-captain-marvel-avengers/
+
+Marvel reveals the identity of Rogue's third sibling, who happens to be an A-list Avenger with a unique connection to Anna Marie LeBeau.
+---------
+
+# It's Official, Kingdom Hearts Is Over As We Know It
+
+Games, Kingdom Hearts
+
+Fri, 21 Aug 2026 02:15:11 GMT
+
+https://www.cbr.com/kingdom-hearts-is-over-as-we-know-it/
+
+Kingdom Hearts is about to enter a new era as Disney decides to rebuild the franchise for a new generation.
+---------
+
+# Spider-Man: Brand New Day Director’s Live-Action Naruto Casts Major Character
+
+Movies, Naruto
+
+Fri, 21 Aug 2026 02:06:30 GMT
+
+https://www.cbr.com/charles-melton-naruto-live-action-kakashi-destin-daniel-cretton/
+
+One actor who fans heavily speculated would be in the MCU's new X-Men may have landed another major role instead...
+---------
+
+# 7 Spider-Man Characters We Desperately Want to See in Spider-Man 5
+
+Movies, Spider-Man: Brand New Day, MCU
+
+Fri, 21 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/spider-man-5-new-comic-characters-villains-love-interests-list-ranked/
+
+Spider-Man 4 unleashes a "Brand New Day" for Tom Holland's Peter Parker. These iconic comic characters need to join him in Spider-Man 5.
+---------
+
+# 10 Anime to Watch If You Love Death Note
+
+Anime, Death Note
+
+Fri, 21 Aug 2026 01:45:11 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-love-death-note/
+
+Death Note fans need to check out these anime series with the same suspense, mystery, and complex characters.
+---------
+
+# 10 Long '80s Games That Take Forever to Complete
+
+Games, Video Games, SimCity
+
+Fri, 21 Aug 2026 01:30:11 GMT
+
+https://www.cbr.com/long-1980s-games-take-forever/
+
+Games like SimCity and Phantasy Star are much longer than one might expect from an era just getting started in gaming.
+---------
+
+# Assassin's Creed's Ezio Auditore Officially Returns August 20
+
+Games, Assassin's Creed
+
+Fri, 21 Aug 2026 01:25:11 GMT
+
+https://www.cbr.com/assassins-creed-ezio-auditore-return-official-august-20/
+
+Assassin's Creed fans can now step back into the role of one of their favorite characters thanks to an unexpected video game crossover.
+---------
+
+# 5 Netflix Anime With Zero Filler and No Bad Arcs
+
+Anime, Netflix
+
+Fri, 21 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/best-netflix-anime-zero-filler/
+
+These five anime series prove that Netflix boasts an equally impressive catalogue of series to Crunchyroll.
+---------
+
+# The 3-Part Sci-Fi Miniseries Based on a Ray Bradbury Classic
+
+TV, the martian chronicles, ray bradbury, NBC
+
+Fri, 21 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/martian-chronicles-sci-fi-miniseries-ray-bradbury-classic/
+
+Celebrated as one of the greatest sci-fi writers, Ray Bradbury has crafted many wonderful stories, including some that have been adapted for TV.
+---------
+
+# Apple TV's Best Spy Thriller Is Resurrecting a Fan-Favorite Character in Its Most Explosive Season Yet
+
+TV Features, Slow Horses, Apple TV, Gary Oldman, Jack Lowden
+
+Fri, 21 Aug 2026 01:36:11 GMT
+
+https://collider.com/slow-horses-season-6-apple-tv-sid-olivia-cooke-return/
+
+The return of a fan-favorite character in Slow Horses Season 6 teases even more suspense for the Apple TV spy thriller's return.
+---------
+
+# Forget ‘Reacher’: 6 Alan Ritchson Movies & TV Shows To Watch This Weekend
+
+Movie, Reacher, Alan Ritchson, Blue Mountain State, Blood Drive
+
+Fri, 21 Aug 2026 01:24:11 GMT
+
+https://collider.com/alan-ritchson-reacher-alternatives/
+
+From Teenage Mutant Ninja Turtles to Blood Drive, Alan Ritchson’s best roles prove he’s far more than just Reacher.
+---------
+
+# 8 Greatest Taylor Sheridan Thrillers To Watch This Weekend
+
+TV Lists, Taylor Sheridan, Sicario, Lioness, Thriller
+
+Fri, 21 Aug 2026 02:00:23 GMT
+
+https://movieweb.com/taylor-sheridan-thrillers-binge-watch/
+
+Taylor Sheridan has written some of the most popular thriller TV shows and movies over the past few decades, and these are the best picks.
+---------
+
+# 'The Big Bang Theory' Officially Confirms Its First LGBTQ+ Character After 19 Years
+
+Features, Stuart Fails to Save the Universe, The Big Bang Theory, John Ross Bowie, Comedy
+
+Fri, 21 Aug 2026 01:30:13 GMT
+
+https://movieweb.com/tbbt-kripke-confirms-first-lgbtq-character/
+
+Since 'TBBT' began almost 19 years ago, the franchise has been criticized for a lack of LGBTQ+ representation, but the new Stuart spin-off fixes this.
+---------
+
+# Steven Yeun Finds His 'Walking Dead' Supernatural Thriller Replacement Series
+
+TV News, Steven Yeun, The Walking Dead, Netflix
+
+Fri, 21 Aug 2026 01:11:28 GMT
+
+https://movieweb.com/pagans-steven-yeun-netflix/
+
+'The Walking Dead' star Steven Yeun will take on an exciting new supernatural thriller show in association with Netflix.
+---------
+
 # After Exciting Lethal Weapon 5 Update, The Original Action Classic Is Streaming For Free
 
 Classic Movies, Lethal Weapon
