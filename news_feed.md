@@ -1,3 +1,256 @@
+# Netflix & Millie Bobby Brown's New Movie That Strays From Sci-Fi Genre Lands Official Release Window
+
+Movies, Millie Bobby Brown, Netflix, Just Picture It
+
+Fri, 21 Aug 2026 17:32:30 GMT
+
+https://screenrant.com/netflix-just-picture-it-movie-release-window-millie-bobby-brown/
+
+Stranger Things star Millie Bobby Brown is sticking with Netflix for her next project, a YA rom-com that has just been given a release window.
+---------
+
+# HBO's Lanterns Is Great, But DC's 2-Part Green Lantern Corps Series Is A Masterpiece
+
+Streaming TV, Masked Recs, Lanterns
+
+Fri, 21 Aug 2026 17:30:15 GMT
+
+https://screenrant.com/green-lantern-animated-series-dc-masterpiece/
+
+Lanterns is one of the best new shows of the year, but Green Lantern: The Animated Series is still the best adaptation of the character.
+---------
+
+# Superman Becomes DC’s Next Black Lantern, Changing His Legacy Forever
+
+DC Comics, Superman
+
+Fri, 21 Aug 2026 17:22:08 GMT
+
+https://screenrant.com/superman-new-black-lantern/
+
+DC has just dropped a bombshell of epic proportions, revealing that the main universe’s Superman will be DC’s next Black Lantern.
+---------
+
+# Ridley Scott Reveals "Ruthless" New Banking Movie & He's Already Eyeing A Leading Man
+
+Movies, Ridley Scott
+
+Fri, 21 Aug 2026 17:15:17 GMT
+
+https://screenrant.com/ridley-scott-banking-movie-matthew-rhys-casting-script/
+
+Exclusive: Ridley Scott shares details of his "ruthless" upcoming movie and the buzzy star who he thinks would be perfect for the project.
+---------
+
+# The Odyssey: Why Odysseus Was The Only One Who Could String The Hunting Bow & What Nolan Left Out
+
+Movies, The Odyssey
+
+Fri, 21 Aug 2026 17:15:15 GMT
+
+https://screenrant.com/the-odyssey-movie-odysseus-string-hunting-bow-explained/
+
+In Homer’s Odyssey poem, it took more than strength to string Odysseus’s bow and one other character nearly achieved the seemingly impossible task.
+---------
+
+# Sicario 3 Finally Happening With New Production Timeline Update From Josh Brolin
+
+Movies, Sicario: Capos, Sicario, Josh Brolin
+
+Fri, 21 Aug 2026 17:09:52 GMT
+
+https://screenrant.com/sicario-3-production-timeline-update-josh-brolin/
+
+Exclusive: Josh Brolin confirms that Sicario 3 is finally happening while also offering a new production timeline update for the action sequel.
+---------
+
+# Star Trek: Deep Space Nine is Going Full-On Horror for Its Next Appearance (And We Have a First Look)
+
+Comics, Star Trek, Star Trek: Deep Space Nine
+
+Fri, 21 Aug 2026 17:00:15 GMT
+
+https://screenrant.com/star-trek-deep-space-nine-horror/
+
+Really scary
+---------
+
+# Netflix's Most Unsettling Horror Series Returns In Less Than 1 Month
+
+Streaming TV, Masked Recs, Netflix
+
+Fri, 21 Aug 2026 17:00:15 GMT
+
+https://screenrant.com/netflix-horror-show-monster-season-4-netflix-return-lizzie-borden/
+
+The fourth season of Netflix's most controversial horror series arrives in September, and it's a major departure from what viewers have seen before.
+---------
+
+# Taylor Sheridan Fans Flock to 114-Episode Action Series on Netflix as the Next Yellowstone Replacement
+
+TV, SEAL Team
+
+Fri, 21 Aug 2026 17:22:42 GMT
+
+https://www.cbr.com/seal-team-netflix-next-yellowstone-replacement/
+
+Taylor Sheridan fans may have found the perfect show on Netflix to stream until the Yellowstone universe returns with new seasons.
+---------
+
+# Re:Zero Officially Loses No. 1 Spot to the Top Isekai Anime of Summer 2026
+
+Anime, Re:Zero − Starting Life in Another World, Mushoku Tensei: Jobless Reincarnation
+
+Fri, 21 Aug 2026 17:20:11 GMT
+
+https://www.cbr.com/re-zero-loss-top-spot-mushoku-tensei/
+
+The latest rankings are sure to come as a nasty shock for Re:Zero fans, as their biggest rival of 2026 has taken the crown.
+---------
+
+# Edward Elric's Best Fullmetal Alchemist Line Is Still the Greatest Quote in Anime History
+
+Anime, Fullmetal Alchemist
+
+Fri, 21 Aug 2026 17:16:11 GMT
+
+https://www.cbr.com/fullmetal-alchemist-greatest-edward-elric-quote/
+
+Edward Elric delivered one of the most eye-opening quotes in anime history in Fullmetal Alchemist.
+---------
+
+# The Duskbloods Network Test on Switch 2 Is Already a Disaster
+
+Games, Nintendo Switch
+
+Fri, 21 Aug 2026 17:14:11 GMT
+
+https://www.cbr.com/duskbloods-network-test-switch-2-server-issues/
+
+FromSoftware's highly anticipated Switch 2 exclusive, The Duskbloods, is hosting a closed network test, but it's already off to a rocky start.
+---------
+
+# Guy Ritchie's 2-Season Netflix Thriller's Future Gets an Update Involving Meghan Markle
+
+TV, guy ritchie, The Gentlemen, Netflix
+
+Fri, 21 Aug 2026 17:12:30 GMT
+
+https://www.cbr.com/guy-ritchie-the-gentlemen-season-3-meghan-markle-talks/
+
+The gritty series has yet to return for Season 2.
+---------
+
+# Star Trek Is Quietly Removing Captain Pike as Its Main Character Before Kirk Takes Over
+
+TV, Star Trek, Star Trek: Strange New Worlds, Innovation, Sci-Fi
+
+Fri, 21 Aug 2026 17:01:11 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-laan-main-character/
+
+As Star Trek: Strange New Worlds enters its endgame, Captain Pike may no longer be the central character, with a dark future ahead.
+---------
+
+# Johnny Depp's 115-Minute Dark Fantasy Is One of the Biggest Films on Streaming
+
+Movies, johnny depp, Charlie and the Chocolate Factory
+
+Fri, 21 Aug 2026 17:01:11 GMT
+
+https://www.cbr.com/johnny-depp-charlie-and-the-chocolate-factory-fantasy-netflix-success-august-2026/
+
+One of Depp's biggest movies ever is currently doing v ery well on streaming.
+---------
+
+# You Have Exactly 1 Week to Watch Apple TV’s Most Exciting Sci-Fi Series Before Season 2
+
+TV Features, Apple TV, Dark Matter, Blake Crouch, Joel Edgerton
+
+Fri, 21 Aug 2026 17:28:11 GMT
+
+https://collider.com/apple-tv-best-sci-fi-series-dark-matter-watch-before-season-2/
+
+Apple Tv's sci-fi thriller 'Dark Matter ', created by Blake Crouch and starring Joel Edgerton, is set to return on August 28th.
+---------
+
+# All 13 Episodes of ‘The Sopranos' Season 4, Ranked
+
+TV, The Sopranos, HBO, Crime, David Chase
+
+Fri, 21 Aug 2026 17:04:11 GMT
+
+https://collider.com/the-sopranos-season-4-episodes-ranked/
+
+The fourth season of the The Sopranos had some incredible episodes, including "Whoever Did This" and "Whitecaps," but which stands as the best?
+---------
+
+# 'Insidious: Out of the Further's Stars Promise "There's Much More to This Franchise"
+
+Exclusives, Insidious: Out of the Further, Insidious, Lin Shaye, James Wan
+
+Fri, 21 Aug 2026 17:00:11 GMT
+
+https://collider.com/insidious-out-of-the-further-sequel-plans-cast-interview/
+
+The stars and director of the sixth Insidious film discuss favorite scares, bringing back iconic characters, and backstory you won't see on screen.
+---------
+
+# Netflix’s World War II Movie From 'Lone Survivor' Director Sets Release Date
+
+Movie News, The Mosquito Bowl
+
+Fri, 21 Aug 2026 17:23:36 GMT
+
+https://movieweb.com/mosquito-bowl-netflix-release-date-confirmed/
+
+'Mosquito Bowl' will have a limited theatrical run before arriving on Netflix in time for Thanksgiving.
+---------
+
+# Netflix's Steamiest Thriller Series Confirms Streaming Return in New Images
+
+TV News, The Hunting Wives
+
+Fri, 21 Aug 2026 17:06:40 GMT
+
+https://movieweb.com/netflix-the-hunting-wives-season-2-images/
+
+Netflix's steamy thriller series 'The Hunting Wives' returns with new images from Season 2.
+---------
+
+# Gerard Butler's Violent 129-Minute Action Thriller Is Now One of the Biggest Movies on Streaming
+
+Movie News, Machine Gun Preacher, Gerard Butler, Hot on Streaming, Action, Paramount Plus
+
+Fri, 21 Aug 2026 17:00:14 GMT
+
+https://movieweb.com/gerard-butler-machine-gun-preacher-action-paramount-plus-august-2026/
+
+Butler's 2011 action thriller that sees him play the "Christian Rambo" has returned to find redemption on streaming.
+---------
+
+# 'Silo' Season 3 Finally Explains Why the Silos Exist
+
+Features, Silo
+
+Fri, 21 Aug 2026 17:00:14 GMT
+
+https://movieweb.com/silo-season-3-flashback-creation-reason/
+
+The tension in 'Silo' is heating up, and the puzzle is slowly coming together. Now we know not only who created the silos but also why.
+---------
+
+# 'Shutter Island' Ending, Explained
+
+Features, Shutter Island
+
+Fri, 21 Aug 2026 17:00:14 GMT
+
+https://movieweb.com/shutter-island-ending/
+
+We're breaking down 'Shutter Island's twist ending and how it relates to the film's themes.
+---------
+
 # After Jason Statham's New Action Thriller, His Best Franchise Returns In 2027
 
 Movies, Jason Statham, Mutiny, The Beekeeper 2
