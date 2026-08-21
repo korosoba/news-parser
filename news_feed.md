@@ -1,3 +1,267 @@
+# 6 Unforgettable Far Side Comics Set In Caves
+
+Comics, The Far Side
+
+Fri, 21 Aug 2026 18:14:14 GMT
+
+https://screenrant.com/far-side-comics-best-cave-jokes/
+
+You'll cave and laugh at these Far Side comics.
+---------
+
+# 3 Best Movies To Watch On Hulu This Weekend (August 22-23)
+
+Movies, Hulu, Recommendation
+
+Fri, 21 Aug 2026 18:10:14 GMT
+
+https://screenrant.com/best-hulu-movies-watch-weekend-august-22/
+
+Hulu might not be the first place you think of when you're looking for movies to binge on the weekend, but these three gems are streaming on Hulu now.
+---------
+
+# Outer Banks Season 5 Debuts To New Series Record Rotten Tomatoes Audience Score
+
+TV, Outer Banks, Outer Banks - Season 5
+
+Fri, 21 Aug 2026 18:00:16 GMT
+
+https://screenrant.com/outer-banks-season-5-rotten-tomaotes-audience-score-debut/
+
+Outer Banks season 5's Rotten Tomatoes audience score debuts to a new series record following the release of the final season on August 20.
+---------
+
+# Marvel Officially Confirms The Return Of The X-Men's Most Powerful Villain
+
+Gaming, X-Men, Marvel, PC
+
+Fri, 21 Aug 2026 18:00:15 GMT
+
+https://screenrant.com/marvel-crisis-protocol-onslaught-return/
+
+Marvel officially unveils and confirms details on the return of the X-Men's most powerful and fearsome villain, and he’s about to bring the pain.
+---------
+
+# Netflix's 19-Episode Psychological Thriller Deserves Even More Than Its 97% Score On Rotten Tomatoes
+
+Classic TV, Masked Recs, Netflix
+
+Fri, 21 Aug 2026 18:00:15 GMT
+
+https://screenrant.com/mindhunter-netflix-deserve-better-rotten-tomatoes-score/
+
+Not even a 97% score on Rotten Tomatoes is high enough for this Netflix psychological thriller, and that's not the only way it deserved better.
+---------
+
+# HBO Max’s New Superman Spinoff Gets Official Title & Confirms DCU Cast
+
+TV, DC Universe, Superman
+
+Fri, 21 Aug 2026 17:59:56 GMT
+
+https://screenrant.com/superman-gorilla-grodd-hbo-max-spinoff-dcu-cast-confirmed/
+
+After the record-breaking release of Lanterns, James Gunn officially announces the title & cast of DC's new TV show for HBO Max — a Superman spinoff.
+---------
+
+# DC Is Ready To Kill Off A Beloved Batman Villain With A Heartbreaking Goodbye
+
+DC Comics, Batman
+
+Fri, 21 Aug 2026 17:49:15 GMT
+
+https://screenrant.com/dc-ready-kill-poison-ivy-batman-vandal-savage/
+
+DC is planting seeds for one iconic Batman supervillain to meet their demise by the end of an upcoming crossover event that is spanning two months.
+---------
+
+# Amazon Remaking 25-Year-Old Cult Classic With Acclaimed Director
+
+Movies, Serendipity
+
+Fri, 21 Aug 2026 17:46:43 GMT
+
+https://screenrant.com/amazon-serendipity-movie-remake-michael-showalter-development/
+
+Amazon MGM Studios is diving into the rom-com vault for its upcoming modern remake of John Cusack and Kate Beckinsale’s 2001 romantic comedy.
+---------
+
+# Project Hail Mary's Follow-Up Is Good, But We Still Need Sci-Fi's Best Unofficial Trilogy To Be Completed
+
+Movies, Project Hail Mary
+
+Fri, 21 Aug 2026 17:45:16 GMT
+
+https://screenrant.com/project-hail-mary-lord-miller-artemis-movie-andy-weir-trilogy/
+
+While Phil Lord and Christopher Miller’s new project is thrilling, the duo should still direct an adaptation of Andy Weir's other sci-fi novel.
+---------
+
+# Netflix Breaks Long-Running Theater Tradition for Peter Berg's New World War II Movie
+
+Movies, The Mosquito Bowl, Netflix
+
+Fri, 21 Aug 2026 18:17:21 GMT
+
+https://www.cbr.com/netflix-peter-berg-the-mosquito-bowl-theatrical-streaming-release-date/
+
+Netflix's upcoming World War II sports drama based on a true story is about to break a major tradition for the streaming giant, and it's a good thing.
+---------
+
+# 5 Biggest Letdowns of the Summer 2026 Anime Season
+
+Anime, Mushoku Tensei, Isekai, That Time I Got Reincarnated as a Slime
+
+Fri, 21 Aug 2026 18:15:11 GMT
+
+https://www.cbr.com/biggest-letdowns-summer-2026-anime-season/
+
+The Summer 2026 anime season has been nothing short of spectacular, but there are a few series that haven't met expectations.
+---------
+
+# Netflix's 5-Season Adventure Is the Most-Watched Show on Streaming in Just 1 Day
+
+TV, Outer Banks, Netflix, Adventure
+
+Fri, 21 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/outer-banks-netflix-season-5-success/
+
+One day after the new season release, Outer Banks is No. 1 on Netflix.
+---------
+
+# 10 Greatest Justice League Dark Comics Ever Published, Ranked
+
+Comics, Justice League Dark, DC Comics, Horror
+
+Fri, 21 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/best-justice-league-dark-comics-ever-published/
+
+Protecting the world of DC Comics from dark magic and primordial monsters, the Justice League Dark have some of the greatest stories ever told.
+---------
+
+# Insidious: Out of the Further: Why Elise Can’t Stay Dead
+
+Movies, Insidious: Out of the Further
+
+Fri, 21 Aug 2026 17:52:53 GMT
+
+https://www.cbr.com/video/insidious-out-of-the-further-why-elise-can-t-stay-dead/
+
+Insidious: Out of the Further takes fans deeper into the Further, so Amelia Eve, Brandon Perea, and Lin Shaye imagine how they’d survive there. Their answers range from Shaye’s Red Face Demon memorabilia to Perea using an alien head from Nope and Eve assembling a supernatural pack of dogs.
+---------
+
+# Studio Ghibli Officially Rejects Hollywood’s Sequel Obsession
+
+Movie News, My Neighbor Totoro, Studio Ghibli, Anime, Fantasy
+
+Fri, 21 Aug 2026 18:21:11 GMT
+
+https://collider.com/my-neighbor-totoro-2-sequel-studio-ghibli-update/
+
+Studio Ghibli addresses the possibility of My Neighbor Totoro 2, revealing whether they’ll consider a feature-length sequel to the 1988 classic.
+---------
+
+# 'Dungeon Crawler Carl' Series Officially Adds a Sci-Fi Legend in a Game-Changing Move
+
+TV News, Dungeon Crawler Carl, Peacock, Eric Heisserer, Shadow and Bone
+
+Fri, 21 Aug 2026 18:16:40 GMT
+
+https://collider.com/dungeon-crawler-carl-arrival-shadow-and-bone-eric-heisserer-co-showrunner-peacock/
+
+Peacock’s Dungeon Crawler Carl TV series adds Arrival writer and Shadow and Bone creator Eric Heisserer as co-showrunner alongside Chris Yost.
+---------
+
+# Widow's Bay: A 9-Page Monologue Became a Memory Nightmare | Set Stories
+
+TV, Widow's Bay
+
+Fri, 21 Aug 2026 18:15:11 GMT
+
+https://collider.com/video/widow-s-bay-a-9-page-monologue-became-a-memory-nightmare-set-stories/
+
+Dale Dickey explains how one relationship helped her uncover a more protective side of Rosemary beneath the character’s sardonic humor.In this exclusive Dale Dickey interview, she discusses developing Rosemary while filming Widow’s Bay out of sequence and with relatively little information about the character’s background. Dickey knew Rosemary understood the island’s curse and wasn’t afraid to needle the mayor, but her scenes with Patricia helped her find something more personal: a genuine softness and desire to protect her.
+---------
+
+# DC Is Officially Going 'Parks and Recreation' for New 8-Part Jimmy Olsen Series
+
+TV News, Skyler Gisondo, Superman, Jimmy Tatro, DC Comics
+
+Fri, 21 Aug 2026 18:02:26 GMT
+
+https://collider.com/dc-jimmy-olsen-series-the-people-v-gorilla-grodd-hbo-max/
+
+James Gunn has officially announced DC's first live-action comedy series about Jimmy Olsen, coming to HBO Max.
+---------
+
+# 8 Miniseries That Are 10/10 Masterpieces
+
+TV, Band of Brothers, Lonesome Dove, Angels in America, Chernobyl
+
+Fri, 21 Aug 2026 17:55:11 GMT
+
+https://collider.com/miniseries-perfect-masterpieces/
+
+Absolutely perfect miniseries are rare, but not entirely unheard of, as the likes of I, Claudius, Lonesome Dove, and Band of Brothers go to show.
+---------
+
+# The Western Quentin Tarantino Called "The Best-Directed Movie of All Time" Is Officially Free to Stream
+
+Movie News, The Good, the Bad and the Ugly, Western, Tubi, Clint Eastwood
+
+Fri, 21 Aug 2026 17:45:11 GMT
+
+https://collider.com/clint-eastwood-western-good-the-bad-the-ugly-streaming-free-tubi/
+
+The movie defined an entire genre.
+---------
+
+# Netflix’s New 10-Episode Sci-Fi Horror Series Officially Brings the Dead Back to Life
+
+TV News, Revival, Melanie Scrofano, Netflix, SyFy
+
+Fri, 21 Aug 2026 17:42:42 GMT
+
+https://collider.com/revival-netflix-10-episode-horror-series-release-date-august-24/
+
+Netflix adds a 10-episode horror noir based on the comic series about the dead returning to life and a woman solving her own murder on August 24.
+---------
+
+# HBO Officially Announces New 'Superman' Spin-Off Streaming Series
+
+TV News, Superman, DCU
+
+Fri, 21 Aug 2026 18:18:57 GMT
+
+https://movieweb.com/superman-spin-off-people-vs-gorilla-grodd/
+
+The Jimmy Olsen series, 'The People vs. Gorilla Grodd' will be an eight-episode half-hour comedy.
+---------
+
+# Guy Ritchie’s Netflix Action Crime Series Just Got a Royal Season 3 Update
+
+TV News, Guy Ritchie, The Gentleman
+
+Fri, 21 Aug 2026 18:03:58 GMT
+
+https://movieweb.com/the-gentlemen-season-3-guy-ritchie-meghan-markle/
+
+Guy Ritchie added a major name to his new Netflix action crime series, which will bring an exciting dynamic to the story.
+---------
+
+# Netflix's New Must-See Sci-Fi Show Is a Matrix-Style Dystopian Thriller
+
+TV News, Netflix
+
+Fri, 21 Aug 2026 17:41:57 GMT
+
+https://movieweb.com/netflix-fool-night-teaser-trailer/
+
+Netflix's adaptation of the acclaimed manga 'Fool Night' is going to be a must-binge for sci-fi lovers.
+---------
+
 # Netflix & Millie Bobby Brown's New Movie That Strays From Sci-Fi Genre Lands Official Release Window
 
 Movies, Millie Bobby Brown, Netflix, Just Picture It
