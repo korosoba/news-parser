@@ -1,3 +1,91 @@
+# Assassin's Creed: Echoes Across Realms Officially Released
+
+Gaming, Assassin's Creed
+
+Fri, 21 Aug 2026 09:39:03 GMT
+
+https://screenrant.com/assassins-creed-echoes-across-realms-dlc-release/
+
+We might not be getting a new Assassin's Creed game for a while, but some its best protagonists are about to appear elsewhere.
+---------
+
+# Steam Releases New 10/10 Free Game With Overwhelmingly Positive Reviews
+
+Gaming, Steam
+
+Fri, 21 Aug 2026 09:26:56 GMT
+
+https://screenrant.com/steam-free-10-rated-game-overwhelmingly-positive-no-results-found/
+
+Steam just dropped a brand-new free game that's already received overwhelmingly positive reviews from gamers.
+---------
+
+# Legend Of Zelda 40th Anniversary Nintendo Direct Has Gamers Officially Hyped
+
+Gaming, The Legend of Zelda, Nintendo
+
+Fri, 21 Aug 2026 09:16:04 GMT
+
+https://screenrant.com/legend-of-zelda-40th-anniversary-nintendo-direct-hopes-september-2026/
+
+The Legend of Zelda has a lot of projects coming up that need explaining, and a new leak means they might have to break cover soon.
+---------
+
+# Matt Damon's Forgotten 121-Minute Crime Thriller Finds Redemption on Streaming
+
+Movie Features, Rounders, Matt Damon, John Malkovich, Edward Norton
+
+Fri, 21 Aug 2026 09:41:11 GMT
+
+https://collider.com/matt-damon-rounders-thriller-classic-streaming-free-pluto-tv-august-2026/
+
+Matt Damon played a card shark in the overlooked 1998 thriller Rounders, which is getting a second chance on Pluto TV, where it is streaming for free.
+---------
+
+# ‘Tulsa King’ Could Officially Outlive Taylor Sheridan’s Run at Paramount
+
+TV News, Tulsa King, Taylor Sheridan, Paramount Plus, Thriller
+
+Fri, 21 Aug 2026 09:30:11 GMT
+
+https://collider.com/tulsa-king-future-paramount-taylor-sheridan-exit/
+
+Paramount+ has teased the fate of Taylor Sheridan's hit crime series Tulsa King after the creator departs the studio.
+---------
+
+# 3 Greatest Movies To Watch on Netflix This Weekend (Aug 22-23)
+
+Movie, Swiss Army Man, Arthur the King, Muriel's Wedding, Netflix
+
+Fri, 21 Aug 2026 09:22:11 GMT
+
+https://collider.com/best-netflix-movies-watch-weekend-august-22/
+
+Muriel's Wedding, Arthur the King, and Swiss Army Man make up our list of the best movies to watch on Netflix the weekend of August 22nd.
+---------
+
+# 10 Greatest Neo-Noirs of the '90s
+
+Movie, L.A. Confidential, Fargo, Pulp Fiction, Film Noir
+
+Fri, 21 Aug 2026 09:12:11 GMT
+
+https://collider.com/best-neo-noir-movies-90s-ranked/
+
+From Oscar winners like L.A. Confidential and Fargo to underrated gems like The Grifters and Bound, these are the best neo-noir movies of the 1990s.
+---------
+
+# New Netflix Action Movie Confirms Cameron Diaz's Return to the Streamer With First Look
+
+Movie News, Netflix, Cameron Diaz, Action, Comedy
+
+Fri, 21 Aug 2026 09:30:09 GMT
+
+https://movieweb.com/netflix-cameron-diaz-bad-day-images-release/
+
+Cameron Diaz is enjoying her 'momcom' era.
+---------
+
 # Game Of Thrones Is Officially Switching Genres When It Returns In 2027
 
 Gaming, Game of Thrones, Game of Thrones: War for Westeros
