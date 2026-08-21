@@ -1,3 +1,157 @@
+# New Andrew Garfield & Rebecca Ferguson Fantasy Epic's Upcoming Sequels Addressed By Star
+
+Movies
+
+Fri, 21 Aug 2026 19:39:50 GMT
+
+https://screenrant.com/magic-faraway-tree-sequels-development-andrew-garfield-response/
+
+EXCLUSIVE: One of the stars of an exciting new fantasy book-to-movie adaptation reveals the cast's feelings about the confirmed sequels.
+---------
+
+# Prime Video Officially Adapting Popular 40-Year-Old Manga Into Live-Action Series For Next Year
+
+TV, Prime Video
+
+Fri, 21 Aug 2026 19:32:29 GMT
+
+https://screenrant.com/prime-video-please-save-my-earth-live-action-series-development-release-date/
+
+Fall 2027 will see the premiere of a live-action series adapting a manga from the 1980s and 1990s. Prime Video announces the lead star and director.
+---------
+
+# Merry’s Lord Of The Rings Return Gets New Update After Frodo & Gandalf’s Confirmed 2027 Roles
+
+Movies, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Dominic Monaghan
+
+Fri, 21 Aug 2026 19:32:15 GMT
+
+https://screenrant.com/merry-lord-of-the-rings-return-gandalf-frodo-hunt-for-gollum-dominic-monaghan/
+
+Exclusive: Dominic Monaghan offers a new update on his potential Lord of the Rings return as Merry ahead of Frodo and Gandalf's new stories.
+---------
+
+# Amazon's Leaking Jason Statham's New Action Movie Jeopardizes Film's Release
+
+Movies, Mutiny
+
+Fri, 21 Aug 2026 19:31:07 GMT
+
+https://screenrant.com/jason-statham-mutiny-amazon-prime-video-leak-release-troubles/
+
+Amazon accidentally leaking Jason Statham's new action movie jeopardizes the film's release and poses major problems for its distributors.
+---------
+
+# David Tennant's Forgotten 4-Part Sci-Fi Series On Netflix Is An Easy Weekend Binge
+
+Classic TV, Masked Recs
+
+Fri, 21 Aug 2026 19:30:15 GMT
+
+https://screenrant.com/eden-david-tennant-netflix-sci-fi-series-watch/
+
+David Tennant has been part of countless hit shows, but his overlooked Netflix sci-fi series is an enjoyable watch that is perfect to binge.
+---------
+
+# MCU's New Character Hint Suggests Payoff Is Finally Coming For A 15-Year-Old Superhero Tease
+
+Movies, VisionQuest, Marvel Cinematic Universe
+
+Fri, 21 Aug 2026 19:30:15 GMT
+
+https://screenrant.com/visionquest-show-human-torch-jim-hammond-captain-america-hint/
+
+Captain America: The First Avenger teased the introduction of a classic superhero, and new artwork hints payoff for the Easter egg is finally coming.
+---------
+
+# New Studio Ghibli Movie Sends Hayao Miyazaki 'Insane,' Director Says
+
+Anime, Studio Ghibli, Hayao Miyazaki
+
+Fri, 21 Aug 2026 19:20:11 GMT
+
+https://www.cbr.com/studio-ghibli-night-in-the-valley-of-witches-hayao-miyazaki-reaction/
+
+A new Studio Ghibli anime co-directed by Hayao Miyazaki's son prompts a surprising response from the company's legendary co-founder.
+---------
+
+# 4 Hard-Sci Fi Anime Series That Can Be Called Masterpieces
+
+Anime, Planetes, Armored Trooper VOTOMS, Sci-Fi
+
+Fri, 21 Aug 2026 19:15:11 GMT
+
+https://www.cbr.com/masterpiece-hard-sci-fi-anime-series/
+
+Hard sci-fi celebrates grounded, realistic fundamentals, and anime like Planetes, Moonlight Mile, and VOTOMS represent some of the genre's best work.
+---------
+
+# 'Pokémon' Is Officially Changing Its Winning Formula
+
+TV News, Pokémon, Anime, Pokémon Horizons, Nintendo
+
+Fri, 21 Aug 2026 19:31:11 GMT
+
+https://collider.com/pokemon-anime-weekly-series-ending-seasonal-generation-10/
+
+A new report claims Pokémon Horizons could be the franchise’s final weekly anime, with Generation 10 potentially moving to a seasonal format in 2027.
+---------
+
+# 10 Greatest Ultraviolent Action Movies of All Time
+
+Movie, Action, The Raid: Redemption, I Saw the Devil, Kill Bill: Vol. 1
+
+Fri, 21 Aug 2026 19:29:11 GMT
+
+https://collider.com/best-ultraviolent-action-movies-all-time-ranked/
+
+If you love chaos, sweat, and blood, incredibly intense action movies like Kill Bill and Battle Royale are the way to go as ultraviolent masterpieces.
+---------
+
+# Taylor Sheridan's Long-Awaited ‘Sicario 3’ Gets First Official Update of 2026
+
+Movie News, Sicario, Josh Brolin, Sicario: Day Of The Soldado, Taylor Sheridan
+
+Fri, 21 Aug 2026 19:11:55 GMT
+
+https://collider.com/sicario-3-update-josh-brolin-taylor-sheridan/
+
+Josh Brolin shares an update on Taylor Sheridan’s long-awaited Sicario 3 as fans continue waiting eight years after Day of the Soldado.
+---------
+
+# 6 Apple TV Shows With No Weak Episodes
+
+TV, Apple TV, Shrinking, Silo, Ted Lasso
+
+Fri, 21 Aug 2026 19:08:11 GMT
+
+https://collider.com/best-apple-tv-shows-no-weak-episodes/
+
+Discover Apple TV series that consistently deliver strong episodes and captivating storytelling, including Severance, Silo, and Slow Horses.
+---------
+
+# 'Avengers: Endgame Encore' Confirms Extra Footage the New Release Includes
+
+Movie News, Avengers: Endgame
+
+Fri, 21 Aug 2026 19:27:51 GMT
+
+https://movieweb.com/avengers-endgame-encore-extra-footage-runtime/
+
+Marvel Studios teased how much new footage will be included in the upcoming 'Avengers: Endgame' re-release.
+---------
+
+# Taylor Sheridan's Hit Action Thriller Franchise Gets Most Positive Sequel Update Yet
+
+Movie News, Sicario, Sicario: Day Of The Soldado, Taylor Sheridan, Josh Brolin
+
+Fri, 21 Aug 2026 19:12:23 GMT
+
+https://movieweb.com/sicario-3-josh-brolin-production-update/
+
+Josh Brolin confirms 'Sicario 3' is happening and says production starts soon, eight years after 'Sicario: Day of the Soldado.'
+---------
+
 # Ana De Armas Dons Wonder Woman Suit To Join James Gunn's DC Universe In New DCU Art
 
 Movies, Wonder Woman, DC Universe
