@@ -1,3 +1,36 @@
+# Game Of Thrones Is Officially Switching Genres When It Returns In 2027
+
+Gaming, Game of Thrones, Game of Thrones: War for Westeros
+
+Fri, 21 Aug 2026 08:57:06 GMT
+
+https://screenrant.com/game-of-thrones-2027-new-genre-war-for-westeros/
+
+Game Of Thrones will return in 2027, and when it does it represents a pretty big shift for the iconic fantasy series.
+---------
+
+# Ridley Scott’s 11-Year-Old Sci-Fi Classic Is Officially Taking Over Apple TV
+
+Movie News, The Martian, Ridley Scott, Apple TV, Matt Damon
+
+Fri, 21 Aug 2026 09:00:11 GMT
+
+https://collider.com/the-martian-apple-tv-officially-lands-ridley-scotts-sci-fi-masterpiece/
+
+Ridley Scott’s The Martian surges on Apple TV as Matt Damon’s acclaimed sci-fi epic finds another streaming audience 11 years later.
+---------
+
+# 1 Year Later, Prime Video's Forgotten Spy Thriller Is Officially Finding New Life
+
+Movie Features, Prime Video, Rami Malek, The Amateur, Thriller
+
+Fri, 21 Aug 2026 08:30:11 GMT
+
+https://collider.com/prime-video-the-amateur-spy-thriller-rami-malek-movie/
+
+Prime Video's 'The Amateur,' starring Rami Malek and directed by James Hawes, is dominating streaming charts a year after its release.
+---------
+
 # Silo’s Ashley Zukerman Confirms the End of an Era After Sci-Fi Hit’s Game-Changing Episode
 
 Collider Signature, Ashley Zukerman, Silo, Apple TV, Science Fiction
