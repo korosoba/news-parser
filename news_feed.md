@@ -1,3 +1,168 @@
+# 3 Greatest PS1 Games Turning 30 This Year
+
+Gaming, PlayStation (Original), PlayStation, Resident Evil, Crash Bandicoot, Tomb Raider
+
+Fri, 21 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/greatest-ps1-games-turning-30-this-year/
+
+The first PlayStation console introduced us to a lot of iconic games and series, but these are the greatest games on PS1 turning 30 this year.
+---------
+
+# Apple TV's 10/10 Fantasy Series Could Have Run Forever But Was Quietly Canceled After 2 Seasons
+
+Classic TV, Masked Recs, Apple TV, Fantasy
+
+Fri, 21 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/schmigadoon-apple-tv-fantasy-anthology-canceled-broadway/
+
+Apple TV’s underrated fantasy show had a unique hook that could have run forever, but it was canceled after 2 seasons - yet found a second life.
+---------
+
+# David Boreanaz's 7-Part Action Thriller Series On Netflix With Stellar RT Audience Score Officially Starts A New Era
+
+TV, Masked Recs
+
+Fri, 21 Aug 2026 14:55:15 GMT
+
+https://screenrant.com/seal-team-netflix-streaming-charts-rise-the-rockford-files-setup/
+
+David Boreanaz's 7-part action thriller series has become a Netflix global streaming hit, setting up the start of a new era for the beloved actor.
+---------
+
+# Tom Hanks' Definitive '90s Film Is Officially Coming To Netflix
+
+Movies, Masked Recs
+
+Fri, 21 Aug 2026 14:45:51 GMT
+
+https://screenrant.com/tom-hanks-sleepless-in-seattle-netflix-release-date-september-2026/
+
+The ‘90s was a strong decade for Tom Hanks, and arguably one of his most iconic films from the era is now set to arrive on Netflix in the near future.
+---------
+
+# Netflix Is Releasing One Of Mike Flanagan's Best Horror Movies Next Month
+
+TV, Masked Recs
+
+Fri, 21 Aug 2026 14:40:45 GMT
+
+https://screenrant.com/mike-flanagan-oculus-movie-netflix-release-date-august-2026/
+
+Netflix is releasing one of Mike Flanagan's best horror movies next month as the filmmaker prepares to release his next big TV series.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Weekend (August 22-23)
+
+Movies, HBO Max, Recommendation
+
+Fri, 21 Aug 2026 14:31:14 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-weekend-august-22/
+
+Another weekend is upon us and that means it's time to plop down on the couch and binge the best movies streaming on HBO Max right now.
+---------
+
+# Baldur's Gate 3's Best Mechanic Officially Arrives In Dungeons & Dragons
+
+Tabletop, Dungeons and Dragons, tabletop games, Baldur's Gate 3
+
+Fri, 21 Aug 2026 14:25:53 GMT
+
+https://screenrant.com/dungeons-dragons-underdark-illithid-options-tadpole-powers-bg3/
+
+One of the best gameplay mechanics from Baldur’s Gate 3 has officially made its way into Dungeons and Dragons, and you can use it for free right now.
+---------
+
+# The 5 Best War Movies of the Last 10 Years, Ranked
+
+Movies, War
+
+Fri, 21 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/best-war-movies-last-10-years-list/
+
+War movies have defined films for decades, but the films released in the past 10 years have stood out more than any other.
+---------
+
+# Cartoon Network's Best Sci-Fi Anime Is Officially Free on YouTube
+
+Anime, Mobile Suit Gundam Wing, Gundam, Cartoon Network
+
+Fri, 21 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/mobile-suit-gundam-wing-cartoon-network-sci-fi-anime-free-on-youtube/
+
+26 years after its Toonami debut, Gundam Wing is free on YouTube, giving old fans and newcomers a chance to rediscover an anime classic.
+---------
+
+# Disney+’s New Disney Princess Release Becomes an Instant Streaming Sensation
+
+Movies, Disney Princesses, Disney+, Disney
+
+Fri, 21 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/once-a-princess-always-a-princess-comedy-disney-plus-success-august-2026/
+
+The whimsical short was released as part of the company's World Princess Week.
+---------
+
+# God of War Officially Unveils New Atreus Release Coming 2028
+
+Games, God of War, God of War Ragnarok
+
+Fri, 21 Aug 2026 14:35:11 GMT
+
+https://www.cbr.com/god-of-war-official-reveal-new-atreus-release-2028/
+
+The son of Kratos and Laufey, Atreus is officially returning in a new 2028 God of War release.
+---------
+
+# Exclusive Avengers Interview With Robert Downey Jr. and Joe Russo
+
+CBR Exclusives, Avengers: Infinity War
+
+Fri, 21 Aug 2026 14:27:53 GMT
+
+https://www.cbr.com/exclusive-avengers-interview-with-robert-downey-jr-and-joe-russo/
+
+CBR conducted an exclusive interview that covered everything from Iron Man to Avengers: Doomsday
+---------
+
+# First Official Look at 'Wheel of Time' Star's New Thriller Requires 'Adult Supervision' [Exclusive]
+
+Exclusives, Fantastic Fest, Fares Fares, Gustaf Skarsgård, Collider Exclusive Preview
+
+Fri, 21 Aug 2026 15:00:11 GMT
+
+https://collider.com/adult-supervision-image-fares-fares-gustaf-skarsgard-linus-wahlgren-fantastic-fest/
+
+A new image from the dark comedy-drama Adult Supervision finds Fares Fares taking charge during a school trip with his fellow dads.
+---------
+
+# In Just 2 Days, Joel Kinnaman's 96-Minute "Statham Meets Neeson" Action Thriller Dominates Streaming
+
+Movie News, Joel Kinnaman, Action, Thriller, Icefall, Prime Video, Hot on Streaming
+
+Fri, 21 Aug 2026 15:00:14 GMT
+
+https://movieweb.com/icefall-joel-kinnaman-action-thriller-stream-august-2026/
+
+The action thriller has already reached the top spot on Prime Video.
+---------
+
+# 'Malcolm in the Middle:' Every Major Character, Ranked
+
+TV Lists, Malcolm in the Middle
+
+Fri, 21 Aug 2026 15:00:14 GMT
+
+https://movieweb.com/malcolm-in-the-middle-every-major-character-ranked/
+
+Featuring one of the most recognizable sitcom families of the early 2000s, Malcolm in the Middle had a remarkably funny cast,
+---------
+
 # New Friday The 13th Series Is Officially Releasing Early (But There’s A Catch)
 
 TV, Crystal Lake
