@@ -1,3 +1,179 @@
+# Ana De Armas Dons Wonder Woman Suit To Join James Gunn's DC Universe In New DCU Art
+
+Movies, Wonder Woman, DC Universe
+
+Fri, 21 Aug 2026 19:00:14 GMT
+
+https://screenrant.com/ana-de-armas-wonder-woman-james-gunn-dc-art/
+
+Ana de Armas dons a modern take on Wonder Woman's iconic suit and looks perfect as Diana Prince in new DC Universe art amid Man of Tomorrow rumors.
+---------
+
+# 21 Years Later, Batman's Best Movie Line Is Still One Of The Greatest Quotes In DC History
+
+Movies, Batman
+
+Fri, 21 Aug 2026 19:00:14 GMT
+
+https://screenrant.com/batman-best-movie-line-rachel-begins-quote/
+
+Batman Begins gave us the Caped Crusader's most profound movie quote ever when he echoed Rachel's line about "what defines me" back to her.
+---------
+
+# Coffee Chats To Go: New Yorkers and Their Dogs Give Us Their Apocalypse Survival Guide | The Dog Stars
+
+Movies, Coffee Chats, The Dog Stars
+
+Fri, 21 Aug 2026 19:00:14 GMT
+
+https://screenrant.com/video/coffee-chats-to-go-episode-the-dog-stars/
+
+In this very special episode, we take Coffee Chats To-Go. To celebrate the upcoming film The Dog Stars, starring Jacob Elordi, Margaret Qualley and Josh Brolin, Liam Crowley takes to the streets of New York City to ask New Yorkers (and their dogs) how they would survive and thrive together in a post-apocalyptic world. Are the dogs of New York up to the challenge?#20thCenturyPartner #TheDogStars #jacobelordi #margaretqualley #joshbrolin #manonthestreet #dogsofnewyork #coffeechats #screenrant
+---------
+
+# Coyote vs. Acme: Why Filmmakers Needed This Win
+
+Movies, Originals, Coyote Vs. Acme
+
+Fri, 21 Aug 2026 19:00:14 GMT
+
+https://screenrant.com/video/coyote-vs-acme-why-filmmakers-needed-this-win/
+
+Coyote vs. Acme: The Real Reason Fans Won isn't just about a Looney Tunes movie escaping Hollywood limbo. It's about what audiences almost lost.After finishing production, Coyote vs. Acme was slated to be shelved by Warner Bros. Discovery as part of a tax write-off, despite positive reactions from filmmakers who had actually seen it. That decision sparked backlash from across Hollywood, public support from the cast and crew, and a long campaign to give the completed movie a chance.Having now seen Coyote vs. Acme, it's easy to understand why people fought so hard.
+---------
+
+# 9 Years Later, Mike Flanagan's Most Exciting Stephen King Adaptation Can Redeem A Forgotten Flop
+
+TV, Stephen King, Mike Flanagan, The Dark Tower
+
+Fri, 21 Aug 2026 18:31:15 GMT
+
+https://screenrant.com/stephen-king-dark-tower-tv-show-redeem-movie/
+
+Mike Flanagan’s Stephen King saga on Prime Video promises sprawling fantasy, great characters and meticulous worldbuilding, unlike the original.
+---------
+
+# Lucky: William Fichtner on What Makes Wayne Dangerous
+
+TV, Lucky
+
+Fri, 21 Aug 2026 19:00:50 GMT
+
+https://www.cbr.com/video/lucky-william-fichtner-on-what-makes-wayne-dangerous/
+
+Lucky star William Fichtner reveals the code that makes Wayne such a dangerous presence in the Apple TV series, even when the character isn't on screen.Fichtner explains why Wayne keeps danger at a distance, how his history with Priscilla reveals an unexpected vulnerability, and what makes Lucky smart enough to earn his respect. The actor also shares why great writing matters more than the size of a role, reflects on TV stories he wishes could have continued, and explains why he'll sometimes choose a couple of unforgettable scenes over a much larger part.
+---------
+
+# Joel Kinnaman’s 118-Minute Sci-Fi Action Reboot Is a Surprise Worldwide Streaming Hit
+
+Movies, RoboCop, Robocop, Paramount Plus
+
+Fri, 21 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/robocop-2014-sci-fi-success-paramount-plus-august-2026/
+
+Joel Kinnaman's action-packed reboot of a sci-fi cult classic is seeing a surprising streaming resurgence.
+---------
+
+# Say Goodbye to HBO as the King of Space Opera TV as Amazon Prepares to Bury Dune: Prophecy
+
+TV, Prime Video, Sci-Fi, Innovation
+
+Fri, 21 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/prime-video-the-captives-war-dune-prophecy-comparison/
+
+Prime Video's upcoming sci-fi series is set to cement the streamer as the king of space-opera TV, taking on competition from HBO.
+---------
+
+# Metal Gear Solid: Master Collection Vol. 2: The Best Of The PS3 Era Has Returned
+
+Games, Metal Gear Solid, Metal Gear Solid 4: Guns of the Patriots, Metal Gear Solid: Peace Walker
+
+Fri, 21 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/metal-gear-solid-master-collection-vol-2-review/
+
+Metal Gear Solid: Master Collection Vol. 2 brings together two of the best PlayStation 3-era stealth games into an incredible anthology.
+---------
+
+# 10 Movies to Watch if You Love Tombstone
+
+Movies, Western, Tombstone, Unforgiven
+
+Fri, 21 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/must-watch-movies-for-tombstone-fans-list/
+
+In 1993, Tombstone changed the Western forever, and there are some near-perfect movies to watch if you love the Kurt Russell masterpiece.
+---------
+
+# James Gunn's Superman Spinoff Show Officially Gets New Title
+
+TV, Superman, Jimmy Olsen, The People v. Gorilla Grodd
+
+Fri, 21 Aug 2026 18:36:13 GMT
+
+https://www.cbr.com/superman-spinoff-the-people-v-gorilla-grodd-title/
+
+After the success of Lanterns' debut, HBO Max and DC Studios are doubling down on their partnership.
+---------
+
+# Insidious: Out of the Further Reinvents the Franchise
+
+Movies, Insidious: Out of the Further
+
+Fri, 21 Aug 2026 18:30:11 GMT
+
+https://www.cbr.com/video/insidious-out-of-the-further-reinvents-the-franchise/
+
+Insidious has an iconic red “SI” in its logo — and Jacob Chase knows the surprisingly obscure reason why. The Insidious: Out of the Further writer-director reveals the original marketing idea that created a franchise trademark fans have seen for years.
+---------
+
+# Marvel Officially Brings the Punisher and Predator Together for the First Time
+
+Books and Comics News, Predator, Marvel Comics, Punisher
+
+Fri, 21 Aug 2026 19:00:11 GMT
+
+https://collider.com/predator-vs-punisher-marvel-comics-frank-castle-crossover/
+
+The Punisher becomes the Predator’s latest prey in Marvel’s new four-issue Predator vs. Punisher crossover arriving in November 2026.
+---------
+
+# The X-Men Are Officially Getting Jean Grey Back, but There’s a Huge Catch
+
+Books and Comics News, Marvel Comics, X-Men, Marvel, Comics
+
+Fri, 21 Aug 2026 18:40:11 GMT
+
+https://collider.com/jean-grey-phoenix-return-earth-x-men-marvel-series/
+
+Jean Grey returns to Earth with the Phoenix in Marvel’s new five-issue series, setting up a dangerous new chapter for the X-Men this November.
+---------
+
+# Apple Scores Big as 4-Part Action Sci-Fi Thriller Officially Becomes the #1 Series on Streaming
+
+TV News, Heroes, Apple TV, Sci-Fi, Hot on Streaming
+
+Fri, 21 Aug 2026 19:00:13 GMT
+
+https://movieweb.com/heroes-tv-series-streaming-hit-september-2026/
+
+One of the best shows of 2000s golden era of TV has found a second life on streaming.
+---------
+
+# Dark New 'Reacher' Quote Perfectly Captures the Amazon Show's Premise
+
+Features, Reacher
+
+Fri, 21 Aug 2026 19:00:13 GMT
+
+https://movieweb.com/reacher-season-4-theory-quote/
+
+The fourth episode of Reacher's new season has a major revelation, which prompts one ofJack's best lines. Read on for more.
+---------
+
 # 6 Unforgettable Far Side Comics Set In Caves
 
 Comics, The Far Side
