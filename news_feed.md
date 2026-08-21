@@ -1,3 +1,212 @@
+# It's Officially The End Of An Era For The Blacklist
+
+Classic TV, Masked Recs
+
+Fri, 21 Aug 2026 13:30:14 GMT
+
+https://screenrant.com/blacklist-james-spader-ultron-visionquest-tv-return-era/
+
+The Blacklist has defined one actor's career for over 13 years, but now that era will come to an end with a new show debuting in October 2026.
+---------
+
+# MCU's X-Men Casting Has Found The Sweet Spot Between Fox's 2 Eras
+
+Superheroes, X-Men
+
+Fri, 21 Aug 2026 13:30:14 GMT
+
+https://screenrant.com/mcu-xmen-movie-cast-characters-ages-comparison/
+
+The MCU has started rounding out its X-Men cast, and the choices so far show how Marvel has found a sweet spot between Fox's previous iterations.
+---------
+
+# PlayStation Makes PS5 Remake Of Hit 2006 JRPG Free To Check Out
+
+Gaming, JRPG, PlayStation 5, Triple-A Games
+
+Fri, 21 Aug 2026 13:21:31 GMT
+
+https://screenrant.com/playstation-ps5-2006-jrpg-free-remake-demo/
+
+The remake of a classic 2006 JRPG is set to arrive on PlayStation 5 pretty soon, and you can already check it out for free if you’re interested.
+---------
+
+# Ridley Scott’s The Dog Stars First Reactions Are Officially In
+
+Movies, The Dog Stars, Ridley Scott
+
+Fri, 21 Aug 2026 13:15:28 GMT
+
+https://screenrant.com/ridley-scott-the-dog-stars-first-reactions/
+
+The first reactions to Ridley Scott's The Dog Stars are officially rolling in, and viewers are saying much of the same thing about the film.
+---------
+
+# 5 Best Calvin And Hobbes Strips That Don't Star Calvin
+
+Marvel Comics, Calvin and Hobbes
+
+Fri, 21 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/calvin-hobbes-best-comic-strips-different-characters/
+
+Calvin and Hobbes have starred in many hilarious adventures for over four decades, but their family and friends have also shared the spotlight.
+---------
+
+# Moomin Is Back - And We've Got An Early Look And Release Date
+
+Gaming, Moominvalley, Triple-A Games
+
+Fri, 21 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/moomin-midsummer-madness-moomintroll-snufkin/
+
+Discover the charm of Moomin: Midsummer Madness with our early preview and release date details.
+---------
+
+# 11 Years Later, Kurt Russell Finally Returns To The Western Genre With New Movie That's Out Now
+
+Movies, The Rivals of Amziah King, Western
+
+Fri, 21 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/kurt-russell-the-rivals-of-amziah-king-western-movie-release-august-2026/
+
+After an 11-year break from Westerns following the likes of Bone Tomahawk, Kurt Russell has returned to the genre with one of 2026's best movies.
+---------
+
+# Patrick Swayze’s Classic 80s Movie Dirty Dancing Turns 39 Today Before Its Upcoming Sequel Debut
+
+Movies, Dirty Dancing
+
+Fri, 21 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/dirty-dancing-patrick-swayze-movie-39-anniversary/
+
+One of Patrick Swayze's biggest 80s movies hits a major anniversary today, that makes the upcoming sequel plans more exciting to consider.
+---------
+
+# The Wheel Of Time's Official 2027 Return Is A Fresh Start For The Series
+
+Gaming, The Wheel of Time, PC
+
+Fri, 21 Aug 2026 12:48:55 GMT
+
+https://screenrant.com/wheel-of-time-2027-return-new-adaptation/
+
+Amazon's The Wheel of Time series didn't pan out quite as planned, but this new adaptation is a fresh start for the franchise.
+---------
+
+# 15 Years Ago, Batman: Arkham City Gave Joker The Perfect 5 Final Words
+
+Gaming, Batman, Batman: Arkham City
+
+Fri, 21 Aug 2026 12:38:48 GMT
+
+https://screenrant.com/batman-arkham-city-joker-perfect-final-words/
+
+15 years ago we saw Batman and Joker face off for one last time, in what remains a truly perfect final showdown.
+---------
+
+# Wheel of Time Officially Returns in 2027 With War of the Dragon
+
+Games, The Wheel of Time
+
+Fri, 21 Aug 2026 13:31:11 GMT
+
+https://www.cbr.com/wheel-of-time-official-new-release-war-of-the-dragon-2027/
+
+War of the Dragon: The Wheel of Time is set to arrive next year.
+---------
+
+# 10 Greatest Anime Series of the Last 15 Years, Ranked
+
+Anime, Attack On Titan, Frieren: Beyond Journey's End
+
+Fri, 21 Aug 2026 13:15:11 GMT
+
+https://www.cbr.com/best-anime-series-last-15-years-ranked-list/
+
+From modern classics to genre-defining hits, these titles represent the best anime series of the last 15 years.
+---------
+
+# 10 Best Nightcrawler Costumes, Ranked
+
+Comics, Nightcrawler, X-Men, Marvel
+
+Fri, 21 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/xmen-nightcrawler-best-costumes-ranked-list/
+
+Some of the best and most iconic Nightcrawler costumes highlighted important character growth and developments through his history with the X-Men.
+---------
+
+# The 8 Most Influential Animated Movies of all Time, Ranked
+
+Movies, Animation, Fantasy, The Iron Giant
+
+Fri, 21 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/most-influential-animated-movies-of-all-time-ranked/
+
+Some animated movies can claim the title of popular or successful, but these eight rank among the most influential animated movies of all time.
+---------
+
+# The Witcher Officially Returns With New Release in 4 Months
+
+Books and Comics News, The Witcher, Henry Cavill, Liam Hemsworth, The Witcher 3: Wild Hunt
+
+Fri, 21 Aug 2026 13:13:09 GMT
+
+https://collider.com/the-witcher-the-last-wish-complete-collection-release-date/
+
+The Witcher is officially getting a brand-new release this December. Get all the details about The Witcher: Last Wish.
+---------
+
+# 2 Free PlayStation Games Will Officially Vanish in 10 Days
+
+Gaming News, Gran Turismo, PlayStation 5, Gaming
+
+Fri, 21 Aug 2026 12:52:55 GMT
+
+https://collider.com/playstation-official-free-games-august-2026/
+
+PlayStation has officially revealed two new free games for PS5 that are only available for a limited time.
+---------
+
+# 3 Near-Perfect Series to Binge on Netflix This Week
+
+TV, SEAL Team, How to Get to Heaven from Belfast, Outer Banks, Netflix
+
+Fri, 21 Aug 2026 12:41:11 GMT
+
+https://collider.com/netflix-shows-binge-weekend-august-22-2026/
+
+How to Get to Heaven from Belfast, SEAL Team, and Outer Banks make up our list of the best shows to binge on Netflix the weekend of August 22.
+---------
+
+# Jake Gyllenhaal's 93-Minute "Inception Meets Groundhog Day" Sci-Fi Action Thriller Is a Streaming Hit
+
+Movie News, Jake Gyllenhaal, Source Code, Sci-Fi, Action, Thriller, Hot on Streaming
+
+Fri, 21 Aug 2026 13:00:13 GMT
+
+https://movieweb.com/source-code-jake-gyllenhaal-stream-august-2026/
+
+Make every second count.
+---------
+
+# Netflix's New Sci-Fi Western Series Is a "Taylor Sheridan Meets Blade Runner" Action Epic
+
+TV News, Netflix, Sci-Fi, Action, Western, Anime
+
+Fri, 21 Aug 2026 12:47:52 GMT
+
+https://movieweb.com/netflix-bass-x-machina-trailer/
+
+A cyborg is tasked with being judge, jury, and executioner in a lawless universe.
+---------
+
 # Why Star Trek: Strange New Worlds’ Puppet Episode Guest Stars Look So Familiar
 
 TV, Star Trek, Star Trek: Strange New Worlds
