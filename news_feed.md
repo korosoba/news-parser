@@ -1,3 +1,135 @@
+# After 21 Years, It's Always Sunny Threatens To Dethrone The Simpsons
+
+Streaming TV, It's Always Sunny in Philadelphia, The Simpsons
+
+Fri, 21 Aug 2026 20:03:14 GMT
+
+https://screenrant.com/its-always-sunny-simpsons-perfect-seasons/
+
+More than 2 decades later, It's Always Sunny In Philadelphia is on the verge of dethroning The Simpsons in a rare category of TV history.
+---------
+
+# Where To Watch Jason Statham's Mutiny Movie (Is It Streaming On Netflix Or Prime Video?)
+
+New Movies, Mutiny
+
+Fri, 21 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/where-to-watch-mutiny-movie-streaming/
+
+Jason Statham's boat-set action thriller Mutiny is now out. Here's where to watch the movie, and whether it's available on any streaming services.
+---------
+
+# CBS’s NCIS: Sydney Decision Highlights 1 Harsh Reality About The Franchise
+
+Network TV, NCIS: Hawai'i, NCIS: Sydney
+
+Fri, 21 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/ncis-sydney-cbs-renewal-decision-franchise-cancellations/
+
+CBS notably renewed NCIS: Sydney, with season 4 on the way. However, the renewal makes the decision about another NCIS spinoff even worse.
+---------
+
+# 5 RPGs With Enemy Designs That Force Players to Adapt
+
+Games, Bloodborne, Role Playing Game, Video Games
+
+Fri, 21 Aug 2026 20:15:11 GMT
+
+https://www.cbr.com/rpg-enemies-that-force-players-to-adapt/
+
+Some of the best RPGs ramp up enemy encounters by forcing players to adapt and carefully strategize their approach to combat.
+---------
+
+# Gritty 1-Season Narcos Replacement Show With 64M Hours Streamed Surges on HBO Max
+
+TV, Alias J.J., Narcos, HBO Max
+
+Fri, 21 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/alias-jj-hbo-max-success-august-2026/
+
+Alias J.J. is more popular than ever in Latin America.
+---------
+
+# 10 Essential Jean Grey Comics to Read After Spider-Man: Brand New Day, Ranked
+
+Comics, Spider-Man: Brand New Day
+
+Fri, 21 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/best-jean-grey-comics-to-read-after-spider-man-brand-new-day/
+
+Jean Grey is firmly in the MCU and these comics will get readers up to speed with her story.
+---------
+
+# Blake Lively's The Shallows Has Become A Massive Streaming Hit
+
+Movies, The Shallows, Netflix, Thriller
+
+Fri, 21 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/blake-lively-action-thriller-shallows-netflix-hit/
+
+The Shallows avoids the common mistakes of modern survival cinema, taking audiences back to the fear and suspense of Spielberg's Jaws.
+---------
+
+# Marvel Is Officially About To Destroy One of the X-Men’s Most Iconic Universes
+
+Books and Comics News, Marvel Comics, X-Men, Marvel, Comics
+
+Fri, 21 Aug 2026 20:01:11 GMT
+
+https://collider.com/x-men-house-of-m-days-of-future-past-incursions-secret-wars/
+
+House of M collides with Days of Future Past in Marvel’s X-Men: Incursions, forcing Kate Pryde to choose which iconic X-Men reality will survive.
+---------
+
+# 106 Years Later, the Greatest Detective in the World Is Back in First Look at Reboot
+
+TV News, Agatha Christie
+
+Fri, 21 Aug 2026 20:11:45 GMT
+
+https://movieweb.com/hercule-poirot-reboot-tv-show-agatha-christie-first-look/
+
+The first look at Agatha Christie's reboot 'Hercule' has been released.
+---------
+
+# Brad Pitt's 97% Rated Action Sensation Is Now One of the Biggest Movies on Streaming... Again
+
+Movie News, F1, Apple TV, Hot on Streaming, Action, Brad Pitt
+
+Fri, 21 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/f1-brad-pitt-streaming-success-apple-august-2026/
+
+Brad Pitt's 2025 hit isn't slowing down on streaming.
+---------
+
+# "Terminator Meets Die Hard" Action Thriller Should Be on Everyone's Watchlist
+
+Features, Onslaught, Action, Thriller, Sci-Fi, A24, The Guest
+
+Fri, 21 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/onslaught-action-thriller-highly-anticipated/
+
+The new action thriller features an ensemble cast working with a proven writer-director duo who excel in the genre.
+---------
+
+# 'The Odyssey' Report Reveals Digital Streaming Release Date
+
+Movie News, The Odyssey
+
+Fri, 21 Aug 2026 19:45:39 GMT
+
+https://movieweb.com/the-odyssey-digital-streaming-release-date/
+
+Reports hinted at when fans may be able to watch 'The Odyssey' from home, as its reported digital streaming release date was shared.
+---------
+
 # New Andrew Garfield & Rebecca Ferguson Fantasy Epic's Upcoming Sequels Addressed By Star
 
 Movies
