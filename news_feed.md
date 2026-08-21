@@ -1,3 +1,157 @@
+# 10 Superheroes Who'd Crush Homelander In 10 Seconds Or Less
+
+Comics, Homelander
+
+Fri, 21 Aug 2026 21:01:14 GMT
+
+https://screenrant.com/superheroes-stronger-homelander-boys/
+
+The Boys' Homelander is lucky he doesn't inhabit other superhero universes, as a variety of ultra-powerful characters could easily destroy his ego.
+---------
+
+# Tombstone's Opening Scene Secretly Gave Away The Ending With A Perfect Johnny Ringo Quote
+
+Classic Movies, Tombstone
+
+Fri, 21 Aug 2026 21:01:14 GMT
+
+https://screenrant.com/tombstone-movie-johnny-ringo-quote-opening-ending/
+
+The opening quotes by Johnny Ringo actually delivered the message of what was going to happen in the final moments of this Western movie.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (#1 Is A $1 Billion Space Opera With High RT Audience Score)
+
+Movies, Disney+, Recommendation
+
+Fri, 21 Aug 2026 20:55:40 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-august-22/
+
+The best movies to watch on Disney+ this weekend are a documentary full of wonder, a supernatural thriller, and a unique sci-fi space opera.
+---------
+
+# 3 Best Netflix Series To Binge-Watch This Weekend (Aug 21–23, 2026)
+
+Streaming TV, What to Watch on Netflix, Netflix
+
+Fri, 21 Aug 2026 20:52:14 GMT
+
+https://screenrant.com/best-netflix-shows-to-binge-weekend-august-21-2026/
+
+The top shows to binge-watch on Netflix this weekend, August 21–23, 2026, include My Brilliant Career, Blood Sacrifice, and Outer Banks season 5.
+---------
+
+# 7 Anime Arcs Where the Hero Dies
+
+Anime, shonen anime, Attack On Titan, Hunter x Hunter, Dragon Ball Z
+
+Fri, 21 Aug 2026 21:15:11 GMT
+
+https://www.cbr.com/anime-arcs-where-the-hero-dies/
+
+Not even the strongest anime heroes are safe from the inevitable force that claims us all in the end.
+---------
+
+# DC Comics November 2026 Solicitations
+
+Comics, solicitations, DC Comics
+
+Fri, 21 Aug 2026 21:04:03 GMT
+
+https://www.cbr.com/batman-minotaur-villain-mystery-november-2026-solicitations/
+
+Batman's mysterious new villain is revealed as Justice League Unlimited and Absolute Superman hit #25 in DC Comics' November 2026 Solicitations
+---------
+
+# 5 Forgotten Fantasy Sci-Fi Movies That Are Perfect From Start to Finish
+
+Movies, Fantasy, Sci-Fi
+
+Fri, 21 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/fantasy-sci-fi-movies-perfect-from-start-to-finish-list/
+
+Fantasy and sci-fi genres naturally blend to build highly imaginative worlds, but some solid movies have simply gotten lost in the shuffle.
+---------
+
+# In Just 1 Week, Netflix Lands New Global Streaming Hit With 110-Minute Adventure Movie
+
+Movies, Netflix
+
+Fri, 21 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/to-the-max-adventure-netflix-success-august-2026/
+
+This brand-new drama is already making its way to the top of the charts.
+---------
+
+# The Odyssey Finally Sets Digital & Physical Media Release Date
+
+Movies, The Odyssey
+
+Fri, 21 Aug 2026 20:51:03 GMT
+
+https://www.cbr.com/the-odyssey-digital-physical-media-release-date/
+
+The historical epic is still thriving in theaters.
+---------
+
+# 10 Adventure Books More Exciting Than Any Movie
+
+Books and Comics, Adventure, Books, The Lord of the Rings, JRR Tolkien
+
+Fri, 21 Aug 2026 21:05:11 GMT
+
+https://collider.com/adventure-books-more-exciting-than-movies/
+
+Classic adventure books like Treasure Island by Robert Louis Stevenson and The Hobbit by JRR Tolkien are more exciting than any movie.
+---------
+
+# 7 Best Spy Movies of the 1970s
+
+Movie, Three Days Of The Condor, The Conversation, The Eiger Sanction, Enter the Dragon
+
+Fri, 21 Aug 2026 20:50:11 GMT
+
+https://collider.com/best-spy-movies-1970s-ranked/
+
+There weren't as many great spy movies in the 1970s as you might expect, but there were some winners, like The Conversation and Enter the Dragon.
+---------
+
+# Shaq Admits Why Marvel Keeps Rejecting Him From Joining 'Avengers' Movies
+
+Movie News, Avengers: Doomsday, Shaquille O'Neal
+
+Fri, 21 Aug 2026 21:08:11 GMT
+
+https://movieweb.com/avengers-marvel-studios-shaquille-o-neal-rejected/
+
+After nearly 20 years in the NBA and a long TV career, Shaquille O'Neal hoped to add "MCU star" to his Hall of Fame resume.
+---------
+
+# Netflix Is Quietly Deleting Hayden Panettiere's Beloved 124-Episode Series From Streaming
+
+TV News, Hayden Panettiere, Nashville, Coming/Leaving Streaming, Netflix
+
+Fri, 21 Aug 2026 21:01:13 GMT
+
+https://movieweb.com/hayden-panettiere-nashville-leaving-netflix-september-2026/
+
+The removal just happens to coincide with Panettiere's untimely death at age 36, but it's still a blow to her many fans around the world.
+---------
+
+# 3 Netflix Shows to Binge This Weekend
+
+TV Lists, Netflix, Thriller, Comedy, Big Mistakes, Midnight Mass, Marianne
+
+Fri, 21 Aug 2026 21:01:13 GMT
+
+https://movieweb.com/netflix-shows-binge-watch-weekend/
+
+Netflix has so many memorable TV shows to choose from, but these series are the best picks when you want to binge-watch a show for an entire weekend.
+---------
+
 # Jon Bernthal's 132-Minute Thriller Needs To Complete Its Trilogy After Prime Video Success
 
 Movies, Masked Recs
