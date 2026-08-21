@@ -1,3 +1,124 @@
+# After Jason Statham's New Action Thriller, His Best Franchise Returns In 2027
+
+Movies, Jason Statham, Mutiny, The Beekeeper 2
+
+Fri, 21 Aug 2026 16:55:15 GMT
+
+https://screenrant.com/jason-statham-mutiny-movie-the-beekeeper-2027/
+
+Jason Statham's new action thriller is coming out soon, but afterwards, his best franchise will be coming back to the big screen in 2027.
+---------
+
+# Buffy The Vampire Slayer’s Perfect R-Rated Replacement Makes Up For The Cancelled Reboot
+
+TV, Masked Recs
+
+Fri, 21 Aug 2026 16:45:15 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-replacement-interview-with-the-vampire/
+
+Mature and R-rated, this critically acclaimed hit's explicit gore and adult content does not stop it from becoming Buffy's best replacement.
+---------
+
+# Mad Men's 20 Best Characters, Ranked
+
+Classic TV, Mad Men
+
+Fri, 21 Aug 2026 16:45:15 GMT
+
+https://screenrant.com/best-mad-men-characters-ranked/
+
+From main characters like Don and Peggy to scene-stealing supporting players like Michael Ginsberg and Jimmy Barrett, Mad Men's cast is stacked.
+---------
+
+# Frankenstein Meets Nightmare On Elm Street In This Forgotten Horror That's Streaming For Free
+
+Movies, Masked Recs
+
+Fri, 21 Aug 2026 16:36:15 GMT
+
+https://screenrant.com/flatliners-movie-streaming-free-tubi-august-2026/
+
+A forgotten horror movie from the 1990s is now streaming for free, & it brings together the best things about Frankenstein & Nightmare on Elm Street.
+---------
+
+# Dean Winchester's 8 Love Interests In Supernatural Explained
+
+Classic TV, Supernatural
+
+Fri, 21 Aug 2026 16:30:16 GMT
+
+https://screenrant.com/supernatural-dean-winchester-love-interests/
+
+Dean Winchester, of Supernatural fame, has a reputation for being a lady's man, but he proved that he is boyfriend material again and again.
+---------
+
+# NYT Connections Solution And Hints For August 21, 2026
+
+Gaming, Connections, Mobile
+
+Fri, 21 Aug 2026 16:30:15 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-21-2026/
+
+Putting on a show is crucial to today's Connections, with scarcity and performance tied to the puzzle's themes, which can make finding hints odd.
+---------
+
+# Spider-Man Star Teases Unfinished Business With Sadie Sink’s Jean Grey
+
+CBR Exclusives, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Man: Brand New Day
+
+Fri, 21 Aug 2026 16:38:11 GMT
+
+https://www.cbr.com/spider-man-star-unfinished-business-with-sadie-sink-jean-grey/
+
+Jean Grey will likely come face-to-face with him again after Spider-Man: Brand New Day.
+---------
+
+# Avengers: Endgame Encore’s Runtime Reveals Exactly How Much New Footage It Has
+
+Movies, Avengers: Endgame, Marvel Cinematic Universe, Avengers, Innovation
+
+Fri, 21 Aug 2026 16:34:55 GMT
+
+https://www.cbr.com/avengers-endgame-encore-runtime-new-footage/
+
+Here's what's new in Avengers: Endgame Encore.
+---------
+
+# Star Trek Officially Returns With New 60th Anniversary October 2026
+
+Games, Star Trek, Tabletop, Star trek
+
+Fri, 21 Aug 2026 16:29:11 GMT
+
+https://www.cbr.com/star-trek-official-return-60th-anniversary-release-october-2026/
+
+Arguably the best episode of Star Trek: The Original Series will be playable in a new 60th-anniversary release set to launch in October.
+---------
+
+# Netflix Quietly Renews Guy Ritchie's 'The Gentlemen' With a Major Casting Change
+
+TV News, The Gentlemen, Guy Ritchie, Netflix, Meghan Markle
+
+Fri, 21 Aug 2026 16:53:21 GMT
+
+https://collider.com/the-gentlemen-season-3-renewed-cast-meghan-markle/
+
+Meghan Markle is reportedly being eyed for a role in Guy Ritchie’s Netflix hit The Gentlemen as the crime series looks toward a potential Season 3.
+---------
+
+# 30 Years Later, Nicolas Cage's 136-Minute Action Thriller Classic Sets New Release
+
+Movie News, The Rock, Nicolas Cage, Action, Blu-ray
+
+Fri, 21 Aug 2026 16:55:20 GMT
+
+https://movieweb.com/nicolas-cage-the-rock-4k-blu-ray/
+
+Nicolas Cage's action thriller classic 'The Rock' is finally making its debut on 4K Blu-ray in celebration of the film's 30th anniversary.
+---------
+
 # It’s Officially The End Of An Era For Avatar: The Last Airbender
 
 TV, Avatar: The Last Airbender, Paramount Plus
