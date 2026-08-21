@@ -1,3 +1,157 @@
+# Why Star Trek: Strange New Worlds’ Puppet Episode Guest Stars Look So Familiar
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Fri, 21 Aug 2026 12:30:14 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-puppet-episode-guest-stars-explained/
+
+Star Trek: Strange New Worlds puppet episode brings in a pair of talented comic actors from hit TV series to play villainous Orion pirates.
+---------
+
+# How Old Are Peter Parker & Jean Grey Supposed To Be In Spider-Man: Brand New Day?
+
+Superheroes, Marvel Cinematic Universe, Spider-Man, Spider-Man: Brand New Day
+
+Fri, 21 Aug 2026 12:30:14 GMT
+
+https://screenrant.com/how-old-are-peter-parker-jean-grey-spider-man-brand-new-day/
+
+Spider-Man: Brand New Day finally clarifies Peter Parker's age in the MCU, while Jean Grey's age may reveal Marvel's plans for the X-Men.
+---------
+
+# Gundam Assemble Officially Releases October 2026
+
+Gaming, Gundam
+
+Fri, 21 Aug 2026 12:30:02 GMT
+
+https://screenrant.com/gundam-assemble-november-2026-release/
+
+Gundam really has become one of the biggest IPs in the world over the last few decades, and this latest release could be one to remember.
+---------
+
+# ACOTAR 6 & 7’s Newly Revealed Book Length Points To Series Endgame
+
+Books, A Court of Thorns and Roses
+
+Fri, 21 Aug 2026 12:20:38 GMT
+
+https://screenrant.com/acotar-6-7-book-length-reveal-suggests-series-endgame/
+
+A Court of Thorns and Roses is preparing for its endgame, with the titles of books 6 and 7 revealed and their intriguing lengths ahead of release.
+---------
+
+# Terminator Is Officially Switching Genres With Terminator Survivors
+
+Gaming, Terminator, Terminator: Survivors, Terminator 2: Judgment Day, PC
+
+Fri, 21 Aug 2026 12:02:51 GMT
+
+https://screenrant.com/terminator-survivors-return-switching-genres/
+
+Terminator will officially be back thanks to a brand-new release, and the franchise is switching genres this time to something completely different.
+---------
+
+# Georgie & Mandy's Spinoff Title Explained: Why Is It Called Their "First" Marriage?
+
+TV, Young Sheldon, Georgie & Mandy's First Marriage
+
+Fri, 21 Aug 2026 12:01:15 GMT
+
+https://screenrant.com/georgie-and-mandys-first-marriage-show-title-meaning-explained/
+
+Young Sheldon's upcoming spinoff has a weird title, but there is a clever reason that the sitcom is called Georgie & Mandy's First Marriage.
+---------
+
+# DC Just Permanently Removed an Awesome Superman Power
+
+Comics, Superman
+
+Fri, 21 Aug 2026 12:01:14 GMT
+
+https://screenrant.com/superman-hell-retcon-change/
+
+Superman has a lot of incredible powers, but one of his current DC Comics' titles just retconned a particularly special ability out of existence.
+---------
+
+# 3 D&D Subclasses In Arcana Unleashed To Keep An Eye Out For
+
+Tabletop, Dungeons and Dragons, tabletop games
+
+Fri, 21 Aug 2026 12:01:14 GMT
+
+https://screenrant.com/dungeons-dragons-upcoming-new-subclasses-arcana-unleashed/
+
+According to Wizards of the Coast, eight new subclasses are arriving in D&amp;D with Arcana Unleashed; here are three of the best ones so far.
+---------
+
+# Apple TV Finally Confirms Silo’s Biggest Sacrifice After 3 Seasons
+
+TV, Silo, Innovation, Apple TV, Sci-Fi
+
+Fri, 21 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/apple-tv-silo-season-4-jimmy-conroy-mother-sacrifice/
+
+A fan favorite character returned to Silo and what he learned about his past reveals a huge sacrifice in the past the could help Jules today.
+---------
+
+# 10 Books That Were Way More Intense Than Their Movie Adaptations
+
+Books and Comics, It, American Psycho, Lolita, Misery
+
+Fri, 21 Aug 2026 12:23:11 GMT
+
+https://collider.com/books-more-intense-than-movie-adaptations/
+
+Classic books like American Psycho, L.A. Confidential, and The Wanderers were all darker and more intense than the movies they were adapted into.
+---------
+
+# It's Officially the End of an Era for Apple TV’s 10/10 Sci-Fi Epic
+
+TV News, Apple TV, For All Mankind, Sci-Fi, Ronald D. Moore
+
+Fri, 21 Aug 2026 12:01:11 GMT
+
+https://collider.com/for-all-mankind-season-6-final-season-filming-wrap-apple-tv/
+
+Apple TV’s For All Mankind has wrapped filming on Season 6, the acclaimed sci-fi drama’s final season after a seven-year run.
+---------
+
+# Netflix's 10/10 Revenge Thriller Series Returns in 2027 as New Trailer Is Unleashed
+
+TV News, Netflix, Blue Eye Samurai, Action, Thriller, Martial Arts, Anime
+
+Fri, 21 Aug 2026 12:22:43 GMT
+
+https://movieweb.com/netflix-blue-eye-samurai-season-2-trailer-release/
+
+The anime action series boasts a score of 97% on Rotten Tomatoes.
+---------
+
+# Amazon Has "Multimillion-Dollar Problem" After Leaking Jason Statham Action Thriller
+
+Movie News, Mutiny, Jason Statham, Action
+
+Fri, 21 Aug 2026 12:15:22 GMT
+
+https://movieweb.com/jason-statham-mutiny-leak-amazon/
+
+Amazon has a "multimillion-dollar problem" after leaking Jason Statham's new action thriller 'Mutiny' on Prime Video before its theatrical release.
+---------
+
+# "Taylor Sheridan Meets Guy Ritchie" in the Latest Must-See Crime Thriller
+
+Features, The Westies, Taylor Sheridan, Guy Ritchie, Thriller
+
+Fri, 21 Aug 2026 12:01:13 GMT
+
+https://movieweb.com/the-westies-crime-thriller-recommendation/
+
+The 1980s-set crime thriller is perfect for Guy Ritchie and Taylor Sheridan fans, and hopes are high for a Season 2.
+---------
+
 # Cyberpunk 2077: Rebelhorn Officially Announced
 
 Gaming, Cyberpunk 2077
