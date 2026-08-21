@@ -1,3 +1,58 @@
+# It's Official: Reacher's Biggest Weakness Is Thinking With His Pants
+
+Streaming TV, Reacher, Reacher - Season 4
+
+Fri, 21 Aug 2026 05:00:32 GMT
+
+https://screenrant.com/reacher-biggest-weakness-lila/
+
+Reacher season 4’s massive villain twist in episode 4 has exposed the Alan Ritchson character’s biggest weakness: he seems to think with his pants.
+---------
+
+# Resident Evil's 2026 Reboot Seemingly Reveals Massive Raccoon City Lore Change In New Footage
+
+Movies, Resident Evil, Horror
+
+Fri, 21 Aug 2026 05:00:14 GMT
+
+https://screenrant.com/resident-evil-2026-reboot-raccoon-city-lore-change-colmillos-footage/
+
+New footage of the upcoming Resident Evil reboot has released and seemingly reveals a massive bit of Raccoon City lore being changed in the film.
+---------
+
+# Invincible Officially Returns September 2026 With Tiny Epic Invincible
+
+Gaming, Invincible, PC
+
+Fri, 21 Aug 2026 05:00:14 GMT
+
+https://screenrant.com/invincible-official-september-2026-return-new-game/
+
+Fans of Invincible can finally look forward to a brand-new project this September with the release of Tiny Epic Invincible.
+---------
+
+# Hogwarts Legacy New Map Expansion Includes 2 Iconic Harry Potter Locations
+
+Gaming, Hogwarts Legacy, Hogwarts Legacy 2
+
+Fri, 21 Aug 2026 04:30:14 GMT
+
+https://screenrant.com/hogwarts-legacy-diagon-alley-london-fan-expansion/
+
+Hogwarts Legacy is a great rendition of the Harry Potter universe, but there are plenty of iconic locations that didn't make the final cut.
+---------
+
+# 3 Near-Perfect Books To Read This Weekend (Aug 22-23)
+
+Books and Comics, Books, Andy Weir, Project Hail Mary, Horror
+
+Fri, 21 Aug 2026 04:51:11 GMT
+
+https://collider.com/best-books-weekend-august-22-2026/
+
+Project Hail Mary, The Whistler, and The Unknown make up our list of the best books to read the weekend of August 22nd.
+---------
+
 # The Elder Scrolls: Valenwood Will Keep You Busy Till The Elder Scrolls 6
 
 Gaming, The Elder Scrolls, The Elder Scrolls 6, PC, RPG, Bethesda
