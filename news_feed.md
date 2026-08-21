@@ -1,3 +1,69 @@
+# Pokemon Delta Reign Officially Releases November 2026
+
+Gaming, Pokemon
+
+Fri, 21 Aug 2026 11:00:14 GMT
+
+https://screenrant.com/pokemon-delta-rain-tcg-november-2026/
+
+The Pokemon TCG really is going from strength to strength right now, and the latest set has now been confirmed ahead of time.
+---------
+
+# 10 Best The Far Side Comics Where A Character Says "Uh Oh!" Ranked
+
+Comics, The Far Side
+
+Fri, 21 Aug 2026 11:00:11 GMT
+
+https://www.cbr.com/the-far-side-uh-oh-comics-ranked/
+
+Gary Lawson began many of his jokes in The Far Side comic strips with two simple but dark and foreboding words: "Uh-oh."
+---------
+
+# 'Doctor Who' Is Officially Getting Replaced by a New British Sci-Fi Series
+
+TV News, Doctor Who, Blake's 7, Sci-Fi, BBC
+
+Fri, 21 Aug 2026 11:00:11 GMT
+
+https://collider.com/blakes-7-forget-doctor-who-this-classic-british-sci-fi-is-being-rebooted-as-a-perfect-replacement/
+
+With the future of 'Doctor Who' increasingly uncertain, another iconic British sci-fi, Blake's 7 is being rebooted to fill its void
+---------
+
+# 10 Mystery Books You Need To Read Before Their TV Adaptations Premiere
+
+TV, Mystery, Books, Thriller, Television
+
+Fri, 21 Aug 2026 10:47:11 GMT
+
+https://collider.com/mystery-books-to-read-before-tv-adaptations/
+
+From Liane Moriarty's Here One Moment to Lucy Foley's The Midnight Feast, these are the mystery books you must read before their TV adaptation.
+---------
+
+# 8 Great Stephen King Thriller Books You Can Read in a Weekend
+
+Movie Lists, Stephen King, Carrie, Thriller
+
+Fri, 21 Aug 2026 11:01:13 GMT
+
+https://movieweb.com/stephen-king-thriller-books-read-in-a-weekend/
+
+These will provide the perfect form of escapism over the course of the weekend, before being forced to face reality for another week.
+---------
+
+# Ridley Scott's Action Sci-Fi Return Hailed as One of the Biggest Surprises of the Year
+
+Movie News, Ridley Scott, The Dog Stars, Action, Sci-Fi, Thriller
+
+Fri, 21 Aug 2026 10:35:16 GMT
+
+https://movieweb.com/dog-stars-ridley-scott-first-reactions-action-sci-fi/
+
+The western-infused post-apocalyptic thriller has been met with praise in first reactions.
+---------
+
 # Why The Silos Were Built In Apple TV’s Silo
 
 Streaming TV, Silo, Silo - Season 3
