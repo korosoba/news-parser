@@ -1,3 +1,190 @@
+# Blade Runner Meets The Silence Of The Lambs In Netflix's Brilliant Sci-Fi Epic
+
+Streaming TV, Masked Recs
+
+Fri, 21 Aug 2026 22:15:14 GMT
+
+https://screenrant.com/netflix-pluto-sci-fi-blade-runner-meets-silence-of-the-lambs/
+
+Blade Runner and The Silence of the Lambs have inspired many movies and TV shows, and this Netflix series features the best elements of the films.
+---------
+
+# 3 Best Prime Video Series To Binge-Watch This Weekend (Aug 21–23, 2026)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Fri, 21 Aug 2026 22:05:14 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-weekend-august-21-2026/
+
+ScreenRant's roundup of the best shows to binge on Prime Video this weekend, August 21–23, 2026, includes Last Resort, Extinct, and Reacher season 4.
+---------
+
+# 48 Years Later, Jim Davis Says His Favorite Garfield Strip Is Still The Very First One
+
+Comics, Garfield
+
+Fri, 21 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/jim-davis-favorite-garfield-strip-first-one/
+
+48 years after publication, the first original Garfield comic strip is still Jim Davis' favorite one. Here is everything you need to know about it.
+---------
+
+# Stephen King Meets Silent Hill In New Supernatural Horror You Can Check Out Free Now
+
+Gaming, Stephen King, Silent Hill, PC, Steam
+
+Fri, 21 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/stephen-king-meets-silent-hill-new-free-horror-demo-dead-end/
+
+This new supernatural horror game blends the best elements of Stephen King and Silent Hill, and you can check it out for free right now.
+---------
+
+# Black Mirror's Most Iconic Episode Officially Returns Next Month
+
+Streaming TV, Black Mirror
+
+Fri, 21 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/black-mirror-san-junipero-comic-return/
+
+Black Mirror has several episodes that stick in your mind uncomfortably, but one iconic episode that stands out for a different reason is returning.
+---------
+
+# Insidious 7 Return Chances Addressed By Franchise-First Director
+
+Movies, Insidious, Insidious: Out of the Further, Horror
+
+Fri, 21 Aug 2026 21:56:08 GMT
+
+https://screenrant.com/insidious-7-return-chances-jacob-chase-response/
+
+Exclusive: Writer/director Jacob Chase addresses the chances of returning for Insidious 7 after making his franchise debut with the sixth film.
+---------
+
+# Ginny & Georgia Season 4 Release Window & Plot Details Breaking Point Revealed For Hit Netflix Series
+
+TV, Ginny & Georgia
+
+Fri, 21 Aug 2026 21:48:24 GMT
+
+https://screenrant.com/netflix-ginny-and-georgia-season-4-plot-details-confirmed/
+
+Filming for Ginny & Georgia season 4 took place from September 2025 to March 2026, and now Netflix teases when it will be released on the streamer.
+---------
+
+# Avatar: The Last Airbender's Uncle Iroh Backstory Reportedly Revealed For Cancelled Zuko Movie
+
+Movies
+
+Fri, 21 Aug 2026 21:47:41 GMT
+
+https://screenrant.com/avatar-the-last-airbender-zuko-movie-uncle-iroh-red-lotus-backstory-scrapped/
+
+A canceled movie from the Avatar: The Last Airbender franchise reportedly featured a storyline for Uncle Iroh, exploring the character's origins.
+---------
+
+# Netflix's New 8-Part Hit Series Is Succession's Perfect Spiritual Follow-up
+
+TV, The Audacity, Drama, Netflix
+
+Fri, 21 Aug 2026 22:15:11 GMT
+
+https://www.cbr.com/the-audacity-drama-netflix-streaming-success-august-2026/
+
+One of Netflix's biggest hits of 2026 was inspired by another beloved series--and it's blowing up on the streaming charts.
+---------
+
+# Steam Drops 5 New Free Games This August You Can Keep Forever
+
+Games, Steam, Video Games
+
+Fri, 21 Aug 2026 22:15:11 GMT
+
+https://www.cbr.com/steam-free-games-august-2026/
+
+Steam is famous for its wide selection of games that are often heavily discounted, but you can't beat free, and August has a few new great additions.
+---------
+
+# Call of Duty Returns to Nintendo After 13 Years With New Switch 2 Gameplay
+
+Games, Call of Duty, Nintendo Switch
+
+Fri, 21 Aug 2026 22:05:11 GMT
+
+https://www.cbr.com/cod-modern-warfare-4-switch-2-handheld-gameplay/
+
+Modern Warfare 4 will be the first new Call of Duty on a Nintendo platform in over a decade, and its gameplay on a handheld Switch 2 looks amazing.
+---------
+
+# Black Mirror's "San Junipero" Returns As A Special Comic
+
+Comics, Black Mirror
+
+Fri, 21 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/black-mirror-san-junipero-graphic-novel-glaad-special-edition/
+
+Experience the beloved Black Mirror episode a whole new way.
+---------
+
+# 8 Greatest Zuko Quotes in Avatar: The Last Airbender History
+
+Anime, Avatar: The Last Airbender
+
+Fri, 21 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/greatest-zuko-quotes-in-avatar-the-last-airbender-history/
+
+Zuko is arguably Avatar: The Airbender's greatest character, and it's no surprise he has some iconic quotes.
+---------
+
+# Disney+’s 2-Season Doctor Who Replacement Is a Global Streaming Hit Ahead of Hero’s Return
+
+TV, Loki, Disney+, Marvel Cinematic Universe
+
+Fri, 21 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/loki-sci-fi-success-disney-plus-august-2026/
+
+Disney has the perfect show for those missing the Doctor in their lives.
+---------
+
+# The Nameless Things Are the Perfect Villains For the New LOTR Movies
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: Shadow of the Past
+
+Fri, 21 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/new-lord-of-the-rings-movie-villains-nameless-things/
+
+One of the most enigmatic passages from The Lord of the Rings novel could finally be explained in an upcoming live-action film.
+---------
+
+# Emma Frost’s Official New Rival Has the Ultimate X-Men Superpower
+
+Books and Comics News, Marvel Comics, Marvel, Comics, X-Men
+
+Fri, 21 Aug 2026 22:00:11 GMT
+
+https://collider.com/x-men-superior-new-mutant-power-emma-frost-marvel/
+
+Marvel introduces Superior, a mysterious new X-Man whose ability lets her be better than any mutant she encounters, beginning with Emma Frost.
+---------
+
+# 3 Greatest Movies To Watch on Prime Video This Weekend (Aug 22-23)
+
+Movie, Is God Is, Good Fortune, Prime Video, Fargo
+
+Fri, 21 Aug 2026 21:48:11 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-august-22-2026/
+
+Is God Is, Good Fortune, and Fargo make up our list of the best movies to watch on Prime Video the weekend of August 22nd.
+---------
+
 # HBO's Masterpiece 8-Part Psychological Thriller Series Has Aged Like Fine Wine
 
 TV, Masked Recs
