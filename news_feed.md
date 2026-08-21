@@ -1,3 +1,80 @@
+# 6 Sitcom Spinoffs Better Than Young Sheldon
+
+Classic TV, Young Sheldon
+
+Fri, 21 Aug 2026 22:45:14 GMT
+
+https://screenrant.com/tv-spinoffs-better-than-young-sheldon/
+
+A list of iconic sitcom spinoffs that outshine Young Sheldon in legacy and impact, making better, longer lasting franchises.
+---------
+
+# 5 Strongest Marvel Heroes Who Still Haven't Joined the Avengers
+
+Comics, The Avengers
+
+Fri, 21 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/strongest-marvel-heroes-never-join-avengers/
+
+The iconic powerhouses who have never been recruited.
+---------
+
+# Why Sam Jones III's Pete Ross Left After Smallville Season 3
+
+Classic TV, Smallville, DC Universe
+
+Fri, 21 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/why-sam-jones-iii-pete-ross-left-smallville/
+
+Sam Jones III played a prominent role in the first three seasons of Smallville before being suddenly dismissed from the cast for season 4.
+---------
+
+# Severance Season 3 Release Timeline Addressed By Star As Filming Continues
+
+TV, Severance
+
+Fri, 21 Aug 2026 22:22:45 GMT
+
+https://screenrant.com/severance-season-3-release-timeline-filming-update-tramell-tillman/
+
+EXCLUSIVE: One of Severance's main cast members talks about the wait for the highly anticipated third season of Apple TV's mystery thriller.
+---------
+
+# In Just 1 Day, Record of Lodoss War Tops the Charts With a Brand-New Series 35 Years in the Making
+
+Anime, Record Of Lodoss War, webtoon, webtoons
+
+Fri, 21 Aug 2026 22:35:11 GMT
+
+https://www.cbr.com/record-of-lodoss-war-queen-of-death-webtoon-chart-topper/
+
+Record of Lodoss War, a fantasy classic pivotal to modern-day light novel culture, makes an impressive comeback after three-and-a-half decades.
+---------
+
+# HBO’s Sci-Fi ‘True Detective’ Replacement Officially Lands With Over 9M Views
+
+TV News, Lanterns, True Detective, HBO Max, Sci-Fi
+
+Fri, 21 Aug 2026 22:30:11 GMT
+
+https://collider.com/hbo-max-lanterns-viewership-9-3-million-views-first-3-days/
+
+HBO's new Lanterns series, which is hailed as a sci-fi replacement to True Detective, scores over nine million views during its first three days.
+---------
+
+# Peacock's Sci-Fi Adaptation Confirms 'Arrival' & MCU Writers as Showrunners
+
+TV News, Dungeon Crawler Carl
+
+Fri, 21 Aug 2026 22:24:50 GMT
+
+https://movieweb.com/dungeon-crawler-carl-showrunners-peacock/
+
+Christopher Yost and Eric Heisserer will serve as showrunners on the adaptation of 'Dungeon Crawler Carl.'
+---------
+
 # Blade Runner Meets The Silence Of The Lambs In Netflix's Brilliant Sci-Fi Epic
 
 Streaming TV, Masked Recs
