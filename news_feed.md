@@ -1,3 +1,80 @@
+# The Boys Creator Announces "Disturbing" New Horror Project
+
+Comics
+
+Fri, 21 Aug 2026 23:40:53 GMT
+
+https://screenrant.com/garth-ennis-new-horror-snail/
+
+The Boys creator Garth Ennis is reuniting with Hitman artist John McCrea for a deeply disturbing new standalone horror story this November.
+---------
+
+# After 37 Years, One Calvin & Hobbes Comic Is Still The Strip's Most Emotional Storyline
+
+Comics, Calvin and Hobbes
+
+Fri, 21 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/calvin-hobbes-robbery-storyline-most-emotional/
+
+Sometimes even stuffed tigers get scared sometimes.
+---------
+
+# Disney's New Star Wars Show Introduced One Of The Galaxy's Most Powerful Jedi
+
+Streaming TV, Star Wars, Star Wars: Visions Presents - The Ninth Jedi
+
+Fri, 21 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/star-wars-lah-zhima-powerful-jedi-explained/
+
+The list of the strongest Jedi in Star Wars hasn't changed much since Disney bought the franchise, but a new show introduced a very powerful new Jedi.
+---------
+
+# 10 Best Anime Movies in Film History
+
+Anime, Spirited Away, Your Name
+
+Fri, 21 Aug 2026 23:45:11 GMT
+
+https://www.cbr.com/best-anime-movies-in-film-history-list/
+
+Anime has left a lasting mark on cinema, and these films represent some of the medium's greatest achievements.
+---------
+
+# 3 Greatest Series to Binge on Prime Video This Weekend (August 22-23)
+
+TV, The Better Sister, The Boys, Outer Range, Prime Video
+
+Fri, 21 Aug 2026 23:43:11 GMT
+
+https://collider.com/prime-video-shows-binge-august-22-2026/
+
+The Better Sister, The Boys, Outer Range, and more make up our list of the best series to binge on Prime Video the weekend of August 22.
+---------
+
+# 12 Years Later, Mark Wahlberg’s Forgotten Crime Drama Officially Gets a Second Chance on Paramount+
+
+Movie News, Mark Wahlberg, Brie Larson, The Gambler, Paramount Plus
+
+Fri, 21 Aug 2026 23:30:11 GMT
+
+https://collider.com/the-gambler-mark-wahlberg-paramount-plus-sleeper-hit-august-2026/
+
+Mark Wahlberg's crime drama film The Gambler fell short of box-office expectations in 2014, but it's finding an audience on Paramount+ in 2026.
+---------
+
+# 31 Years Later, One of the Most Underrated Cyberpunk Thrillers Getting a New Release
+
+Movie News, Strange Days, Blu-ray
+
+Fri, 21 Aug 2026 23:34:27 GMT
+
+https://movieweb.com/strange-days-4k-blu-ray-release/
+
+A new report claims 'Strange Days' is coming to 4K Ultra HD Blu-ray.
+---------
+
 # 12 Best Blizzard Games Of All Time
 
 Gaming, Blizzard, Triple-A Games, PC
