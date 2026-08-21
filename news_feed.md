@@ -1,3 +1,278 @@
+# Netflix & Bill Skarsgård's New War Movie Based On 4-Year-Old Bestselling Novel Sets Theater & Streaming Release For This Year
+
+Movies, The Mosquito Bowl
+
+Fri, 21 Aug 2026 15:54:01 GMT
+
+https://screenrant.com/netflix-mosquito-bowl-streaming-theater-release-date/
+
+Bill Skarsgård's upcoming Netflix war movie based on a historical fiction book from 2022 sets its official theatrical and streaming release dates.
+---------
+
+# One Of The Best War Movies Of The 2000s Is Officially Releasing On Netflix
+
+Movies, Masked Recs
+
+Fri, 21 Aug 2026 15:48:41 GMT
+
+https://screenrant.com/jarhead-movie-war-streaming-netflix-release-date-september-2026/
+
+After becoming one of the most powerful war movies of the 2000s, a gritty film from an Oscar-winning director is poised for a Netflix release.
+---------
+
+# Modern Warfare 4 Beta Starts Today, Plus Early Access Code Giveaway
+
+Gaming, Contests, Call of Duty, Call of Duty: Modern Warfare 4
+
+Fri, 21 Aug 2026 15:32:04 GMT
+
+https://screenrant.com/modern-warfare-4-beta-codes-giveaway/
+
+The Modern Warfare 4 Early Access Beta starts today after Call of Duty: NEXT, and ScreenRant has hundreds of beta codes to give away.
+---------
+
+# Netflix's 8-Part 'The Buccaneers Meets The Tudors' Adaptation Makes Bridgerton Look Tame
+
+Streaming TV, Masked Recs, Netflix
+
+Fri, 21 Aug 2026 15:30:15 GMT
+
+https://screenrant.com/netflix-the-decameron-makes-bridgerton-look-tame/
+
+Bridgerton may be one of Netflix's steamiest shows, but there's another period drama on the streaming platform that's twice as unhinged.
+---------
+
+# 9 Best LitRPG Books As Good As Dungeon Crawler Carl
+
+Books, Dungeon Crawler Carl
+
+Fri, 21 Aug 2026 15:15:14 GMT
+
+https://screenrant.com/best-litrpg-books-like-dungeon-crawler-carl/
+
+Dungeon Crawler Carl has been the gateway into LitRPGs for thousands of fans, but it's far from the only addictive series the genre has to offer.
+---------
+
+# The Pitt Season 3 Trailer Reveals Major Character’s ER Exit As Robby Finally Returns
+
+TV, The Pitt, HBO Max
+
+Fri, 21 Aug 2026 15:09:15 GMT
+
+https://screenrant.com/the-pitt-season-3-trailer/
+
+The first trailer for The Pitt season 3 is officially here, revealing Noah Wyle's Robby returning to the ER and the new conflicts among the staff.
+---------
+
+# Christopher Nolan’s The Odyssey Digital Release Date Seemingly Revealed
+
+Movies, The Odyssey
+
+Fri, 21 Aug 2026 15:08:13 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-digital-bluray-release-date-report/
+
+After The Odyssey grossed $1.35 billion, all eyes are now on the upcoming Blu-ray and digital release, which has seemingly been revealed.
+---------
+
+# Agatha Christie's New BBC Detective Series Reveals First Look At Youngest Hercule Poirot In History
+
+TV, Hercule Poirot
+
+Fri, 21 Aug 2026 15:08:03 GMT
+
+https://screenrant.com/hercule-series-edward-bluemel-first-image/
+
+A new Hercule Poirot debuts, as a rising star steps in to make history for Agatha Christie's beloved detective in an upcoming BBC adaptation.
+---------
+
+# Pokémon FireRed and LeafGreen Players Can Claim Free Celebi for a Limited Time
+
+Games, Pokemon
+
+Fri, 21 Aug 2026 15:40:11 GMT
+
+https://www.cbr.com/pokemon-firered-leafgreen-free-celebi-home/
+
+Pokémon Home support is coming to FireRed and LeafGreen on Switch later this year, and the Mythical Pokémon is being given away to celebrate.
+---------
+
+# The Pitt Season 3   Official Teaser
+
+TV, The Pitt
+
+Fri, 21 Aug 2026 15:35:54 GMT
+
+https://www.cbr.com/video/the-pitt-season-3-teaser/
+
+HBO Max unveiled the official teaser for The Pitt Season 3
+---------
+
+# Daniel Craig's Narnia Movie Is Officially the End of An Era For Netflix
+
+Movies, Narnia: The Magician's Nephew, Netflix, Fantasy
+
+Fri, 21 Aug 2026 15:30:11 GMT
+
+https://www.cbr.com/netflix-chronicles-of-narnia-movie-reboot-end-of-streaming-era/
+
+Netflix will be making some huge changes with the release of Greta Gerwig's Narnia reboot, starting with The Magician's Nephew in 2027.
+---------
+
+# Apple TV's 98% RT Stephen King Copycat Is the Best New Show of 2026, & It's Not Even Close
+
+TV, Widow's Bay, Innovation, Horror, Apple TV
+
+Fri, 21 Aug 2026 15:30:11 GMT
+
+https://www.cbr.com/apple-tv-widows-bay-best-2026-horror-show/
+
+Apple TV's new hit has quickly become one of TV's greatest horror comedies of all time, and its Stephen King influence is obvious.
+---------
+
+# 10 Best Complete Anime Series of the 20th Century, Ranked
+
+Anime
+
+Fri, 21 Aug 2026 15:15:11 GMT
+
+https://www.cbr.com/best-complete-anime-series-20th-century/
+
+The 20th century saw the birth of anime series, and its best complete series remain masterpieces today.
+---------
+
+# ‘Breaking Bad’s Most Disturbing Scene Completely Reframes Walter White
+
+TV Features, Breaking Bad, AMC, Netflix, Vince Gilligan
+
+Fri, 21 Aug 2026 15:48:11 GMT
+
+https://collider.com/breaking-bads-most-disturbing-scene-completely-reframes-walter-white/
+
+Breaking Bad's most disturbing scene is in Episode 2, when Walter orders Jesse to dissolve a corpse in acid. It shows early that nothing is off limits
+---------
+
+# Wolverine Officially Goes Gold Just 3 Weeks Ahead of New Release
+
+Gaming News, Wolverine, Marvel, PlayStation 5, Superhero
+
+Fri, 21 Aug 2026 15:40:54 GMT
+
+https://collider.com/marvel-wolverine-gold-claws-ps5/
+
+Marvel's Wolverine officially reveals a new look at the iconic superhero ahead of PS5 release.
+---------
+
+# Jon Bernthal's "Taxing" New Action Thriller Officially Enters a New Era on Streaming
+
+Movie News, The Accountant, The Accountant 2, Jon Bernthal, Ben Affleck
+
+Fri, 21 Aug 2026 15:40:40 GMT
+
+https://collider.com/jon-bernthal-the-accountant-2-prime-video-streaming-success/
+
+Jon Bernthal’s new action thriller with Ben Affleck is officially entering a new era on streaming.
+---------
+
+# Jon Bernthal’s Best Performance Came 14 Years Ago, and Nothing Has Topped It
+
+TV Features, Jon Bernthal, The Walking Dead, AMC, The Punisher
+
+Fri, 21 Aug 2026 15:38:47 GMT
+
+https://collider.com/jon-bernthal-the-walking-dead-best-performance-shane-walsh/
+
+Jon Bernthal has taken on major roles in Marvel and Christopher Nolan’s The Odyssey, but his performance as Shane Walsh in The Walking Dead may still
+---------
+
+# Agatha Christie’s Sherlock Holmes Replacement Officially Revealed
+
+TV News, Sherlock, Agatha Christie, BBC, Mystery
+
+Fri, 21 Aug 2026 15:23:03 GMT
+
+https://collider.com/agatha-christie-hercule-poirot-edward-bluemel-first-look-britbox/
+
+Edward Bluemel transforms into Agatha Christie’s Hercule Poirot in the first look at BritBox and BBC’s new six-part mystery series Hercule.
+---------
+
+# 'Mutiny' Review: Jason Statham Keeps This Action Flick From Sinking Completely
+
+Movie Reviews, Mutiny, Action, Jason Statham, Jean-François Richet, Annabelle Wallis
+
+Fri, 21 Aug 2026 15:13:17 GMT
+
+https://collider.com/mutiny-movie-review-jason-statham/
+
+Jason Statham's new action flick Mutiny brings nothing new to the genre, but fans looking for a by-the-numbers action thriller might enjoy it.
+---------
+
+# 'The Pitt' Officially Returns With First Season 3 Teaser
+
+TV News, The Pitt, Noah Wyle, HBO Max, Shawn Hatosy
+
+Fri, 21 Aug 2026 15:11:14 GMT
+
+https://collider.com/the-pitt-season-3-first-look-teaser-release-date-january-2027/
+
+The Pitt Season 3 gets its first teaser and images as Noah Wyle prepares to return to HBO Max in January 2027.
+---------
+
+# 'The Pitt' Season 3 Trailer Unleashes Most Intense Shift Yet
+
+TV News, The Pitt, HBO Max
+
+Fri, 21 Aug 2026 15:31:47 GMT
+
+https://movieweb.com/the-pitt-season-3-trailer-hbo-max/
+
+HBO Max teased what to expect in the new season of 'The Pitt,' delivering the intense first official trailer for Season 3,
+---------
+
+# Jason Statham's New Action Thriller Is Already "100%" Eyeing a Sequel [Exclusive]
+
+Movie News, Jason Statham, Mutiny, Action, Thriller, Annabelle Wallis
+
+Fri, 21 Aug 2026 15:30:14 GMT
+
+https://movieweb.com/jason-statham-mutiny-2-sequel-crazy-ideas/
+
+Some "crazy ideas" have already been discussed.
+---------
+
+# Netflix's Blockbuster Action Adventure Franchise Returns With New Release in 1 Month
+
+TV News, Lego One Piece, Netflix
+
+Fri, 21 Aug 2026 15:27:31 GMT
+
+https://movieweb.com/netflix-lego-one-piece-official-trailer/
+
+Netflix has released the full trailer for 'LEGO One Piece,' the two-part animated special landing Sept. 29 with the live-action cast returning.
+---------
+
+# 'Michael 2' Star Reveals How Sequel Will Tackle Child Abuse Allegations
+
+Movie News, Michael, Antoine Fuqua
+
+Fri, 21 Aug 2026 15:08:43 GMT
+
+https://movieweb.com/michael-2-sequel-child-abuse-allegations/
+
+Jaafar Jackson explains how the 'Michael' sequel tackles abuse allegations.
+---------
+
+# Netflix's 'John Wick'-Esque Action Thriller Series Officially Returns in New Trailer
+
+TV News, Sakamoto Days
+
+Fri, 21 Aug 2026 15:02:01 GMT
+
+https://movieweb.com/sakamoto-days-season-2-new-trailer-netflix/
+
+The action-packed assassin thriller adaptation 'Sakamoto Days' has officially returned with a new Season 2 trailer.
+---------
+
 # 3 Greatest PS1 Games Turning 30 This Year
 
 Gaming, PlayStation (Original), PlayStation, Resident Evil, Crash Bandicoot, Tomb Raider
