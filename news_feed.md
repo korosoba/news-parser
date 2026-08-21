@@ -1,3 +1,245 @@
+# After Exciting Lethal Weapon 5 Update, The Original Action Classic Is Streaming For Free
+
+Classic Movies, Lethal Weapon
+
+Fri, 21 Aug 2026 00:30:14 GMT
+
+https://screenrant.com/lethal-weapon-movie-streaming-tubi-august-2026-sequel-update/
+
+Mel Gibson said he wants to direct a fifth Lethal Weapon movie, and for anyone who wants to catch up, the first movie is available to stream for free.
+---------
+
+# It's The End Of An Era For Zack Snyder's DC Universe
+
+Streaming TV, Lanterns, DC Universe, Zack Snyder
+
+Fri, 21 Aug 2026 00:30:14 GMT
+
+https://screenrant.com/zack-snyder-dc-green-lantern-john-stewart-era-over/
+
+Though the DCEU already ended, James Gunn's DCU just put the final nail in the coffin of Zack Snyder's plans for the Snyderverse and Green Lantern.
+---------
+
+# 10 Episodes That Almost Ruined Buffy The Vampire Slayer
+
+Classic TV, Buffy The Vampire Slayer
+
+Fri, 21 Aug 2026 00:15:14 GMT
+
+https://screenrant.com/buffy-vampire-slayer-episodes-almost-ruined-show/
+
+Buffy the Vampire Slayer is undoubtedly one of the biggest shows in television history, but even the iconic coming-of-age horror had its missteps.
+---------
+
+# LEGO One Piece Trailer Brings A New Straw Hats Adventure To Life
+
+TV, Lego One Piece
+
+Fri, 21 Aug 2026 00:02:50 GMT
+
+https://screenrant.com/lego-one-piece-official-trailer-netflix/
+
+Netflix just dropped a brand-new trailer for LEGO One Piece, offering fans of a franchise a sneak peek at the Straw Hats' upcoming adventures.
+---------
+
+# The Night Agent's Success On Netflix Is Great News For Prime Video's Biggest Action Franchise
+
+TV, The Night Agent, Prime Video
+
+Fri, 21 Aug 2026 00:01:14 GMT
+
+https://screenrant.com/the-night-agent-success-good-news-neagley/
+
+The Night Agent's streaming success shows the Prime Video's franchise spinoff can thrive with fresh plots and relentless, character-driven action.
+---------
+
+# Dave Filoni's Explanation Of Yoda’s Most Iconic Line Is A Lesson Star Wars Needs To Learn
+
+Movies, Star Wars
+
+Fri, 21 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/star-wars-yoda-iconic-line-dave-filoni-explain/
+
+Nearly 50 years after The Empire Strikes Back, Dave Filoni offers the perfect take on Yoda's iconic line that points Star Wars in the right direction.
+---------
+
+# 10 Weirdest Marvel Comics Characters That Are Actually Perfect
+
+Comics, Marvel
+
+Fri, 21 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/weirdest-marvel-comics-characters/
+
+Marvel Comics has become the go-to stop for all things weird but surprisingly not out of place, and these characters fit that mold exactly.
+---------
+
+# 5 Strongest Anime Transformations That Aren't From Dragon Ball
+
+Anime, Dragon Ball, One Piece, Sailor Moon
+
+Fri, 21 Aug 2026 00:45:11 GMT
+
+https://www.cbr.com/strongest-anime-transformations-not-dragon-ball/
+
+Goku's Super Saiyan forms are iconic, but these anime transformations are equally powerful and deserve recognition.
+---------
+
+# 10 Classic SNES Games That Are 100% Unplayable Today
+
+Games, Nintendo, retro games
+
+Fri, 21 Aug 2026 00:30:11 GMT
+
+https://www.cbr.com/classic-snes-games-aged-badly-list/
+
+Formerly classic SNES games like Yoshi's Safari haven't stood the test of time.
+---------
+
+# 5 Fantasy Worlds Better Than Harry Potter
+
+Movies, Fantasy
+
+Fri, 21 Aug 2026 00:30:11 GMT
+
+https://www.cbr.com/best-fantasy-worlds-better-than-harry-potter-list/
+
+Even the magical wonder of the Wizarding World pales before these fantasy universes
+---------
+
+# PlayStation Officially Drops 2 Free Downloads for Players Until August 31
+
+Games, PlayStation 5, Gran Turismo
+
+Fri, 21 Aug 2026 00:25:11 GMT
+
+https://www.cbr.com/playstation-official-free-games-august-2026/
+
+Two new free downloads are officially available for PlayStation 5 owners, but only for a limited time.
+---------
+
+# 10 Greatest Science Fantasy Anime of All Time, Ranked
+
+Anime, Science Fiction, Fantasy
+
+Fri, 21 Aug 2026 00:15:11 GMT
+
+https://www.cbr.com/greatest-science-fantasy-anime-all-time-ranked/
+
+Science fantasy is a glorious clash of genres that mashes believable science with magic, and these anime explore this perfectly.
+---------
+
+# Netflix Finally Reveals New Look at The One Piece Anime Reboot
+
+Anime, One Piece, Netflix, Shonen Jump
+
+Fri, 21 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/netflix-the-one-piece-anime-reboot-new-look/
+
+Netflix officially reveals a brand-new look at its upcoming The One Piece anime reboot, along with a few surprises.
+---------
+
+# Netflix Officially Confirms 'One Piece' Is Changing Its Winning Formula With New Release
+
+TV News, The One Piece, One Piece, Netflix
+
+Fri, 21 Aug 2026 00:15:11 GMT
+
+https://collider.com/the-one-piece-netflix-anime-remake-new-look-wit-studio/
+
+Netflix reveals a new look at THE ONE PIECE, WIT Studio’s upcoming anime remake that will retell Luffy’s adventure from the very beginning.
+---------
+
+# 3 Years Later, This ‘9-1-1’ Buck Line Is Still the Best Quote of the Entire Series
+
+TV Features, 9-1-1
+
+Fri, 21 Aug 2026 00:13:11 GMT
+
+https://collider.com/9-1-1-buck-best-quote-of-the-show/
+
+Buck's powerful quote in 9-1-1 Season 6 during his coma episode epitomizes the true message behind this ABC procedural.
+---------
+
+# 10 Greatest American Books of the Last 100 Years
+
+Books and Comics, Books, Dune, To Kill a Mockingbird, Frank Herbert
+
+Fri, 21 Aug 2026 00:11:11 GMT
+
+https://collider.com/best-american-books-last-100-years-ranked/
+
+To Kill a Mockingbird by Harper Lee and In Cold Blood by Truman Capote are both among the very best American books of the last 100 years.
+---------
+
+# ‘Cyberpunk: Edgerunners’ Officially Returns to Night City in New Season 2 Teaser
+
+TV News, Cyberpunk: Edgerunners 2, Cyberpunk 2077, Cyberpunk: Edgerunners, Netflix
+
+Fri, 21 Aug 2026 00:10:11 GMT
+
+https://collider.com/cyberpunk-edgerunners-season-2-teaser-netflix-release-date-2026/
+
+Netflix is officially doubling down on anime-inspired content with new looks at Cyberpunk: Edgerunners 2, Blue Eye Samurai, and more.
+---------
+
+# Netflix's ‘One Piece’ Officially Returns With Brand-New Spin-Off Adventure
+
+TV News, Lego One Piece, One Piece, Netflix
+
+Fri, 21 Aug 2026 00:05:11 GMT
+
+https://collider.com/lego-one-piece-netflix-first-trailer-luffy-straw-hats/
+
+Netflix reveals the first LEGO One Piece trailer, giving Luffy and the Straw Hat Pirates a playful new brick-built makeover.
+---------
+
+# Netflix's 10/10 Adults-Only Animated Series Officially Sets Release Date
+
+TV News, Blue Eye Samurai, Netflix, Randall Park, Kenneth Branagh
+
+Fri, 21 Aug 2026 00:00:11 GMT
+
+https://collider.com/netflix-blue-eye-samurai-season-2-trailer-release-date-january-2027/
+
+Netflix officially announced this afternoon that its best adult animated series, Blue Eye Samurai, will return in January 2027.
+---------
+
+# Netflix’s Sci-Fi Taylor Sheridan Replacement Series Gets First Trailer
+
+TV News, Brian Tyree Henry, Animation, Netflix, Janelle Monae
+
+Thu, 20 Aug 2026 23:56:31 GMT
+
+https://collider.com/bass-x-machina-teaser-trailer-release-date-netflix/
+
+Brian Tyree Henry is a bounty hunter in the steampunk Wild West in the new trailer for Bass X Machina. Watch it now.
+---------
+
+# 10 Essential X-Men Comics For Beginners
+
+Books and Comics, X-Men, Marvel, Superhero, Comics
+
+Thu, 20 Aug 2026 23:48:11 GMT
+
+https://collider.com/essential-x-men-comics-beginners/
+
+For fans exploring the X-Men universe for the first time, novels like God Loves, Man Kills and Grant Morrison's comics run are a great place to start.
+---------
+
+# One of the Most Controversial Cult Classics of All Time Getting New Release
+
+Movie News, Cannibal Holocaust, Horror
+
+Fri, 21 Aug 2026 00:27:19 GMT
+
+https://movieweb.com/cannibal-holocaust-4k-blu-ray/
+
+A new 4K restoration of 'Cannibal Holocaust' is coming to 4K Ultra HD Blu-ray in October.
+---------
+
 # Netflix's New 7-Part Military Thriller Is Taylor Sheridan Meets American Sniper
 
 TV, Masked Recs
