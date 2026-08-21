@@ -1,3 +1,14 @@
+# House Of The Dragon Officially Returns For A Limited 2026 Release
+
+Gaming, House of the Dragon, Game Of Thrones, Game of Thrones, Game Of Thrones: Dragonfire, PC
+
+Fri, 21 Aug 2026 06:00:14 GMT
+
+https://screenrant.com/house-of-the-dragon-season-3-dragonfire-celebration/
+
+House of the Dragon is officially returning in 2026 for a limited-time celebration of Season 3, one of the series' most-watched seasons to date.
+---------
+
 # Star Trek Officially Returns October 2026
 
 Gaming, Star Trek, Star Trek - Season 1, Star Trek - Season 2, Star Trek - Season 3, PC
