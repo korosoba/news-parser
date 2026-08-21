@@ -1,3 +1,113 @@
+# Jon Bernthal's 132-Minute Thriller Needs To Complete Its Trilogy After Prime Video Success
+
+Movies, Masked Recs
+
+Fri, 21 Aug 2026 20:45:14 GMT
+
+https://screenrant.com/the-accountant-2-3-movie-sequel-trilogy-prime-video-streaming-hit/
+
+This addictive Jon Bernthal action thriller has been a solid hit on Prime Video for over a year, so a third entry is a must at this point.
+---------
+
+# The Blade Movie That Proves The MCU’s Biggest Missed Opportunity Turns 28 Today
+
+Movies, Marvel Cinematic Universe, Blade
+
+Fri, 21 Aug 2026 20:45:14 GMT
+
+https://screenrant.com/blade-movie-1998-28-today-anniversary/
+
+Today marks the 28 year anniversary of a major Marvel movie that highlights how the MCU has missed a prime opportunity for the franchise thus far.
+---------
+
+# Spider-Man: Brand New Day's Villain Breaks Silence On X-Men Reboot's Cast
+
+Exclusive, X-Men, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man
+
+Fri, 21 Aug 2026 20:39:14 GMT
+
+https://screenrant.com/xmen-mcu-cast-tramell-tillman-response/
+
+EXCLUSIVE: Spider-Man: Brand New Day's Tramell Tillman, who plays Bill Metzger in the Phase 6 film, reacts to the X-Men reboot's announced cast.
+---------
+
+# Tom Hardy’s 10/10 Action Reboot Still Has A TV Spinoff In Development
+
+TV, Tom Hardy, Action
+
+Fri, 21 Aug 2026 20:30:14 GMT
+
+https://screenrant.com/mad-max-tv-spinoff-development-george-miller/
+
+Although it's gone quiet for a while since 2024, a recent update suggests we could well see this franchise's first TV series in the coming years.
+---------
+
+# New Star Wars Battlefront 2 Playable Character Found After 20 Years
+
+Gaming
+
+Fri, 21 Aug 2026 20:21:23 GMT
+
+https://screenrant.com/star-wars-battlefront-2-new-playable-character-discovered/
+
+The Star Wars Battlefront 2 is still discovering new Easter eggs and secrets all these years later, including a new playable character.
+---------
+
+# New Official Kiki's Delivery Service Cookbook Brings Iconic Magical Dishes to Life
+
+Anime, Kiki's Delivery Service
+
+Fri, 21 Aug 2026 20:45:11 GMT
+
+https://www.cbr.com/kikis-delivery-service-the-official-cookbook-review/
+
+Learn how to make all of Kiki's Delivery Service delicacies with VIZ Media's newest release, Kiki's Delivery Service: The Official Cookbook.
+---------
+
+# Timothy Olyphant's Sleeper Hit Apple TV Series Confirms Pluribus Star & Release Date
+
+TV, Stick
+
+Fri, 21 Aug 2026 20:42:39 GMT
+
+https://www.cbr.com/stick-season-2-release-date-rhea-seehorn/
+
+An exciting addition to the cast is revealed ahead of the Season 2 premiere.
+---------
+
+# One Piece Gets New Limited-Edition Seiko Watch With Only 5,000 Made
+
+Anime, One Piece, merchandise
+
+Fri, 21 Aug 2026 20:36:20 GMT
+
+https://www.cbr.com/one-piece-shinkansen-seiko-watch-release/
+
+One Piece fans can celebrate their favorite franchise in style with a brand-new Seiko watch, although they will have to act fast to get one.
+---------
+
+# The 9 Strongest MCU X-Men Movie Characters, Ranked By Power
+
+Movies, X-Men
+
+Fri, 21 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/strongest-mcu-x-men-movie-characters-ranked-list/
+
+The X-Men are slowly debuting in the MCU and these Mutant characters have already shown off their incredible power.
+---------
+
+# ‘Pokémon Horizons’ Officially Sets Netflix Release Date for Major Season 3 Finale
+
+TV News, Pokémon Horizons, Netflix, Animation, Comedy
+
+Fri, 21 Aug 2026 20:30:11 GMT
+
+https://collider.com/pokemon-horizons-season-3-part-4-netflix-release-date-september-18/
+
+Pokémon Horizons’ Season 3 Part 4 sets Netflix release date with Mega Evolution, the Six Heroes, & the final fight against Laquium and the Explorers.
+---------
+
 # After 21 Years, It's Always Sunny Threatens To Dethrone The Simpsons
 
 Streaming TV, It's Always Sunny in Philadelphia, The Simpsons
