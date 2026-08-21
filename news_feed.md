@@ -1,3 +1,234 @@
+# New Friday The 13th Series Is Officially Releasing Early (But There’s A Catch)
+
+TV, Crystal Lake
+
+Fri, 21 Aug 2026 14:20:34 GMT
+
+https://screenrant.com/friday-the-13th-crystal-lake-series-early-release-new-york-comic-con/
+
+Crystal Lake is resurrecting your worst nightmares, as the new Friday the 13th series will be released early, but there's a slight catch.
+---------
+
+# Michael Fassbender’s Gritty New Sci-Fi Epic Is Officially Releasing Early
+
+Movies, Hope
+
+Fri, 21 Aug 2026 14:16:25 GMT
+
+https://screenrant.com/michael-fassbender-hope-movie-early-premium-release-september-2026/
+
+The upcoming sci-fi epic featuring Alien and X-Men franchise alum Michael Fassbender is officially set to debut early with a special presentation.
+---------
+
+# 13 Years Later, Dexter: Resurrection S2 Set Images Seemingly Confirm Defining Dexter Morgan Detail’s Return
+
+TV, Dexter: Resurrection
+
+Fri, 21 Aug 2026 14:09:53 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-set-photos-dexter-morgan/
+
+Dexter: Resurrection season 2 has Dexter Morgan reminiscing about Miami, as set photos show everyone's favorite serial killer up to his old tricks.
+---------
+
+# Anne Hathaway Officially Returns To Theaters After New Dinosaur Movie The End Of Oak Street In 2 Months
+
+Movies, Masked Recs
+
+Fri, 21 Aug 2026 14:00:14 GMT
+
+https://screenrant.com/verity-anne-hathaway-next-movie-the-end-of-oak-street/
+
+After The End of Oak Street, Anne Hathaway is set to return to theaters with a new movie in just two months, and it will be an intense, R-rated ride.
+---------
+
+# Wolverine's Adamantium Faces Its Biggest Challenge of All Time
+
+Comics, Wolverine, X-Men
+
+Fri, 21 Aug 2026 14:00:14 GMT
+
+https://screenrant.com/wolverine-adamantium-claws-hag-somber-steel/
+
+Wolverine's adamantium claws are some of the strongest weapons in Marvel lore, but they'll be put to the ultimate test in one of the X-Men titles.
+---------
+
+# Taylor Sheridan’s “Top-Notch” Finale For Hit 3-Season Spy Series Teased By Lioness Star
+
+TV, Lioness, Lioness - Season 3, Dave Annable
+
+Fri, 21 Aug 2026 14:00:14 GMT
+
+https://screenrant.com/taylor-sheridan-lioness-season-3-finale-tease-dave-annable/
+
+EXCLUSIVE: One of the stars of Lioness teases an intense finale as the spy thriller reaches the halfway point of season 3 on Paramount+.
+---------
+
+# The Perfect Live-Action Cowboy Bebop Remake Came Out 19 Years Before Netflix's Official Adaptation
+
+Classic TV, Firefly, Cowboy Bebop
+
+Fri, 21 Aug 2026 14:00:14 GMT
+
+https://screenrant.com/firefly-perfect-live-action-cowboy-bebop-remake/
+
+Netflix did an official live-action remake of Cowboy Bebop in 2021, but Joss Whedon did a much better unofficial version two decades earlier: Firefly.
+---------
+
+# New Xbox Hardware Price Leaks Ahead Official Reveal, You Better Start Saving
+
+Gaming, Xbox, Triple-A Games
+
+Fri, 21 Aug 2026 13:50:06 GMT
+
+https://screenrant.com/xbox-25th-anniversary-console-price-leak/
+
+Whether you're an Xbox fan or someone who's looking to buy in for the first time, you might want to start saving now for this hardware release.
+---------
+
+# Fan-Favorite James Bond Replacement Casting Officially Seals His Franchise Fate
+
+Movies, James Bond
+
+Fri, 21 Aug 2026 13:46:50 GMT
+
+https://screenrant.com/james-bond-casting-theo-james-response/
+
+A fan-favorite James Bond replacement casting has officially sealed his fate in the franchise as Amazon's development of the next movie continues.
+---------
+
+# Hello Kitty Makes Her Official Nintendo Switch Comeback on October 29
+
+Anime, Hello Kitty, sanrio, Nintendo Switch
+
+Fri, 21 Aug 2026 14:20:11 GMT
+
+https://www.cbr.com/hello-kitty-party-land-nintendo-switch-release-date/
+
+Hello Kitty's next party game for the Nintendo Switch and Switch 2 finally has a release date, and it's coming sooner than fans expected.
+---------
+
+# The Odyssey's Best Line Is Already the Greatest Fantasy Movie Quote of the Decade
+
+Movies, The Odyssey, Christopher Nolan, matt damon, Innovation
+
+Fri, 21 Aug 2026 14:15:11 GMT
+
+https://www.cbr.com/the-odyssey-best-line-greatest-fantasy-movie-quote/
+
+Christopher Nolan's The Odyssey isn't just a return to form for its monumental filmmaking but a resonant quote that outshines all others.
+---------
+
+# 10 Netflix Anime You Need to Watch At Least Once
+
+Anime, Netflix, Vampire in the Garden, Magi: Adventure of Sinbad, Yasuke
+
+Fri, 21 Aug 2026 14:15:11 GMT
+
+https://www.cbr.com/netflix-anime-to-watch-at-least-once/
+
+Netflix is home to a variety of anime, from shonen and shojo to sci-fi and fantasy, and there are more than a few everyone should watch at least once.
+---------
+
+# Prime Video Completely Redesigns Alan Ritchson's Reacher in Season 4
+
+TV, Reacher, Prime Video, Jack Reacher, Innovation
+
+Fri, 21 Aug 2026 14:12:11 GMT
+
+https://www.cbr.com/prime-video-reacher-season-4-changed-book-villain/
+
+A major change from Lee Child's Gone Tomorrow completely redesigned the story that Prime Video's Reacher tells in Season 4, for the better.
+---------
+
+# The Best Animated Sci-Fi Show of the Decade Explodes on HBO Max & Conquers Streaming
+
+TV, Rick and Morty, HBO Max
+
+Fri, 21 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/rick-and-morty-animated-sci-fi-show-hbo-max-success-august-2026/
+
+The long-running series remains a hit on HBO Max.
+---------
+
+# Flash Gordon Is Making a Huge Comeback With an All-New Adventure
+
+Comics, Flash Gordon
+
+Fri, 21 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/mad-cave-flash-gordon-two-worlds-volume-1-release-date-confirmed/
+
+Flash Gordon is set to return with a brand-new story and an all-star creative team, one that just so happens to be making history with the title.
+---------
+
+# CBR_avengers-infinity-retrospective-_H_AUTH_SITE-002
+
+Movies, Avengers, Avengers: Infinity War, Marvel, MCU, Originals, Avengers: Doomsday
+
+Fri, 21 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/video/cbr-avengers-infinity-retrospective-rdj-joerusso/
+
+In anticipation of Avengers: Doomsday, we sat down with Robert Downey Jr. and Joe Russo to discuss Avengers: Infinity War, its impact and an oral history of the greatest moments from the MCU.How do you muster the bravery to turn your hero into a villain and eventually kill him off? And how do you decide when to come back for more? We dig into the scale, the hype and the depth of this chapter in our favorite characters' stories.On the 🎤: Sean O'Connell
+---------
+
+# James Bond Front-Runner Officially Drops Out of 007 Race
+
+TV News, James Bond, Theo James, Guy Ritchie, The Gentlemen
+
+Fri, 21 Aug 2026 14:21:43 GMT
+
+https://collider.com/james-bond-cast-theo-james-rejects-role/
+
+One James Bond front-runner has officially taken his name out of contention for the role of 007, citing his age.
+---------
+
+# 6 Coastal Horror Books To Read While Waiting for 'Widows Bay' Season 2
+
+Books and Comics, Books, Horror, Widow's Bay, Apple TV
+
+Fri, 21 Aug 2026 13:46:11 GMT
+
+https://collider.com/widows-bay-coastal-horror-books-to-read-before-season-2/
+
+These six coastal horror books have the cursed small-town charm Widow's Bay fans need while waiting for Season 2.
+---------
+
+# MCU Sparks Backlash After Revealing $2B Sequel 'Spider-Man: Brand New Day' Used AI
+
+Movie News, Spider-Man, Marvel Cinematic Universe, Tom Holland, Spider-Man: Brand New Day
+
+Fri, 21 Aug 2026 14:18:12 GMT
+
+https://movieweb.com/spider-man-brand-new-day-ai-art-mcu-backlash/
+
+Fresh concerns have been raised over the alleged use of AI-generated imagery in concept art for 'Spider-Man: Brand New Day.'
+---------
+
+# Netflix's 100%-Rated Cyberpunk Action Series Returns in Official Season 2 Trailer
+
+TV News, Cyberpunk: Edgerunners 2, Cyberpunk: Edgerunners, Netflix
+
+Fri, 21 Aug 2026 14:14:12 GMT
+
+https://movieweb.com/netflix-cyberpunk-edgerunners-2-trailer/
+
+Netflix has debuted a new teaser trailer for 'Cyberpunk: Edgerunners 2,' marking the explosive return of the acclaimed anime universe.
+---------
+
+# 'Star Trek: Strange New Worlds' Season 4's Jim Henson Collab Revisits 33-Year-Old Muppets Formula
+
+Features, star trek: strange new worlds, Muppets, Star Trek
+
+Fri, 21 Aug 2026 14:00:13 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-muppets-tradition/
+
+'The Muppet Christmas Carol' was a game-changer for the Jim Henson franchise, and Star Trek cashes in on the movie's success. Read on for more.
+---------
+
 # It's Officially The End Of An Era For The Blacklist
 
 Classic TV, Masked Recs
