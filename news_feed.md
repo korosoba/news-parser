@@ -1,3 +1,14 @@
+# Star Trek Officially Returns October 2026
+
+Gaming, Star Trek, Star Trek - Season 1, Star Trek - Season 2, Star Trek - Season 3, PC
+
+Fri, 21 Aug 2026 05:30:14 GMT
+
+https://screenrant.com/star-trek-space-hunt-board-game-october-release/
+
+Star Trek fans will want to mark their calendars for the franchise's dramatic return in October 2026 with a brand-new adventure.
+---------
+
 # It's Official: Reacher's Biggest Weakness Is Thinking With His Pants
 
 Streaming TV, Reacher, Reacher - Season 4
