@@ -1,3 +1,102 @@
+# Cyberpunk 2077: Rebelhorn Officially Announced
+
+Gaming, Cyberpunk 2077
+
+Fri, 21 Aug 2026 11:30:14 GMT
+
+https://screenrant.com/cyberpunk-2077-rebelhorn-official-announcement/
+
+Cyberpunk 2077 might be in the rear-view mirror, but the game is far from dead, and a new collab has just been announced.
+---------
+
+# All 3 R-Rated Movies That Made $1 Billion, Ranked
+
+Movie, Box Office, The Odyssey, Deadpool & Wolverine, Joker
+
+Fri, 21 Aug 2026 11:45:11 GMT
+
+https://collider.com/r-rated-movies-1-billion-box-office-ranked/
+
+From Deadpool & Wolverine, to Joker, to The Odyssey, we've ranked every R-rated movie that grossed a billion dollars at the worldwide box office.
+---------
+
+# 10 Most Universally Loved Movie Trilogies of All Time
+
+Movie, Before Sunrise, The Lord of the Rings, The Dark Knight, Back to the Future
+
+Fri, 21 Aug 2026 11:36:11 GMT
+
+https://collider.com/most-universally-loved-movie-trilogies-all-time-ranked/
+
+Classic three-part film series like Star Wars, The Dark Knight, and The Lord of the Rings are among the most universally loved movie trilogies ever.
+---------
+
+# DC Officially Reveals Catwoman's Secret Weapon
+
+Books and Comics, Catwoman, DC Comics, Comics, Batman
+
+Fri, 21 Aug 2026 11:30:11 GMT
+
+https://collider.com/dc-reveals-catwomans-secret-weapon-maggie-kyle/
+
+Explore the evolving relationship between Selina and Maggie Kyle in DC's latest Catwoman series.
+---------
+
+# Denis Villeneuve’s Forgotten Sci-Fi Masterpiece Surges on Apple TV
+
+Movie News, Arrival, Denis Villeneuve, Dune, Dune: Part Three
+
+Fri, 21 Aug 2026 11:30:11 GMT
+
+https://collider.com/arrival-apple-tv-streaming-success-august-2026/
+
+Denis Villeneuve’s sci-fi masterpiece Arrival is surging on Apple TV 10 years after its release as anticipation builds for Dune: Part Three.
+---------
+
+# 10 Fantasy Video Games With the Best Worldbuilding
+
+Gaming, Video Game, Baldur's Gate, World of Warcraft, Dragon Age
+
+Fri, 21 Aug 2026 11:22:11 GMT
+
+https://collider.com/fantasy-video-games-best-worldbuilding/
+
+Classics like Elden Ring, Dishonored, Skyrim, and Baldur's Gate 3 feature the best, most complex, and most compelling worldbuilding in fantasy gaming.
+---------
+
+# 10 Addictive Crime Shows That Are Impossible To Stop Watching
+
+TV, Crime, The Sopranos, Breaking Bad, Better Call Saul
+
+Fri, 21 Aug 2026 11:22:11 GMT
+
+https://collider.com/addictive-crime-shows-impossible-to-stop-watching/
+
+Dive into gripping crime shows that are perfect for binge-watching and keep you hooked from start to finish, from Breaking Bad to The Sopranos.
+---------
+
+# Guy Ritchie’s Biggest Netflix Series Is Officially Back for Season 2 in Just 2 Weeks
+
+TV Features, Guy Ritchie, Netflix, The Gentlemen, Theo James
+
+Fri, 21 Aug 2026 11:19:15 GMT
+
+https://collider.com/guy-ritchie-biggest-series-netflix-the-gentlemen-season-2-return/
+
+After a stellar Season 1, Guy Ritchie’s Netflix series The Gentlemen will be back for Season 2, and is upping the ante.
+---------
+
+# Liam Neeson's Non-Stop Action Thriller That's Better Than 'Taken' Is Being Cut From Netflix
+
+Movie News, Liam Neeson, Non-Stop, Coming/Leaving Streaming
+
+Fri, 21 Aug 2026 11:30:13 GMT
+
+https://movieweb.com/liam-neeson-non-stop-leaving-netflix-september-2026/
+
+Now's your last chance to stream what is genuinely one of Neeson's best movies of the last 20 years.
+---------
+
 # Pokemon Delta Reign Officially Releases November 2026
 
 Gaming, Pokemon
