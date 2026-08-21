@@ -1,3 +1,135 @@
+# HBO's Masterpiece 8-Part Psychological Thriller Series Has Aged Like Fine Wine
+
+TV, Masked Recs
+
+Fri, 21 Aug 2026 21:45:14 GMT
+
+https://screenrant.com/hbo-sharp-objects-thriller-series-aged-well/
+
+HBO's masterpiece psychological thriller series was already one of its best when it was released, but it has aged incredibly well over the years.
+---------
+
+# Merlin's Complex Motives In The Librarians: The Next Chapter Season 2 & Potential Future Explained By Dominic Monaghan
+
+TV, The Librarians: The Next Chapter, The Librarians: The Next Chapter - Season 2, Dominic Monaghan
+
+Fri, 21 Aug 2026 21:30:14 GMT
+
+https://screenrant.com/the-librarians-next-chapter-season-2-merlin-complex-motives-future-dominic-monaghan/
+
+Dominic Monaghan breaks down Merlin's role in The Librarians: The Next Chapter season 2, his complex motives and potential future in the franchise.
+---------
+
+# 11 Years Later, Michael Fassbender's Forgotten Western Masterpiece Is Streaming For Free
+
+Classic Movies, Slow West
+
+Fri, 21 Aug 2026 21:30:14 GMT
+
+https://screenrant.com/slow-west-movie-streaming-free-tubi-august-2026/
+
+A lesser-known Michael Fassbender Western is currently streaming for free, and this is an underrated masterpiece that genre fans need to watch
+---------
+
+# Netflix's Biggest Crime Drama Of The Year Has A Surprisingly Low RT Score
+
+Streaming TV, Masked Recs
+
+Fri, 21 Aug 2026 21:30:14 GMT
+
+https://screenrant.com/netflix-crime-drama-i-will-find-you-low-rotten-tomatoes-score/
+
+Netflix's biggest TV series debut of 2026 is a tight, six-episode crime drama with shockingly low audience and critical approval ratings.
+---------
+
+# 5 Things We've Learned From 12 Years Of Disney's Star Wars TV Shows
+
+Streaming TV, Star Wars
+
+Fri, 21 Aug 2026 21:30:14 GMT
+
+https://screenrant.com/star-wars-disney-tv-shows-lessons/
+
+The Disney era of Star Wars has been producing new shows for 12 years and counting, and the franchise has had hits and misses to learn from.
+---------
+
+# Terminator 2's T-1000 & John Connor Stars Reunite After 35 Years In New Photo
+
+Movies, Terminator 2: Judgment Day
+
+Fri, 21 Aug 2026 21:28:05 GMT
+
+https://screenrant.com/terminator-2-judgement-day-robert-patrick-edward-furlong-reunion/
+
+Terminator 2 actors Robert Patrick and Edward Furlong reunited after previously starring together as John Connor and the T-1000, respectively.
+---------
+
+# Lanterns Interview with Garret Dillahunt, Poorna Jagannathan, Kelly Macdonald & Jason Ritter
+
+Videos, Lanterns
+
+Fri, 21 Aug 2026 21:22:03 GMT
+
+https://screenrant.com/video/lanterns-garret-dillahunt-poorna-jagannathan-kelly-macdonald-jason-ritter-interview/
+
+Lanterns stars Garret Dillahunt, Poorna Jagannathan, Kelly Macdonald, and Jason Ritter discuss how they formed their characters from scratch, and how freeing it is not to have to rely on previous iterations.
+---------
+
+# Taylor Sheridan & Matthew McConaughey's Lost Yellowstone Team-Up Just Became More Possible
+
+TV, Yellowstone
+
+Fri, 21 Aug 2026 21:39:36 GMT
+
+https://www.cbr.com/taylor-sheridan-matthew-mcconaughey-lost-yellowstone-collaboration-update/
+
+While updates on Yellowstone's Taylor Sheridan and Matthew McConaughey collaboration have gone silent, an update from the actor has revived hope.
+---------
+
+# Sean Connery’s Dragonheart Helped Create the Star Wars Prequels
+
+Movies, Fantasy
+
+Fri, 21 Aug 2026 21:30:11 GMT
+
+https://www.cbr.com/sean-connery-dragonheart-created-star-wars-prequel/
+
+Long before the Star Wars prequels, Dragonheart showed George Lucas that CGI characters could carry scenes thanks to Sean Connery’s iconic dragon.
+---------
+
+# 10 Most Intense Video Games of All Time
+
+Gaming, Video Game, Dark Souls, Cuphead, Call of Duty
+
+Fri, 21 Aug 2026 21:35:11 GMT
+
+https://collider.com/most-intense-video-games-all-time-ranked/
+
+The most intense video games in history, from Cuphead to Doom Eternal, are so thrilling and emotionally draining that they might even be overwhelming.
+---------
+
+# ‘Gilmore Girls’ Biggest Unfinished Story Deserves a Second Chance 10 Years Later
+
+TV Features, Gilmore Girls, Gilmore Girls: A Year in the Life, Netflix, Warner Bros.
+
+Fri, 21 Aug 2026 21:27:11 GMT
+
+https://collider.com/gilmore-girls-year-in-the-life-rory-ending/
+
+Gilmore Girls: A Year in the Life left Rory pregnant, and nearly 10 years later, her unfinished story still demands an answer.
+---------
+
+# 'Insidious' Icon Confirms There's Much More to The Further Than We Know
+
+Movie News, Insidious: Out of the Further, Horror, Lin Shaye
+
+Fri, 21 Aug 2026 21:21:55 GMT
+
+https://movieweb.com/insidious-out-of-the-further-lin-shaye-explained/
+
+'Insidious' star Lin Shaye reveals a terrifying truth about the Further.
+---------
+
 # 10 Superheroes Who'd Crush Homelander In 10 Seconds Or Less
 
 Comics, Homelander
