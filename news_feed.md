@@ -1,3 +1,135 @@
+# Apple TV’s Pluribus Rewrites The Rules Of Dystopian Post-Apocalyptic Sci-Fi
+
+Streaming TV, Pluribus
+
+Fri, 21 Aug 2026 03:15:14 GMT
+
+https://screenrant.com/pluribus-post-apocalyptic-dystopian-sci-fi-rules-rewrite/
+
+While most post-apocalyptic sci-fi shows rarely rise above the established tropes of the genre, Apple TV’s Pluribus completely rewrites its rules.
+---------
+
+# Ahsoka Season 2 Continues To Prove Anakin Could've Stopped Kylo Ren
+
+Streaming TV, Ahsoka, Star Wars
+
+Fri, 21 Aug 2026 03:00:14 GMT
+
+https://screenrant.com/anakin-stop-kylo-ren-ahsoka-season-2/
+
+Kylo Ren was a formidable villain for the Star Wars galaxy, but Ahsoka season 2 has just revealed how Anakin Skywalker could have prevented this.
+---------
+
+# Game Of Thrones: The Black Queen's Return Officially Announced
+
+Gaming, Game of Thrones, Game Of Thrones: Dragonfire, Game Of Thrones, House of the Dragon, PC
+
+Fri, 21 Aug 2026 03:00:14 GMT
+
+https://screenrant.com/game-of-thrones-black-queens-return-announcement/
+
+Game of Thrones fans can officially relive one of House of the Dragon's most iconic moments in The Black Queen's Return, available now.
+---------
+
+# 86 Years Later, DC Has Finally Evolved Batman And Joker’s Relationship With One Big Twist
+
+DC Comics, Batman, Joker
+
+Fri, 21 Aug 2026 02:33:15 GMT
+
+https://screenrant.com/batman-joker-relationship-evolve-dc-comics-twist/
+
+Batman's relationship with Joker has never been more mysterious than it is now, and the two may be sharing a lot more in common than ever before.
+---------
+
+# Dynamite Entertainment November 2026 Solicitations
+
+Comics, solicitations, dynamite entertainment
+
+Fri, 21 Aug 2026 03:25:49 GMT
+
+https://www.cbr.com/disney-robin-hood-dynamite-entertainment-november-2026-solicitations/
+
+Disney's Robin Hood debuts, and Archie's battle with the Terminator continues in Dynamite's November 2026 Solicitations
+---------
+
+# Friday the 13th's Jason Voorhees Returns This Halloween for Terrifying New Experience
+
+Movies, Friday The 13th
+
+Fri, 21 Aug 2026 03:17:04 GMT
+
+https://www.cbr.com/jason-universe-survive-the-night-fan-experience/
+
+Friday the 13th fans can go head to head with Jason Voorhees himself.
+---------
+
+# 10 Pokémon Cards Worth More Than $1,000
+
+Games, Pokemon, Pokemon TCG, TCG
+
+Fri, 21 Aug 2026 03:15:11 GMT
+
+https://www.cbr.com/most-valuable-pokemon-cards-of-all-time/
+
+Finding a card that is worth more than an entire Pokémon TCG set can be difficult, but these ten cards are more than worth the chase for profit.
+---------
+
+# Dragon Ball Z Officially Brings Back Its Youngest Super Saiyan Fusion
+
+Anime, Dragon Ball, Dragon Ball Z, merchandise
+
+Fri, 21 Aug 2026 03:05:11 GMT
+
+https://www.cbr.com/dragon-ball-z-super-saiyan-gotenks-vs-majin-buu-bandai-match-makers/
+
+Super Saiyan Gotenks is officially back in the newest 2026 DBZ release by Bandai.
+---------
+
+# Clair Obscur Officially Drops Long-Awaited New Release Coming November 2026
+
+Games, Toy, Video Games
+
+Fri, 21 Aug 2026 03:00:11 GMT
+
+https://www.cbr.com/clair-obscur-official-new-release-esquie-november-2026/
+
+Clair Obscur's Esquie is a fan-favorite character, and now, he's returning with a brand-new release this year.
+---------
+
+# 5 Summer 2026 Anime That Are 10/10 So Far
+
+Anime, Bleach: Thousand Year Blood War, Jaadugar: A Witch in Mongolia
+
+Fri, 21 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/summer-2026-anime-perfect-so-far/
+
+The Summer 2026 season is packed with great anime, but these five stand above the rest with near-perfect quality.
+---------
+
+# 6 Flawless Sci-Fi Thrillers to Watch If You Love The X-Files
+
+Movies, The X-Files, Sci-Fi, Thriller
+
+Fri, 21 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/must-watch-sci-fi-thrillers-for-x-files-movie-fans-list/
+
+The X-Files remains the height of sci-fi thriller TV, and there are some flawless movies every fan should watch if they love Mulder and Scully.
+---------
+
+# Why Every Targaryen Seems To Have the Same Name in House of the Dragon
+
+TV Features, House of the Dragon, A Knight Of The Seven Kingdoms, Game Of Thrones, A Song of Ice and Fire
+
+Fri, 21 Aug 2026 03:04:11 GMT
+
+https://collider.com/house-of-the-dragon-a-song-of-ice-and-fire-aegon-targaryen-names/
+
+Why do so many Targaryens across the Song of Ice and Fire universe keep recycling the same names over and over? Turns out there's a reason.
+---------
+
 # “Say Kirk Stuff”: Sam Witwer Details Replacing William Shatner In Beloved Star Trek Short Film
 
 TV, Star Trek
