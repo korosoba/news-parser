@@ -1,3 +1,256 @@
+# It’s Officially The End Of An Era For Avatar: The Last Airbender
+
+TV, Avatar: The Last Airbender, Paramount Plus
+
+Fri, 21 Aug 2026 16:25:07 GMT
+
+https://screenrant.com/avatar-last-airbender-end-era-paramount-plus-streaming-chart-drop/
+
+Avatar: The Last Airbender remains a fan-favorite franchise, but a new shift in streaming officially sees it hitting the end of an era.
+---------
+
+# New Sci-Fi Thriller With Sherlock Holmes Alum Debuts To Disappointing Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Fri, 21 Aug 2026 16:17:33 GMT
+
+https://screenrant.com/hot-spot-movie-rotten-tomatoes-score/
+
+Fifteen years after starring in a Sherlock Holmes film, one of the stars is in a new sci-fi thriller, but it’s being widely panned by critics.
+---------
+
+# Sandra Bullock Breaks Her Biggest Rule Next Month After 21 Years
+
+New Movies, Sandra Bullock, Practical Magic 2
+
+Fri, 21 Aug 2026 16:16:15 GMT
+
+https://screenrant.com/sandra-bullock-no-sequel-rule-break-practical-magic-2/
+
+Sandra Bullock is breaking her biggest rule next month after 21 years of success, and the reasoning suggests a magical movie is coming.
+---------
+
+# Guy Ritchie’s The Gentlemen Season 3 Reportedly Eyeing Meghan Markle For New Role
+
+TV, The Gentlemen
+
+Fri, 21 Aug 2026 16:14:46 GMT
+
+https://screenrant.com/the-gentlemen-season-3-meghan-markle-role/
+
+The Gentlemen is getting the royal treatment, as Meghan Markle is making big moves and her eyes are on Guy Ritchie's Netflix series for season 3.
+---------
+
+# HBO's 10-Part Crime Drama From Martin Scorsese Is The Sopranos Meets Daisy Jones & The Six
+
+Classic TV, Masked Recs, Martin Scorsese
+
+Fri, 21 Aug 2026 16:00:16 GMT
+
+https://screenrant.com/vinyl-hbo-crime-drama-martin-scorsese-sopranos-meets-daisy-jones/
+
+Martin Scorsese's one-season HBO crime drama is one of the iconic filmmaker's most underrated works, combining The Sopranos with Daisy Jones.
+---------
+
+# Chris Pratt’s $1B Fantasy Adventure Officially Hits Rare #1 Streaming Milestone
+
+Movies, Masked Recs
+
+Fri, 21 Aug 2026 15:55:54 GMT
+
+https://screenrant.com/chris-pratt-super-mario-galaxy-movie-no-1-peacock-streaming-milestone-august-2026/
+
+Marvel actor Chris Pratt stars in a successful fantasy movie that has now started to dominate streaming after a massive theatrical run in 2026.
+---------
+
+# HBO Max Finally Confirms Return Window for Its Best Show With 97% RT
+
+TV, The Pitt, HBO Max, Drama
+
+Fri, 21 Aug 2026 16:25:52 GMT
+
+https://www.cbr.com/the-pitt-hbo-max-confirms-season-3-release-window/
+
+The show had already confirmed its 2027 return.
+---------
+
+# Universal’s Snoop Dogg Movie Officially Casts Its Dr. Dre
+
+Movies, Snoop Dogg, universal
+
+Fri, 21 Aug 2026 16:19:58 GMT
+
+https://www.cbr.com/snoop-dogg-movie-casts-dr-dre-actor/
+
+An actor has been found to play Dr. Dre in Universal's upcoming Snoop Dogg biopic.
+---------
+
+# 8 Years Ago, Vegeta Delivered the Greatest Quote in Dragon Ball History With Just 6 Words
+
+Anime, Vegeta, Dragon Ball Super, Dragon Ball, shonen anime
+
+Fri, 21 Aug 2026 16:16:11 GMT
+
+https://www.cbr.com/vegeta-greatest-dragon-ball-quote-in-history/
+
+Vegeta is a powerful Dragon Ball character and one of his most compelling quotes is delivered during a crucial catalyst in the Tournament of Power!
+---------
+
+# It's Officially The End of an Era For Invincible
+
+Comics, Invincible, Invincible (TV Show), Invincible Presents: Atom Eve
+
+Fri, 21 Aug 2026 16:01:27 GMT
+
+https://www.cbr.com/officially-the-end-of-an-era-for-invincible/
+
+Never thought we'd actually see the end of this from Invincible.
+---------
+
+# Disney+'s 3-Part Space Opera Sci-Fi Is the Perfect Weekend Binge
+
+Movies, Avatar, Disney+, Sci-Fi
+
+Fri, 21 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/disney-avatar-trilogy-perfect-weekend-binge/
+
+This groundbreaking 3-part sci-fi masterpiece is perfect for binging on Disney+ in a single weekend.
+---------
+
+# Agatha Christie’s New 6-Part Series Unveils First Look at New Poirot
+
+TV, Poirot, Crime, Mystery
+
+Fri, 21 Aug 2026 16:00:08 GMT
+
+https://www.cbr.com/britbox-agatha-christie-hercule-first-look/
+
+BritBox has finally revealed a first look at the new Hercule Poirot.
+---------
+
+# Sam Elliott's Vietnam War Masterpiece Hailed as the "First One to Get It Right" Is Officially Back on Top
+
+Movie News, We Were Soldiers, Sam Elliott, Black Hawk Down, War
+
+Fri, 21 Aug 2026 16:22:45 GMT
+
+https://collider.com/sam-elliott-we-were-soldiers-global-streaming-success/
+
+Sam Elliott's Vietnam War masterpiece hailed as the first one to get it right is officially back on streaming charts.
+---------
+
+# DC Just Officially Accused Superman of Murder
+
+Books and Comics News, Comics, DC Comics, Superman, DC
+
+Fri, 21 Aug 2026 16:20:11 GMT
+
+https://collider.com/superman-accused-murder-batman-detective-comics-1115/
+
+Superman is accused of murder in Detective Comics #1115, forcing Batman to investigate his best friend as the evidence against Clark Kent mounts.
+---------
+
+# ‘MobLand’s Best Quote From Tom Hardy Means Even More Ahead of Season 2
+
+TV Features, MobLand, Tom Hardy, Paramount Plus, Pierce Brosnan
+
+Fri, 21 Aug 2026 16:18:11 GMT
+
+https://collider.com/mobland-best-quote-tom-hardy-harry-meaning/
+
+Tom Hardy’s Harry delivers one of MobLand’s most revealing lines in Season 1, and its meaning says everything about his dangerous mindset.
+---------
+
+# ‘Absolute Batman’ Officially Returns With New Joker Horror Story
+
+Books and Comics News, Absolute Batman, DC, Batman
+
+Fri, 21 Aug 2026 16:10:11 GMT
+
+https://collider.com/absolute-batman-beyond-ark-m-november-dc-comic-covers/
+
+DC has unveiled the covers for its next Absolute Batman special, Beyond Ark M, teasing more horrors from within Joker's Arks this November.
+---------
+
+# All 11 Spider-Man Movies, Ranked by Box Office
+
+Movie, Spider-Man, Spider-Man: Brand New Day, Spider-Man Into the Spider-Verse
+
+Fri, 21 Aug 2026 16:06:11 GMT
+
+https://collider.com/spider-man-movies-ranked-by-box-office/
+
+The iconic Spider-Man is the most profitable hero in history, and each of his movies has raked in the big bucks, but which is the highest-grossing?
+---------
+
+# Netflix Officially Sets ‘Stranger Things’ Return Date
+
+TV News, Stranger Things, Stranger Things: Tales from '85, Netflix
+
+Fri, 21 Aug 2026 16:03:30 GMT
+
+https://collider.com/stranger-things-tales-from-85-season-2-release-date/
+
+Netflix has officially confirmed the return date for Stranger Things, and it’s sooner than fans may expect.
+---------
+
+# Steve Way Wanted To "Throw the Script Out the Window" for 'Furious'
+
+Exclusives, Furious, Hulu, Thriller, Crime
+
+Fri, 21 Aug 2026 16:00:11 GMT
+
+https://collider.com/furious-hulu-episode-6-alden-steve-way-interview/
+
+Actor and comedian Steve Way discusses joining the cast of Hulu's Furious and the moments he personally improvised in Episode 6.
+---------
+
+# Batgirl’s Deadliest Villain Officially Returns After 10 Years
+
+Books and Comics News, Batgirl, DC Comics, Comic Book, Batman
+
+Fri, 21 Aug 2026 16:00:11 GMT
+
+https://collider.com/batgirl-25-david-cain-return-cassandra-cain-dc/
+
+David Cain returns to DC Comics after 10 years in Batgirl #25, forcing Cassandra Cain to confront the father who trained her to become an assassin.
+---------
+
+# Win Tickets to Our Screening of Yash's 'John Wick'-Style Thriller 'Toxic'
+
+Exclusives, Toxic, Screening, Yash, Action
+
+Fri, 21 Aug 2026 15:59:24 GMT
+
+https://collider.com/yash-toxic-fairy-tale-screening/
+
+Details on how to enter for your chance to win free tickets to our theatrical screening of Yash's action thriller Toxic: A Fairy Tale for Grown-Ups.
+---------
+
+# 'God of War' Officially Reveals New Atreus Release for 2028
+
+Gaming News, God of War, PlayStation (Original), PlayStation 5, Sony
+
+Fri, 21 Aug 2026 15:58:59 GMT
+
+https://collider.com/god-of-war-ragnarok-atreus-statue-2028-prime-1-studio/
+
+God of War Ragnarök reveals a massive new Atreus release for 2028, featuring his bear and wolf forms.
+---------
+
+# It's Officially the End of an Era for Apple TV
+
+Features, Apple TV
+
+Fri, 21 Aug 2026 16:00:14 GMT
+
+https://movieweb.com/apple-tv-movie-library-changes/
+
+After seven years, Apple TV has broken a notable practice that may affect your favorite shows. What do we know so far?
+---------
+
 # Netflix & Bill Skarsgård's New War Movie Based On 4-Year-Old Bestselling Novel Sets Theater & Streaming Release For This Year
 
 Movies, The Mosquito Bowl
