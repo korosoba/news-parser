@@ -1,3 +1,14 @@
+# Game Of Thrones: The Promised Prince Officially Revealed
+
+Gaming, Game Of Thrones, Game of Thrones, Game Of Thrones: Dragonfire, PC, House of the Dragon
+
+Sat, 22 Aug 2026 06:00:14 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-the-promised-prince-reveal/
+
+Game of Thrones: The Promised Prince will give fans another glimpse into the Song of Ice and Fire prophecy and the Prince That Was Promised.
+---------
+
 # Why Alan Ritchson’s Reacher Seems Weaker In Season 4
 
 Streaming TV, Reacher, Reacher - Season 4
