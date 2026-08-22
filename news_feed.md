@@ -1,3 +1,146 @@
+# Prime Video's 10/10 Sci-Fi Series With 16 Episodes Succeeds In Its Hardest Task
+
+Streaming TV, Masked Recs
+
+Sat, 22 Aug 2026 23:00:15 GMT
+
+https://screenrant.com/fallout-prime-video-sci-fi-video-game-adaptation-succeeds/
+
+Bringing a beloved property to TV from another medium is always tricky, but one Prime Video show has created a blueprint for doing it right.
+---------
+
+# 5 Lord Of The Rings Games That Are 10/10 Masterpieces
+
+Gaming, The Lord of the Rings, Middle-Earth: Shadow of War
+
+Sat, 22 Aug 2026 23:00:15 GMT
+
+https://screenrant.com/lord-of-the-rings-games-masterpieces/
+
+Over the years there have been some spectacular Lord of the Rings games, and several of them really do hit masterpiece level.
+---------
+
+# 3 Years Later, Prime Video's Viral Fantasy Thriller Finally Has A Chilling New Successor
+
+Anime, Masked Recs, Death's Game
+
+Sat, 22 Aug 2026 23:00:15 GMT
+
+https://screenrant.com/prime-video-deaths-game-webtoon-successor-lovely-death/
+
+One of Prime Video's best thriller K-dramas, Death's Game, finally has a successor in this new webtoon series, and it's much darker than you'd expect.
+---------
+
+# The Expanse Updated A Classic Star Trek Tradition For The 21st Century
+
+Classic TV, The Expanse, Star Trek
+
+Sat, 22 Aug 2026 22:45:14 GMT
+
+https://screenrant.com/the-expanse-star-trek-captains-chair-update/
+
+The Expanse is an incredible sci-fi show that builds on the legacy of outstanding pioneering sci-fi like Star Trek, with thoughtful homages.
+---------
+
+# Netflix's Divisive Happy Gilmore Replacement Series Is the Most Popular Show on Streaming
+
+TV, The Hawk, Netflix, Comedy
+
+Sat, 22 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/the-hawk-comedy-netflix-streaming-success-august-2026/
+
+Netflix's latest sports comedy series with a divisive Rotten Tomatoes score, The Hawk, tops the Nielsen charts.
+---------
+
+# Wildwood Combines the Best Parts of Lord of the Rings and Coraline
+
+Movies, Wildwood
+
+Sat, 22 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/wildwood-combines-lord-of-the-rings-and-coraline/
+
+One of the most beloved animation studios in the world has released new details concerning their latest adventure.
+---------
+
+# Sydney Sweeney Suits Up as Fan-Favorite DC Superhero in New Viral Post
+
+Movies
+
+Sat, 22 Aug 2026 22:46:48 GMT
+
+https://www.cbr.com/sydney-sweeney-wonder-woman-viral-photo/
+
+Sydney Sweeney becomes an iconic superhero in the new post that very quickly went viral.
+---------
+
+# Hugh Jackman’s 104-Minute Sci-Fi Adventure Is a Global Streaming Hit Ahead of Reboot
+
+Movies, X-Men, Disney+
+
+Sat, 22 Aug 2026 22:46:47 GMT
+
+https://www.cbr.com/x-men-sci-fi-adventure-success-disney-plus-august-2026/
+
+Hugh Jackman's star-making turn is one of the most-streamed movies in the world.
+---------
+
+# The ‘Spa Weekend’ Cast Reveals the Comedy Legends They Want in the Sequel
+
+Exclusives, Spa Weekend, Leslie Mann, Isla Fisher, Anna Faris
+
+Sat, 22 Aug 2026 23:00:11 GMT
+
+https://collider.com/spa-weekend-leslie-mann-anna-faris-isla-fisher-michelle-buteau/
+
+Leslie Mann, Anna Faris, Isla Fisher, and Michelle Buteau discuss Spa Weekend's wild stunts, steamy romances, and the legends they want in the sequel.
+---------
+
+# 13 Years Later, Chris Evans’ Sci-Fi Cult Classic Is Officially Back on Streaming
+
+Movie News, Chris Evans, Sci-Fi, Snowpiercer, Bong Joon Ho
+
+Sat, 22 Aug 2026 23:00:11 GMT
+
+https://collider.com/chris-evans-snowpiercer-streaming-prime-video-august-2026/
+
+Chris Evans’ acclaimed 126-minute sci-fi thriller Snowpiercer is officially streaming on Prime Video. Here's everything you should know.
+---------
+
+# The 5 Best Jurassic Park Games, Ranked
+
+Gaming, Jurassic Park, Jurassic World Evolution, Video Game, Adventure
+
+Sat, 22 Aug 2026 22:51:11 GMT
+
+https://collider.com/best-jurassic-park-games-ranked/
+
+From LEGO Jurassic World to Jurassic World Evolution 3, these games capture the thrill, chaos, and wonder of bringing dinosaurs back to life.
+---------
+
+# Lord of the Rings Star’s $70 Million Dark Fantasy Epic Is Officially Leaving Netflix
+
+Movie News, Dracula Untold, Luke Evans, Netflix, The Lord of the Rings
+
+Sat, 22 Aug 2026 22:45:11 GMT
+
+https://collider.com/luke-evans-dracula-untold-leaving-netflix-august-31-2026/
+
+The $70 million dark fantasy movie featuring a Lord of the Rings fan-favorite is officially leaving Netflix at the end of this month.
+---------
+
+# 6 Reasons 'Deadpool & Wolverine' Just Became Essential Viewing for 'Avengers: Doomsday'
+
+Movie Lists, Marvel Cinematic Universe, Deadpool & Wolverine, Deadpool & Wolverine (2024), Avengers: Doomsday, Avengers: Doomsday (2026)
+
+Sat, 22 Aug 2026 23:00:14 GMT
+
+https://movieweb.com/avengers-doomsday-deadpool-wolverine-theories/
+
+'Deadpool & Wolverine's title characters haven't been announced for 'Avengers: Doomday,' so what gives? Read on for more.
+---------
+
 # Lanterns Just Cemented The One DC Green Lantern Retcon So Good, Nobody Even Questions It
 
 TV, Lanterns, Green Lantern, DC Comics
