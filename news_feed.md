@@ -1,3 +1,179 @@
+# Furious: Mindhunter Meets Gone Girl In Hulu's #1 New 8-Part 98% RT Thriller
+
+Streaming TV, Masked Recs
+
+Sat, 22 Aug 2026 12:15:14 GMT
+
+https://screenrant.com/hulu-furious-series-mindhunter-meets-gone-girl/
+
+Fans of Netflix's Mindhunter & David Fincher's Gone Girl must watch Furious. Hulu's #1 new hit series is a near-perfect 98% RT psychological thriller.
+---------
+
+# Star Trek Meets Minecraft In Huge New Open-World Sci-Fi Adventure
+
+Gaming, Star Trek, Minecraft
+
+Sat, 22 Aug 2026 12:08:47 GMT
+
+https://screenrant.com/star-trek-meets-minecraft-star-journey/
+
+Walk your own voxel-built starship, juggle stations from piloting to medical, and shape a persistent galactic war in this upcoming indie gem.
+---------
+
+# Game Of Thrones Meets Shōgun In Netflix’s $200 Million 2-Season Historical Epic
+
+Classic TV, Masked Recs
+
+Sat, 22 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/marco-polo-netflix-game-thrones-shogun-historical-epic/
+
+In 2014, Netflix produced an epic $200 million Game of Thrones replacement, one that has a lot in common with FX's more recent success, Shōgun.
+---------
+
+# Spider-Man: Brand New Day's Secret Villain Addresses MCU Future After Surviving Jean Grey's Wrath
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Tramell Tillman
+
+Sat, 22 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/spider-man-brand-new-day-tramell-tillman-bill-metzger-mcu-future/
+
+Exclusive: the actor who played Spider-Man: Brand New Day's secret villain opened up about potentially reprising his character in the MCU.
+---------
+
+# Isekai's Greatest RPG Anime Is Here WIth A World Like No Other (Exclusive)
+
+Anime, Isekai, The Exiled Heavy Knight Knows How to Game the System
+
+Sat, 22 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/exiled-heavy-knight-greatest-rpg-isekai-anime/
+
+One of the greatest RPG isekai anime's ever is here, and fans of series like Sword Art Online and The Rising of the Shield Hero won't want to miss it.
+---------
+
+# Spider-Man: Brand New Day’s New Box Office Record Officially Proves Its Hero Is As Big As The Avengers
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Sat, 22 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-record-avengers-movie-comparison/
+
+Spider-Man: Brand New Day's new impressive box office heights confirm a key MCU movie trend that cements Peter Parker's on-screen popularity.
+---------
+
+# Dark Souls: Soul Of Cinder Statue Arrives In 2027
+
+Gaming, Dark Souls
+
+Sat, 22 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/dark-souls-soul-of-cinder-2027-statue/
+
+Pre-order the stunning Soul of Cinder statue, featuring LED effects and intricate details from Dark Souls 3.
+---------
+
+# Beloved Marvel and DC Creator Reveals Fears of Being “Cancelled” Over His Work
+
+Comics, Marvel, DCU
+
+Sat, 22 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/marvel-dc-alex-ross-cancellation-worries/
+
+Alex Ross, famous for his work on Marvel and DC comics, fears he may land in hot water due to some controversial themes in his new OGN.
+---------
+
+# NBC’s 4-Part Sci-Fi Masterpiece Is Ready To Become a Weekend Binge
+
+TV Features, Heroes, Hayden Panettiere, NBC, Zachary Quinto
+
+Sat, 22 Aug 2026 12:03:11 GMT
+
+https://collider.com/heroes-nbc-sci-fi-masterpiece-weekend-binge/
+
+NBC's Heroes was a trailblazing superhero series featuring Milo Ventimiglia, Ali Larter, and Hayden Panettiere, now available to watch on Netflix.
+---------
+
+# Netflix Officially Adds Anya Taylor-Joy’s Brutal Fantasy Masterpiece
+
+Movie News, The Northman, Anya Taylor-Joy, Netflix, Alexander Skarsgard
+
+Sat, 22 Aug 2026 12:01:11 GMT
+
+https://collider.com/anya-taylor-joy-fantasy-the-northman-streaming-netflix-august-2026/
+
+Anya Taylor-Joy's fantasy epic with shades of Gladiator and Vikings is officially streaming for all subscribers on Netflix.
+---------
+
+# 'Only Murders in the Building' Is Destroying Its Original Formula With Season 6's Massive Change
+
+TV Features, Only Murders in the Building, Hulu, Steve Martin, Martin Short
+
+Sat, 22 Aug 2026 11:47:16 GMT
+
+https://collider.com/only-murders-in-the-building-season-6-cast-size-mistake/
+
+Only Murders in the Building risks losing its core charm with Season 6's extensive list of A-list talent.
+---------
+
+# 'Spiderman: Brand New Day' Did What No MCU Movie After 'Avengers: Endgame' Had the Guts To Do
+
+Movie Features, Spider-Man: Brand New Day, Tom Holland, Marvel, Avengers: Endgame
+
+Sat, 22 Aug 2026 11:47:16 GMT
+
+https://collider.com/spiderman-brand-new-day-did-what-no-mcu-movie-after-avengers-endgame-had-the-guts-to-do/
+
+The most recent outing in the MCU, 'Spiderman: Brand New Day' went a deeper route after the ending to 'No Way Home' and the movie benefited from it.
+---------
+
+# Forget 'Terminator,' This Near-Perfect Time-Travel Thriller Is Officially Free to Watch
+
+Movie News, Sci-Fi, Looper, Bruce Willis, Emily Blunt
+
+Sat, 22 Aug 2026 11:45:15 GMT
+
+https://collider.com/bruce-willis-sci-fi-looper-streaming-free-tubi-august-2026/
+
+Bruce Willis and Joseph Gordon-Levitt’s $176 million time-travel thriller Looper is officially streaming for free on Tubi.
+---------
+
+# Alan Ritchson's 94-Minute Action Thriller Is One of the Biggest Streaming Hits in the World
+
+Movie News, Playdate, Hot on Streaming, Alan Ritchson
+
+Sat, 22 Aug 2026 12:00:14 GMT
+
+https://movieweb.com/playdate-streaming-hit-prime-video-august-2026/
+
+Forget Reacher, this is the one hero Ritchson was born to play.
+---------
+
+# Gerard Butler's 140-Minute Non-Stop Action Thriller Smash Is Being Deleted From Netflix
+
+Movie News, Den of Thieves, Gerard Butler, Coming/Leaving Streaming, Action, Netflix
+
+Sat, 22 Aug 2026 12:00:14 GMT
+
+https://movieweb.com/gerard-butler-den-of-thieves-action-leaving-nextflix-september-2026/
+
+Netflix users only have a small amount of time left to catch Gerard Butler's violent action thriller before it's gone from the streaming service.
+---------
+
+# 10 Best Far Side Comics About Movies
+
+Movie Lists, The Far Side
+
+Sat, 22 Aug 2026 12:00:14 GMT
+
+https://movieweb.com/far-side-best-about-movies/
+
+Gary Larson certainly knew how to poke fun at movies and the experience we share around them. These 10 strips prove it.
+---------
+
 # 44 Years Later, Stephen King’s “Magnum Opus” Is Finally Getting A Proper Adaptation
 
 Streaming TV, Stephen King, The Dark Tower, Mike Flanagan
