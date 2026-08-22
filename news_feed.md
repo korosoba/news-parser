@@ -1,3 +1,157 @@
+# Agatha Christie Meets Succession In New Twisty Mystery With 4 Stars On Goodreads
+
+Books, Agatha Christie
+
+Sat, 22 Aug 2026 18:45:14 GMT
+
+https://screenrant.com/the-anniversary-alex-finlay-new-twisty-family-mystery-like-succession/
+
+The Anniversary by Alex Finlay blends Agatha Christie's mystery style with the more modern themes of family, wealth, and legacy.
+---------
+
+# Reacher Season 4 Finally Gets Audience Verdict On Rotten Tomatoes
+
+TV, Reacher, Alan Ritchson, Prime Video
+
+Sat, 22 Aug 2026 18:41:38 GMT
+
+https://screenrant.com/reacher-season-4-rotten-tomatoes-audience-score-debut/
+
+The viewers have spoken on Alan Ritchson's return as Jack Reacher in 2026, as Reacher season 4 has received its audience score on Rotten Tomatoes.
+---------
+
+# Gary Larson's 25 Funniest Far Side Comics About Dogs
+
+Comics, The Far Side
+
+Sat, 22 Aug 2026 18:35:21 GMT
+
+https://screenrant.com/funniest-far-side-dog-comics/
+
+Gary Larson's Far Side comic featured plenty of panels starring man's best friend, but his funniest dog comics have kept fans barking with laughter.
+---------
+
+# Manny Wasn't The Only Key Character Recast In The Last Of Us
+
+Streaming TV, The Last of Us
+
+Sat, 22 Aug 2026 18:30:14 GMT
+
+https://screenrant.com/the-last-of-us-character-recast-bill-con-oneill-nick-offerman/
+
+Manny, played by Danny Ramirez, in The Last of Us season 2, has been recast, but it's not the first time TLOU has had a major recasting.
+---------
+
+# Tom Holland & Robert Pattinson’s Forgotten Crime Drama Is Prisoners Meets No Country For Old Men
+
+Movies, The Devil All The Time
+
+Sat, 22 Aug 2026 18:30:14 GMT
+
+https://screenrant.com/devil-all-the-time-movie-prisoners-meets-no-country-for-old-men/
+
+Six years before Tom Holland and Robert Pattinson played adversaries in The Odyssey, they sparred in an underrated Netflix-original thriller.
+---------
+
+# Andrew Garfield Earns His Lowest Box Office Debut In History With New Fantasy Movie
+
+Movies, The Magic Faraway Tree, Box Office
+
+Sat, 22 Aug 2026 18:28:56 GMT
+
+https://screenrant.com/the-magic-faraway-tree-box-office-opening-weekend-domestic-result/
+
+Andrew Garfield's new fantasy movie is set to post the lowest opening weekend box office total in history for a wide release featuring the star.
+---------
+
+# The Mummy 4 Marks the End of an Era for the Franchise
+
+Movies, The Mummy 4, The Mummy, Adventure
+
+Sat, 22 Aug 2026 18:30:11 GMT
+
+https://www.cbr.com/the-mummy-4-end-of-era-franchise-timeline-change/
+
+Making several timeline changes, the upcoming sequel in The Mummy franchise will ignore the mistakes of its past to become a long-awaited trilogy.
+---------
+
+# Step Aside Obsession, New Indie Horror Is Winning Over Critics With Near-Perfect RT Score
+
+Movies, It Ends
+
+Sat, 22 Aug 2026 18:29:31 GMT
+
+https://www.cbr.com/it-ends-rotten-tomatoes-score/
+
+2026 is turning out to be a dominant year for low-budget horror flicks.
+---------
+
+# Nicolas Cage's Sequel to $800M Adventure Franchise Is 'Finally Real,' Director Confirms
+
+Movies, National Treasure, National Treasure: Book of Secrets
+
+Sat, 22 Aug 2026 18:20:54 GMT
+
+https://www.cbr.com/nicolas-cage-national-treasure-3-in-works-jon-turteltaub/
+
+One of Nicolas Cage's most famous franchises is finally moving forward.
+---------
+
+# All 3 'Dune' Movies, Ranked
+
+Movie, Dune, Dune: Part Two, Dune: Part Three
+
+Sat, 22 Aug 2026 18:53:11 GMT
+
+https://collider.com/dune-movies-ranked/
+
+There have been three movies based on Frank Herbert's Dune so far, including a recent two-part adaptation, but which of them feels like the best?
+---------
+
+# The 6 Most Intense Movies Released Since 2020, Ranked
+
+Movie, Oppenheimer, The Zone of Interest, All Quiet on the Western Front, Killers of the Flower Moon
+
+Sat, 22 Aug 2026 18:28:11 GMT
+
+https://collider.com/most-intense-movies-since-2020-ranked/
+
+From The Substance to Civil War, these intense films turn real horrors, brutal violence, and human suffering into unforgettable cinema.
+---------
+
+# ‘Heated Rivalry’ Season 2 Is Officially Moving Away From the Show’s Winning Formula
+
+TV Features, Heated Rivalry, Hudson Williams, Connor Storrie, HBO
+
+Sat, 22 Aug 2026 18:27:11 GMT
+
+https://collider.com/heated-rivalry-season-2-storyline-formula-no-twists/
+
+Heated Rivalry Season 2 is introducing new characters and romances, but creator Jacob Tierney isn't planning on abandoning the books.
+---------
+
+# Action Thriller Hailed as One of the Year's Best Debuts New Look at the Onslaught
+
+Movie News, Onslaught, Action
+
+Sat, 22 Aug 2026 18:30:13 GMT
+
+https://movieweb.com/a24-onslaught-promo-character-posters/
+
+A24 ramps up marketing with a gritty IMAX poster and a trailer park sniper facing genetically engineered soldiers.
+---------
+
+# Audiences Officially Deliver Their Verdict On Jason Statham's 'Mutiny' Action Thriller
+
+Movie News, Mutiny, Jason Statham, Action
+
+Sat, 22 Aug 2026 18:18:06 GMT
+
+https://movieweb.com/jason-statham-mutiny-rt-audience-score/
+
+Rotten Tomatoes audiences have given their thoughts on Statham's latest film.
+---------
+
 # Sandra Bullock & Nicole Kidman's Practical Magic 2 Keeps 1 Tradition Alive After 28 Years
 
 Movies
