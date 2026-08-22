@@ -1,3 +1,58 @@
+# 25 Years Later, This 10/10 PS2 Trilogy Is Free With PlayStation Plus
+
+Gaming
+
+Sat, 22 Aug 2026 11:01:14 GMT
+
+https://screenrant.com/playstation-ps2-perfect-trilogy-ps-plus/
+
+The PlayStation 2 hosted some of the greatest games of all-time across many genres, and one of its best trilogies is free with PS Plus.
+---------
+
+# Brandon Sanderson's Mistborn Meets Final Fantasy In New Turn-Based Fantasy RPG
+
+Gaming, Brandon Sanderson, Mistborn, The Stormlight Archive, The Cosmere, Final Fantasy, Steam, PC
+
+Sat, 22 Aug 2026 10:49:56 GMT
+
+https://screenrant.com/brandon-sanderson-meets-final-fantasy-severed-gods/
+
+Brandon Sanderson fans may not have an official Cosmere RPG video game yet, but this Final Fantasy-style fantasy game will scratch that Mistborn itch.
+---------
+
+# 10 Unluckiest Musicians in The Far Side Ranked From Bad to Worse
+
+Comics, The Far Side
+
+Sat, 22 Aug 2026 11:00:11 GMT
+
+https://www.cbr.com/unluckiest-musicians-in-the-far-side-ranked/
+
+Larson uses musicians many times in The Far Side, with a drastic change occurring halfway through the series. The unluckiest of which prove hilarious.
+---------
+
+# Jon Bernthal’s 6-Part Crime Masterpiece Is Officially Streaming on HBO Max
+
+TV News, We Own This City, Jon Bernthal, HBO Max, David Corenswet
+
+Sat, 22 Aug 2026 11:00:11 GMT
+
+https://collider.com/jon-bernthal-miniseries-we-own-this-city-streaming-hbo-max-august-2026/
+
+Jon Bernthal's six-episode HBO miniseries with shades of The Wire and Spotlight is the perfect weekend binge on HBO Max.
+---------
+
+# 8 Most Perfect Sitcoms of the Last 25 Years
+
+TV, Sitcom, It's Always Sunny in Philadelphia, Abbott Elementary, The Good Place
+
+Sat, 22 Aug 2026 10:52:11 GMT
+
+https://collider.com/most-perfect-sitcoms-last-25-years-ranked/
+
+It's Always Sunny in Philadelphia, Abbott Elementary, and New Girl are among the best sitcoms of the last 25 years, but which is the greatest?
+---------
+
 # 5 Most Iconic Quotes From The Legend Of Zelda Series
 
 Gaming, The Legend of Zelda
