@@ -1,3 +1,124 @@
+# Star Wars Meets Game Of Thrones In HBO Max's Space Opera With Near-Perfect Rotten Tomatoes Audience Score
+
+Movies, Masked Recs
+
+Sat, 22 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/dune-part-two-hbo-max-star-wars-game-of-thrones/
+
+HBO Max's space opera is one of the best sci-fi movies of all time, and it features the perfect blend between Star Wars and Game of Thrones.
+---------
+
+# Power Rangers Officially Returns With Original Lineup For New Game
+
+Gaming, Power Rangers, Mighty Morphin Power Rangers
+
+Sat, 22 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/power-rangers-impossible-odds-confirmed/
+
+The Power Rangers franchise is considerably bigger than it has ever been before, and the original line-up is returning for a new release.
+---------
+
+# Strange New Worlds’ Scotty Secretly Shouted Out Simon Pegg In J.J. Abrams’ Star Trek
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 22 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-puppet-episode-scotty-simon-pegg/
+
+Scotty turns the USS Enterprise crew into puppets in Star Trek: Strange New Worlds, but it's also a callback to Simon Pegg in the Kelvin timeline.
+---------
+
+# Insidious 6 Box Office Earns Horror Franchise's Lowest Debut In 11 Years
+
+Movies, Box Office, Insidious: Out of the Further, Insidious
+
+Sat, 22 Aug 2026 14:59:11 GMT
+
+https://screenrant.com/insidious-out-of-the-further-box-office-opening-weekend-domestic-result/
+
+2026's Insidious: Out of the Further is set to earn the lowest box office debut for the six-film horror franchise in more than a decade.
+---------
+
+# Spider-Man: Brand New Day Breaks Major Box Office Record With Fourth #1 Weekend In A Row
+
+Movies, Box Office, Spider-Man: Brand New Day
+
+Sat, 22 Aug 2026 14:51:49 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-week-4-domestic-chart-report/
+
+Spider-Man: Brand New Day bests Insidious: Out of the Further to top the domestic box office for the fourth weekend in a row, breaking a record.
+---------
+
+# What's Coming to Paramount+ in September 2026? Everything Arriving Next Month
+
+TV, Paramount Plus
+
+Sat, 22 Aug 2026 15:00:51 GMT
+
+https://www.cbr.com/what-coming-paramount-september-2026-full-list/
+
+Summer is on its last leg and Paramount+ is already looking towards Halloween with the Scary Movie release.
+---------
+
+# Chris Pratt's Hit Action Show Is Prime Video's Best Anti-Reacher Series (& Season 2 Is Finally Coming)
+
+TV, The Terminal List, Prime Video, Action
+
+Sat, 22 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/prime-video-the-terminal-list-darker-than-reacher/
+
+Prime Video's Reacher is a fan-favorite action series, but there's another, darker show that's a must-watch for fans.
+---------
+
+# 10 Strongest Black Clover Devils, Ranked
+
+Anime, Black Clover
+
+Sat, 22 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/strongest-black-clover-devils-ranked/
+
+Among the many Devils that roam the universe of Black Clover, these ten are the strongest of all.
+---------
+
+# Marvel’s Mutant Era Is Arriving at the Worst Possible Time for Disney+
+
+TV Features, X-Men, Spider-Man: Brand New Day, X-Men '97, Disney Plus
+
+Sat, 22 Aug 2026 15:11:11 GMT
+
+https://collider.com/marvel-x-men-reboot-disney-plus-television-problem/
+
+Marvel Studios is rebooting the X-Men, which raises the question: doesn't this franchise deserve a television spinoff?
+---------
+
+# 3 Years After Being Shelved, ‘Coyote vs. Acme’ Officially Hits Theaters This Week
+
+Movie News, Coyote Vs. Acme, Looney Tunes, Will Forte, Lana Condor
+
+Sat, 22 Aug 2026 14:45:11 GMT
+
+https://collider.com/coyote-vs-acme-release-date-august-28/
+
+Coyote vs. Acme finally reaches theaters 3 years after Ketchup Entertainment rescued it from Warner Bros.’ controversial cancellation.
+---------
+
+# The 10 Best 'Star Trek: The Original Series' Episodes, Ranked
+
+TV Lists, Star Trek: The Original Series, Star Trek
+
+Sat, 22 Aug 2026 15:00:14 GMT
+
+https://movieweb.com/star-trek-best-tos-episodes/
+
+In honor of 'Star Trek's 60th anniversary, these are the best episodes from 'The Original Series' that have set the tone for the franchise's future.
+---------
+
 # Is The MCU Really Introducing Another Human Torch? Why That Mystery Character Might Be This Avenger Instead
 
 Movies, VisionQuest, Marvel Cinematic Universe
