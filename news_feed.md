@@ -1,3 +1,113 @@
+# The Odyssey Shatters Final Christopher Nolan Box Office Record It Hadn't Broken Yet
+
+Movies, Box Office, The Odyssey
+
+Sat, 22 Aug 2026 15:41:59 GMT
+
+https://screenrant.com/the-odyssey-box-office-christopher-nolan-highest-grossing-domestic-movie-record/
+
+During its sixth weekend in theaters, The Odyssey breaks the last big box office record for director Christopher Nolan that it had yet to surpass.
+---------
+
+# The Wait Is Over, The Future of The Twilight Zone Is Here
+
+Comics, The Twilight Zone
+
+Sat, 22 Aug 2026 15:30:15 GMT
+
+https://screenrant.com/twilight-zone-new-series-idw/
+
+Another trip.
+---------
+
+# Cristin Milioti’s Pulse-Raising R-Rated Horror Movie Buddy Is Releasing At The Perfect Time
+
+Movies, Buddy
+
+Sat, 22 Aug 2026 15:30:15 GMT
+
+https://screenrant.com/buddy-horror-movie-release-date-timing/
+
+One of 2026's most interesting horror movies is set to hit the big screen in a matter of just a few days, and at a perfect time for its story.
+---------
+
+# 5 Xbox Game Pass Games That'll Take You Forever To Beat
+
+Gaming, Xbox Game Pass, Xbox, Persona 5 Royal, Assassin's Creed Valhalla, Age of Empires
+
+Sat, 22 Aug 2026 15:30:15 GMT
+
+https://screenrant.com/xbox-game-pass-games-forever-to-beat/
+
+For those looking to get the most out of their Xbox Game Pass subscriptions, these are the games that'll take you forever to beat.
+---------
+
+# It's Officially The Start Of An Era For The Simpsons
+
+TV, The Simpsons
+
+Sat, 22 Aug 2026 15:29:15 GMT
+
+https://screenrant.com/simpsons-new-era-movie-sequel-streaming-episodes/
+
+After over four decades on air, The Simpsons heads into a cinematic and streaming age with daring specials reshaping decades of familiar satire.
+---------
+
+# 5 Fall 2026 Anime Sequels You Cannot Miss
+
+Anime, Black Clover, The Apothecary Diaries
+
+Sat, 22 Aug 2026 15:15:11 GMT
+
+https://www.cbr.com/fall-2026-anime-sequels-must-see/
+
+Fall 2026 is shaping up to be an incredible season, with these five highly anticipated anime sequels leading the way.
+---------
+
+# Forget Taylor Sheridan's 'Yellowstone,' This 279-Episode Western Is the Perfect Replacement
+
+TV Features, Heartland, Western, Drama, Family
+
+Sat, 22 Aug 2026 15:23:11 GMT
+
+https://collider.com/heartland-tv-series-western-yellowstone-replacement/
+
+Heartland is a refreshing change of pace from Taylor Sheridan's more intense Western series.
+---------
+
+# 2 Years Later, Apple TV’s Most Mind-Bending Sci-Fi Thriller Is Officially Back
+
+TV News, Apple TV, Dark Matter, Joel Edgerton, Jennifer Connelly
+
+Sat, 22 Aug 2026 15:15:11 GMT
+
+https://collider.com/dark-matter-season-2-apple-tv-release-date-august-28/
+
+Apple TV’s acclaimed sci-fi thriller Dark Matter returns this week for a 10-episode second season starring Joel Edgerton and Jennifer Connelly.
+---------
+
+# New Taylor Sheridan-Esque Streaming Hit Features One of J.K. Simmons' Best Ever Performances
+
+TV News, The Westies, Tom Brittney, Crime
+
+Sat, 22 Aug 2026 15:30:14 GMT
+
+https://movieweb.com/the-westies-tom-brittney-jk-simmons-face-off-scene/
+
+The scene was so good the entire cast braved the biting cold to get front-row seats.
+---------
+
+# Andrew Garfield's 'The Magic Faraway Tree' Debuts Solid Rotten Tomatoes Score
+
+Movie News, Andrew Garfield, The Magic Faraway Tree, Claire Foy, Fantasy
+
+Sat, 22 Aug 2026 15:21:33 GMT
+
+https://movieweb.com/andrew-garfield-magic-faraway-tree-rotten-tomatoes-score/
+
+The Spider-Man actor's children's novel adaptation wins over most critics.
+---------
+
 # Star Wars Meets Game Of Thrones In HBO Max's Space Opera With Near-Perfect Rotten Tomatoes Audience Score
 
 Movies, Masked Recs
