@@ -1,3 +1,91 @@
+# Batman & Superman Become Saiyans In Official New DC x Dragon Ball Crossover
+
+DC Comics, Batman, Superman
+
+Sat, 22 Aug 2026 19:30:14 GMT
+
+https://screenrant.com/batman-superman-saiyans-dragon-ball-crossover-artwork/
+
+DC's Batman and Superman visit an iconic Dragon Ball location to start a training regime only a Saiyan like Goku would be able to withstand.
+---------
+
+# Hulu's Biggest Comedy Is Killing Off One Of Its Own In A 10-Episode London Move
+
+Streaming TV, Masked Recs
+
+Sat, 22 Aug 2026 19:30:14 GMT
+
+https://screenrant.com/only-murders-in-the-building-season-6-london-move-kill-tina-fey-character/
+
+Hulu’s biggest comedy is killing off one of its original characters and moving to London in season 6, with a new, stacked supporting cast.
+---------
+
+# One Spider-Man Movie With 8 Billion Viewership Dominates Over Tom Holland, Tobey Maguire & Andrew Garfield's Eras On Streaming
+
+Movies, Spider-Man, Spider-Man: Across the Spider-Verse
+
+Sat, 22 Aug 2026 19:29:17 GMT
+
+https://screenrant.com/spider-man-movies-viewership-statistics-nielsen-august-2026/
+
+While Spider-Man: Brand New Day dominates the box office, another one of the web-slinger's movies has achieved a major streaming milestone.
+---------
+
+# Disney Cancelling Renewal Of Emmy-Nominated Marvel Show Explained By MCU Star
+
+TV, Masked Recs, Marvel Cinematic Universe, Disney+
+
+Sat, 22 Aug 2026 19:25:59 GMT
+
+https://screenrant.com/marvel-wonder-man-disney-cancellation-optics-yahya-abdul-mateen-ii-reaction/
+
+Following the controversial cancellation of Disney+'s Marvel series, which earned its lead an Emmy nomination, the star opens up about the decision.
+---------
+
+# What's Coming to Peacock in September 2026? Everything Arriving Next Month
+
+TV, Peacock
+
+Sat, 22 Aug 2026 19:30:11 GMT
+
+https://www.cbr.com/what-coming-peacock-september-2026-full-list/
+
+The Office spinoff is coming back, with new Traitors and a high-adrenaline thriller.
+---------
+
+# Netflix's Gilmore Girls Replacement Finally Confirms Return Window
+
+TV, Ginny & Georgia, Gilmore Girls, Netflix
+
+Sat, 22 Aug 2026 19:27:26 GMT
+
+https://www.cbr.com/netflix-ginny-and-georgia-season-4-release-window/
+
+Over a year after Season 3 premiered, Netflix has confirmed that Season 4 of Ginny & Georgia will be coming in 2027.
+---------
+
+# 'My Life with the Walter Boys' Just Set Up 8 Unexpected Season 4 Mysteries
+
+TV, My Life with the Walter Boys, Netflix, Drama, Television
+
+Sat, 22 Aug 2026 19:19:11 GMT
+
+https://collider.com/my-life-with-the-walter-boys-season-4-mysteries/
+
+As the dust settles on My Life with the Walter Boys Season 3, there are some major issues that need to be addressed in Season 4 of the Netflix show.
+---------
+
+# Jon Bernthal's Detective Series Is Officially Streaming on YouTube for Free
+
+Features, Jon Bernthal, Mob City, Thriller, Holds Up
+
+Sat, 22 Aug 2026 19:30:13 GMT
+
+https://movieweb.com/jon-bernthal-mob-city-youtube-free-streaming/
+
+Jon Bernthal's forgotten neo-noir detective thriller series, Mob City, is now free on YouTube, and there are many reasons to watch it.
+---------
+
 # X-Men: Adam Driver Is Key to the MCU’s Mutant Debut
 
 Movies, Originals, X-Men
