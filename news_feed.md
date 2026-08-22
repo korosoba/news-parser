@@ -1,3 +1,124 @@
+# Sydney Sweeney Ignites DCU's Wonder Woman Speculation As She Suits Up In New Image
+
+Movies, Wonder Woman (DCU), Sydney Sweeney, DC Universe
+
+Sat, 22 Aug 2026 17:35:37 GMT
+
+https://screenrant.com/sydney-sweeney-wonder-woman-suit-up-photos/
+
+Euphoria star Sydney Sweeney properly suits up as Wonder Woman, as the actress shares several new photos of her as the iconic DC Comics heroine.
+---------
+
+# Don't Rule Out Henry Cavill's Wolverine Return In Avengers: Secret Wars Just Yet
+
+Movies, Avengers: Secret Wars
+
+Sat, 22 Aug 2026 17:30:15 GMT
+
+https://screenrant.com/henry-cavill-wolverine-avengers-secret-wars-x-men/
+
+After making a very brief cameo as Wolverine two years ago, Henry Cavill could still make his return as the character in Avengers: Secret Wars.
+---------
+
+# Venom Lore's God-Tier New Symbiote Is A Former Herald Of Galactus
+
+Marvel Comics, Venom
+
+Sat, 22 Aug 2026 17:29:33 GMT
+
+https://screenrant.com/venom-firelord-symbiote-galactus-herald/
+
+One of Galactus' former Heralds returns to Marvel lore sporting their own symbiote, ready to defeat Nova, the Fantastic Four, and Spider-Man.
+---------
+
+# Paramount+'s $205.5 Million High Fantasy Masterpiece With Rare Rotten Tomatoes Score Deserves A Sequel
+
+Movies, Masked Recs
+
+Sat, 22 Aug 2026 17:20:15 GMT
+
+https://screenrant.com/paramount-plus-dungeons-and-dragons-honor-among-thieves-fantasy-movie-deserves-sequel/
+
+Paramount+'s high fantasy movie is one of the genre's most exciting releases in years, and it deserves a sequel, which should become a global hit.
+---------
+
+# Why Michael Weatherly's Tony DiNozzo Left NCIS
+
+Network TV, NCIS
+
+Sat, 22 Aug 2026 17:15:15 GMT
+
+https://screenrant.com/ncis-michael-weatherly-tony-dinozzo-exit-reason/
+
+Michael Weatherly's Tony DiNozzo was one of the cornerstones of CBS procedural NCIS, only to stun fans by suddenly leaving after 13 seasons.
+---------
+
+# Prime Video Is Using the Version of Drax That Marvel Was Too Scared to Put On-Screen
+
+TV, God of War, MCU, Guardians of the Galaxy
+
+Sat, 22 Aug 2026 17:30:11 GMT
+
+https://www.cbr.com/prime-video-god-of-war-kratos-drax-similarities/
+
+Prime Video's upcoming series has cast Dave Bautista as a character with striking similarities to the version of Drax the Destroyer from the comics.
+---------
+
+# 30 Greatest Adult Romance Anime of All Time
+
+Anime, Romance
+
+Sat, 22 Aug 2026 17:30:11 GMT
+
+https://www.cbr.com/romance-anime-for-adults/
+
+Romance anime spans many ages, with the most popular being for teens, but adult romance anime has some of the best characters and stories.
+---------
+
+# 5 Masterpiece Open-World Action RPGs You've Never Heard Of
+
+Games, action rpg, RPG, open world, Video Games
+
+Sat, 22 Aug 2026 17:15:11 GMT
+
+https://www.cbr.com/underrated-open-world-action-rpg-masterpieces/
+
+There are so many amazing action RPGs on the market, all competing for top spot, with some of the best among them falling through the cracks.
+---------
+
+# 8 Sci-Fi Books That Marked the End of an Era
+
+Books and Comics, Books, Neuromancer, Science Fiction, Dune
+
+Sat, 22 Aug 2026 17:28:11 GMT
+
+https://collider.com/sci-fi-books-end-of-an-era/
+
+Books like Chapterhouse: Dune, Neuromancer, and The Left Hand of Darkness marked a distinct shift within sci-fi, ending entire eras for the genre.
+---------
+
+# Josh Radnor Reveals His Controversial Take On 'How I Met Your Mother' Ending
+
+TV News, How I Met Your Mother, Comedy
+
+Sat, 22 Aug 2026 17:30:14 GMT
+
+https://movieweb.com/josh-radnor-explains-how-i-met-your-mother-ending/
+
+Radnor says age and life experience have changed the way he sees the show's divisive finale.
+---------
+
+# Nicolas Cage's Beloved Action Franchise Is Finally Getting a Long-Awaited New Sequel
+
+Movie News, Nicolas Cage, National Treasure, Jon Turteltaub, Action
+
+Sat, 22 Aug 2026 17:14:13 GMT
+
+https://movieweb.com/nicolas-cage-action-franchise-finally-getting-new-sequel/
+
+After years of speculation, the director of the franchise says "It's happening."
+---------
+
 # National Treasure 3 In Development With Nicolas Cage Set To Return
 
 Movies, National Treasure
