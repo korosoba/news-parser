@@ -1,3 +1,157 @@
+# 12 Books That Will Make You Cry Every Time You Read Them
+
+Books
+
+Sat, 22 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/books-that-will-make-you-cry-every-time/
+
+From wartime streets to immortal bargains, these 12 books are sure to make anyone who reads them cry their eyes out, but they are amazing.
+---------
+
+# This 2011 PlayStation 3 10/10 Masterpiece Is Free With PS Plus Now
+
+Gaming, Resident Evil, Resident Evil 4, PlayStation 3
+
+Sat, 22 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/playstation-2011-ps3-classic-free-ps-plus/
+
+The PlayStation 3 has a lot of underrated games considering the relative popularity of the console, including plenty of certified 10/10s.
+---------
+
+# Disney's Ambitious 12-Episode Time Travel Series Is So Good, It's Even More Relevant Today
+
+Streaming TV, Masked Recs
+
+Sat, 22 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/loki-tv-series-more-relevant-today/
+
+One of Disney+'s best original TV shows is a 12-episode sci-fi fantasy series that is not only great but it's also now more relevant than ever.
+---------
+
+# 34 Years Ago, Clint Eastwood's Best Unforgiven Line Broke Western Movies
+
+Movies, Unforgiven, Clint Eastwood
+
+Sat, 22 Aug 2026 15:55:15 GMT
+
+https://screenrant.com/unforgiven-movie-clint-eastwood-best-westerns-quote/
+
+Over 30 years later, the most haunting line from Clint Eastwood's Western masterpiece Unforgiven sums up what the entire movie is about.
+---------
+
+# Dungeon Crawler Carl Sets Star Wars & Netflix Fantasy Writers As Showrunners
+
+TV, Dungeon Crawler Carl
+
+Sat, 22 Aug 2026 15:49:36 GMT
+
+https://screenrant.com/dungeon-crawler-carl-show-chris-yost-eric-heisserer-showrunners/
+
+Peacock's Dungeon Crawler Carl series has found its showrunners, who have previously written for Star Wars and a hit Netflix fantasy show.
+---------
+
+# Elden Ring Movie Update Is A Great Sign & Avoids A Big Fantasy Franchise Problem
+
+Movies, Elden Ring
+
+Sat, 22 Aug 2026 15:46:14 GMT
+
+https://screenrant.com/elden-ring-movie-filming-complete-cgi-fantasy/
+
+A new update about the Elden Ring movie is a great sign for the video game adaptation, which avoids a major fantasy franchise problem.
+---------
+
+# Sanrio Gives Kuromi a Clean New Design With Limited-Edition Touchland Release
+
+Anime, sanrio, merchandise
+
+Sat, 22 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/sanrio-kuromi-touchland-cotton-candy-release/
+
+Sanrio's Kuromi adds a little mischief to Touchland with a sweet new collectible hand sanitizer inspired by her signature goth-cute style.
+---------
+
+# Netflix's New 97-Minute Thriller Instantly Dominates U.S. Streaming Charts
+
+Movies, Netflix
+
+Sat, 22 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/netflix-to-catch-a-cheater-us-success-august-2026/
+
+A brand-new movie on Netflix is currently making waves on the streaming platform.
+---------
+
+# Supernatural Confirms Dean Winchester’s Return After Emotional Series Finale
+
+Comics, Supernatural
+
+Sat, 22 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/supernatural-dean-winchester-release-date-confirmed/
+
+Supernatural fans are getting two brand-new series this year, and one of them is sending Dean Winchester to Mardi Gras to hunt down a god.
+---------
+
+# Explore the Eerie World of The Amazing Digital Circus in a Novel Manga Format
+
+CBR Exclusives, Animation, The Amazing Digital Circus, YouTube, Manga
+
+Sat, 22 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/the-amazing-digital-circus-vol-1-manga-review/
+
+The Amazing Digital Circus is releasing the first volume of its manga adaptation this Fall.
+---------
+
+# The 20 Best TV Shows of All Time, Ranked
+
+TV, Best Of, Breaking Bad, The Sopranos, The Simpsons
+
+Sat, 22 Aug 2026 16:04:11 GMT
+
+https://collider.com/best-tv-shows-all-time-ranked/
+
+From Breaking Bad to The Sopranos, this is Collider's ranking of the greatest TV shows of all time, ranked by overall quality and impact.
+---------
+
+# Netflix Officially Adds Kevin Costner’s Infamous $264M Sci-Fi Flop
+
+Movie News, Waterworld, Mad Max, The Last of Us, Kevin Costner
+
+Sat, 22 Aug 2026 16:00:11 GMT
+
+https://collider.com/kevin-costner-waterworld-streaming-netflix-august-2026/
+
+30 years later, Kevin Costner’s Mad Max on water attempt, Waterworld, is now streaming on Netflix. Here’s everything you should know.
+---------
+
+# One of the Essential Sci-Fi Thriller Shows of the 21st Century Blasts Onto Streaming Charts
+
+TV News, Snowpiercer, Hot on Streaming
+
+Sat, 22 Aug 2026 16:00:13 GMT
+
+https://movieweb.com/snowpiercer-tv-series-streaming-hit-apple-vod-august-2026/
+
+This is one version of the future we definitely don't want to see become a reality.
+---------
+
+# 'Ahsoka' Season 2's Difficult Baylan Replacement Starts To Pay Off After 3 Years
+
+Features, Ahsoka, Star Wars, Disney+
+
+Sat, 22 Aug 2026 16:00:13 GMT
+
+https://movieweb.com/ahsoka-season-2-baylan-replacement/
+
+After seeing the trailer for Ahsoka Season 2, it feels like the difficult decision to recast Baylan Skoll is paying off.
+---------
+
 # The Odyssey Shatters Final Christopher Nolan Box Office Record It Hadn't Broken Yet
 
 Movies, Box Office, The Odyssey
