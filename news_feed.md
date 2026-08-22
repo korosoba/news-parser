@@ -1,3 +1,113 @@
+# Netflix's New August 2026 Record Means This Month Already Has A Clear Streaming Winner
+
+Movies, The Last House, Netflix
+
+Sat, 22 Aug 2026 16:40:15 GMT
+
+https://screenrant.com/the-last-house-movie-august-netflix-streaming-charts/
+
+The current results of Netflix's August most-watched charts have thus far cemented one new release as the most popular movie of the month globally.
+---------
+
+# NYT Connections Solution And Hints For August 22, 2026
+
+Gaming, Connections, Mobile
+
+Sat, 22 Aug 2026 16:34:45 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-22-2026/
+
+When solving today's Connections, the great outdoors is part of its theme, but the variety of that subject leads to some unorthodox puzzle solutions.
+---------
+
+# Why Roseanne Recast Becky (Then Brought The Original Actress Back)
+
+Classic TV, Roseanne, The Conners
+
+Sat, 22 Aug 2026 16:30:15 GMT
+
+https://screenrant.com/roseanne-becky-conner-recast-sarah-chalke-lecy-goranson-why/
+
+Roseanne famously recast the role of older daughter Becky Conner after season 5, then brought the original actress back. Here's why the studio did so.
+---------
+
+# Avengers: Secret Wars’ 2028 Sequel Has Been Confirmed By The MCU’s Release Order
+
+Movies, Avengers: Secret Wars, Marvel Cinematic Universe
+
+Sat, 22 Aug 2026 16:20:14 GMT
+
+https://screenrant.com/avengers-secret-wars-black-panther-3-successor-release-order-window/
+
+The way the MCU's release order has been constructed leaves one 2028 movie acting as a successor of sorts to Avengers: Secret Wars in many ways.
+---------
+
+# NCIS Quietly Revives Gibbs' Best Story Ahead of Mark Harmon's Return
+
+TV, NCIS, NCIS: Origins, Innovation
+
+Sat, 22 Aug 2026 16:30:11 GMT
+
+https://www.cbr.com/ncis-season-23-episode-19-gibbs-return-story/
+
+NCIS Season 23 brings back the best story of Leroy Jethro Gibbs, leading up to Mark Harmon's return to the franchise as his iconic character.
+---------
+
+# 3 Original X-Men Who Still Need To Be Cast in the MCU
+
+Movies, Marvel Cinematic Universe, X-Men
+
+Sat, 22 Aug 2026 16:30:11 GMT
+
+https://www.cbr.com/original-x-men-not-cast-mcu-list/
+
+Marvel Studios has cast a few members of the original X-Men team from Marvel Comics in the MCU, but there are some heroes who are still missing.
+---------
+
+# 10 Best Anime to Watch If You Love The Apothecary Diaries
+
+Anime, The Apothecary Diaries, Raven of the Inner Palace, Snow White With The Red Hair
+
+Sat, 22 Aug 2026 16:15:11 GMT
+
+https://www.cbr.com/best-anime-if-you-love-the-apothecary-diaries/
+
+Fans of The Apothecary Diaries seeking a similar experience need look no further than great series like Raven of the Inner Palace and Psychic Princess
+---------
+
+# The 6 Best Psychological Thrillers Released Since 2010, Ranked
+
+Movie, Thriller, Psychological Thriller, Gone Girl, The Handmaiden
+
+Sat, 22 Aug 2026 16:18:11 GMT
+
+https://collider.com/best-psychological-thrillers-released-since-2010/
+
+From Shutter Island to The Handmaiden, these psychological thrillers blur reality, fuel obsession, and leave audiences questioning everything.
+---------
+
+# 'Chicago Fire' Officially Adds 'Shadowhunters' Star to Cast of Season 15
+
+TV News, Chicago Fire, Shadowhunters
+
+Sat, 22 Aug 2026 16:35:09 GMT
+
+https://movieweb.com/chicago-fire-season-15-matthew-daddario-shadowhunters/
+
+'Shadowhunters' vet Matthew Daddario is the newest cast member to join 'Chicago Fire' Season 15.
+---------
+
+# One of TV's Bloodiest and Raunchiest Shows in History Getting New Release
+
+TV News, Outlander, Fantasy
+
+Sat, 22 Aug 2026 16:31:13 GMT
+
+https://movieweb.com/outlander-season-8-blu-ray/
+
+Outlander is getting a new Blu-ray release this fall, with Season 8 arriving alongside a Collector's Edition.
+---------
+
 # 12 Books That Will Make You Cry Every Time You Read Them
 
 Books
