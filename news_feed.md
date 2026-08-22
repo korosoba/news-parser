@@ -1,3 +1,168 @@
+# Sandra Bullock & Nicole Kidman's Practical Magic 2 Keeps 1 Tradition Alive After 28 Years
+
+Movies
+
+Sat, 22 Aug 2026 18:15:06 GMT
+
+https://screenrant.com/practical-magic-2-movie-mpa-rating-tradition-sandra-bullock-nicole-kidman/
+
+Practical Magic 2 is keeping the magic alive, as one tradition is still being upheld in the Sandra Bullock and Nicole Kidman movie 28 years later.
+---------
+
+# Silo Author Defends Major Book Change In Apple TV Series: “It’s An Improvement"
+
+TV, Silo, Silo - Season 3
+
+Sat, 22 Aug 2026 18:08:01 GMT
+
+https://screenrant.com/silo-season-3-daniel-change-hugh-howey-response/
+
+Apple TV's Silo season 3 has made many changes from the books, but one particularly important one is being defended by author Hugh Howey.
+---------
+
+# Netflix's New 10/10 Crime Thriller Masterpiece Officially Becomes #1 On Streaming
+
+Movies, Masked Recs
+
+Sat, 22 Aug 2026 18:05:34 GMT
+
+https://screenrant.com/netflix-facing-el-chapo-streaming-success-august-2026/
+
+Netflix just released a 10/10 crime thriller, and the intense movie has just rocketed its way to the top spot on the streamer’s most-viewed list.
+---------
+
+# Buffy Isn't The Best Vampire TV Series Of All Time (It Isn't Even 2nd)
+
+Classic TV, Masked Recs
+
+Sat, 22 Aug 2026 18:00:14 GMT
+
+https://screenrant.com/buffy-best-vampire-series-all-time/
+
+Buffy the Vampire Slayer is a staple of horror and fantasy TV storytelling, but it's still not the number 1 vampire show, nor is it even number 2.
+---------
+
+# What's Coming To Netflix In September 2026: Full List Of TV Shows & Movies
+
+Streaming TV, Netflix
+
+Sat, 22 Aug 2026 17:45:14 GMT
+
+https://screenrant.com/everything-coming-to-netflix-september-2026/
+
+All of September 2026's exciting new titles on Netflix, including original series and movies, as well as new-to-Netflix TV shows and classic films.
+---------
+
+# 10 Complete Anime Series With Zero Filler and Perfect Endings
+
+Anime, Mob Psycho 100, Cowboy Bebop, Fullmetal Alchemist: Brotherhood
+
+Sat, 22 Aug 2026 18:15:11 GMT
+
+https://www.cbr.com/complete-anime-series-zero-filler-perfect-endings/
+
+It's nearly impossible for an anime to have a perfect ending with zero filler along the way, but these standout series pull it off magnificently.
+---------
+
+# Persona 3 Officially Returns With Free 4-Part Anime Release Available Now
+
+Anime, Persona, Persona 3 Reload, Persona 3 the Movie: #4 Winter of Rebirth
+
+Sat, 22 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/persona-3-anime-movies-free-streaming/
+
+Persona 3 officially returns with all four anime movies available to stream for free, but only for a limited time.
+---------
+
+# 9 Years Later, Matt Damon's 103-Minute Fantasy Flop Finds Redemption on Streaming
+
+Movies, matt damon, The Great Wall
+
+Sat, 22 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/matt-damon-the-great-wall-netflix-success-us-august-2026/
+
+One of Matt Damon's biggest misses is finding new life in the streaming world.
+---------
+
+# Silo S3: One Graham Yost Note Made Charlotte Unbreakable | Set Stories
+
+TV, Silo
+
+Sat, 22 Aug 2026 18:15:11 GMT
+
+https://collider.com/video/silo-s3-one-graham-yost-note-made-charlotte-unbreakable-set-stories/
+
+Silo Season 3: The Sets Stunned Jessica Brown Findlay when she finally stepped inside the enormous world she had already admired as a fan.
+---------
+
+# 2026’s Bloodiest Horror Sequel Is Officially Sneaking Up the Hulu Charts
+
+Movie News, Horror, Ready or Not 2: Here I Come, Hulu, Streaming
+
+Sat, 22 Aug 2026 18:00:11 GMT
+
+https://collider.com/samara-weaving-ready-or-not-2-here-i-come-streaming-success-hulu-august-2026/
+
+Samara Weaving's 2026 horror sequel alongside Sarah Michelle Gellar and Kathryn Newton is proving a quiet hit on Hulu. Read on for more.
+---------
+
+# Everything Officially Coming to Netflix in Fall 2026
+
+TV, Netflix, The Gentlemen, Stranger Things: Tales from '85, Lupin
+
+Sat, 22 Aug 2026 17:57:11 GMT
+
+https://collider.com/netflix-fall-2026-release-calendar/
+
+From new sequels to iconic stories to reimagined takes of beloved classics, Netflix is filled to the brim with excellent content this fall.
+---------
+
+# The 6 Best Sci-Fi Shows Released Since 2010, Ranked
+
+TV, Sci-Fi, Andor, For All Mankind, Dark
+
+Sat, 22 Aug 2026 17:55:11 GMT
+
+https://collider.com/best-sci-fi-tv-shows-since-2010-ranked/
+
+From Dark to For All Mankind, these sci-fi shows explore unforgettable ideas, complex mysteries, and ambitious storytelling.
+---------
+
+# The 'Ocean's Eleven' Prequel Has Finally Reached a Major Milestone
+
+Movie News, Ocean's Eleven, Crime
+
+Sat, 22 Aug 2026 18:09:18 GMT
+
+https://movieweb.com/oceans-eleven-prequel-begins-production/
+
+The long-gestating 'Ocean's Eleven' prequel has now taken a step that makes the project feel much more real than it did a few months ago.
+---------
+
+# Tom Hardy's 106-Minute Masterpiece War Thriller Explodes Onto New Streaming Home
+
+Movie News, Dunkirk, Paramount Plus, Coming/Leaving Streaming, Tom Hardy
+
+Sat, 22 Aug 2026 18:00:14 GMT
+
+https://movieweb.com/dunkirk-tom-hardy-war-stream-paramount-september-2026/
+
+It's described as "one of the best war movies ever made.
+---------
+
+# The 10 Best Villain Redemption Arcs in TV Shows, Ranked
+
+TV Lists
+
+Sat, 22 Aug 2026 18:00:14 GMT
+
+https://movieweb.com/best-tv-villain-redemption-arcs/
+
+The only thing better than a good villain is an even better villain redemption arc, and some especially stand out on TV.
+---------
+
 # Sydney Sweeney Ignites DCU's Wonder Woman Speculation As She Suits Up In New Image
 
 Movies, Wonder Woman (DCU), Sydney Sweeney, DC Universe
