@@ -1,3 +1,124 @@
+# X-Men: Adam Driver Is Key to the MCU’s Mutant Debut
+
+Movies, Originals, X-Men
+
+Sat, 22 Aug 2026 19:00:15 GMT
+
+https://screenrant.com/video/x-men-adam-driver-is-key-to-the-mcu-s-mutant-debut/
+
+X-Men: Adam Driver Reveals Marvel’s Bigger Plan by putting Mr. Sinister at the center of a reboot that appears determined to avoid simply repeating the Fox movies. After years of speculation about Marvel’s mutants, the choice of villain may be our biggest clue yet about where this new franchise is heading.
+---------
+
+# Syfy's Forgotten 50-Episode Space Opera Deserves To Be As Big As Battlestar Galactica
+
+TV, Masked Recs
+
+Sat, 22 Aug 2026 19:00:15 GMT
+
+https://screenrant.com/killjoys-sci-fi-series-deserves-battlestar-galactica-success/
+
+Syfy's underrated space opera starring a trio of bounty hunters had enough razor sharp wit and heart to rival the more famous Battlestar Galactica.
+---------
+
+# Zelda, Pokemon, And Stardew Valley Collide In Huge New Open-World RPG
+
+Gaming, The Legend of Zelda, Pokemon, Stardew Valley, RPG, PC
+
+Sat, 22 Aug 2026 19:00:15 GMT
+
+https://screenrant.com/zelda-meets-pokemon-stardew-valley-open-world-rpg/
+
+This massive new open-world RPG combines the best elements of Zelda, Stardew Valley, and Pokémon to create something truly special.
+---------
+
+# 10 Cyclops Stories X-Men Star Kit Connor Should Read as Preparation
+
+Comics, X-Men, Cyclops
+
+Sat, 22 Aug 2026 19:15:52 GMT
+
+https://www.cbr.com/mcu-xmen-kit-connor-cyclops-comic-reading-guide/
+
+Research for new MCU star Kit Connor should include foundational stories that explore Cyclops' dark origins and growth into a confident X-Men leader.
+---------
+
+# September 2026 Is Officially the End of an Era for One Piece
+
+Anime, One Piece
+
+Sat, 22 Aug 2026 19:15:11 GMT
+
+https://www.cbr.com/one-piece-official-end-of-an-era-september-2026/
+
+After nearly 30 years, One Piece is about to enter uncharted territory for the first time.
+---------
+
+# Apple TV's Unsung 9-Part Sci-Fi Thriller Series Returns as a Streaming Hit Ahead of New Episodes
+
+TV, Dark Matter, Sci-Fi, Apple TV
+
+Sat, 22 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/dark-matter-sci-fi-thriller-apple-tv-success-august-2026/
+
+Apple TV's sci-fi thriller based on a book, Dark Matter, is rising on streaming ahead of new episodes.
+---------
+
+# 5 Mature '80s Crime Shows That Haven't Aged a Day in 2026
+
+TV, Crime, Hill Street Blues, Murder, She Wrote, Columbo
+
+Sat, 22 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/best-80s-crime-shows-list/
+
+Without classic 1980s crime series like Murder, She Wrote and Columbo, the best detective and crime shows today wouldn't exist.
+---------
+
+# Tombstone's Most Forgotten Line Is Still One of the Greatest Quotes in Western History
+
+Movies, Tombstone, Western, kurt russell
+
+Sat, 22 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/tombstone-greatest-quote-western-kurt-rusell-wyatt-earp/
+
+Tombstone is known for many terrific quotes, but one of the classic Western's best lines doesn't always get the credit it deserves.
+---------
+
+# 7 Forgotten '70s Sci-Fi Movies That Have Aged Like Fine Wine
+
+Movie, Sci-Fi, Science Fiction, 1970s, Dark Star
+
+Sat, 22 Aug 2026 19:17:11 GMT
+
+https://collider.com/forgotten-sci-fi-movies-70s-aged-like-fine-wine/
+
+Time has been kind to forgotten sci-fi movies of the 1970s like Colossus: The Forbin Project and Dark Star, with their reputation improving with age.
+---------
+
+# Ridley Scott's Polarizing $403M Sci-Fi Blockbuster Officially Disappears From HBO Max
+
+Movie News, Prometheus, Ridley Scott, Sci-Fi, HBO Max
+
+Sat, 22 Aug 2026 19:00:11 GMT
+
+https://collider.com/ridley-scott-prometheus-leaving-hbo-max-september-2026/
+
+The most divisive sci-fi movie of Ridley Scott's career is about to be removed from HBO Max soon. Find out when.
+---------
+
+# The Biggest Harry Potter Movie Ever Is Overtaken by New Fantasy Action Epic at the Box Office
+
+Movie News, Harry Potter, The Odyssey, Adventure, Fantasy
+
+Sat, 22 Aug 2026 19:08:42 GMT
+
+https://movieweb.com/odyssey-overtakes-biggest-harry-potter-box-office/
+
+The Odyssey has climbed beyond Harry Potter and the Deathly Hallows: Part 2 on the all-time worldwide chart.
+---------
+
 # Agatha Christie Meets Succession In New Twisty Mystery With 4 Stars On Goodreads
 
 Books, Agatha Christie
