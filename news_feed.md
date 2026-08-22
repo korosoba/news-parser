@@ -1,3 +1,14 @@
+# Netflix Is Officially Dropping Chris Pratt’s $300M Sci-Fi Blockbuster in 1 Week
+
+Movie News, Passengers, Chris Pratt, Jennifer Lawrence, Lawrence Fishburne
+
+Sat, 22 Aug 2026 08:00:11 GMT
+
+https://collider.com/chris-pratt-passengers-leaving-netflix-august-31-2026/
+
+Netflix recently announced that Chris Pratt's $300 million sci-fi blockbuster with Jennifer Lawrence is only streaming for one more week.
+---------
+
 # Blade Runner Meets John Wick In New Sci-Fi Thriller
 
 Gaming, Blade Runner, PC, John Wick, Indie Games
