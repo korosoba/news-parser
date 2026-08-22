@@ -1,3 +1,102 @@
+# Is The MCU Really Introducing Another Human Torch? Why That Mystery Character Might Be This Avenger Instead
+
+Movies, VisionQuest, Marvel Cinematic Universe
+
+Sat, 22 Aug 2026 14:40:15 GMT
+
+https://screenrant.com/visionquest-show-jack-of-hearts-mystery-character/
+
+Artwork from VisionQuest has led to theories that the MCU is introducing another Human Torch, but it may be introducing a different superhero instead.
+---------
+
+# The Walking Dead Boss Clarifies Franchise Future After Dead City Season 3
+
+TV, The Walking Dead, The Walking Dead: Dead City, The Walking Dead: Dead City - Season 3
+
+Sat, 22 Aug 2026 14:31:18 GMT
+
+https://screenrant.com/walking-dead-franchise-future-after-dead-city-season-3-scott-gimple-response/
+
+With no confirmation of what comes after Dead City season 3 and Daryl Dixon season 4, The Walking Dead's Scott M. Gimple clarifies future plans.
+---------
+
+# 8 Stranger Things Scenes That Have Aged Like Milk
+
+Classic TV, Stranger Things
+
+Sat, 22 Aug 2026 14:30:14 GMT
+
+https://screenrant.com/stranger-things-scenes-that-aged-poorly/
+
+Although Stranger Things is definitely one of the best fantasy TV shows of all time, some of its scenes have aged badly for different reasons.
+---------
+
+# 6 Most Iconic Batman Allies in Comic Book History
+
+Comics, Batman, DC Comics
+
+Sat, 22 Aug 2026 14:23:34 GMT
+
+https://screenrant.com/most-iconic-batman-allies-dc-comics/
+
+Gotham’s war on crime is too heavy for one man, and these iconic allies have proven to be Batman’s most trusted partners in fighting it
+---------
+
+# Taylor Sheridan Accused Of Stealing Yellowstone In New Paramount Lawsuit
+
+TV, Yellowstone, Taylor Sheridan
+
+Sat, 22 Aug 2026 14:19:42 GMT
+
+https://screenrant.com/yellowstone-taylor-sheridan-paramount-lawsuit/
+
+Taylor Sheridan is in the hot seat for Yellowstone, as a new lawsuit emerges against the creator and Paramount for allegedly stealing the series.
+---------
+
+# 8 Times Spider-Man Clashed With The Hulk In Marvel Comics
+
+Comics, Spider-Man
+
+Sat, 22 Aug 2026 14:18:38 GMT
+
+https://screenrant.com/spider-man-clash-hulk-marvel-comics/
+
+While Spider-Man and the Hulk are often allies, the Jade Giant and the webslinger have gone toe-to-toe on several occasions.
+---------
+
+# 7 Strongest Dragon Ball Gods, Officially Ranked
+
+Anime, Dragon Ball, Dragon Ball Z, shonen anime
+
+Sat, 22 Aug 2026 14:15:11 GMT
+
+https://www.cbr.com/strongest-dragon-ball-gods-officially-ranked/
+
+Godly hierarchies in shonen anime rarely stay static and Akira Toriyama's Dragon Ball universe has one of the most intricate power structures.
+---------
+
+# Forget 'MobLand,' Guy Ritchie’s Netflix Crime Series Officially Returns in 2 Weeks
+
+TV News, The Gentlemen, Guy Ritchie, Theo James, MobLand
+
+Sat, 22 Aug 2026 14:15:11 GMT
+
+https://collider.com/the-gentlemen-season-2-netflix-release-date-guy-ritchie-mobland-replacement/
+
+Guy Ritchie’s Netflix crime hit The Gentlemen officially returns for Season 2 in two weeks with Theo James and Kaya Scodelario.
+---------
+
+# 'Insidious: Out of the Further' Director Explains 2026 Sequel's Wild Ending
+
+Movie News, Insidious: Out of the Further, Horror
+
+Sat, 22 Aug 2026 14:30:13 GMT
+
+https://movieweb.com/insidious-out-of-the-further-director-explains-ending/
+
+'Insidious: Out of the Further's final moments may tease where the franchise is headed next.
+---------
+
 # 10 Greatest Historical Adventure Movies Of All Time, Ranked
 
 Movies, Ranking, Adventure
