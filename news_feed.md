@@ -1,3 +1,146 @@
+# 8 Must-Watch Movies Leaving Netflix In September
+
+Movies, Netflix
+
+Sat, 22 Aug 2026 20:45:15 GMT
+
+https://screenrant.com/movies-leaving-netflix-september-2026/
+
+It's time once again for the inevitable content churn at the beginning of each month, and these must-watch movies are leaving Netflix very soon.
+---------
+
+# David Boreanaz's New Netflix Action Thriller Is His Biggest Role Since Bones
+
+TV, Masked Recs
+
+Sat, 22 Aug 2026 20:30:15 GMT
+
+https://screenrant.com/seal-team-netflix-david-boreanaz-biggest-role-bones/
+
+Netflix has just released the biggest military thriller TV series of the 2020s so far, which looks set to define David Boreanaz's decade.
+---------
+
+# Adam Driver Suits Up As Mister Sinister For X-Men Debut In Stunning Concept Art
+
+Movies, X-Men, Marvel Cinematic Universe, Adam Driver
+
+Sat, 22 Aug 2026 20:30:13 GMT
+
+https://screenrant.com/marvel-studios-x-men-adam-driver-mister-sinister-concept-art/
+
+Following his official casting in the Marvel Cinematic Universe franchise, Adam Driver's Mister Sinister comes to life in new X-Men movie art.
+---------
+
+# Now Is The Perfect Time To Watch Alan Ritchson's $865 Million Dystopian Sci-Fi On Netflix
+
+Movies, Masked Recs
+
+Sat, 22 Aug 2026 20:21:30 GMT
+
+https://screenrant.com/netflix-the-hunger-games-catching-fire-sci-fi-movie-watch-now/
+
+Now is the perfect time to watch this dystopian sci-fi movie featuring Reacher's Alan Ritchson and a great cast on Netflix for two major reasons.
+---------
+
+# Hulu's Handmaid’s Tale Spinoff Confirms Season 2 Update 3 Months After Finale
+
+TV, The Testaments
+
+Sat, 22 Aug 2026 20:44:38 GMT
+
+https://www.cbr.com/hulu-the-testaments-season-2-filming/
+
+The hit series won't make fans wait too long.
+---------
+
+# Paramount's New 94-Minute Supernatural Horror Is the Most-Watched Film in the U.S.
+
+Movies, Passenger, Horror, Paramount Plus
+
+Sat, 22 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/passenger-supernatural-horror-paramount-success-august-2026/
+
+Paramount's latest horror film about a couple being haunted, Passenger, is one of the most-watched movies in the United States.
+---------
+
+# William Shatner's Favorite Star Trek Episode Deserves to Be Called a Sci-Fi Masterpiece
+
+TV, Star Trek, william shatner, Sci-Fi
+
+Sat, 22 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/star-trek-william-shatner-favorite-episode-the-devil-in-the-dark/
+
+A Season 1 TOS episode is, among other Star Trek luminaries, one of William Shatner's favorites and a sci-fi masterpiece.
+---------
+
+# Legend of Zelda's Best Game Returns in 2026 With Brand-New Port
+
+Games, The Legend of Zelda
+
+Sat, 22 Aug 2026 20:25:11 GMT
+
+https://www.cbr.com/legend-zelda-twilight-princess-new-pc-port-2026/
+
+Zelda fans rejoice! Twilight Princess is now available to play on PC.
+---------
+
+# 7 Greatest Books That Inspired Studio Ghibli Movies
+
+Anime, Studio Ghibli, Grave of the Fireflies, When Marnie Was There, Kiki's Delivery Service, Howl's Moving Castle, Tales from Earthsea, The Secret World of Arrietty, The Wind Rises
+
+Sat, 22 Aug 2026 20:15:11 GMT
+
+https://www.cbr.com/books-that-inspired-studio-ghibli-movies/
+
+Studio Ghibli movies are cozy and brilliantly written, but the books they are based on expand on the world and characters way more.
+---------
+
+# Matthew McConaughey's Generation-Defining Sci-Fi Epic Is Officially Taking Over America
+
+Movie News, Matthew McConaughey, Sci-Fi, Interstellar, HBO Max
+
+Sat, 22 Aug 2026 20:30:11 GMT
+
+https://collider.com/matthew-mcconaughey-interstellar-streaming-success-hbo-max-august-2026/
+
+Matthew McConaughey's generation-defining sci-fi epic, Interstellar, directed by Christopher Nolan, is taking over America.
+---------
+
+# 10 Video Games With the Greatest Power Systems
+
+Gaming, Video Game, BioShock, The Elder Scrolls, The Legend of Zelda
+
+Sat, 22 Aug 2026 20:29:11 GMT
+
+https://collider.com/video-games-best-power-systems/
+
+Massive hits like BioShock and underrated gems like Magicka have some of the best, most intricate and innovative power systems in video game history.
+---------
+
+# NBC’s Biggest 'Saturday Night Live' Problem Is Getting Harder to Ignore
+
+TV Features, Saturday Night Live, Lorne Michaels, Chloe Fineman, NBC
+
+Sat, 22 Aug 2026 20:17:11 GMT
+
+https://collider.com/nbc-saturday-night-live-diversity-issue-opinion/
+
+While Saturday Night Live has been a staple on NBC for over 50 years, the lack of diversity has now become a glaring problem.
+---------
+
+# 10 Mind-Blowing Theories Explain Why the MCU Is Hiding Doctor Doom’s Face
+
+Features, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sat, 22 Aug 2026 20:30:14 GMT
+
+https://movieweb.com/mcu-hiding-doctor-doom-face-avengers-doomsday-theories/
+
+'Avengers: Doomsday' trailers and marketing materials have yet to show us Dr. Doom's face, and there is likely a good reason we've only seen the mask.
+---------
+
 # Silo Season 3's Low Audience Score On RT Ignores A Key Aspect Of The Show
 
 Streaming TV, Silo, Silo - Season 3
