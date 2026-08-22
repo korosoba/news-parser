@@ -1,3 +1,25 @@
+# Why Alan Ritchson’s Reacher Seems Weaker In Season 4
+
+Streaming TV, Reacher, Reacher - Season 4
+
+Sat, 22 Aug 2026 05:00:15 GMT
+
+https://screenrant.com/reacher-season-4-alan-ritchson-weak/
+
+While Reacher season 4 is becoming one of the most compelling instalments of the series, it surprisingly makes its titular character look weaker.
+---------
+
+# The Expanse Official 2027 Return Confirms The Franchise Is Far From Over
+
+Gaming, The Expanse
+
+Sat, 22 Aug 2026 05:00:15 GMT
+
+https://screenrant.com/expanse-osiris-reborn-2027-great-news/
+
+The Expanse was a genuinely brilliant show for the limited time that it was around, so it makes sense that it should return in another medium.
+---------
+
 # Pokémon FireRed & LeafGreen Free Download Officially Announced
 
 Gaming, Pokemon, Pokemon FireRed and LeafGreen, Nintendo, Nintendo Switch
