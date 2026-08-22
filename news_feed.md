@@ -1,3 +1,256 @@
+# 11 Brooklyn Nine-Nine Character Details Taken From The Actors' Real Lives
+
+Classic TV, Brooklyn Nine-Nine
+
+Sat, 22 Aug 2026 00:30:15 GMT
+
+https://screenrant.com/brooklyn-nine-nine-character-details-real-actors/
+
+The main characters of Brooklyn Nine-Nine are heightened but also feel very lived-in, and that's a result of traits they share with their actors.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (#1 Is A $130.8 Million Sci-Fi With Near-Perfect RT Audience Score)
+
+Movies, Prime Video, Recommendation
+
+Sat, 22 Aug 2026 00:28:08 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-august-22/
+
+Prime Video's best movies to watch this weekend include a Keanu Reeves fantasy, a thrilling sports release, and a timely sci-fi adventure.
+---------
+
+# Star Trek Meets The Muppets Episode Cut R-Rated Elements From Orion Story (Exclusive)
+
+Exclusive, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 22 Aug 2026 00:09:05 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-puppet-episode-r-rated-elements-cut/
+
+Exclusive: Star Trek: Strange New Worlds' puppet episode guest stars reveal that scenes where their Orions pushed the envelope further got cut.
+---------
+
+# Forget Goku And The Hulk, The Strongest Superhero Is One Almost No-One Mentions
+
+Comics, image comics
+
+Sat, 22 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/strongest-superhero-all-time-spawn/
+
+The most powerful superhero in the comic book medium doesn't belong to the Marvel or DC multiverses, but he's still a world-famous powerhouse.
+---------
+
+# Power Rangers Reveals Rita Repulsa's New Costume & It Will Shock '90s Kids
+
+Streaming TV, Power Rangers
+
+Sat, 22 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/power-rangers-rita-repulsa-new-purple-costume/
+
+Few kids show villains have a look as iconic as Rita Repulsa's in Mighty Morphin Power Rangers, but the franchise's latest show reinvents it.
+---------
+
+# 3 Greatest Nintendo 64 Games Turning 30 This Year
+
+Gaming, Nintendo, Super Mario 64
+
+Sat, 22 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/best-nintendo-64-games-turning-30-this-year/
+
+These three incredible Nintendo 64 games are turning 30 in 2026, marking a truly momentous milestone.
+---------
+
+# Chicago Fire Season 15 Explores More Firehouse 51 Candidates Amid Cast Shakeup
+
+TV, Chicago Fire
+
+Fri, 21 Aug 2026 23:47:04 GMT
+
+https://screenrant.com/chicago-fire-season-15-matthew-daddario-set-photos-firehouse-51/
+
+Chicago Fire season 14's cliff-hanger ending has set the long-running show up for some new faces in the upcoming chapter of the hit drama series.
+---------
+
+# 5 Strongest Anime Pirates, Ranked
+
+Anime, Space Pirate Captain Harlock, One Piece, Black Lagoon
+
+Sat, 22 Aug 2026 00:45:11 GMT
+
+https://www.cbr.com/strongest-anime-pirates-ranked/
+
+In worlds where one captain can change the course of history, becoming a pirate often means having the strength to take freedom by force.
+---------
+
+# Dragon Ball Officially Takes Over Burger King With Super Saiyan Blue Goku & Vegeta
+
+Anime, Dragon Ball, Dragon Ball Super, Shonen Jump, merchandise, toys, food
+
+Sat, 22 Aug 2026 00:35:11 GMT
+
+https://www.cbr.com/dragon-ball-burger-king-super-saiyan-blue-goku-vegeta-collab/
+
+Dragon Ball Super is officially taking over Burger King with a Super Saiyan-inspired menu and collectible toys ahead of its new anime.
+---------
+
+# 5 Open-World Games With the Best Leveling Systems
+
+Games, Elden Ring, Fallout
+
+Sat, 22 Aug 2026 00:30:11 GMT
+
+https://www.cbr.com/open-world-games-with-the-best-leveling-systems/
+
+Open world games like Fallout and Elden Ring make the experience of leveling up not just satisfying, but fun.
+---------
+
+# 10 Most Overpowered Shonen Villains, Officially Ranked
+
+Anime, Dragon Ball, One Piece, Jujutsu Kaisen
+
+Sat, 22 Aug 2026 00:15:11 GMT
+
+https://www.cbr.com/most-overpowered-shonen-villains-officially-ranked/
+
+The most powerful shonen villains of all time are so overpowered that it isn't even fair.
+---------
+
+# HBO's 10/10 Detective Show With 5 Perfect Seasons Explodes in Popularity 16 Years Later
+
+TV, The Wire, hbo
+
+Sat, 22 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/hbo-the-wire-google-trends-success-august-2026/
+
+The hit series remains a favorite among fans.
+---------
+
+# Marvel Officially Confirms Major New Crossovers Before Avengers: Doomsday
+
+Comics, Marvel Comics
+
+Sat, 22 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/marvel-multiverse-x-men-incursions-release-details/
+
+With Doomsday on the way, Marvel is teasing new Secret Wars-style crossovers involving the X-Men, Fantastic Four and Spider-Man.
+---------
+
+# 7 Classic PS1 RPGs So Good They Never Need a Remake
+
+Games, PlayStation (Original), Role Playing Game, Final Fantasy, Persona
+
+Sat, 22 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/best-ps1-rpgs-no-needed-remakes/
+
+The best PS1 RPGs, regardless of how forgotten some may be, absolutely do not need remakes.
+---------
+
+# Daniel Craig's Rumored James Bond Replacement Officially Drops Out of 007 Race
+
+Movies, James Bond
+
+Fri, 21 Aug 2026 23:55:51 GMT
+
+https://www.cbr.com/james-bond-role-theo-james-drops-out/
+
+One heavily rumored name to take over as James Bond can now be counted out.
+---------
+
+# Taylor Sheridan's 'Yellowstone' Spin-Off Is Officially Fixing One of Its Biggest Character Problems
+
+TV Features, Marshals, Logan Marshall-Green, Yellowstone, CBS
+
+Sat, 22 Aug 2026 00:39:11 GMT
+
+https://collider.com/taylor-sheridan-marshals-season-2-cal-maddie-storyline/
+
+Marshals Season 2 will delve into Cal's health and family dynamics with Maddie, giving his character much-needed development.
+---------
+
+# $170M Fantasy Remake Officially Has the Power With Over 1B Minutes Watched
+
+Movie News, Masters of the Universe, Prime Video, Nicholas Galitzine, Jared Leto
+
+Sat, 22 Aug 2026 00:30:11 GMT
+
+https://collider.com/masters-of-the-universe-prime-video-viewership-nielsen-ratings/
+
+The biggest fantasy box-office flop of 2026, Masters of the Universe, seems to be bouncing back after its streaming debut on Prime Video.
+---------
+
+# 10 Book Series Everyone Should Read at Least Once
+
+Books and Comics, Dune, The Lord of the Rings, The Dark Tower, A Song of Ice and Fire
+
+Sat, 22 Aug 2026 00:11:11 GMT
+
+https://collider.com/book-series-everyone-should-read-at-least-once/
+
+Series like A Song of Ice and Fire, The Dark Tower, and Dune might make for large time investments, but they are all worth reading at least once.
+---------
+
+# 10 Greatest HBO Miniseries of the 2010s, Ranked
+
+TV, HBO, TV Miniseries, Chernobyl, Sharp Objects
+
+Sat, 22 Aug 2026 00:02:11 GMT
+
+https://collider.com/best-hbo-miniseries-2010s-ranked/
+
+Sharp Objects, The Night Of, Watchmen, and Olive Kitteridge are among the best HBO miniseries released in the 2010s, but which is the greatest?
+---------
+
+# Netflix Officially Revives 12-Year-Old Sci-Fi Series To Become a Massive Streaming Hit
+
+TV News, Michael Bay, Sci-Fi, Eric Dane, Netflix
+
+Sat, 22 Aug 2026 00:00:11 GMT
+
+https://collider.com/the-last-ship-michael-bay-sci-fi-series-nielsen-report-netflix-viewership/
+
+Years after its cancellation, a sci-fi series starring Eric Dane and executive-produced by Michael Bay has found a larger audience on Netflix.
+---------
+
+# HBO's Record-Breaking "Sci-Fi True Detective" Series Is the Best TV Premiere in 3 Years
+
+Features, Lanterns, HBO Max, Sci-Fi, True Detective
+
+Sat, 22 Aug 2026 00:41:09 GMT
+
+https://movieweb.com/lanterns-hbo-best-tv-premiere-since-2023/
+
+HBO is so back, with its new sci-fi, 'True-Detective'-esque series blowing fans and critics away.
+---------
+
+# The Iconic '80s Cult Classic Known as 'The Goonies' of Horror Secures New Streaming Home
+
+Movie News, The Monster Squad, Coming/Leaving Streaming, The Goonies, Horror
+
+Sat, 22 Aug 2026 00:00:13 GMT
+
+https://movieweb.com/the-monster-squad-horror-streaming-paramount-plus-september-2026/
+
+Released in 1987, the iconic cult favorite that features one of the most quotable lines in movie history has just landed a new streaming home.
+---------
+
+# The 10 Greatest Spider-Man Comic Runs of All Time, Ranked (#2 Is a Perfect Starting Point)
+
+Movie Lists, Spider-Man
+
+Sat, 22 Aug 2026 00:00:13 GMT
+
+https://movieweb.com/greatest-spider-man-comic-runs/
+
+From Stan Lee to Brian Michael Bendis and Dan Slott, these are the best 'Spider-Man' runs that defined the character for generations.
+---------
+
 # The Boys Creator Announces "Disturbing" New Horror Project
 
 Comics
