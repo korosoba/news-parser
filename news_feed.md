@@ -1,3 +1,124 @@
+# National Treasure 3 In Development With Nicolas Cage Set To Return
+
+Movies, National Treasure
+
+Sat, 22 Aug 2026 17:02:52 GMT
+
+https://screenrant.com/national-treasure-3-nicolas-cage-return-development/
+
+Nicolas Cage is back for National Treasure, as the exciting news prepares fans for a film that has been on the horizon for nearly 20 years.
+---------
+
+# Sydney Sweeney's Live-Action Anime Adaptation On Netflix Will Make Transformers Look Small
+
+Movies, Masked Recs
+
+Sat, 22 Aug 2026 17:02:14 GMT
+
+https://screenrant.com/gundam-netflix-movie-transformers-look-small/
+
+After massive hits and flops alike, Sydney Sweeney aims to steer a massive mecha sci-fi franchise into mainstream cinematic territory on Netflix.
+---------
+
+# 12 Greatest RPG Romances Of All Time
+
+Gaming, Cyberpunk 2077, Baldur's Gate 3, Triple-A Games
+
+Sat, 22 Aug 2026 17:00:15 GMT
+
+https://screenrant.com/greatest-romances-rpg-roleplaying-games/
+
+RPG romances come in all shapes and sizes, and what makes them great varies from game to game. But the best ones are unique and the most memorable.
+---------
+
+# Anthony Mackie's Captain America Role In Avengers: Doomsday Is Worrying
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sat, 22 Aug 2026 16:55:14 GMT
+
+https://screenrant.com/avengers-doomsday-sam-wilson-captain-america-anthony-mackie-role/
+
+Avengers: Doomsday brings Anthony Mackie back, but the role the MCU and Russos have given Sam Wilson's Captain America is worrying at this point.
+---------
+
+# The X-Files' New R-Rated Movie Earns Polarizing Rotten Tomatoes Score For Director's Cut
+
+Movies, The X-Files, The X-Files: I Want to Believe
+
+Sat, 22 Aug 2026 16:52:20 GMT
+
+https://screenrant.com/x-files-i-want-to-believe-directors-cut-rotten-tomatoes-score/
+
+Critics disagree on whether the newly-released R-rated director's cut of an oft-maligned X-Files movie really improves upon the original.
+---------
+
+# Taylor Sheridan & Paramount Hit With Lawsuit for 'Stealing' Yellowstone Idea
+
+TV, Yellowstone
+
+Sat, 22 Aug 2026 17:03:30 GMT
+
+https://www.cbr.com/taylor-sheridan-paramount-lawsuit-yellowstone-idea/
+
+A new entertainment lawsuit is threatening Paramount's biggest TV franchise.
+---------
+
+# Prime Video's New 8-Part Spy Show With 96% RT Dominates the Global Charts 1 Week Later
+
+TV, Ride or Die, Action, Prime Video
+
+Sat, 22 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/ride-or-die-action-spy-comedy-prime-video-success-july-2026/
+
+Prime Video's latest action spy series, Ride or Die, officially becomes one of the most-watched shows in the United States.
+---------
+
+# In 1 Week, Ridley Scott Returns to Sci-Fi with The Dog Stars
+
+Movies, The Dog Stars, ridley scott, Sci-Fi
+
+Sat, 22 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/ridley-scott-sci-fi-genre-return-the-dog-stars-movie/
+
+Nearly nine years after his last sci-fi movie, one of the genre's best directors is set to return with a new book adaptation this summer.
+---------
+
+# HBO's 6-Part Space Opera Prequel Star Teases 'A Lot of New Elements' in Season 2
+
+TV
+
+Sat, 22 Aug 2026 16:50:19 GMT
+
+https://www.cbr.com/hbos-dune-prequel-star-teases-new-elements-season-2/
+
+This is an exciting time for one of the most iconic franchises ever.
+---------
+
+# ‘True Detective’ Fans Have Officially Found Their New Sci-Fi Obsession on HBO Max
+
+TV News, Lanterns, Superhero, HBO Max, Streaming
+
+Sat, 22 Aug 2026 17:00:11 GMT
+
+https://collider.com/kyle-chandler-lanterns-streaming-success-hbo-max-august-2026/
+
+HBO Max's new superhero series starring Aaron Pierre and Kyle Chandler is an instant streaming smash. Here's everything to know about Lanterns.
+---------
+
+# Daenerys's Best 'Game of Thrones' Line Still Lives Rent-Free in Our Heads
+
+Features, Game Of Thrones
+
+Sat, 22 Aug 2026 17:00:14 GMT
+
+https://movieweb.com/daenerys-game-of-thrones-quote-rent-free/
+
+She's the Khaleesi of the Great Grass Sea and the Queen of Iconic Quotes.
+---------
+
 # Netflix's New August 2026 Record Means This Month Already Has A Clear Streaming Winner
 
 Movies, The Last House, Netflix
