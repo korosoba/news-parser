@@ -1,3 +1,190 @@
+# 8 Infamous Banned Books You Should Read Once In Your Life
+
+Books
+
+Sat, 22 Aug 2026 01:42:23 GMT
+
+https://screenrant.com/infamous-banned-books-everyone-should-read/
+
+These eight novels might be deemed as controversial and infamous by book banners, but they provide valuable insights into the world and history.
+---------
+
+# Ahsoka Season 2 Theory Claims A Major Star Wars Villain Mystery Has Been Solved
+
+Streaming TV, Ahsoka, Star Wars
+
+Sat, 22 Aug 2026 01:30:15 GMT
+
+https://screenrant.com/ahsoka-season-2-marrok-origin-mystery-solved-theory/
+
+A big theory has been concocted after the trailer for Ahsoka season 2 was released, claiming to reveal the origins of a mysterious Star Wars villain.
+---------
+
+# Prime Video's New $113 Million Fantasy Epic Continues An Exciting Trend After 1.1 Billion Minutes Watched
+
+Movies, Masked Recs
+
+Sat, 22 Aug 2026 01:17:50 GMT
+
+https://screenrant.com/masters-of-the-universe-prime-video-billion-minutes-watched-august-2026/
+
+Prime Video's new fantasy epic has racked up over 1.1 billion minutes watched, continuing a recent streaming trend that could lead to major sequels.
+---------
+
+# Solo Leveling's New Anime Rival, Eleceed, Has One Major Problem
+
+Anime, Solo Leveling, Eleceed
+
+Sat, 22 Aug 2026 01:00:15 GMT
+
+https://screenrant.com/eleceed-solo-leveling-biggest-rival-one-problem/
+
+Eleceed could be the next massive manhwa anime hit, but stiff 3DCG visuals and confusing name changes put it far behind Solo Leveling.
+---------
+
+# Spider-Man: Brand New Day Was Not A Great Look For The MCU's New Avengers Team
+
+Movies, Spider-Man: Brand New Day
+
+Sat, 22 Aug 2026 01:00:15 GMT
+
+https://screenrant.com/spider-man-brand-new-day-new-avengers-bad-look-mcu/
+
+Even though the entire team doesn't appear in Spider-Man: Brand New Day, the movie didn't do much to inspire confidence in the MCU's New Avengers.
+---------
+
+# 5 Most Powerful Dragon Ball Transformations, Ranked
+
+Anime, Dragon Ball, Akira Toriyama, Dragon Ball Super
+
+Sat, 22 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/most-powerful-dragon-ball-transformations-ranked/
+
+Dragon Ball has made a name for itself through its exciting transformations, but some of these forms possess greater power that put the rest to shame.
+---------
+
+# 5 Adventure Movies That Feel Like Forgotten Spielberg Classics
+
+Movies, steven spielberg, Adventure, The Iron Giant
+
+Sat, 22 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/best-adventure-movies-feel-like-spielberg-classics-list/
+
+One of the most famous directors in film, Spielberg has influenced many, and these five films feel as if they're straight out of his lexicon.
+---------
+
+# 5 Cartoon Network Anime That Don't Hold Up Today
+
+Anime, Inuyasha, Dragon Ball Z
+
+Sat, 22 Aug 2026 01:45:11 GMT
+
+https://www.cbr.com/cartoon-network-anime-aged-like-milk/
+
+These anime once entertained countless Cartoon Network viewers, but modern standards have not been kind to them.
+---------
+
+# 10 Most Valuable Pokémon Cards of All Time, Ranked by Price
+
+Games, Pokemon, Pokemon TCG, TCG, Tabletop
+
+Sat, 22 Aug 2026 01:25:11 GMT
+
+https://www.cbr.com/most-valuable-pokemon-cards-all-time-ranked-by-price/
+
+For nearly 30 years, Pokémon TCG has dominated the tabletop genre, with the most valuable cards achieving shocking price heights.
+---------
+
+# Pokémon Winds & Waves Officially Reveals New Starter Trio Designs
+
+Games, Pokemon
+
+Sat, 22 Aug 2026 01:15:11 GMT
+
+https://www.cbr.com/pokemon-winds-waves-officially-reveals-new-starter-trio-designs/
+
+Continuing the celebration of the franchise's 30th anniversary, a new official look has been given at the Pokémon Winds and Waves Starter Trio.
+---------
+
+# Timothy Olyphant's Remake of 53-Year-Old George A. Romero Horror Gets Free Streaming Home
+
+Movies, The Crazies, Tubi
+
+Sat, 22 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/the-crazies-remake-free-streaming-tubi-september-2026/
+
+The horror remake returns 16 years after debuting in theaters.
+---------
+
+# CBS’s Ambitious ‘NCIS’ Formula Change Gives Its Newest Series a Major Advantage
+
+TV Features, NCIS, NCIS: New York, Series, CBS
+
+Sat, 22 Aug 2026 02:11:11 GMT
+
+https://collider.com/ncis-new-york-filming-new-york-city-advantage-cbs/
+
+CBS is giving NCIS: New York a major advantage by filming the new spinoff on location across New York City.
+---------
+
+# Prime Video's 8-Part Historical Drama Adaptation Is Officially a Global Smash
+
+TV Features, The House of the Spirits, Prime Video, Nicole Wallace
+
+Sat, 22 Aug 2026 01:55:11 GMT
+
+https://collider.com/prime-video-house-of-spirits-historical-drama-adaptation/
+
+Prime Video's House of the Spirits adapts Isabel Allende's complex family saga with stars Nicole Wallace and Fernanda Urrejola.
+---------
+
+# 12 Years Later, the Best Fantasy Video Game Quote of the 2010s Still Hits Hard
+
+Gaming, Video Game, Dragon Age, Fantasy, Action
+
+Sat, 22 Aug 2026 01:41:11 GMT
+
+https://collider.com/dragon-age-inquisition-best-quote-still-hits-2026/
+
+2014's Dragon Age: Inquisition has incredible dialogue, but the best quote, spoken by the villain Corypheus, is so good that it still resonates today.
+---------
+
+# Apple TV’s Sci-Fi Hit Is Making Its Biggest Formula Change Yet for Season 2
+
+TV Features, Murderbot, Alexander Skarsgard, Apple TV, David Dastmalchian
+
+Sat, 22 Aug 2026 01:14:11 GMT
+
+https://collider.com/murderbot-season-2-cast-announcement-formula-change/
+
+Apple TV has announced 25 new cast members for Murderbot Season 2, all of whom could play a role in reshaping the series' original formula.
+---------
+
+# 8 Sci-Fi Franchises Better Than 'Star Trek'
+
+Movie Lists, Sci-Fi, Star Trek, Dune
+
+Sat, 22 Aug 2026 02:00:24 GMT
+
+https://movieweb.com/sci-fi-franchises-better-than-star-trek/
+
+Think 'Star Trek' is the best? These franchises may not have as much TV to binge, but there are undeniable qualities that make them worth competitors.
+---------
+
+# Jason Statham's New 95-Minute Action Thriller Is Officially His Best Revenge Movie in 20 Years
+
+Features, Mutiny, Jason Statham
+
+Sat, 22 Aug 2026 01:00:14 GMT
+
+https://movieweb.com/jason-statham-mutiny-best-revenge-thriller-since-crank/
+
+Recently-release action thriller 'Mutiny' delivers all the bone-crunching action one would expect from a vengeful Jason Statham aboard a cargo ship.
+---------
+
 # 11 Brooklyn Nine-Nine Character Details Taken From The Actors' Real Lives
 
 Classic TV, Brooklyn Nine-Nine
