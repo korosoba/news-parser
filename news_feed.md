@@ -1,3 +1,14 @@
+# Blade Runner Meets John Wick In New Sci-Fi Thriller
+
+Gaming, Blade Runner, PC, John Wick, Indie Games
+
+Sat, 22 Aug 2026 07:00:15 GMT
+
+https://screenrant.com/blade-runner-meets-john-wick-neo-berlin-2028/
+
+A new sci-fi thriller that mixes the gritty, dystopian vibes from Blade Runner with the action-packed fights from John Wick is set to arrive soon.
+---------
+
 # Game Of Thrones: The Promised Prince Officially Revealed
 
 Gaming, Game Of Thrones, Game of Thrones, Game Of Thrones: Dragonfire, PC, House of the Dragon
