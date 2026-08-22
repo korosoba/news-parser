@@ -1,3 +1,102 @@
+# Lanterns Just Cemented The One DC Green Lantern Retcon So Good, Nobody Even Questions It
+
+TV, Lanterns, Green Lantern, DC Comics
+
+Sat, 22 Aug 2026 22:30:15 GMT
+
+https://screenrant.com/lanterns-john-stewart-retcon-architect-army/
+
+John Stewart's origin was changed in 2000, and he hasn't been the same since.
+---------
+
+# 6 Curb Your Enthusiasm Episodes That Don't Hold Up Today
+
+Classic TV, Curb Your Enthusiasm
+
+Sat, 22 Aug 2026 22:30:15 GMT
+
+https://screenrant.com/curb-your-enthusiasm-episodes-not-hold-up/
+
+Curb Your Enthusiasm is a show that always pushed the boundaries and dealt with taboo subjects, but some of those episodes don't hold up today.
+---------
+
+# After 9 Years, Marvel Is Finally Bringing Back Spider-Man’s Original Nemesis
+
+Marvel Comics, Spider-Man, Marvel
+
+Sat, 22 Aug 2026 22:18:09 GMT
+
+https://screenrant.com/spider-man-nemesis-j-jonah-jameson-return/
+
+Marvel Comics is regressing a Spider-Man side character back to how they were nearly a decade ago, and it's anyone's guess as to why.
+---------
+
+# Bolt’s New MCU Return Potential Addressed By X-Men Star
+
+Movies, Dominic Monaghan, Marvel Cinematic Universe, X-Men
+
+Sat, 22 Aug 2026 22:16:05 GMT
+
+https://screenrant.com/xmen-mcu-reboot-bolt-return-chances-dominic-monaghan/
+
+Exclusive: Dominic Monaghan, who played Bolt in X-Men Origins: Wolverine, discussed potentially reprising the role in the Marvel Cinematic Universe.
+---------
+
+# As A My Chemical Romance Fan, I Was Not Okay After The Umbrella Academy's Best Easter Egg
+
+Classic TV, The Umbrella Academy
+
+Sat, 22 Aug 2026 22:15:14 GMT
+
+https://screenrant.com/the-umbrella-academy-my-chemical-romance-easter-egg-jetset-life/
+
+The Umbrella Academy includes some intriguing easter eggs that reveal massive plot points ahead of time, while also connecting to My Chemical Romance.
+---------
+
+# D&D's Most Infamous City Is Officially Returning
+
+Games, Dungeons and Dragons, Tabletop, Dungeons & Dragons
+
+Sat, 22 Aug 2026 22:15:11 GMT
+
+https://www.cbr.com/dnd-most-infamous-city-officially-returning/
+
+The latest Dungeons & Dragons Unearthed Arcana playtest document has confirmed that the most infamous city in the Forgotten Realms is returning.
+---------
+
+# Seth Rogen’s Steamy New Movie Is Officially Setting Streaming on Fire
+
+Movie News, The Invite, Seth Rogen, Streaming, Penelope Cruz
+
+Sat, 22 Aug 2026 22:30:11 GMT
+
+https://collider.com/seth-rogen-the-invite-streaming-success-itunes-august-2026/
+
+A steamy 2026 gem — starring Seth Rogen, Penelope Cruz, Edward Norton, and Olivia Wilde — is a streaming smash.
+---------
+
+# Taylor Sheridan's 'John Wick' Replacement Is Officially Dominating Prime Video
+
+Movie News, Tom Clancy's Without Remorse, Taylor Sheridan, Without Remorse, Prime Video
+
+Sat, 22 Aug 2026 22:15:11 GMT
+
+https://collider.com/taylor-sheridan-action-thriller-without-remorse-streaming-prime-video-august-2026/
+
+Taylor Sheridan's brutal revenge thriller with shades of John Wick and Zero Dark Thirty is officially streaming on Prime Video.
+---------
+
+# The 'Insidious' Mystery That Has Plagued Horror Fans for 15 Years
+
+Features, Insidious, Horror, Insidious: Out of the Further
+
+Sat, 22 Aug 2026 22:30:14 GMT
+
+https://movieweb.com/insidious-title-mystery-horror/
+
+Despite having six movies, the 'Insidious' franchise still has horror fans speculating over one of its biggest mysteries.
+---------
+
 # Anti-Venom Unleashes Permanent New Power We're Begging the MCU to Adapt
 
 Comics, Anti-Venom, Venom, Marvel
