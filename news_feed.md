@@ -1,3 +1,146 @@
+# Silo Season 3's Low Audience Score On RT Ignores A Key Aspect Of The Show
+
+Streaming TV, Silo, Silo - Season 3
+
+Sat, 22 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/silo-season-3-audience-rotten-tomatoes-score-ignore-slow-burn/
+
+Silo season 3 has a shocking 39 point difference between critic & audience Rotten Tomatoes scores - find out why Apple TV’s sci-fi show is divisive.
+---------
+
+# 5 Game Boy Advance Games That Are 10/10 Masterpieces
+
+Gaming, Nintendo Game Boy Advance, Nintendo
+
+Sat, 22 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/game-boy-advance-masterpieces/
+
+Explore the top 5 must-play masterpiece games for the Game Boy Advance, from RPGs to platformers.
+---------
+
+# Blade Runner Meets Cyberpunk 2077 In New Detective Thriller You Can Try Free Now
+
+Gaming, Cyberpunk 2077, Blade Runner
+
+Sat, 22 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/blade-runner-meets-cyberpunk-2077-inquisitor/
+
+Explore Cyberpunk Inquisitor, a free dystopian murder mystery game on Steam.
+---------
+
+# Ben Stiller's Severance Season 3 Involvement Confirmed by Star
+
+TV, Severance
+
+Sat, 22 Aug 2026 20:10:24 GMT
+
+https://www.cbr.com/ben-stiller-severance-season-3-involvement/
+
+One of Severance's biggest stars confirms exactly how involved executive producer and director Ben Stiller is with the production of Season 3.
+---------
+
+# Every X-Men Comic the MCU Could Use for Its New Movies, Explained
+
+Comics, X-Men, MCU, Marvel Comics
+
+Sat, 22 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/every-x-men-comic-that-the-mcu-could-use-explained/
+
+The cast of the upcoming X-Men MCU reboot has been revealed, but what storylines can fans expect to tie these characters to the theatrical arc?
+---------
+
+# Pokémon Fans Get First-Look Reveal at New 30th Anniversary Crocs Starring Pikachu, Gengar & Jigglypuff
+
+Anime, Pokemon, merchandise, Clothing
+
+Sat, 22 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/pokemon-crocs-first-look-pikachu-gengar-jigglypuff/
+
+Pokémon fans can celebrate the 30th anniversary of their favorite franchise in style with two more brand-new pairs of officially branded Crocs.
+---------
+
+# 10 Greatest Cozy Sci-Fi Books of All Time, Ranked
+
+Movies, Science Fiction, books, Murderbot
+
+Sat, 22 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/best-cozy-sci-fi-books-list/
+
+Cozy sci-fi swaps dystopias, spaceship battles, & galactic doom for found family, cosmic exploration & everyday interstellar slice-of-life stories
+---------
+
+# Danny DeVito's Fantasy Masterpiece Is Quietly Leaving Netflix
+
+Movies, Matilda
+
+Sat, 22 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/matilda-leaving-netflix-september-2026/
+
+Netflix subscribers have just weeks left to watch one of the most beloved children's fantasy films of all time before it leaves the platform.
+---------
+
+# China Beats Hollywood Again as $200 Indie Movie Obliterates Box Office Record
+
+Movies, Niu Lai
+
+Sat, 22 Aug 2026 19:51:26 GMT
+
+https://www.cbr.com/niu-lai-most-profitable-movie-box-office-record/
+
+Obsession's major box office record has already been destroyed by an unlikely contender.
+---------
+
+# Guy Ritchie’s 102-Minute Crime Masterpiece Is Officially a Steal on Free Streaming
+
+Movie News, Snatch, Guy Ritchie, Jason Statham, Brad Pitt
+
+Sat, 22 Aug 2026 20:00:11 GMT
+
+https://collider.com/guy-ritchie-crime-thriller-snatch-streaming-free-pluto-tv-august-2026/
+
+Guy Ritchie's 102-minute crime thriller with shades of Fargo and Pulp Fiction is officially free to stream in America.
+---------
+
+# 2-Part WWII Action Masterpiece With 100% RT Rating Is Officially One of the Biggest Hits on Streaming
+
+TV News, SAS: Rogue Heroes, Hot on Streaming, Action
+
+Sat, 22 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/sas-rogue-heroes-action-streaming-success-mgm-august-2026/
+
+The highest-rated war series ever made (even higher than 'Band of Brothers') is a major hit on streaming.
+---------
+
+# 7 Years Later, This Underrated Captain Holt Scene Is Still 'Brooklyn Nine-Nine's Funniest Moment
+
+Features, Brooklyn Nine-Nine
+
+Sat, 22 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/brooklyn-nine-nine-holt-rice-scene/
+
+Captain Holt has too many hilarious 'Brooklyn Nine-Nine' scenes to count, but one of them stands out among the rest. Read on for more.
+---------
+
+# 'House of the Dragon' Characters, Ranked by Season 3 Total Screen Time
+
+TV Lists, House of the Dragon, Game of Thrones
+
+Sat, 22 Aug 2026 19:45:14 GMT
+
+https://movieweb.com/house-of-the-dragon-characters-season-3-screen-time/
+
+A breakdown of each 'House of the Dragon' character's Season 3 screen time shows who takes center stage — and some revelations are surprising.
+---------
+
 # Batman & Superman Become Saiyans In Official New DC x Dragon Ball Crossover
 
 DC Comics, Batman, Superman
