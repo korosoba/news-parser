@@ -1,3 +1,47 @@
+# Legend Of Zelda: Minish Cap HD-2D Remake Leaves Gamers Split
+
+Gaming, The Legend of Zelda, The Legend of Zelda: The Minish Cap
+
+Sat, 22 Aug 2026 09:00:15 GMT
+
+https://screenrant.com/zelda-minish-cap-remake-hopes/
+
+Explore fans' mixed reactions to the potential HD-2D remake of Zelda: Minish Cap and the game's lasting charm.
+---------
+
+# Inscryption: Every Holo Pelt Location In Act 3 (& What They're For)
+
+Gaming, Inscryption, PC
+
+Sat, 22 Aug 2026 08:55:14 GMT
+
+https://screenrant.com/inscryption-every-holo-pelt-location-act-3/
+
+Genre-spanning deck-builder Inscryption features familiar faces across its three acts, but the Trader has something new to exchange in Act 3.
+---------
+
+# The 10 Best Video Game Duos of All Time, Ranked
+
+TV, Video Game, The Last of Us, Mario, Sonic
+
+Sat, 22 Aug 2026 09:18:11 GMT
+
+https://collider.com/best-video-game-duos-all-time-ranked/
+
+Explore the most memorable pairs in gaming history, including iconic characters from Super Mario, The Last of Us, and Mortal Kombat.
+---------
+
+# ‘Silo’ Meets ‘The Last of Us’ in Prime Video’s Best Sci-Fi Series Officially Returning in 2027
+
+TV News, Fallout, Prime Video, Walton Goggins, Ella Purnell
+
+Sat, 22 Aug 2026 09:00:11 GMT
+
+https://collider.com/prime-video-sci-fi-series-fallout-season-3-release-date-2027/
+
+Prime Video's best sci-fi series with shades of Silo and The Last of Us is officially returning for Season 3 in 2027.
+---------
+
 # Final Fantasy 7 Rebirth: Every Swindling Seminar Answer
 
 Gaming, Final Fantasy 7 Rebirth, Final Fantasy
