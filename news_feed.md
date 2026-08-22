@@ -1,3 +1,36 @@
+# Fallout Meets Dungeons & Dragons In New RPG About The End Of The World
+
+Gaming, RPG, PC, Indie
+
+Sat, 22 Aug 2026 09:30:15 GMT
+
+https://screenrant.com/fallout-meets-dungeons-dragons-end-of-world-rpg/
+
+A new RPG about the end of the world is in the making, mixing elements from the Dungeons and Dragons and Fallout franchises in a promising bundle.
+---------
+
+# Rebecca Ferguson’s Sci-Fi Masterpiece Is Officially the #1 Apple TV Series Worldwide
+
+TV News, Silo, Rebecca Ferguson, Apple TV, Tim Robbins
+
+Sat, 22 Aug 2026 09:40:11 GMT
+
+https://collider.com/apple-tv-sci-fi-show-silo-rebecca-ferguson-streaming-success-august-2026/
+
+Apple TV's #1 sci-fi show in the world with shades of Fallout and Snowpiercer has officially become a must-watch hit on streaming.
+---------
+
+# Jason Statham’s $530M Sci-Fi Franchise Starter Is Officially Being Removed From HBO Max
+
+Movie News, Jason Statham, The Meg, Sci-Fi, HBO Max
+
+Sat, 22 Aug 2026 09:20:11 GMT
+
+https://collider.com/jason-statham-shark-movie-the-meg-leaving-hbo-max-september-2026/
+
+Jason Statham's biggest hit as a solo action star is about to leave HBO Max, just as he returns to the big screens with Mutiny.
+---------
+
 # Legend Of Zelda: Minish Cap HD-2D Remake Leaves Gamers Split
 
 Gaming, The Legend of Zelda, The Legend of Zelda: The Minish Cap
