@@ -1,3 +1,102 @@
+# Marvel Officially Confirms Epic Doctor Doom vs Doctor Strange Battle
+
+Comics, Doctor Doom, Doctor Strange
+
+Sat, 22 Aug 2026 23:30:15 GMT
+
+https://screenrant.com/doctor-doom-vs-doctor-strange-battle-magic/
+
+A big fight.
+---------
+
+# The Pitt Season 3 Officially Confirms One Relationship Is Still Going Strong
+
+Streaming TV, The Pitt
+
+Sat, 22 Aug 2026 23:30:15 GMT
+
+https://screenrant.com/the-pitt-season-3-santos-whitaker-friendship-still-strong/
+
+The trailer for The Pitt season 3 has confirmed that Dr. Santos' burgeoning friendship with Dr. Whitaker (or "Huckleberry") is still going strong.
+---------
+
+# 9 Best Spider-Man Characters Still Missing From The MCU After Brand New Day
+
+Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day, Marvel
+
+Sat, 22 Aug 2026 23:15:14 GMT
+
+https://screenrant.com/spider-man-characters-missing-from-mcu-after-brand-new-day/
+
+Tom Holland's Spider-Man has been running around the MCU since 2016, but we have yet to meet some pretty pivotal characters from the Spider-Verse.
+---------
+
+# Chris Tucker Confirms Friday 4 Talks After Sitting Out Previous Sequels
+
+Movies, Friday, Last Friday
+
+Sat, 22 Aug 2026 23:40:06 GMT
+
+https://www.cbr.com/chris-tucker-confirms-friday-4-talks/
+
+Smokey and Craig may finally have an on-screen reunion over three decades later.
+---------
+
+# Peacock’s 8-Episode Big Little Lies Replacement Is 1 of the Most Popular on Streaming
+
+TV, The Five-Star Weekend, Peacock, Big Little Lies
+
+Sat, 22 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/the-five-star-weekend-drama-peacocks-streaming-success-august-2026/
+
+Peacock's latest hit series based on a book, The Five-Star Weekend, is officially one of the most popular shows on streaming.
+---------
+
+# 10 Anime to Watch If You Miss Solo Leveling
+
+Anime, Solo Leveling
+
+Sat, 22 Aug 2026 23:15:11 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-miss-solo-leveling/
+
+For anime fans waiting for Solo Leveling Season 3, there are a number of masterpiece action and isekai series waiting to fill the void.
+---------
+
+# Netflix's Biggest Video Game Adaptation Is Already Setting Itself Up To Fail
+
+TV Features, Horizon Zero Dawn, Horizon Forbidden West, Netflix, Sony PlayStation
+
+Sat, 22 Aug 2026 23:38:11 GMT
+
+https://collider.com/netflix-horizon-zero-dawn-video-game-adaptation-set-to-fail/
+
+The planned Netflix adaptation of Horizon Zero Dawn has been shelved, but its pivot to a movie is a bad idea.
+---------
+
+# ‘Alien: Romulus’ Director’s Horror Thriller That Earned 15x Its Budget Is Officially Leaving Streaming
+
+Movie News, Don't Breathe, Fede Alvarez, Netflix, Stephen Lang
+
+Sat, 22 Aug 2026 23:30:11 GMT
+
+https://collider.com/fede-alvarez-horror-movie-dont-breathe-leaving-netflix-august-31-2026/
+
+Fede Alvarez's horror thriller that grossed more than 15x its budget is leaving Netflix at the end of this month.
+---------
+
+# 'The Shawshank Redemption' Meets 'Dead Poets Society' in 10/10 Masterpiece Leaving Streaming
+
+Movie News, Sing Sing, Colman Domingo, The Shawshank Redemption, HBO Max
+
+Sat, 22 Aug 2026 23:15:11 GMT
+
+https://collider.com/colman-domingo-sing-sing-leaving-hbo-max-september-2026/
+
+One of the most acclaimed movies of 2024, starring Colman Domingo in the lead role, is about to be removed from HBO Max.
+---------
+
 # Prime Video's 10/10 Sci-Fi Series With 16 Episodes Succeeds In Its Hardest Task
 
 Streaming TV, Masked Recs
