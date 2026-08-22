@@ -1,3 +1,223 @@
+# 15 Best Star Wars Legends Comics (That Should Still Be Canon)
+
+Comics, Star Wars
+
+Sat, 22 Aug 2026 13:00:16 GMT
+
+https://screenrant.com/best-star-wars-comics-legends/
+
+Star Wars has no shortage of fantastic comics, but most aren't a part of its main continuity. Here's the 15 best Legends comics that need to be canon!
+---------
+
+# 25 Years Ago, Metal Gear Solid Turned 4 Words Into One Of Gaming’s Most Iconic Quotes
+
+Gaming, Metal Gear Solid
+
+Sat, 22 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/metal-gear-solid-iconic-quote/
+
+Gaming is full of iconic quotes, but Metal Gear Solid has a reasonable argument for the most recognizable one of all.
+---------
+
+# Netflix's 23-Episode 'Edgar Allan Poe Meets Supernatural' Dark Fantasy Series Deserved Better
+
+TV, Masked Recs
+
+Sat, 22 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/the-sandman-netflix-dark-fantasy-deserved-better/
+
+Lavish production design and acclaimed standout performances couldn't fully spark a sprawling DC comic's soul in this divisive supernatural epic.
+---------
+
+# The Testaments Season 2 Gets Exciting Filming Update From Cast
+
+TV, The Testaments
+
+Sat, 22 Aug 2026 12:56:06 GMT
+
+https://screenrant.com/the-testaments-season-2-filming-update/
+
+The Testaments season 2 is coming back sooner than initially thought, as the young cast provides an exciting filming update for the sequel series.
+---------
+
+# Spider-Man: Brand New Day Unites 5 Superhero Franchises For The First Time In History
+
+Movies, Marvel Cinematic Universe, Spider-Man, Spider-Man: Brand New Day
+
+Sat, 22 Aug 2026 12:55:15 GMT
+
+https://screenrant.com/spiderman-brand-new-day-marvel-franchise-crossover-history/
+
+Spider-Man: Brand New Day makes superhero history by bringing together characters from five separate franchises in one unprecedented crossover.
+---------
+
+# 10 Best Movies To Watch If You Love The Stephen King IT Movies
+
+Movies, Horror, Stephen King, IT, It: Welcome to Derry, Pennywise
+
+Sat, 22 Aug 2026 12:40:14 GMT
+
+https://screenrant.com/best-movies-like-stephen-king-it/
+
+Love Stephen King’s IT movies? These 10 horror and coming-of-age films deliver similar scares, friendships, and small-town dread.
+---------
+
+# Predator's New Crossover With A $2.5B Mega-Franchise Makes One Key Change To The Sci-Fi Classic
+
+Comics, Predator
+
+Sat, 22 Aug 2026 12:30:14 GMT
+
+https://screenrant.com/predator-planet-apes-crossover-change-iconic-line/
+
+Predator's 2026 crossover makes a surprising change to an important piece of Yautja lore, which shows how different from humans their newest prey is.
+---------
+
+# Stuart Fails To Save The Universe Finally Cuts Off The Big Bang Theory
+
+Network TV, Stuart Fails to Save the Universe, The Big Bang Theory
+
+Sat, 22 Aug 2026 12:30:14 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-episode-5-no-the-big-bang-theory-cameo/
+
+Hitting the midpoint of its debut season's run, Stuart Fails to Save the Universe finally leaves The Big Bang Theory in the past & stands on its own.
+---------
+
+# The MCU Has The Perfect Excuse To Show The Forgotten Horror Of One X-Men Hero’s Powers
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Sat, 22 Aug 2026 12:30:14 GMT
+
+https://screenrant.com/mcu-xmen-movie-rogue-inde-navarrette-powers-horror/
+
+The MCU's X-Men setup has given the franchise a truly perfect justification to delve into the horrific layers around one major hero's powers.
+---------
+
+# 5 Star Wars Ships Stronger Than the Millennium Falcon, Ranked
+
+Movies, Star Wars, Sci-Fi
+
+Sat, 22 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/star-wars-ships-stronger-than-millennium-falcon-list/
+
+Han Solo's Millennium Falcon is easily Star Wars' most popular spaceship, but it is not the most powerful vehicle in Star Wars' canon.
+---------
+
+# Spider-Man Star Tramell Tillman Gives Honest Reaction to V-Max Reveal
+
+CBR Exclusives, Spider-Man: Brand New Day
+
+Sat, 22 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-tramell-tillmanv-max/
+
+The Spider-Man: Brand New Day actor sounds off on one of the film's biggest twists.
+---------
+
+# Kristin Kreuk’s Smallville Replacement Show Is Quietly Becoming the 2020s’ Best Murder Mystery
+
+TV, Murder in a Small Town, Mystery
+
+Sat, 22 Aug 2026 12:30:11 GMT
+
+https://www.cbr.com/murder-in-a-small-town-murder-mystery-show/
+
+A great replacement series for fans of Smallville's Kristin Kreuk gained momentum on network TV as Fox seals the cozy mystery show's fate.
+---------
+
+# 5 Masterpiece Western Movies Better Than Tombstone
+
+Movies, Tombstone, Western, Unforgiven
+
+Sat, 22 Aug 2026 12:30:11 GMT
+
+https://www.cbr.com/western-movie-masterpieces-better-than-tombstone-list/
+
+George P. Cosmatos and Kurt Russell’s Tombstone set a new standard for Westerns in 1993, but some masterpieces are even better takes on the genre.
+---------
+
+# The Thriller That Inspired ‘John Wick’ Is Officially Leaving HBO Max
+
+Movie News, Le Samouraï, Alain Delon, HBO Max, John Wick
+
+Sat, 22 Aug 2026 12:45:11 GMT
+
+https://collider.com/le-samourai-leaving-hbo-max-september-2026/
+
+A hugely influential thriller often described as "the coolest film of all time" is about to be removed from HBO Max.
+---------
+
+# ‘Heat’ Meets ‘The Thomas Crown Affair’ in Quentin Tarantino’s 10/10 Crime Thriller Officially Streaming for Free
+
+Movie News, Jackie Brown, Quentin Tarantino, Pam Grier, Robert De Niro
+
+Sat, 22 Aug 2026 12:30:11 GMT
+
+https://collider.com/quentin-tarantino-crime-thriller-jackie-brown-free-streaming-fawesome-august-2026/
+
+Quentin Tarantino's forgotten crime thriller with shades of Heat and The Thomas Crown Affair is officially available to stream for free.
+---------
+
+# The 10 Greatest R-Rated Sci-Fi Movies of the Last 50 Years, Ranked
+
+Movie, Sci-Fi, Donnie Darko, Alien, The Thing
+
+Sat, 22 Aug 2026 12:29:11 GMT
+
+https://collider.com/best-r-rated-sci-fi-movies-last-50-years-ranked/
+
+Blade Runner, Alien, and Terminator 2: Judgment Day are among the best R-rated science fiction movies of the last 50 years.
+---------
+
+# This Forgotten 96-Minute Slasher Thriller is the Perfect Free Streaming Watch for 'Ready or Not' Fans
+
+Movie Features, Ready or Not, Ready or Not 2: Here I Come, Horror, You're Next
+
+Sat, 22 Aug 2026 12:29:11 GMT
+
+https://collider.com/youre-next-horror-thriller-streaming-free-roku-pluto/
+
+You’re Next is a must-see for fans of Ready or Not looking for another smart, entertaining thriller.
+---------
+
+# Keira Knightley's Forgotten 127-Minute R-Rated Action Thriller Explodes Onto Streaming
+
+Movie News, Domino, Keira Knightley, Coming/Leaving Streaming, Action
+
+Sat, 22 Aug 2026 13:00:14 GMT
+
+https://movieweb.com/keira-knightley-domino-r-rated-action-streaming-tubi-september-2026/
+
+Ahead of the eventual return of 'Black Doves' Season 2 on Netflix, Knightley's action thriller Roger Ebert called "manic" returns to streaming.
+---------
+
+# Ridley Scott’s Greatest Thriller Masterpiece Has 16 Perfect Episodes
+
+Features, The Terror, Ridley Scott, Thriller
+
+Sat, 22 Aug 2026 13:00:14 GMT
+
+https://movieweb.com/the-terror-ridley-scott-perfect-binge-watch/
+
+Despite a sophomore slump, the first and third seasons of Ridley Scott's thriller anthology series are addictive must-watches.
+---------
+
+# Taylor Sheridan's Near-Perfect Western Officially Getting New Release
+
+TV News, The Madison, Taylor Sheridan, Michelle Pfeiffer
+
+Sat, 22 Aug 2026 12:47:18 GMT
+
+https://movieweb.com/the-madison-season-1-blu-ray-taylor-sheridan/
+
+Paramount is bringing Taylor Sheridan's 'The Madison' Season 1 to Blu-ray and DVD on Oct. 6, with Season 2 still waiting on a Paramount+ date.
+---------
+
 # Furious: Mindhunter Meets Gone Girl In Hulu's #1 New 8-Part 98% RT Thriller
 
 Streaming TV, Masked Recs
