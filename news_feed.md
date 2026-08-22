@@ -1,3 +1,47 @@
+# 44 Years Later, Stephen King’s “Magnum Opus” Is Finally Getting A Proper Adaptation
+
+Streaming TV, Stephen King, The Dark Tower, Mike Flanagan
+
+Sat, 22 Aug 2026 11:30:14 GMT
+
+https://screenrant.com/stephen-king-magnum-opus-the-dark-tower-proper-adaptation/
+
+The novel that Stephen King considers his own magnum opus is soon getting a Mike Flanagan television show, and it can finally be a proper adaptation.
+---------
+
+# One Piece: Dawn Of Liberation Officially Launches October 2026
+
+Gaming, One Piece
+
+Sat, 22 Aug 2026 11:30:14 GMT
+
+https://screenrant.com/one-piece-dawn-of-liberation-october-2026/
+
+Explore the One Piece TTRPG, launching October 2026, for epic adventures in Wano against Kaido.
+---------
+
+# 8 Shows Like Reacher
+
+TV, Reacher, Action, Innovation, The Terminal List
+
+Sat, 22 Aug 2026 11:30:11 GMT
+
+https://www.cbr.com/action-shows-like-reacher-list/
+
+As Reacher continues to dominate the streaming charts on Prime Video, audiences are spoiled for choice when it comes to finding shows just like it.
+---------
+
+# The Indiana Jones Replacement That Roger Ebert Was “Unreasonably Pleased” With Is Officially Leaving HBO Max
+
+Movie News, The Mummy, Brendan Fraser, HBO Max, Indiana Jones
+
+Sat, 22 Aug 2026 11:30:11 GMT
+
+https://collider.com/brendan-fraser-the-mummy-leaving-hbo-max-september-2026/
+
+The first installment of an action-adventure franchise that's poised to return after a long gap is about to be removed from HBO Max.
+---------
+
 # 25 Years Later, This 10/10 PS2 Trilogy Is Free With PlayStation Plus
 
 Gaming
