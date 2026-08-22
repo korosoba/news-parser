@@ -1,3 +1,201 @@
+# Anti-Venom Unleashes Permanent New Power We're Begging the MCU to Adapt
+
+Comics, Anti-Venom, Venom, Marvel
+
+Sat, 22 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/anti-venom-symbiote-power-dragon/
+
+Flash Thompson has been Agent Anti-Venom for a while, and he has a new permanent power that should be adapted for the Marvel Cinematic Universe.
+---------
+
+# Tolkien Meets Stephen King In The 21st Century's Most Ambitious Fantasy Series
+
+Streaming TV, Masked Recs
+
+Sat, 22 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/the-dark-tower-tolkien-meets-stephen-king/
+
+Mike Flanagan and Stephen King make a formidable team, with Flanagan making the best adaptations yet. Now, an ambitious TV project in in the works.
+---------
+
+# One Piece: All of Imu's Swords Revealed So Far
+
+Anime, One Piece
+
+Sat, 22 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/one-piece-imu-all-swords-explained/
+
+With the Final Saga underway, One Piece has revealed its final villain in full, and he's equipped with the series' most impressive arsenal of weapons.
+---------
+
+# Resident Evil: Death Island Manga Officially Bringing Back Jill Valentine
+
+Gaming, Resident Evil
+
+Sat, 22 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/resident-evil-death-island-jill-valentine-return/
+
+Discover Jill Valentine's return in the Resident Evil: Death Island manga, packed with action and character-driven drama.
+---------
+
+# 12 Horror Movies With The Greatest Worldbuilding
+
+Movies, Horror, Silent Hill, A Quiet Place, 28 Days Later, 2012 Bentley Continental Flying Spur, Hellbound: Hellraiser II, Insidious: Out of the Further, The Thing, Alien, Errementari: The Blacksmith and the Devil, Midsommar, Annihilation, Evil Dead II
+
+Sat, 22 Aug 2026 21:55:15 GMT
+
+https://screenrant.com/horror-movies-best-worldbuilding/
+
+Industrial corridors, pagan rites, and alien biomes transform horror movies settings into living threats with terrifying, vivid detail.
+---------
+
+# Jason Statham's New R-Rated Thriller Officially Retains Star's 7-Year Unbeaten Rotten Tomatoes Streak
+
+Movies, Masked Recs, Jason Statham
+
+Sat, 22 Aug 2026 21:52:30 GMT
+
+https://screenrant.com/jason-statham-mutiny-movie-rotten-tomatoes-audience-score-streak/
+
+Jason Statham's new action-packed thriller officially retains a rare Rotten Tomatoes streak and remains unbeaten for seven straight years.
+---------
+
+# Merry & Pippin's Deaths After The Lord Of The Rings Couldn't Be More Perfect
+
+Movies, The Lord of the Rings
+
+Sat, 22 Aug 2026 21:45:15 GMT
+
+https://screenrant.com/lord-of-the-rings-merry-pippin-deaths-perfect/
+
+The Hobbits of The Lord of the Rings don't live forever. At the very least, however, Merry and Pippin had poetically spectacular deaths.
+---------
+
+# Taylor Sheridan's New Yellowstone Direction Breaks a 5-Year-Old Promise
+
+TV, Yellowstone
+
+Sat, 22 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/taylor-sheridan-canceling-6666-breaks-yellowstone-promise/
+
+Taylor Sheridan is breaking a key promise to Yellowstone fans as he pulls the plug on one of the most anticipated spinoffs after half a decade.
+---------
+
+# In Just 1 Day, Karl Urban's $129M Sequel Is a Certified Streaming Hit
+
+Movies, Mortal Kombat II, karl urban, HBO Max, Innovation
+
+Sat, 22 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/karl-urban-mortal-kombat-2-action-nielsen-success-july-2026/
+
+Urban's latest movie is a bona fide streaming hit.
+---------
+
+# 38 Years Later, Dragon Ball Officially Brings Back Goku & Chi-Chi as Newlyweds
+
+Anime, Dragon Ball, weekly shonen jump
+
+Sat, 22 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/dragon-ball-goku-chichi-motorcycle-draft-design/
+
+Dragon Ball fans just got the chance to take a trip down memory lane and revisit one of the happiest chapters of Goku and Chi-Chi's lives.
+---------
+
+# The Avengers and X-Men Are Officially One Team in Marvel Comics
+
+Comics, Marvel
+
+Sat, 22 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/queen-in-black-3-x-vengers-confirmed/
+
+An alt-universe concept combining Marvel's two most popular super teams will soon be official.
+---------
+
+# Alien: Earth Season 2 New Star Confirms First-Ever Character Details
+
+TV, Alien: Earth
+
+Sat, 22 Aug 2026 21:48:18 GMT
+
+https://www.cbr.com/alien-earth-season-2-sam-spruell-character-details/
+
+Alien: Earth's next big star opens up about his character, and they might just be worse than anything fans saw in Season One of the hit series.
+---------
+
+# 18 Coziest Farming Sims for Stardew Valley Fans
+
+Games, Stardew Valley, Animal Crossing: New Horizons, Video Games, Gaming, Slime Rancher 2, Disney Dreamlight Valley
+
+Sat, 22 Aug 2026 21:45:11 GMT
+
+https://www.cbr.com/best-farming-sims-like-stardew-valley/
+
+Stardew Valley-inspired mechanics and concepts are often used in "Stardew-likes," but games like Animal Crossing make the formula their own.
+---------
+
+# The 6 Best Movie Trilogies Released Since 2000, Ranked
+
+Movie, The Lord of the Rings, Guardians of the Galaxy, The Dark Knight Trilogy, Rise of the Planet of the Apes
+
+Sat, 22 Aug 2026 22:05:11 GMT
+
+https://collider.com/best-movie-trilogies-since-2000-ranked/
+
+From How to Train Your Dragon to Guardians of the Galaxy, these trilogies delivered three outstanding films from start to finish.
+---------
+
+# ‘Spa Weekend’s Adam Demos Reveals the Hardest Co-Star To Work With
+
+Movie, Spa Weekend, Adam Demos, Leslie Mann, Comedy
+
+Sat, 22 Aug 2026 22:00:15 GMT
+
+https://collider.com/spa-weekend-adam-demos-interview/
+
+Spa Weekend actor Adam Demos reveals the hardest co-star to work with, his chemistry with Leslie Mann, and what he learned from the A-list cast.
+---------
+
+# Jonas Brothers Officially Bring Back 'Listen When Sad' for Madison Square Garden Night 2
+
+Music News, Jonas Brothers, Nick Jonas, Music
+
+Sat, 22 Aug 2026 22:00:11 GMT
+
+https://collider.com/jonas-brothers-new-song-listen-when-sad-new-york-madison-square-garden/
+
+The Jonas Brothers unveiled their new song Listen When Sad to the crowd in New York for the second straight night of the tour. Read on for details.
+---------
+
+# Netflix’s New 6-Part Romance Series Is Too Good To Miss for ‘Bridgerton’ Fans
+
+TV Features, My Brilliant Career, Netflix, Drama, Romance
+
+Sat, 22 Aug 2026 21:47:11 GMT
+
+https://collider.com/netflix-my-brilliant-career-perfect-for-bridgerton-fans/
+
+Netflix's new series My Brilliant Career is perfect for Bridgerton fans seeking more romance with a modern sensibility.
+---------
+
+# Mike Flanagan's Prime Video Thriller Is Already More Important Than 'Hill House'
+
+Features, Carrie, Thriller, Stephen King, Prime Video, The Haunting of Hill House
+
+Sat, 22 Aug 2026 22:00:13 GMT
+
+https://movieweb.com/carrie-mike-flanagan-prime-thriller-hill-house-comparison/
+
+Mike Flanagan has a new Prime Video thriller series that will be an exciting watch for fans of Netflix's 'The Haunting of Hill House.'
+---------
+
 # The Best Version Of Ridley Scott's Sci-Fi Classic Is Free On YouTube Ahead Of Genre Return Next Week
 
 Movies, Masked Recs, Blade Runner, Ridley Scott
