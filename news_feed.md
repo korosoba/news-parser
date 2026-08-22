@@ -1,3 +1,124 @@
+# Game Of Thrones: Dreamer's Curse Brings A Beloved HOTD Character Back From The Dead
+
+Gaming, House of the Dragon, House of the Dragon - Season 3, Game of Thrones, Game Of Thrones, Game Of Thrones: Dragonfire, PC
+
+Sat, 22 Aug 2026 03:00:15 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-dreamers-curse/
+
+Game of Thrones: Dreamer's Curse officially brings a beloved character back for a limited time after their tragic ending in House of the Dragon.
+---------
+
+# Pennywise’s Time Travel Twist In It: Welcome To Derry Hints At His Biggest Weakness In Season 2
+
+Streaming TV, It: Welcome to Derry, It: Welcome to Derry - Season 2
+
+Sat, 22 Aug 2026 02:45:15 GMT
+
+https://screenrant.com/pennywise-it-welcome-to-derry-time-travel-weakness-season-2/
+
+Pennywise’s time travel twist from It: Welcome to Derry season 1’s ending seems to quietly reveal the dancing clown’s biggest weakness in season 2.
+---------
+
+# Netflix's 97% RT Crime Series Does More In 4 Episodes Than Most Do In 40
+
+Streaming TV, Masked Recs
+
+Sat, 22 Aug 2026 02:30:15 GMT
+
+https://screenrant.com/adolescence-netflix-crime-series-4-episodes-quality/
+
+Netflix's Adolescence redefines a miniseries with impactful storytelling in just four episodes, doing more than most long-running shows have in years.
+---------
+
+# AMC Theaters Takes Action Against Resellers After Dune 3 Ticketing Controversy
+
+Movies, Dune
+
+Sat, 22 Aug 2026 02:23:16 GMT
+
+https://screenrant.com/amc-theaters-action-against-dune-3-ticket-resellers/
+
+AMC Theatres CEO Adam Aron announces action against ticket scalpers, warning that resold tickets could be canceled and Stubs accounts closed.
+---------
+
+# Alien: Earth Season 2 Gets New Character Update From Insidious Star
+
+TV, Alien: Earth
+
+Sat, 22 Aug 2026 02:18:28 GMT
+
+https://screenrant.com/alien-earth-season-2-new-character-update-insidious-sam-spruell/
+
+Alien: Earth season 2 finally gets another update, this time it involves details about a mysterious new character portrayed by the star of Insidious.
+---------
+
+# In Less Than 2 Years, Solo Leveling Loses an Official U.S. Platform
+
+Anime, Manga, Solo Leveling
+
+Sat, 22 Aug 2026 03:05:11 GMT
+
+https://www.cbr.com/manga-mirai-shutdown/
+
+A popular manga service which previously hosted the hit RPG-esque power fantasy, Solo Leveling, announces its official shutdown for later this year.
+---------
+
+# Disney+'s 3-Part Superhero Masterpiece Is Still The Greatest Sci-Fi of the Decade
+
+Movies, Spider-Man, tom holland, Marvel
+
+Sat, 22 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/disney-plus-spider-man-home-trilogy-best-sci-fi-of-the-decade/
+
+Marvel has become the gold standard for most superhero fare, but there is only one trilogy that stands above the rest.
+---------
+
+# 5 Strongest Cursed Weapons in Anime History, Ranked
+
+Anime, Jujutsu Kaisen, One Piece, Inuyasha
+
+Sat, 22 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/strongest-anime-cursed-weapons-ranked/
+
+Strength of a cursed weapon in anime isn't about sharpness, but consequence, a burden every wielder has to carry.
+---------
+
+# 5 Turn-Based RPGs You Can Play for 100 Hours or More
+
+Games, RPG, JRPG, Video Games, Dungeons and Dragons
+
+Sat, 22 Aug 2026 02:15:11 GMT
+
+https://www.cbr.com/turn-based-rpgs-100-hours-long/
+
+People with lots of free time on their hands can easily spend over 100 hours in the quests of these incredible turn-based RPGs on modern systems.
+---------
+
+# 'Sicario' Meets 'The Fugitive' in Paramount+'s Gripping Streaming Hit
+
+Movie Features, The Hunted, Tommy Lee Jones, Benicio Del Toro, Paramount Plus
+
+Sat, 22 Aug 2026 03:09:11 GMT
+
+https://collider.com/the-hunted-movie-tommy-lee-jones-paramount-plus-streaming-august-2026/
+
+William Friedkin's 2003 film The Hunted, starring Tommy Lee Jones, is currently a streaming hit on Paramount+.
+---------
+
+# Apple TV's 6-Part Spy Thriller Is a Rare Streaming Gem With Zero Bad Episodes
+
+TV Features, Slow Horses, Apple TV, Gary Oldman, Jack Lowden
+
+Sat, 22 Aug 2026 03:02:11 GMT
+
+https://collider.com/apple-tv-best-spy-thriller-slow-horses-no-bad-episodes/
+
+Apple TV's Slow Horses is the ultimate spy thriller with no filler episodes, perfect for binge-watching.
+---------
+
 # 8 Infamous Banned Books You Should Read Once In Your Life
 
 Books
