@@ -1,3 +1,36 @@
+# 5 Most Iconic Quotes From The Legend Of Zelda Series
+
+Gaming, The Legend of Zelda
+
+Sat, 22 Aug 2026 10:30:15 GMT
+
+https://screenrant.com/legend-of-zelda-most-iconic-quotes/
+
+Explore the most memorable quotes from The Legend of Zelda series, celebrating 40 years of iconic dialogue.
+---------
+
+# Halo: Campaign Evolved Prequel Parasite's Wake Officially Releases October 2026
+
+Gaming, Halo
+
+Sat, 22 Aug 2026 10:30:15 GMT
+
+https://screenrant.com/halo-parasites-wake-october-2026-prequel-confirmed/
+
+Halo recently returned to its roots with the release of Campaign Evolved, and we're about to go back even further in the timeline.
+---------
+
+# HBO Max Is Officially Saying Goodbye to One of Sci-Fi’s Most Infamous Flops
+
+Movie News, Valerian and the City of a Thousand Planets, Luc Besson, Sci-Fi, HBO Max
+
+Sat, 22 Aug 2026 10:30:12 GMT
+
+https://collider.com/valerian-and-the-city-of-a-thousand-planets-leaving-hbo-max-september-2026/
+
+One of the biggest sci-fi disasters of the decade is currently streaming on HBO Max, but not for much longer.
+---------
+
 # Super Mario Sunshine Free Download Officially Available Now
 
 Gaming, Super Mario Sunshine, Triple-A Games
