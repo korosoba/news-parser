@@ -1,3 +1,124 @@
+# 72 Years Later, Gandalf's Best Quote Is Still Unbeaten In Lord of the Rings History
+
+Books, The Lord of the Rings
+
+Sat, 22 Aug 2026 13:43:15 GMT
+
+https://screenrant.com/gandalf-best-quote-fellowship-lord-of-the-rings/
+
+Gandalf's greatest LotR line, explained.
+---------
+
+# You May Already Have Access To Hundreds Of Free Audiobooks Without Even Knowing It
+
+Books, Sci-Fi, Fantasy, Thriller
+
+Sat, 22 Aug 2026 13:36:39 GMT
+
+https://screenrant.com/free-audiobooks-included-amazon-prime/
+
+Hear us out: free audiobooks.
+---------
+
+# Captain America's New Era Resurrects Civil War's Best Idea
+
+Comics, Captain America, Marvel
+
+Sat, 22 Aug 2026 13:30:15 GMT
+
+https://screenrant.com/captain-america-fugitive-doctor-doom/
+
+Chip Zdarsky's Captain America run will resurrect an aspect of Steve Rogers that was the highlight of the Civil War crossover event 20 years ago.
+---------
+
+# Reacher Is Officially Switching Casts Next Month
+
+Streaming TV, Reacher, Neagley
+
+Sat, 22 Aug 2026 13:30:15 GMT
+
+https://screenrant.com/reacher-switch-casts-neagley/
+
+Reacher has only just returned for its fourth season, yet the hit action franchise is about to change its cast yet again in a month's time.
+---------
+
+# You Can Now Stream Arnold Schwarzenegger's 33-Year-Old Cult Fantasy Movie For Free
+
+Movies, Arnold Schwarzenegger, Masked Recs
+
+Sat, 22 Aug 2026 13:15:14 GMT
+
+https://screenrant.com/arnold-schwarzenegger-last-action-hero-movie-streaming-free-tubi-august-2026/
+
+One of Arnold Schwarzenegger's most underrated movies is now available to stream for free, and the 33-year-old cult classic still holds up.
+---------
+
+# The Witcher 3's Geralt and Ciri Officially Return in New Release February 2027
+
+Games, The Witcher, The Witcher 3: Wild Hunt
+
+Sat, 22 Aug 2026 13:35:11 GMT
+
+https://www.cbr.com/the-witcher-geralt-ciri-fireside-premium-statue-dark-horse/
+
+The Witcher's Geralt and Ciri will be reunited once more in February, and it looks absolutely beautiful.
+---------
+
+# In Just 1 Week, Damon Lindelof's New HBO Show Is Already Burying Lost
+
+TV, Lost, Lanterns, damon lindelof
+
+Sat, 22 Aug 2026 13:30:11 GMT
+
+https://www.cbr.com/hbo-max-lanterns-perfect-lost-replacement/
+
+Damon Lindelof has made another television classic that measures up to the all-mighty power of the island mystery, Lost.
+---------
+
+# The Best Anime to Watch If You Love Yu Yu Hakusho
+
+Anime, Jujutsu Kaisen, Yu Yu Hakusho, Bleach
+
+Sat, 22 Aug 2026 13:15:11 GMT
+
+https://www.cbr.com/anime-for-yu-yu-hakusho-fans/
+
+Fans who miss Yu Yu Hakusho can turn to these anime for more action-packed supernatural adventures and memorable characters.
+---------
+
+# Ridley Scott’s First Sci-Fi Movie in 9 Years Officially Releases This Week
+
+Movie News, Ridley Scott, Sci-Fi, The Dog Stars, Jacob Elordi
+
+Sat, 22 Aug 2026 13:30:11 GMT
+
+https://collider.com/the-dog-stars-ridley-scott-sci-fi-movie-release-august-28/
+
+Ridley Scott’s first sci-fi thriller in 9 years, The Dog Stars, arrives August 28 with Jacob Elordi, Josh Brolin and Margaret Qualley.
+---------
+
+# All 10 Quentin Tarantino Movies, Ranked by a Diehard Fan of the Director
+
+Movie, Quentin Tarantino, Pulp Fiction, Kill Bill: Vol. 1, Django Unchained
+
+Sat, 22 Aug 2026 13:24:11 GMT
+
+https://collider.com/quentin-tarantino-movies-ranked-by-a-fan/
+
+From Reservoir Dogs and Pulp Fiction to Once Upon a Time in Hollywood, a diehard, longtime fan of Quentin Tarantino ranks the director's filmography.
+---------
+
+# Jason Statham's New 'Die Hard'-Esque Action Thriller Sets up "Fun" Sequel: "Pray for That"
+
+Movie News, Mutiny, Action, Jason Statham, Annabelle Wallis
+
+Sat, 22 Aug 2026 13:34:14 GMT
+
+https://movieweb.com/mutiny-jason-statham-annabelle-wallis-sequel-setting/
+
+The potential sequel is sailing deeper into charted waters.
+---------
+
 # 15 Best Star Wars Legends Comics (That Should Still Be Canon)
 
 Comics, Star Wars
