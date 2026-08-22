@@ -1,3 +1,80 @@
+# Super Mario Sunshine Free Download Officially Available Now
+
+Gaming, Super Mario Sunshine, Triple-A Games
+
+Sat, 22 Aug 2026 10:00:14 GMT
+
+https://screenrant.com/super-mario-sunshine-nso-online-bonus-freebie/
+
+Nintendo is getting ready to launch Super Mario Sunshine on the Switch family of systems, but before that, you can grab a freebie.
+---------
+
+# Disney’s New 8-Episode Sci-Fi Series Arrives as the Perfect Isaac Asimov Follow-Up
+
+TV, VisionQuest, Marvel Cinematic Universe, Isaac Asimov's Robots
+
+Sat, 22 Aug 2026 10:00:11 GMT
+
+https://www.cbr.com/disney-visionquest-perfect-sci-fi-isaac-asimov-follow-up/
+
+As one of the most celebrated sci-fi writers of all time, Disney mirroring Isaac Asimov in its much anticipated upcoming robot series is brilliant.
+---------
+
+# 3 The Biggest Things We Already Know About Paramount's Star Trek Movie Reboot
+
+Movies, Star Trek, paramount pictures
+
+Sat, 22 Aug 2026 10:00:11 GMT
+
+https://www.cbr.com/facts-we-know-about-paramount-star-trek-movie-reboot-list/
+
+After ten years of potential projects and false starts, here’s everything we know about Paramount's next Star Trek movie.
+---------
+
+# 7 Thriller Movies With the Best Plot Twists, Ranked
+
+Movie, Gone Girl, The Prestige, Fight Club, Thriller
+
+Sat, 22 Aug 2026 10:05:11 GMT
+
+https://collider.com/thriller-movies-best-plot-twists-ranked/
+
+Fight Club, Gone Girl, The Sixth Sense, The Game, and more make up our list of thriller movies with the best plot twists.
+---------
+
+# 10 Greatest American Book Masterpieces of the 21st Century
+
+Books and Comics, Books, All The Light We Cannot See, The Road, Nickel Boys
+
+Sat, 22 Aug 2026 10:03:11 GMT
+
+https://collider.com/best-american-book-masterpieces-21st-century-ranked/
+
+Whether it's an ambitious fantasy work like The Fifth Season or a post-apocalyptic saga like The Road, these are the best American books this century.
+---------
+
+# 6 HBO Shows That Are Far Better Than Their Reputation Suggests
+
+TV, HBO, Tokyo Vice, Station Eleven, The Leftovers
+
+Sat, 22 Aug 2026 10:02:11 GMT
+
+https://collider.com/hbo-shows-better-than-their-reputation/
+
+Explore HBO series that are misunderstood gems, showcasing depth and storytelling beyond initial perceptions, from Tokyo Vice to Station Eleven.
+---------
+
+# Netflix’s Military Sci-Fi Sleeper Hit Is Officially Back in the Spotlight 10 Years Later
+
+Movie News, Spectral, Sci-Fi, Science Fiction, War
+
+Sat, 22 Aug 2026 10:00:11 GMT
+
+https://collider.com/netflix-military-sci-fi-thriller-spectral-streaming-august-2026/
+
+Spectral combines Call of Duty-style military action with supernatural sci-fi in one of Netflix’s most overlooked original thrillers.
+---------
+
 # Fallout Meets Dungeons & Dragons In New RPG About The End Of The World
 
 Gaming, RPG, PC, Indie
