@@ -1,3 +1,58 @@
+# Pokémon FireRed & LeafGreen Free Download Officially Announced
+
+Gaming, Pokemon, Pokemon FireRed and LeafGreen, Nintendo, Nintendo Switch
+
+Sat, 22 Aug 2026 04:15:15 GMT
+
+https://screenrant.com/pokemon-firered-leafgreen-free-celebi/
+
+Pokémon FireRed and LeafGreen fans can pick up a new free rare Pokémon in this huge new event.
+---------
+
+# 9 Years Later, Assassin's Creed Origins' Bayek Officially Returns In New DLC
+
+Gaming, Assassin's Creed, Assassin's Creed Origins, PC
+
+Sat, 22 Aug 2026 04:10:15 GMT
+
+https://screenrant.com/assassins-creed-origins-bayek-return-watcher-of-realms-dlc/
+
+The legendary Bayek from Assassin's Creed Origins is finally making a return in a brand-new Watcher of Realms DLC.
+---------
+
+# 'Lucky' Star Unpacks the Show’s Explosive Finale
+
+CBR Exclusives, Lucky
+
+Sat, 22 Aug 2026 04:09:59 GMT
+
+https://www.cbr.com/lucky-finale-william-fichtner-wayne-ending/
+
+William Fichtner breaks down Wayne Whittaker’s fatal mistake and explosive fate in the Lucky limited-series finale on Apple TV.
+---------
+
+# 2 Years Later, Netflix's Forgotten Liam Neeson Thriller Deserves to Be Your Next Late Night Binge
+
+Movie Features, Netflix, Liam Neeson, In the Land of Saints and Sinners, Western
+
+Sat, 22 Aug 2026 04:34:11 GMT
+
+https://collider.com/liam-neeson-netflix-land-of-saints-and-sinners-2-years-later/
+
+Robert Lorenz’s 2024 action thriller In the Land of Saints and Sinners captures Liam Neeson battling an Irish terrorist group.
+---------
+
+# 12 Years Later, This Dystopian Sci-Fi Is Still Dominating the Audible Bestseller Chart
+
+Books and Comics, Books, Audible, Science Fiction, Young Adult
+
+Sat, 22 Aug 2026 04:08:11 GMT
+
+https://collider.com/red-rising-dystopian-sci-fi-book-audible-bestseller-chart-august-2026/
+
+Pierce Brown's 2014 dystopian, fan-favorite book, Red Rising, is more popular than ever, still comfortably sitting in the Audible Top 10 sci-fi chart.
+---------
+
 # 5 Free Steam Games To Play If You Like Terminator
 
 Gaming, Terminator
