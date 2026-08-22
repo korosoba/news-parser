@@ -1,3 +1,179 @@
+# The Best Version Of Ridley Scott's Sci-Fi Classic Is Free On YouTube Ahead Of Genre Return Next Week
+
+Movies, Masked Recs, Blade Runner, Ridley Scott
+
+Sat, 22 Aug 2026 21:30:15 GMT
+
+https://screenrant.com/blade-runner-final-cut-movie-streaming-free-youtube-ridley-scott/
+
+Ridley Scott's definitive version of his acclaimed sci-fi classic, is free on YouTube just ahead of his return to the genre with The Dog Stars.
+---------
+
+# All 6 Movies In The Insidious Film Series Ranked Worst-Best
+
+Movies, Insidious
+
+Sat, 22 Aug 2026 21:30:15 GMT
+
+https://screenrant.com/insidious-film-series-ranked-worst-best/
+
+The Insidious film series by James Wan and Leigh Whannell has had its ups and downs over five movies but each has a reason to return to it.
+---------
+
+# Slow Horses' 13 Slough House Agents Explained
+
+Streaming TV, Slow Horses
+
+Sat, 22 Aug 2026 21:30:15 GMT
+
+https://screenrant.com/slow-horses-every-slough-house-agent-explained-backstory/
+
+Slough House has been the home of many agents throughout Slow Horses – some for longer than others. Here's everyone from the office explained.
+---------
+
+# Original Ghostbusters Suit Design Revealed, Dan Aykroyd Expresses Relief Over One Removed Component
+
+Movies, Ghostbusters
+
+Sat, 22 Aug 2026 21:29:14 GMT
+
+https://screenrant.com/ghostbusters-original-suit-helmet-dan-aykroyd-reaction/
+
+Star of Ghostbusters, Dan Aykroyd, revealed the original design for the team's iconic costumes and he was glad they ditched one major component.
+---------
+
+# Star Wars Still Hasn't Learned From The Mandalorian's Biggest Mistake
+
+Streaming TV, Star Wars
+
+Sat, 22 Aug 2026 21:15:15 GMT
+
+https://screenrant.com/ahsoka-season-2-star-wars-repeating-mandalorian-mistake/
+
+Star Wars' next upcoming project is doomed to repeat the mistakes of The Mandalorian season 3, as the franchise scrambles to win back audiences.
+---------
+
+# 2026 Just Officially Set A Box Office Record For The First Time Since 2019
+
+Movies, Box Office
+
+Sat, 22 Aug 2026 21:15:15 GMT
+
+https://screenrant.com/2026-1-billion-movies-five-2019-box-office-record/
+
+The box office results of 2026 overall have already had the year pass a major milestone that hasn't been reached in a considerable number of years.
+---------
+
+# Daniel Craig's New Fantasy Reboot on Netflix Is Already a 5-Star Classic
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, Fantasy
+
+Sat, 22 Aug 2026 21:30:11 GMT
+
+https://www.cbr.com/chronicles-of-narnia-netflix-reboot-daniel-craig-fantasy-classic/
+
+Daniel Craig stars in a new fantasy reboot next year--and it's already a 10/10 classic.
+---------
+
+# 10 Must-Watch Thrillers of the Past 10 Years
+
+Movies, Thriller, Obsession, Oppenheimer
+
+Sat, 22 Aug 2026 21:30:11 GMT
+
+https://www.cbr.com/greatest-thriller-movies-since-2016-list/
+
+From Obsession to Parasite, the thriller genre has produced some of the best movies of the last decade.
+---------
+
+# 5 Complete Dark Fantasy Anime That Are 10/10, No Notes
+
+Anime, Attack On Titan, Devilman Crybaby
+
+Sat, 22 Aug 2026 21:15:11 GMT
+
+https://www.cbr.com/complete-dark-fantasy-anime-perfect-start-to-finish/
+
+With haunting worlds and unforgettable characters, these complete dark fantasy anime are nearly flawless from start to finish.
+---------
+
+# The 10 Best PS2 Games Ever Made, Ranked
+
+TV, Video Game, Silent Hill, Metal Gear Solid, Grand Theft Auto
+
+Sat, 22 Aug 2026 21:41:11 GMT
+
+https://collider.com/best-ps2-games-ranked/
+
+Discover the best PS2 games that defined a generation and shaped gaming history, from Metal Gear Solid 2: Sons of Liberty to Silent Hill 2.
+---------
+
+# HBO Max Is Officially Removing the Hitchcock Classic That Perfected Screen Suspense
+
+Movie News, The Lady Vanishes, Alfred Hitchcock, Pauline Kael, HBO Max
+
+Sat, 22 Aug 2026 21:30:11 GMT
+
+https://collider.com/alfred-hitchcock-the-lady-vanishes-leaving-hbo-max-september-2026/
+
+One of Alfred Hitchcock's early masterpieces is currently streaming on HBO Max, but not for much longer.
+---------
+
+# 'Welcome to Derry' Officially Tells the Best Part of Stephen King’s 'IT' the Movies Couldn’t
+
+TV Features, It: Welcome to Derry, It, Stephen King, HBO Max
+
+Sat, 22 Aug 2026 21:23:11 GMT
+
+https://collider.com/welcome-to-derry-season-2-pennywise-backstory-details/
+
+Season 2 of IT: Welcome to Derry will go back to 1935, and unlock a whole new era for Stephen King’s spine-chilling villain.
+---------
+
+# 29 Years Later, This Ultra-Violent Sci-Fi Cult Classic Is Officially Back on Streaming
+
+Movie News, Starship Troopers, Sci-Fi, Denise Richards, Paul Verhoeven
+
+Sat, 22 Aug 2026 21:15:11 GMT
+
+https://collider.com/starship-troopers-streaming-netflix-august-2026/
+
+Starship Troopers, Paul Verhoeven’s ultra-violent sci-fi cult classic, is streaming now and remains more relevant than ever.
+---------
+
+# 10 Great Books That Are Better As Audiobooks
+
+Books and Comics, The Stand, The Odyssey, Trainspotting, Al Pacino
+
+Sat, 22 Aug 2026 21:14:11 GMT
+
+https://collider.com/great-books-that-are-better-as-audiobooks/
+
+Some books are made even better when you listen to them as audiobooks, as the likes of The Stand, Trainspotting, and American Tabloid show.
+---------
+
+# 'Yellowstone' Lawsuit Claims Taylor Sheridan Stole the Idea from Writer's Pitch
+
+TV News, Yellowstone
+
+Sat, 22 Aug 2026 21:35:44 GMT
+
+https://movieweb.com/yellowstone-taylor-sheridan-lawsuit/
+
+Writer Lauren J. Salkin has sued Taylor Sheridan, alleging that 'Yellowstone' is a ripoff of her 2016 pitch, 'Sovereign Nation'.
+---------
+
+# 'Lord of the Rings': 10 Samwise Quotes That Live Rent-Free in Our Heads
+
+Movie Lists, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Two Towers, The Return of the King
+
+Sat, 22 Aug 2026 21:30:13 GMT
+
+https://movieweb.com/lord-of-the-rings-best-samwise-quotes/
+
+Samwise Gamgee is one of the most admirable figures in 'The Lord of the Rings,' and he has a number of quotes that will stay with viewers.
+---------
+
 # Agatha Christie Meets Knives Out In The BBC's Huge 164-Episode Detective Franchise
 
 TV, Masked Recs
