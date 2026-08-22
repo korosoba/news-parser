@@ -1,3 +1,102 @@
+# 10 Greatest Historical Adventure Movies Of All Time, Ranked
+
+Movies, Ranking, Adventure
+
+Sat, 22 Aug 2026 14:13:15 GMT
+
+https://screenrant.com/best-historical-adventure-movies-all-time-ranked/
+
+The 10 greatest historical adventure movies of all time, ranked, from sweeping epics and legendary battles to unforgettable cinematic journeys.
+---------
+
+# 5 Years Later, Marvel Is Remaking WandaVision In Reverse
+
+Streaming TV, VisionQuest, WandaVision, Marvel Cinematic Universe
+
+Sat, 22 Aug 2026 14:00:15 GMT
+
+https://screenrant.com/visionquest-wandavision-story-in-reverse-disney-plus/
+
+The MCU is now remaking WandaVision in one of its most anticipated TV projects from the Multiverse Saga, but there's a twist to all this.
+---------
+
+# Steam’s Highest-Rated Free Game Is Still Essential, 6 Years Later
+
+Gaming, Steam, PC
+
+Sat, 22 Aug 2026 14:00:15 GMT
+
+https://screenrant.com/steam-highest-rated-free-game-helltaker/
+
+This incredible Steam game, which remains one of the highest-rated of all time, is a must-play even after six years.
+---------
+
+# Hot Spot: Agnieszka Smoczyńska on Rejecting AI
+
+Movies, Hot Spot
+
+Sat, 22 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/video/hot-spot-agnieszka-smoczyska-on-rejecting-ai/
+
+Hot Spot refused to use AI while creating its futuristic world. Director Agnieszka Smoczyńska explains why human artists remained essential to the 2026 sci-fi film.Smoczyńska reveals that development began before ChatGPT, when deepfakes and fake news still felt like warnings about the future. She discusses how rapidly reality caught up with Hot Spot, why the production deliberately avoided generative AI, and how Polish artists, practical models, animation, and visual effects brought its world to life. The director also breaks down the film's fears surrounding climate change, global unrest, technology, and human disconnection—and why humor is crucial to its vision of the future.
+---------
+
+# Peter Pan-Inspired Neverlanders Comic Book Sequel Officially Confirmed
+
+Comics, Peter Pan, tom taylor
+
+Sat, 22 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/neverlanders-get-lost-peter-pan-sequel-confirmed/
+
+Neverlanders: Get Lost is the follow-up to Tom Taylor's reimagining of Peter Pan.
+---------
+
+# It's Official, The MCU's Most Powerful Character Debate Is Over As We Know It
+
+Movies, MCU, Marvel, X-Men
+
+Sat, 22 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/jean-grey-mcu-most-powerful-character-debate/
+
+The new X-Men movie gives Marvel a chance to put Jean Grey into the live-action power conversation in a way we have never seen before.
+---------
+
+# Gundam Finally Brings a Rare Zaku II Design to the U.S.
+
+Anime, Mobile Suit Gundam, merchandise, bandai, toys, action figures
+
+Sat, 22 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/gundam-zaku-ii-wetland-design-america-bandai-release/
+
+Fans of Mobile Suit Gundam in the United States can finally get their hands on one of the franchise's most iconic figures in stunning detail.
+---------
+
+# All 5 Hayao Miyazaki Movies From the 21st Century, Ranked
+
+Movie, Spirited Away, Hayao Miyazaki, The Boy and the Heron, Howl's Moving Castle
+
+Sat, 22 Aug 2026 14:04:11 GMT
+
+https://collider.com/hayao-miyazaki-movies-21st-century-ranked/
+
+Hayao Miyazaki has directed five movies in the 21st century so far, including Spirited Away and The Boy and the Heron, but which stands as the best?
+---------
+
+# Kevin Costner's Crime Thriller Masterpiece Still Beats Any Western He Ever Made
+
+Features, Kevin Costner, Western, Thriller, The Untouchables
+
+Sat, 22 Aug 2026 14:00:14 GMT
+
+https://movieweb.com/kevin-costner-untouchables-beats-westerns/
+
+Kevin Costner is mostly celebrated for his work in the Western movie genre, but this crime thriller movie is one of his best films.
+---------
+
 # 72 Years Later, Gandalf's Best Quote Is Still Unbeaten In Lord of the Rings History
 
 Books, The Lord of the Rings
