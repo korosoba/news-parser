@@ -1,3 +1,135 @@
+# Agatha Christie Meets Knives Out In The BBC's Huge 164-Episode Detective Franchise
+
+TV, Masked Recs
+
+Sat, 22 Aug 2026 21:05:14 GMT
+
+https://screenrant.com/death-in-paradise-huge-bbc-detective-franchise/
+
+Sunlit Caribbean backdrops hide comedic suspects and clever puzzles that keep viewers bingeing for seasons of this murder mystery masterpiece.
+---------
+
+# 8 Times Batman Proved He Really Is the World’s Greatest Detective
+
+Comics, Batman, DC Comics
+
+Sat, 22 Aug 2026 21:00:15 GMT
+
+https://screenrant.com/batman-best-detective-moments/
+
+The Caped Crusader is infamous as Gotham's ever-brooding vigilante, but behind the mask is arguably one of the greatest deductive minds in DC history.
+---------
+
+# This Forgotten $556.9 Million Epic Is Still One Of The Best Dinosaur Movies Of All Time
+
+Movies, King Kong
+
+Sat, 22 Aug 2026 21:00:15 GMT
+
+https://screenrant.com/king-kong-2005-epic-best-dinosaur-movies/
+
+Admit it, Peter Jackson's first post-LOTRs epic isn't appreciated as much as it deserves, especially for its incredible dinosaur scenes.
+---------
+
+# Cyberpunk 2077 Meets GTA 6 In New Blade Runner-Esque Open-World RPG
+
+Gaming, Cyberpunk 2077, Grand Theft Auto 6
+
+Sat, 22 Aug 2026 21:00:15 GMT
+
+https://screenrant.com/cyberpunk-2077-meets-gta-6-no-law-blade-runner/
+
+Discover NO LAW, a thrilling open-world FPS blending a cyberpunk setting and a whole lot of chaos.
+---------
+
+# David Boreanaz's 7-Part Action Thriller Series Is Officially One Of Netflix's Biggest Shows
+
+TV, Masked Recs
+
+Sat, 22 Aug 2026 20:59:59 GMT
+
+https://screenrant.com/seal-team-netflix-streaming-success-august-2026/
+
+David Boreanaz continues to dominate the TV landscape, and his seven-season action series has now become one of the biggest shows on Netflix.
+---------
+
+# Netflix's Reboot of Beloved 39-Year-Old Sitcom Finally Debuts Next Month
+
+TV, A Different World, Netflix
+
+Sat, 22 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/netflix-a-different-world-reboot-debuts-soon/
+
+One of the most iconic series of all-time is finally making its way to Netflix, and with a huge twist.
+---------
+
+# Netflix Reunites With The Walking Dead Fan-Favorite for New Supernatural Drama Series
+
+TV, The Walking Dead, Netflix
+
+Sat, 22 Aug 2026 20:55:50 GMT
+
+https://www.cbr.com/netflix-steve-yeun-supernatural-drama-series-pagans/
+
+Netflix is reuniting with The Walking Dead star Steven Yeun for another project, as Yeun will star in and executive produce the series Pagans.
+---------
+
+# Spider-Man Dominated With a Stellar Series Even Before the MCU and 'Brand New Day'
+
+TV Features, The Amazing Spider-Man, Spider-Man, Spider-Man: Brand New Day
+
+Sat, 22 Aug 2026 21:10:11 GMT
+
+https://collider.com/amazing-spider-man-cbs-live-action-show/
+
+Spider-Man's 1977 CBS live-action series left a strong impact on the superhero genre, but the show never got the attention it deserved.
+---------
+
+# Tom Hardy’s Brutal True-Crime Western Is Officially Streaming for Free
+
+Movie News, Lawless, Tom Hardy, Peaky Blinders, Pluto TV
+
+Sat, 22 Aug 2026 21:00:11 GMT
+
+https://collider.com/tom-hardy-crime-thriller-lawless-streaming-free-pluto-tv-august-2026/
+
+Tom Hardy's forgotten true crime thriller with shades of Peaky Blinders and Yellowstone is officially streaming for free.
+---------
+
+# Every Live-Action Batman Movie, Ranked
+
+Movie, Batman, DC Comics, Warner Bros., The Dark Knight
+
+Sat, 22 Aug 2026 20:53:11 GMT
+
+https://collider.com/batman-movies-live-action-ranked/
+
+There have been many live-action Batman movies released over the years, from the campy fun of Adam West to the hard thrills of Nolan's trilogy.
+---------
+
+# 10 Most Exciting Thrillers Like Harlan Coben's 'I Will Find You,’ Ranked
+
+TV Lists, I Will Find You, Netflix, Thriller
+
+Sat, 22 Aug 2026 21:00:14 GMT
+
+https://movieweb.com/thriller-tv-shows-like-i-will-find-you/
+
+Harlan Coben's 'I WIll Find You' is a big Netflix hit series, and these other mystery thriller TV shows will be perfect binge-watches.
+---------
+
+# Viral 86-Minute Fantasy Officially Becomes the Most Profitable Movie in Cinema History
+
+Movie News, Niu Lai, Fantasy
+
+Sat, 22 Aug 2026 20:54:42 GMT
+
+https://movieweb.com/niu-lai-most-profitable-movie-box-office/
+
+Chinese animated film 'Niu Lai' has become an unlikely box office success story after the micro-budget release surged past $4 million in China.
+---------
+
 # 8 Must-Watch Movies Leaving Netflix In September
 
 Movies, Netflix
