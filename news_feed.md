@@ -1,3 +1,80 @@
+# Pluribus Season 2’s Progress Gets The Best Update Yet From Vince Gilligan
+
+TV, Pluribus, Pluribus - Season 2
+
+Sun, 23 Aug 2026 17:38:55 GMT
+
+https://screenrant.com/pluribus-season-2-story-finalized-vince-gilligan-explained/
+
+As the wait for Pluribus season 2 continues, series creator and showrunner Vince Gilligan provides the best update yet about overall progress.
+---------
+
+# 2 Years Before New Girl, Zooey Deschanel Played The Anti-Jess Day
+
+Classic TV, Masked Recs, New Girl, Zooey Deschanel
+
+Sun, 23 Aug 2026 17:30:14 GMT
+
+https://screenrant.com/zooey-deschanel-500-days-of-summer-new-girl-jess/
+
+Zooey Deschanel is famous for playing Jessica Day on New Girl for 7 seasons, but two years earlier, she played the anti-Jess in this kinda romcom.
+---------
+
+# NBC's Longest-Running Series Is About To Hit An Ultra-Rare Milestone
+
+Network TV, Law & Order: Special Victims Unit
+
+Sun, 23 Aug 2026 17:15:14 GMT
+
+https://screenrant.com/law-and-order-svu-600th-episode-milestone-2026/
+
+The 2026-2027 TV cycle ensures an ultra-rare milestone for the longest-running scripted primetime series for traditional broadcasting on NBC.
+---------
+
+# 5 Greatest Fantasy Book Trilogies Of All Time, Ranked
+
+Movies, Fantasy, The Lord of the Rings, Mistborn
+
+Sun, 23 Aug 2026 17:30:11 GMT
+
+https://www.cbr.com/greatest-fantasy-book-trilogies-ever-ranked-list/
+
+The best things come in threes and that includes fantasy books. These trilogies are genre-defining masterpieces wrapped up neatly in a 3-part story.
+---------
+
+# Fear Of GTA 6 Spoilers Grows As There’s No End In Sight For Leaks
+
+Games, Grand Theft Auto
+
+Sun, 23 Aug 2026 17:15:11 GMT
+
+https://www.cbr.com/grand-theft-auto-6-leaks-story-spoilers/
+
+A string of GTA 6 leaks has potential players clamoring for a first look at its gameplay, but there's a growing concern about the story being spoiled.
+---------
+
+# The 10 Best Movies Nominated in All Four Oscars Acting Categories, Ranked
+
+Movie, Academy Awards, Actors, Silver Linings Playbook, Sunset Boulevard
+
+Sun, 23 Aug 2026 17:31:11 GMT
+
+https://collider.com/best-movies-nominated-all-oscars-acting-categories/
+
+Sunset Boulevard, Silver Linings Playbook, and A Streetcar Named Desire are among the best movies nominated in all four Oscars acting categories.
+---------
+
+# 10 Years Later, ‘Peaky Blinders’ Star Reflects on Return Chances Ahead of Netflix Sequel
+
+TV News, Peaky Blinders, Crime, Annabelle Wallis
+
+Sun, 23 Aug 2026 17:30:14 GMT
+
+https://movieweb.com/peaky-blinders-annabelle-wallis-grace-return/
+
+The 'Peaky Blinders' sequel could bring this legacy character back.
+---------
+
 # Why Outer Range Season 3 Never Happened
 
 Classic TV, Outer Range, Upcoming Releases
