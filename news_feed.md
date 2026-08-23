@@ -1,3 +1,25 @@
+# The Best WWII Movie of the Year Is Officially Taking Over Streaming
+
+Movie News, Brendan Fraser, Pressure, Oppenheimer, Peacock
+
+Sun, 23 Aug 2026 09:40:11 GMT
+
+https://collider.com/brendan-fraser-ww2-movie-pressure-streaming-success-peacock-august-2026/
+
+Forget Oppenheimer, Brendan Fraser's fresh WW2 biopic with Andrew Scott, Pressure, is a streaming hit. Read on for more details.
+---------
+
+# 6 Netflix Shows With No Weak Episodes
+
+TV, Netflix, American Vandal, The Haunting of Hill House, Adolescence
+
+Sun, 23 Aug 2026 09:26:11 GMT
+
+https://collider.com/best-netflix-shows-no-weak-episodes/
+
+Explore great Netflix shows that maintain exceptional quality in every episode, from The Haunting of Hill House to Dark.
+---------
+
 # Xbox Game Pass Adding Another Day-One Release On August 25
 
 Gaming, Xbox Game Pass
