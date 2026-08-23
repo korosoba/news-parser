@@ -1,3 +1,25 @@
+# Elden Ring: Where To Find All Somberstone Miner's Bell Bearings
+
+Gaming, Elden Ring, PC
+
+Sun, 23 Aug 2026 07:52:25 GMT
+
+https://screenrant.com/elden-ring-somberstone-miners-bell-bearings-location-guide/
+
+Make upgrading weapons in Elden Ring easier by acquiring all Somberstone Miner's Bell Bearings to make Somber Smithing Stones available for sale.
+---------
+
+# Pokémon Winds & Waves New Monster Designs Officially Unveiled For 30th Anniversary
+
+Gaming, Pokemon Winds and Waves
+
+Sun, 23 Aug 2026 07:20:22 GMT
+
+https://screenrant.com/pokmon-winds-waves-shows-off-new-look-at-starter-mon/
+
+Pokémon fans can get a fresh look at the newest Pokémon in Winds & Waves right now.
+---------
+
 # Red Dead Redemption 2 Gets New Fan-Made Van Horn Expansion
 
 Gaming, Red Dead Redemption 2, Triple-A Games
