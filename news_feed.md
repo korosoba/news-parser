@@ -1,3 +1,14 @@
+# 3 PS1 RPGs Everyone Loved In The '90s
+
+Gaming, RPG, Triple-A Games, PlayStation (Original)
+
+Sun, 23 Aug 2026 06:00:14 GMT
+
+https://screenrant.com/playstation-1-rpgs-everyone-loved-1990s/
+
+The PlayStation 1 was a huge platform for several RPGs in the 1990s, but some of the releases were revolutionary and forever changed the genre.
+---------
+
 # Resident Evil Meets Silent Hill In 96% RT Horror Masterpiece
 
 Streaming TV, Masked Recs
