@@ -1,3 +1,80 @@
+# Terminator Meets Inception Sci-Fi Movie Is Now Available To Stream For Free
+
+Classic Movies, Looper
+
+Sun, 23 Aug 2026 13:45:15 GMT
+
+https://screenrant.com/looper-movie-terminator-meets-inception-streaming-tubi-august-2026/
+
+A brilliant sci-fi movie that mixes Terminator and Inception is available to stream for free right now and here is what you need to know.
+---------
+
+# 6 Best-Selling Sci-Fi Books Of All Time
+
+Books, Sci-Fi
+
+Sun, 23 Aug 2026 13:37:14 GMT
+
+https://screenrant.com/bestselling-sci-fi-books-all-time/
+
+The all-time sci-fi bestsellers, explained.
+---------
+
+# 21 Years Ago, Michael Scott's Best Scene Rewrote The Office For The Better
+
+Classic Movies, The Office
+
+Sun, 23 Aug 2026 13:30:15 GMT
+
+https://screenrant.com/office-michael-scott-halloween-best-scene/
+
+21 years ago, The Office aired a critical episode that ends with a scene that changes Michael Scott's character for the rest of the series.
+---------
+
+# The MCU’s New X-Men Mean Two Avengers Heroes Are Essentially Unkillable Without Grave Consequences
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Sun, 23 Aug 2026 13:15:15 GMT
+
+https://screenrant.com/mcu-xmen-cast-avengers-hulk-thor-power-level-balance/
+
+The MCU's power scaling now looks very different based on the new updates about the X-Men, which holds some interesting consequences for the Avengers.
+---------
+
+# Marvel's New Sci-Fi Show Is Finally Reviving the Best Part of the Multiverse Saga
+
+TV, MCU, WandaVision, VisionQuest
+
+Sun, 23 Aug 2026 13:30:11 GMT
+
+https://www.cbr.com/marvel-visionquest-wandavision-multiverse-sequel/
+
+The trailer for Disney+'s upcoming superhero show offers insights into one character's weird and mysterious life after the WandaVision finale.
+---------
+
+# Gal Gadot Is Officially Coming for Liam Neeson’s ‘Taken’ Crown in New Action Thriller
+
+Movie News, The Runner, Gal Gadot, Action, Prime Video
+
+Sun, 23 Aug 2026 13:16:20 GMT
+
+https://collider.com/the-runner-gal-gadot-prime-video-release-date-september-2/
+
+Gal Gadot’s new Taken-style action thriller The Runner arrives on Prime Video on September 2, with a mother racing to save her kidnapped son.
+---------
+
+# 'Lioness' Star Reveals Fan Favorite Character Wasn't Supposed to Exist Beyond Episode 3
+
+TV News, Lioness, Action, Drama
+
+Sun, 23 Aug 2026 13:32:01 GMT
+
+https://movieweb.com/lioness-kyle-not-supposed-to-exist/
+
+One of the show's vital operatives was never meant to last beyond the first few episodes.
+---------
+
 # Marvel's New Wolverine Replacement Officially Announced
 
 Marvel Comics, Wolverine
