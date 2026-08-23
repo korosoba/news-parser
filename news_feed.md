@@ -1,3 +1,146 @@
+# 6 Most Heartbreaking Last Strips In Comic Book History
+
+Comics
+
+Sun, 23 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/heartbreaking-final-comic-strip-all-time/
+
+The final strips of these series rank among the most heart-wrenching in comic book history, as they all pack a powerful emotional punch.
+---------
+
+# 8 Signs Reacher Missed That Lila Was A Villain
+
+Streaming TV, Reacher
+
+Sun, 23 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/reacher-lila-villain-signs-missed/
+
+Reacher season 4 has put his analytical skills to the test, with Reacher making some surprising mistakes, including missing a major villain.
+---------
+
+# AMC's Underrated Horror Show Set In Anne Rice's Immortal Universe Is Now On Netflix
+
+Streaming TV, Immortal Universe
+
+Sun, 23 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/talamasca-the-secret-order-anne-rice-immortal-universe-netflix-streaming/
+
+The third show in Anne Rice's Immortal Universe, called Talamasca: The Secret Order, joined the other two series streaming on Netflix now.
+---------
+
+# Widow's Bay Season 2's Cast Change Is A Great Sign For The Show's Most Underrated Character
+
+Streaming TV, Widow's Bay
+
+Sun, 23 Aug 2026 23:15:15 GMT
+
+https://screenrant.com/widows-bay-dale-jeff-hiller-bigger-role-season-2/
+
+Apple TV announced that one of Widow’s Bay's underrated characters will become integral to the horror TV show’s upcoming sophomore season.
+---------
+
+# 7 Most Exciting Sci-Fi Movies Still To Come In 2026, Ranked By Hype Level
+
+Movies, Sci-Fi
+
+Sun, 23 Aug 2026 23:15:15 GMT
+
+https://screenrant.com/upcoming-sci-fi-movies-2026-release-dates-ranked-hype/
+
+Sci-fi movie fans are going to eat well in the second half of 2026, with originals, huge blockbuster sequels, and the return of several masters.
+---------
+
+# Netflix's New 5-Part Crime Noir Is the Most-Watched Show in the World
+
+TV, Netflix, Crime
+
+Sun, 23 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/blood-sacrifice-nordic-noir-crime-thriller-netflix-success-august-2026/
+
+Netflix's latest crime thriller, Blood Sacrifice, is a global streaming hit.
+---------
+
+# 10 Greatest Detective Thriller Books Of All Time, Ranked
+
+Movies, The Silence of the Lambs, The Girl With the Dragon Tattoo, Thriller
+
+Sun, 23 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/best-detective-thriller-books-of-all-time-list/
+
+Detective thriller books are captivating and intriguing, and the best have influenced and redefined the genre.
+---------
+
+# 3 One Piece Will of D Fan Theories We Hope Are True
+
+Anime, One Piece
+
+Sun, 23 Aug 2026 23:15:11 GMT
+
+https://www.cbr.com/one-piece-will-of-d-fan-theories/
+
+The true meaning of the Will of D hasn't been revealed in One Piece yet, but these fan theories are convincing enough to be real.
+---------
+
+# 5 Shonen Anime Better Than Hunter x Hunter
+
+Anime, Hunter X Hunter, Jojo's Bizarre Adventure, Fullmetal Alchemist: Brotherhood
+
+Sun, 23 Aug 2026 23:15:11 GMT
+
+https://www.cbr.com/shonen-anime-better-than-hunter-x-hunter/
+
+Hunter x Hunter is considered to be a top-tier shonen anime, but titles like Yu Yu Hakusho and JoJo's Bizarre Adventure manage to be even better.
+---------
+
+# Taylor Sheridan’s “Immediately Addictive” Neo-Western Is Officially Bigger Than Ever
+
+TV News, Taylor Sheridan, Landman, Billy Bob Thornton, Paramount Plus
+
+Sun, 23 Aug 2026 23:30:11 GMT
+
+https://collider.com/landman-taylor-sheridan-paramount-plus-streaming-milestone/
+
+Taylor Sheridan's most controversial Yellowstone successor has passed a massive milestone on Paramount+ despite mixed reviews. Find out more.
+---------
+
+# Kyle Chandler's Gritty 3-Part Netflix Crime Thriller Is a Hidden Gem on Streaming
+
+TV Features, Bloodline, Netflix, Kyle Chandler, Ben Mendelsohn
+
+Sun, 23 Aug 2026 23:27:11 GMT
+
+https://collider.com/kyle-chandler-bloodline-netflix-crime-thriller/
+
+Lanterns' Kyle Chandler gives one of the best performances of his career in Netflix's most underrated crime thriller.
+---------
+
+# 8 Crime Shows Without a Single Flaw
+
+TV, Crime, Breaking Bad, The Wire, Better Call Saul
+
+Sun, 23 Aug 2026 23:21:11 GMT
+
+https://collider.com/crime-shows-without-flaws/
+
+There are only a handful of crime shows that we can confidently say have absolutely no flaws, from Breaking Bad to Your Friends & Neighbors.
+---------
+
+# Disney's Long-Awaited Revival Has Officially Taken Over the World
+
+Movie News, Disney+, Camp Rock 3, Streaming, Demi Lovato
+
+Sun, 23 Aug 2026 23:15:11 GMT
+
+https://collider.com/camp-rock-3-streaming-hit-disney-plus-august-2026/
+
+Disney's long-awaited revival has taken over the streaming world. Read on for more details.
+---------
+
 # DC Concerns Major Genre Change For Green Lantern, And It's Actually Perfect
 
 DC Comics, Green Lantern
