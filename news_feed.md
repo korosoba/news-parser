@@ -1,3 +1,102 @@
+# Star Trek Meets Douglas Adams In The BBC's 74-Episode Sci-Fi Masterpiece
+
+Classic TV, Masked Recs
+
+Sun, 23 Aug 2026 18:30:14 GMT
+
+https://screenrant.com/red-dwarf-star-trek-meets-douglas-adams-tv-series/
+
+Mixing the space adventures of Star Trek with the absurdist satire of Douglas Adams, Red Dwarf is still the greatest sci-fi comedy in TV history.
+---------
+
+# NYT Connections Solution And Hints For August 23, 2026
+
+Gaming, Connections, Mobile
+
+Sun, 23 Aug 2026 18:29:47 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-23-2026/
+
+Generation of power and its aftermath are part of the clues for today's Connections, yet the patterns are easy to mix up without a bit of luck.
+---------
+
+# Marvel Shares First Look At Spider-Man’s Horrific Next Appearance, And It’s Grotesque In The Best Way
+
+Marvel Comics, Spider-Man, Marvel
+
+Sun, 23 Aug 2026 18:24:02 GMT
+
+https://screenrant.com/spider-man-midnight-first-look-horrific/
+
+Marvel Comics' most horrifying Spider-Man story is launching this spooky season, and it's already a massive departure from the story we know.
+---------
+
+# 28 Years Later, Practical Magic's Best Line Still Defines the Fantasy Genre
+
+Movies, Practical Magic, nicole kidman, Practical Magic 2
+
+Sun, 23 Aug 2026 18:30:11 GMT
+
+https://www.cbr.com/practical-magic-best-line-defines-fantasy-genre/
+
+Practical Magic, the most nostalgic movie about witchcraft, does it like no other fantasy film.
+---------
+
+# Peacock's 2-Season Cyber Thriller Returns With Divisive Rotten Tomatoes Score
+
+TV, The Undeclared War, Rotten Tomatoes, Peacock
+
+Sun, 23 Aug 2026 18:28:41 GMT
+
+https://www.cbr.com/the-undeclared-war-season-2-rotten-tomatoes-score/
+
+Peacock's cyber thriller, The Undeclared War, continues to divide critics.
+---------
+
+# Shigeru Miyamoto "Regrets" Making the Lowest-Rated 3D Mario Game on Metacritic
+
+Games, Mario, Nintendo
+
+Sun, 23 Aug 2026 18:25:11 GMT
+
+https://www.cbr.com/shigeru-miyamoto-regrets-super-mario-sunshine-switch-2/
+
+Super Mario Sunshine is the worst 3D Mario game according to Metacritic, and Miyamoto has his share of regrets about it.
+---------
+
+# 10 Greatest American Crime Series of All Time
+
+TV, Crime, True Detective, The Wire, Breaking Bad
+
+Sun, 23 Aug 2026 18:49:11 GMT
+
+https://collider.com/best-american-crime-shows-all-time/
+
+From Law & Order to Breaking Bad, Columbo to The Wire, these American crime shows are simply the best.
+---------
+
+# Only 4 Horror Movies Made Before 1960 Are Actually Scary
+
+Movie, The Night of the Hunter, Godzilla, Faust, Diabolique
+
+Sun, 23 Aug 2026 18:40:11 GMT
+
+https://collider.com/horror-movies-before-1960-actually-scary/
+
+It's hard to find movies made before 1960 that are actually scary, but a few do prove somewhat frightening, like Diabolique and the original Godzilla.
+---------
+
+# 'Lioness' Gets Perfect Action Thriller Spin-off Pitch From Star
+
+TV News, Lioness
+
+Sun, 23 Aug 2026 18:30:14 GMT
+
+https://movieweb.com/lioness-thad-luckinbill-kyle-spin-off/
+
+Is 'Lioness' finally crossing over into the 'Yellowstone' universe?
+---------
+
 # The MCU Just Kicked Off a Dark New Era for The Hulk (& It Could Finally Mean World War Hulk)
 
 Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, World War Hulk
