@@ -1,3 +1,135 @@
+# Why Outer Range Season 3 Never Happened
+
+Classic TV, Outer Range, Upcoming Releases
+
+Sun, 23 Aug 2026 17:00:16 GMT
+
+https://screenrant.com/outer-range-season-3-updates/
+
+Prime Video's mind-bending series Outer Range posed a lot of interesting questions in it sophomore season, but fans won't be getting any answers.
+---------
+
+# 3 Pokémon Games That Have Aged Truly Horribly
+
+Gaming, Pokemon, Nintendo
+
+Sun, 23 Aug 2026 17:00:15 GMT
+
+https://screenrant.com/pokemon-games-aged-horribly/
+
+These Pokémon games, while amazing for their respective times, have not aged well at all and are practically unplayable in 2026 and beyond.
+---------
+
+# 14 Years Later, Spider-Man’s Best Scorpion Design Is Still Unbeatable
+
+Gaming, Spider-Man, The Amazing Spider-Man, Triple-A Games
+
+Sun, 23 Aug 2026 17:00:15 GMT
+
+https://screenrant.com/amazing-spider-man-scorpion-game-design/
+
+Scorpion, Marvel's iconic Spider-Man supervillain, has arguably never had a better design than the one that debuted almost a decade and a half ago.
+---------
+
+# Everyone Forgets There's Two Joker Actors In The 1989 Batman Movie
+
+Movies, Batman, DC Universe
+
+Sun, 23 Aug 2026 16:55:15 GMT
+
+https://screenrant.com/batman-1989-movie-joker-two-actors-forgotten/
+
+The story of Batman's Clown Prince of Crime is pulled off thanks to two different actors, who each played a key role in making the 1989 movie work.
+---------
+
+# It’s Official, Ultra Instinct Goku Loses the Crown to Ichigo’s New Form
+
+Anime, Dragon Ball, Bleach, Shonen Jump
+
+Sun, 23 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/bleach-ichigo-new-form-ultra-instinct-goku-rating/
+
+It's officially over for Dragon Ball's Ultra Instinct Goku after Ichigo's new transformation debuts in Bleach's perfect 10/10 episode.
+---------
+
+# Netflix's Divisive 2-Season Western Drama Instantly Turns Into 1 of the Biggest Streaming Hits
+
+TV, Ransom Canyon, Netflix
+
+Sun, 23 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/netflix-ransom-canyon-western-nielsen-success-july-2026/
+
+Following the release of Season 2, the Netflix Western drama is one of the biggest shows on streaming despite divisive reviews.
+---------
+
+# Jon Bernthal’s 48-Minute “No Holds Barred” Thrill-Ride Soars With 582M Minutes Watched
+
+TV News, The Punisher: One Last Kill, Jon Bernthal, Disney+, Spider-Man: Brand New Day
+
+Sun, 23 Aug 2026 17:10:17 GMT
+
+https://collider.com/jon-bernthal-the-punisher-one-last-kill-disney-plus-viewership-586-million-minutes-watched-2026/
+
+Jon Bernthal's crime masterpiece clocking in at less than one hours soars on streaming with over 580 million minutes watched in 2026.
+---------
+
+# 67 Years Later, Jimmy Stewart’s Crime Thriller Is Officially Leaving HBO Max
+
+Movie News, The FBI Story, James Stewart, HBO Max, Crime
+
+Sun, 23 Aug 2026 17:00:11 GMT
+
+https://collider.com/james-stewart-crime-classic-fbi-story-leaving-hbo-max-august-2026/
+
+A crime drama starring Jimmy Stewart and overseen by the FBI is available to be discovered on HBO Max. Find out more.
+---------
+
+# 'Spider-Man: Brand New Day' Officially Becoming Biggest Marvel Movie Ever Domestically
+
+Movie News, Spider-Man: Brand New Day, Avengers: Endgame, Marvel Cinematic Universe
+
+Sun, 23 Aug 2026 17:02:55 GMT
+
+https://movieweb.com/spider-man-brand-new-day-marvel-domestic/
+
+How far can 'Brand New Day' go?
+---------
+
+# John Wayne Literally Owes His Name and His Career to a 108-Minute Western Classic
+
+Features, John Wayne, The Big Trail, Western
+
+Sun, 23 Aug 2026 17:00:14 GMT
+
+https://movieweb.com/john-wayne-name-western-the-big-trail/
+
+John Wayne's 50-year career included appearances in more than 150 movies, and his legendary run was kicked off by an influential movie from the 1930s.
+---------
+
+# Jon Bernthal's Forgotten 95-Minute Thriller Is Worth Discovering on Its New Streaming Home
+
+Movie News, Jon Bernthal, Sweet Virginia, Coming/Leaving Streaming, Thriller
+
+Sun, 23 Aug 2026 17:00:14 GMT
+
+https://movieweb.com/jon-bernthal-sweet-virginia-thriller-streaming-amc-plus-august-2026/
+
+Jon Bernthal plays against type in a criminally overlooked thriller that just secured a new streaming home this month.
+---------
+
+# The Horrifying True Story That Inspired 'The Ghost and the Darkness'
+
+Features, Val Kilmer, Michael Douglas
+
+Sun, 23 Aug 2026 17:00:14 GMT
+
+https://movieweb.com/true-story-that-inspired-the-ghost-and-the-darkness/
+
+'The Ghost and the Darkness' indulges in several liberties, but just how accurate is the film to the real-life animal attacks?
+---------
+
 # This Reacher Meets The Night Agent Action Thriller Is Switching Genres For Season 2
 
 TV, Masked Recs
