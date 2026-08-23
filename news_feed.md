@@ -1,3 +1,135 @@
+# Netflix’s New 5-Part Crime Thriller Masterpiece Is Already The Biggest Show In The World
+
+TV, Masked Recs
+
+Sun, 23 Aug 2026 22:09:39 GMT
+
+https://screenrant.com/blood-sacrifice-netflix-streaming-hit/
+
+A brand-new Netflix crime thriller is quickly climbing the streaming platform's charts skyrocketing in popularity just days after its premiere.
+---------
+
+# Pluribus: Apple TV's Most-Watched Show Ever Deserves Its Rare 99% RT Score
+
+Streaming TV, Pluribus
+
+Sun, 23 Aug 2026 22:04:15 GMT
+
+https://screenrant.com/pluribus-apple-tv-most-watched-show/
+
+Nearly a year after its release, Pluribus, Apple TV's most-watched original series of all time, officially deserves its 99% Rotten Tomatoes score.
+---------
+
+# The Real Answer To A Major Lanterns Mystery Is Hiding In Plain Sight, And No One Noticed
+
+TV, Lanterns, DC Comics
+
+Sun, 23 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/lanterns-mystery-earth-important-life-entity/
+
+Could the secret of Rushville, Nebraska be the future of the DCU?
+---------
+
+# Apple TV’s "Unfilmable" 10-Part Sci-Fi Show Is Already Making The Matrix Look Small
+
+Streaming TV, Masked Recs
+
+Sun, 23 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/neuromancer-unfilmable-sci-fi-adaptation-apple-tv/
+
+Apple TV has become the home of prestige sci-fi, taking on source material previously considered "unadaptable." The next of these is going to be huge.
+---------
+
+# 8 Story Beats Star Wars Jedi Has Left Hanging
+
+Gaming, Star Wars Jedi: Fallen Order, Star Wars Jedi: Survivor, Star Wars, Triple-A Games
+
+Sun, 23 Aug 2026 22:00:14 GMT
+
+https://screenrant.com/star-wars-jedi-unanswered-questions/
+
+Respawn's Star Wars Jedi games have a lot of their stories told between them, and a lot else is left to players' imaginations, if not cut completely.
+---------
+
+# Star Wars Meets Stranger Things In Disney+'s Bingeable 8-Part Adventure Series
+
+Streaming TV, Star Wars, Masked Recs
+
+Sun, 23 Aug 2026 21:45:14 GMT
+
+https://screenrant.com/star-wars-skeleton-crew-stranger-things-adventure-series/
+
+This show captures the magic of both Star Wars and Stranger Things' iconic first season, as a group of kids set out on an accidental adventure.
+---------
+
+# Anne Hathaway's 112-Minute Psychological Drama Finds Redemption as an Instant HBO Streaming Hit
+
+Movies, Mother Mary, anne hathaway
+
+Sun, 23 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/anne-hathaway-mother-mary-psychological-drama-hbo-max-success-august-2026/
+
+2026 is Anne Hathaway's year.
+---------
+
+# Creepshow’s New Tale Unleashes Terrifying Alien Horrors on Humanity
+
+Comics, Creepshow
+
+Sun, 23 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/creepshow-vol-5-release-date-confirmed/
+
+The legendary horror anthology returns with its fifth volume just in time for the spooky season.
+---------
+
+# 8 Most Thrilling Action Movies Ever, Ranked
+
+Movie, Action, The Matrix, John Wick, Die Hard
+
+Sun, 23 Aug 2026 22:03:11 GMT
+
+https://collider.com/most-thrilling-action-movies-ever-ranked/
+
+Lethal Weapon, Enter the Dragon, The Matrix, John Wick, and more make up our list of the most thrilling action movies ever.
+---------
+
+# Ralph Fiennes’ WW1 Sleeper Hit Is Officially Taking Over HBO Max
+
+Movie News, Ralph Fiennes, The Choral, HBO Max, Streaming
+
+Sun, 23 Aug 2026 22:00:11 GMT
+
+https://collider.com/the-choral-streaming-hit-hbo-max-august-2026/
+
+Ralph Fiennes' touching WWI gem is a surprise hit on HBO Max. Here's everything you should know about The Choral.
+---------
+
+# The 6 Most Intense Hard Sci-Fi Movies, Ranked
+
+Movie, Sci-Fi, Moon, Gravity, The Andromeda Strain
+
+Sun, 23 Aug 2026 21:55:11 GMT
+
+https://collider.com/most-intense-hard-sci-fi-movies-ranked/
+
+From Children of Men to Gravity, these hard sci-fi film are truly intense.
+---------
+
+# Clint Eastwood's Western Masterpiece Took 11 Years and 2 Legendary Directors To Get Made
+
+Features, Clint Eastwood
+
+Sun, 23 Aug 2026 22:00:14 GMT
+
+https://movieweb.com/clint-eastwood-unforgiven-11-year-wait/
+
+The idea for Clint Eastwood's magnum opus was conceived in the early 1980s. Why did it take so long for the movie to get made?
+---------
+
 # Harry Potter’s Newest Star Was Almost Cast In The Title Role 26 Years Ago
 
 TV, Harry Potter
