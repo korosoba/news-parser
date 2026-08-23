@@ -1,3 +1,245 @@
+# Iron Man's New Codename Turns Him into Reed Richards' Enemy
+
+Comics, Marvel, Iron Man, Mr. Fantastic
+
+Sun, 23 Aug 2026 02:00:25 GMT
+
+https://screenrant.com/iron-man-new-codename-fantastic-four/
+
+Event unfolding in the coming months in the ongoing Iron Man series will see Tony Stark becoming enemies with Reed Richards, a.k.a. Mr. Fantastic.
+---------
+
+# Masters Of The Universe's 4-Week Prime Video Streak Proves Amazon Right & Boosts Sequel Hopes
+
+Movies, Masters of the Universe
+
+Sun, 23 Aug 2026 01:45:15 GMT
+
+https://screenrant.com/masters-of-the-universe-movie-prime-video-streaming-success-amazon-sequel/
+
+Masters of the Universe flopped at the box office, but its streaming debut has proven that it is much more successful than those numbers.
+---------
+
+# Sons Of Anarchy Meets Galaxy Quest In Charlie Hunnam’s Strange New Spinoff Show
+
+Streaming TV, Masked Recs
+
+Sun, 23 Aug 2026 01:30:15 GMT
+
+https://screenrant.com/sons-of-anarchy-meets-galaxy-quest-sons-of-anarchy-legends-spinoff/
+
+A Sons of Anarchy spin-off is in the works, but it already seems nothing like the Charlie Hunnam show and has a strange Galaxy Quest spin to its plot.
+---------
+
+# Every New & Notable Character Joining Dexter: Resurrection Season 2
+
+Streaming TV, Dexter: Resurrection
+
+Sun, 23 Aug 2026 01:15:15 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-new-characters-cast/
+
+Dexter: Resurrection is returning for season 2, and this time, Dexter Morgan is set to have his work cut out for him as he faces legendary killers.
+---------
+
+# Poison Ivy’s New Design Is A Challenge To DC Cosplayers
+
+DC Comics, Poison Ivy
+
+Sun, 23 Aug 2026 01:00:15 GMT
+
+https://screenrant.com/poison-ivy-new-design-challenge-dc-cosplay/
+
+DC cosplayers have their work cut out for them, unlike ever before, following a variant cover reveal for Poison Ivy's final Bad Seeds core issue.
+---------
+
+# 5 Best Ongoing DC Comics That Everyone Should Read In 2026
+
+Comics, DC Comics
+
+Sun, 23 Aug 2026 01:00:15 GMT
+
+https://screenrant.com/best-dc-comics-everyone-should-read/
+
+From the groundbreaking Absolute Universe to bold new mainline relaunches, these five ongoing DC comics are must-reads in 2026.
+---------
+
+# 10 Best Movies If You Like The End Of Oak Street
+
+Movies, The End of Oak Street
+
+Sun, 23 Aug 2026 01:00:15 GMT
+
+https://screenrant.com/best-movies-like-the-end-of-oak-street/
+
+The End of Oak Street is more than just a dinosaur movie, and here are several movies for people to watch afterward who love that movie.
+---------
+
+# Yellowstone Meets Tracker In This 6-Part Western Crime Drama
+
+Classic TV, Masked Recs
+
+Sun, 23 Aug 2026 01:00:15 GMT
+
+https://screenrant.com/western-crime-drama-longmire-yellowstone-meets-tracker/
+
+A six season police procedural on Paramount+ combines the thrilling mysteries of Tracker with the Western family drama of Yellowstone perfectly.
+---------
+
+# Mass Effect Meets Civilization In Brand-New Space Opera
+
+Gaming, Mass Effect, Sid Meier's Civilization 6, Civilization, Sid Meier's Civilization VII, PC, Steam
+
+Sun, 23 Aug 2026 01:00:15 GMT
+
+https://screenrant.com/mass-effect-meets-civilization-space-opera/
+
+Mass Effect collides with Sid Meier's Civilization in an epic new strategy space opera-based experience that 4X gamers will not want to skip.
+---------
+
+# The 10 Most Exciting Sci-Fi Adventure Movies of All Time, Ranked
+
+Movies, Sci-Fi, Adventure, Back to the Future
+
+Sun, 23 Aug 2026 02:20:11 GMT
+
+https://www.cbr.com/best-sci-fi-adventure-movies-of-all-time-list/
+
+The blend of sci-fi and adventure has led to some of the most exciting movies of all time, and some are flawless masterpieces everyone should see.
+---------
+
+# 5 RPGs With Skill Trees That Completely Change How You Play
+
+Games, Cyberpunk 2077, RPG, The Elder Scrolls V: Skyrim
+
+Sun, 23 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/best-rpg-skill-trees-completely-change-gameplay-list/
+
+Games like Cyberpunk and Skyrim flipped the script on RPGs with skill trees that have the potential to redefine the entire gameplay experience.
+---------
+
+# HBO Max's New Action Thriller Combines Fargo and Die Hard
+
+Movies, Normal, Fargo, Die Hard, Innovation
+
+Sun, 23 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/normal-hbo-max-action-thriller-combines-fargo-and-die-hard/
+
+Bob Odenkirk's latest starring vehicle, which combines the Coens with John McClane, is finding a second life courtesy of HBO Max.
+---------
+
+# Black Clover's 5 Strongest Wizard Kings, Officially Ranked
+
+Anime, Black Clover
+
+Sun, 23 Aug 2026 01:45:11 GMT
+
+https://www.cbr.com/black-clover-strongest-wizard-kings-officially-ranked/
+
+Of all the Wizard Kings in Black Clover, these five are the most powerful.
+---------
+
+# CBS' Sitcom Masterpiece Remains 1 of the Most Popular Shows Ever With 1.1B Minutes Viewed on HBO Max
+
+TV, Big Bang Theory, CBS, HBO Max
+
+Sun, 23 Aug 2026 01:30:11 GMT
+
+https://www.cbr.com/the-big-bang-theory-sitcom-hbo-max-success-nielsen-us-july-2026/
+
+The long-finished sitcom is continuing to dominate the charts.
+---------
+
+# 5 Scariest PS2 Horror Games, Ranked
+
+Games, The Thing, PlayStation 2, Fatal Frame, Silent Hill
+
+Sun, 23 Aug 2026 01:25:11 GMT
+
+https://www.cbr.com/scariest-ps2-horror-games-ranked/
+
+The scariest PS2 horror games use psychological terror, supernatural threats, helplessness, or paranoia to keep players on edge.
+---------
+
+# Disney Is Making Massive Changes to Bluey's Formula in 2027
+
+Movies, The Bluey Movie, Bluey
+
+Sun, 23 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/disney-bluey-movie-2027-changing-animation-tv-formula/
+
+Bluey is making the jump to the movie theaters and audiences are unsure of what to think of the biggest changes to the award-winning formula.
+---------
+
+# Hit $181M Sci-Fi Horror Sets Netflix Release Date After Grossing 15x Its Budget
+
+Movies, M3GAN
+
+Sun, 23 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/m3gan-on-netflix-august-2026/
+
+One of the most divisive horror films of an entire generation is about to make its streaming debut on another major platform.
+---------
+
+# 10 Great TV Series on BritBox Everyone Should Binge-Watch
+
+TV, Britbox, The Other Bennet Sister, Broadchurch, Ludwig
+
+Sun, 23 Aug 2026 01:33:11 GMT
+
+https://collider.com/best-shows-britbox-binge-watch/
+
+The Other Bennet Sister, Ludwig, The Cleaner, Downton Abbey, Mr. Bean, and more make up our list of the best BritBox shows to binge-watch.
+---------
+
+# You Can Binge These 8 Great K-Drama Masterpieces in 1 Day
+
+TV, South Korea, Bloodhounds, When Life Gives You Tangerines, My Name
+
+Sun, 23 Aug 2026 01:03:11 GMT
+
+https://collider.com/k-drama-masterpieces-binge-in-1-day/
+
+If you're looking for the next K-drama masterpiece to binge, shows like Bloodhounds and When Life Gives You Tangerines can be watched in a day.
+---------
+
+# 'Boston Blue' Officially Shakes Up Its Winning Formula for Season 2
+
+TV Features, Boston Blue, Blue Bloods, Donnie Wahlberg
+
+Sun, 23 Aug 2026 01:01:11 GMT
+
+https://collider.com/boston-blue-season-2-will-estes-guest-star/
+
+The Blue Bloods spin-off, Boston Blue, is bringing in a huge-name guest star for its upcoming second season to shake things up.
+---------
+
+# HBO Max Officially Drops the 73-Year-Old Thriller That Inspired One of Quentin Tarantino’s Favorite Movies
+
+Movie News, The Wages of Fear, Sorcerer, Quentin Tarantino, HBO Max
+
+Sun, 23 Aug 2026 01:00:11 GMT
+
+https://collider.com/wages-of-fear-leaving-hbo-max-september-2026/
+
+The classic suspense thriller that inspired William Friedkin's Sorcerer is about to be removed from HBO Max.
+---------
+
+# Every Upcoming Live-Action Disney Remake & Sequel
+
+Movie Lists, Disney, Tangled, Lilo & Stitch 2
+
+Sun, 23 Aug 2026 01:00:14 GMT
+
+https://movieweb.com/disney-upcoming-live-action-remakes/
+
+From 'Tangled' to 'Cruella 2,' check out every upcoming Disney live-action remake and sequel.
+---------
+
 # 7 Unmissable Neo-Western Movies on Prime Right Now
 
 Movies, Prime Video
