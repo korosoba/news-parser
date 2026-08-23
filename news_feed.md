@@ -1,3 +1,58 @@
+# Project Zomboid Meets Stardew Valley In New Zombie Survival Game
+
+Gaming, Indie Games, PC, Stardew Valley, Project Zomboid
+
+Sun, 23 Aug 2026 10:30:15 GMT
+
+https://screenrant.com/project-zomboid-meets-stardew-valley-new-zombie-game/
+
+A new zombie survival game that mixes gameplay elements from both Project Zomboid and Stardew Valley has been announced and will arrive soon.
+---------
+
+# 7 Years Later, Jon Bernthal’s 26-Episode Crime Thriller Is Finding New Life on Streaming
+
+TV Features, Jon Bernthal, The Punisher, Marvel, Netflix
+
+Sun, 23 Aug 2026 10:44:11 GMT
+
+https://collider.com/jon-bernthal-crime-thriller-punisher-streaming-apple-tv-store/
+
+7 years after its series finale, Jon Bernthal's crime-thriller adaptation of The Punisher is finding new life on streaming platforms.
+---------
+
+# Tom Hardy’s $478M Sci-Fi Action Movie Is Officially Leaving Netflix
+
+Movie News, Tom Hardy, Venom: The Last Dance, Sci-Fi, Netflix
+
+Sun, 23 Aug 2026 10:30:11 GMT
+
+https://collider.com/tom-hardy-venom-the-last-dance-leaving-netflix-august-2026/
+
+Tom Hardy’s $478 million sci-fi blockbuster Venom: The Last Dance is officially leaving Netflix this month. Here's how long you have left to watch it.
+---------
+
+# All 6 George Lucas Movies, Ranked
+
+Movie, George Lucas, Star Wars, American Graffiti, Star Wars: Episode I - The Phantom Menace
+
+Sun, 23 Aug 2026 10:22:11 GMT
+
+https://collider.com/george-lucas-movies-ranked/
+
+From the original Star Wars to American Graffiti, each of George Lucas' movies as a director left a significant mark, but which is the most impactful?
+---------
+
+# Netflix's New 91-Minute Action Thriller Is Already The Biggest Movie in the World
+
+Movie News, Facing El Chapo, Netflix, Hot on Streaming, Action
+
+Sun, 23 Aug 2026 10:38:23 GMT
+
+https://movieweb.com/facing-el-chapo-action-streaming-success-netflix-august-2026/
+
+Netflix's latest action thriller, based on a true story, is a global sensation after just two days on streaming.
+---------
+
 # House Of The Dragon Officially Continues In Flames Of Tumbleton
 
 Gaming, House of the Dragon, Game Of Thrones: Dragonfire, Game of Thrones, Game Of Thrones, PC
