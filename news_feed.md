@@ -1,3 +1,69 @@
+# House Of The Dragon Officially Continues In Flames Of Tumbleton
+
+Gaming, House of the Dragon, Game Of Thrones: Dragonfire, Game of Thrones, Game Of Thrones, PC
+
+Sun, 23 Aug 2026 10:00:15 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-flames-of-tumbleton-hotd-return/
+
+If you're left wanting more House of the Dragon after the Season 3 finale, Flames of Tumbleton takes fans right back to the epic conclusion.
+---------
+
+# All 10 Christopher Eccleston Doctor Who Episodes, Ranked
+
+Streaming TV, Doctor Who
+
+Sun, 23 Aug 2026 10:00:15 GMT
+
+https://screenrant.com/doctor-who-christopher-eccleston-ninth-doctor-episodes-ranked/
+
+Christopher Eccleston only played the Ninth Doctor for one season, but in that brief stint, he left a lasting legacy that won't be forgotten.
+---------
+
+# Hulu's Crime Thriller Furious Hits Harder Than Anything Else This Year
+
+TV, Furious, Hulu, Crime
+
+Sun, 23 Aug 2026 10:00:11 GMT
+
+https://www.cbr.com/hulu-furious-best-2026-crime-thriller/
+
+Hulu's latest crime series, Furious, might be the best show of the year.
+---------
+
+# 5 Must-Read Fantasy Books Before Apple TV's Mistborn Movie
+
+Movies, Game Of Thrones, The Lord of the Rings, Mistborn
+
+Sun, 23 Aug 2026 10:00:11 GMT
+
+https://www.cbr.com/must-read-fantasy-books-before-apple-tv-mistborn-movie/
+
+With Brandon Sanderson's Mistborn expanding the influence of literary fantasy, fans may have some genre catching up to do
+---------
+
+# 8 Horror Books That Are 10/10 Masterpieces
+
+Books and Comics, Horror, Books, The Shining, The Exorcist
+
+Sun, 23 Aug 2026 10:01:11 GMT
+
+https://collider.com/horror-books-perfect-masterpieces/
+
+The Exorcist, Dracula, Frankenstein, Uzumaki, and more make up our list of horror books that are perfect masterpieces.
+---------
+
+# Crunchyroll’s Physical Media Era Is Officially Coming to a Brutal End
+
+TV News, Crunchyroll, Anime, Sony, Japan
+
+Sun, 23 Aug 2026 10:00:11 GMT
+
+https://collider.com/crunchyroll-store-removing-physical-media-anime-manga/
+
+Sony’s latest Crunchyroll changes are drawing backlash from anime fans as the company reshapes how customers can shop for physical media online.
+---------
+
 # The Best WWII Movie of the Year Is Officially Taking Over Streaming
 
 Movie News, Brendan Fraser, Pressure, Oppenheimer, Peacock
