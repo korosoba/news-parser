@@ -1,3 +1,157 @@
+# 36 Years Later, The Best Marvel Comics Cover Of All Time Is Still Undefeated
+
+Comics, Spider-Man
+
+Sun, 23 Aug 2026 16:02:41 GMT
+
+https://screenrant.com/best-marvel-comics-cover-all-time/
+
+Marvel’s most popular hero has built a multibillion-dollar franchise across media, and still, one comic cover featuring the hero remains the greatest.
+---------
+
+# The End of Oak Street: Can It Take Jurassic Park’s Crown?
+
+Movies, Originals, The End of Oak Street
+
+Sun, 23 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/video/the-end-of-oak-street-can-it-take-jurassic-park-s-crown/
+
+The End of Oak Street: Is It the Best Dino Movie? David Robert Mitchell’s new dinosaur adventure throws Anne Hathaway and Ewan McGregor into a suburban nightmare 200 million years in the making. But does it deserve to be called the best dinosaur movie since Jurassic Park?
+---------
+
+# Game Of Thrones Meets The Witcher In New Fantasy RPG You Can Play Free Now
+
+Gaming, Game of Thrones, The Witcher
+
+Sun, 23 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/game-of-thrones-meets-witcher-new-rpg-free-demo/
+
+Discover Sovereign Tower, the captivating RPG blending strategy and character quests. Manage your kingdom today!
+---------
+
+# 25 Years Later, Buffy's Most Controversial Season Is Still One Of Its Best
+
+Classic TV, Buffy The Vampire Slayer
+
+Sun, 23 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-season-6-controversial-underrated/
+
+Not all seasons of Buffy the Vampire Slayer are created equal, but its most controversial is quietly a masterpiece, with some excellent episodes.
+---------
+
+# Nathan Fillion Confirms Quiet Green Lantern Change For His Man Of Tomorrow Return In 2027
+
+Movies, Man of Tomorrow, Superman, Nathan Fillion, DC Universe
+
+Sun, 23 Aug 2026 15:53:57 GMT
+
+https://screenrant.com/superman-man-of-tomorrow-guy-gardner-nathan-fillion-change-confirmed/
+
+As Nathan Fillion is coming back once more as Guy Gardner in 2027's Man of Tomorrow, the DCU star confirms one change for his Green Lantern character.
+---------
+
+# Why Taylor Sheridan Couldn't Retire From Hollywood After Yellowstone's Success
+
+TV, Taylor Sheridan, Yellowstone
+
+Sun, 23 Aug 2026 15:45:40 GMT
+
+https://screenrant.com/taylor-sheridan-retirement-plans-halted-yellowstone-explained/
+
+Taylor Sheridan considered retiring from entertainment after the conclusion of his hit Western series Yellowstone, but had to pay off an investment.
+---------
+
+# 5 Forgotten Hard Sci-Fi Anime That Are 10/10 Masterpieces
+
+Anime, The Perfect Insider, Sci-Fi
+
+Sun, 23 Aug 2026 16:15:11 GMT
+
+https://www.cbr.com/forgotten-masterpiece-hard-sci-fi-anime/
+
+Anime specializes in hard sci-fi series that embrace realistic science and technology, but titles like Stratos 4 and Twin Spica don't get enough love.
+---------
+
+# Robert Pattinson's $3.36B Franchise Is Finally Returning To Peacock This Fall
+
+Movies, Twilight, robert pattinson
+
+Sun, 23 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/robert-pattinson-twilight-peacock-september-2026/
+
+It's a great year to be a Robert Pattinson fan.
+---------
+
+# 5 MCU X-Men Who Should Start As Villains
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Sun, 23 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/mcu-x-men-start-as-villains-list/
+
+Jean Grey was introduced to the MCU as something of an antagonist, and other mutants could follow suit ahead of Marvel's X-Men reboot.
+---------
+
+# Silo Author Defends Controversial Season 3 Change: 'It's an Improvement'
+
+TV, Silo, Innovation
+
+Sun, 23 Aug 2026 15:53:06 GMT
+
+https://www.cbr.com/silo-author-hugh-howey-comments-controversial-season-3-change/
+
+Silo author Hugh Howey speaks out about the hit Apple TV series' recent Season 3 changes, promising fans will get resolution soon.
+---------
+
+# Anne Hathaway’s ‘Jurassic Park’ Replacement Is Officially Chasing Down M. Night Shyamalan’s Sci-Fi Flop
+
+Movie News, M. Night Shyamalan, After Earth, Box Office, The End of Oak Street
+
+Sun, 23 Aug 2026 16:15:11 GMT
+
+https://collider.com/anne-hathaway-the-end-of-oak-street-box-office-after-earth/
+
+The End of Oak Street continues climbing at the box office as J.J. Abrams’ new sci-fi thriller closes in on M. Night Shyamalan’s After Earth.
+---------
+
+# Prime Video's 'Reacher' Owes Everything to This Forgotten 1970s Classic
+
+TV Features, Reacher, The Day of the Jackal, Prime Video
+
+Sun, 23 Aug 2026 15:54:11 GMT
+
+https://collider.com/reacher-prime-video-classic-spy-book-inspired-day-of-the-jackal/
+
+The 1970s novel The Day of the Jackal inspired its own TV series and influenced the author of Jack Reacher for his novels as well.
+---------
+
+# Netflix's 'One Piece' Adds Four More to Cast for 'The Battle of Alabasta' in Season 3
+
+Movie News, One Piece, Netflix, Fantasy
+
+Sun, 23 Aug 2026 16:01:31 GMT
+
+https://movieweb.com/netflix-one-piece-season-3-cast/
+
+More iconic characters are about to make the jump to live-action.
+---------
+
+# Jason Statham's 'Mutiny' Director Made a 10/10 Mel Gibson Revenge Thriller You Missed
+
+Features, Jason Statham, Mutiny, Mel Gibson, Blood Father, Thriller
+
+Sun, 23 Aug 2026 16:00:14 GMT
+
+https://movieweb.com/blood-father-mel-gibson-revenge-thriller/
+
+After 10 years, the underrated revenge thriller that pairs Mel Gibson and 'The Boys' breakout star deserves another shot.
+---------
+
 # Apple TV’s Murderbot Season 2 Gets Major Filming Update After Adding 25 To Cast
 
 TV, Murderbot
