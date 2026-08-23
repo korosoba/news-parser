@@ -1,3 +1,102 @@
+# 12 Greatest Square Enix Games Of All Time
+
+Gaming, Square Enix, Triple-A Games
+
+Sun, 23 Aug 2026 21:00:17 GMT
+
+https://screenrant.com/best-square-enix-games-all-time/
+
+Square Enix is responsible for many of the best RPGs ever made, but only a few can rise to the top as the most innovative and memorable experiences.
+---------
+
+# 10 Greatest Action Thriller Movies Set On Boats Or Ships, Ranked
+
+Movies, alfa-gt-and-147-q2, David Cotner, Jaws, Master and Commander: The Far Side of the World, The African Queen, The Poseidon Adventure, all is lost, Dead Calm, Triangle, Pirates of the Caribbean: The Curse of the Black Pearl, Action, Thriller
+
+Sun, 23 Aug 2026 21:00:15 GMT
+
+https://screenrant.com/best-action-thriller-movies-boat-ship-ranked/
+
+From claustrophobic yachts to rolling warships this list navigates the greatest maritime movies, boasting suspense, survival and seacraft tension.
+---------
+
+# Nightcrawler: Netflix's 95% RT Joker Meets Collateral Thriller Is A Perfect One-Night Watch
+
+Movies, Masked Recs
+
+Sun, 23 Aug 2026 20:56:14 GMT
+
+https://screenrant.com/netflix-nightcrawler-movie-joker-meets-collateral-watch/
+
+Netflix recently added Nightcrawler, a top-rated crime thriller that is the perfect blend of Joker and Collateral and is great for a late-night watch.
+---------
+
+# Apple's 10/10 Sci-Fi Series Is 1 of the Most-Watched Shows in the World
+
+TV, Silo
+
+Sun, 23 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/apple-tv-silo-sci-fi-nielsen-success-july-2026/
+
+The series has been divisive but it became a streaming hit nevertheless.
+---------
+
+# One Piece Unveils Portgas D. Ace's New York Knicks Design in Official NBA Crossover
+
+Anime, One Piece, merchandise, NBA
+
+Sun, 23 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/one-piece-portgas-d-ace-new-york-knicks-nba-design/
+
+The NBA officially welcomes Luffy's older brother, Portgas D. Ace, to its growing One Piece-themed "Master Stars" figure collection.
+---------
+
+# The Outlaw Josey Wales Has the Most Powerful Western Quote
+
+Movies, Western, The Outlaw Josey Wales, Clint Eastwood
+
+Sun, 23 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/the-outlaw-josey-wales-best-quote-western-history/
+
+As much as people love Tombstone, it was Clint Eastwood who gave the Western its darkest and powerful line of all time 50 years ago.
+---------
+
+# ‘Avengers: Doomsday’ Officially Tracks for $300M Opening Weekend on Pre-Sale Surge
+
+Movie News, Avengers: Doomsday, Box Office, Dune: Part Three, Robert Downey Jr
+
+Sun, 23 Aug 2026 21:00:11 GMT
+
+https://collider.com/avengers-doomsday-box-office-prediction-pre-sales-record/
+
+With months to go until its release, Avengers: Doomsday has set itself up for a massive box-office debut with stellar pre-sales numbers.
+---------
+
+# 5 Best Sam Peckinpah Western Movies
+
+Movie, The Wild Bunch, Sam Peckinpah, Pat Garrett & Billy the Kid, The Ballad of Cable Hogue
+
+Sun, 23 Aug 2026 20:56:11 GMT
+
+https://collider.com/best-sam-peckinpah-western-movies-ranked/
+
+Sam Peckinpah did some of his greatest work in the Western genre, as masterpieces like The Wild Bunch and Pat Garrett & Billy the Kid show.
+---------
+
+# 12 Years Ago, 'The X-Files' Had a Crossover With One of the Biggest Sci-Fi Films Ever
+
+Features, The X-Files, Sci-Fi, Ghostbusters
+
+Sun, 23 Aug 2026 21:00:14 GMT
+
+https://movieweb.com/the-x-files-ghostbusters-crossover/
+
+Mulder and Scully's paranormal investigations took a wild turn in a forgotten crossover with a beloved sci-fi franchise.
+---------
+
 # Downton Abbey's 10 Best Crawleys, Ranked
 
 Classic TV, Downton Abbey
