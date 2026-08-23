@@ -1,3 +1,69 @@
+# Batman & Robin Get Epic Sci-Fi Redesigns In New Superman Team-Up
+
+DC Comics, Batman, Robin
+
+Sun, 23 Aug 2026 19:30:15 GMT
+
+https://screenrant.com/batman-robin-sci-fi-redesigns-superman-teamup/
+
+DC reveals a first glimpse at Batman and Robin's futuristic, high-tech costumes for their new appearance in Superman's utopian timeline.
+---------
+
+# Prime Video's Reboot Of '80s Sci-Fi Classic Fills The Void Left By Westworld
+
+Streaming TV, Masked Recs
+
+Sun, 23 Aug 2026 19:30:15 GMT
+
+https://screenrant.com/robocop-prime-video-westworld-fill-void/
+
+Prime Video is working on a Robocop streaming series, and it could scratch the same itch as Westworld (but with a lot more gratuitous gore).
+---------
+
+# CBS' 7-Season Crime Drama Masterpiece Resurfaces as 1 of the Most Popular ShowsCBS' 7-Season Crime Drama Masterpiece Resurfaces as 1 of the Most Popular Shows
+
+TV, The Mentalist, CBS
+
+Sun, 23 Aug 2026 19:30:11 GMT
+
+https://www.cbr.com/cbs-the-mentalist-popularity-august-2026/
+
+CBS' crime drama The Mentalist has resurfaced as one of the most popular shows 11 years after it ended.
+---------
+
+# Dungeon Crawler Carl Officially Returns With New Release October 2026
+
+Games, Dungeon Crawler Carl
+
+Sun, 23 Aug 2026 19:20:11 GMT
+
+https://www.cbr.com/dungeon-crawler-carl-officially-returns-new-release-october-2026/
+
+Dungeon Crawler is back with an RPG fans won't want to miss.
+---------
+
+# This Fantasy Reimagining From ‘The Magicians’ Creator Deserves Its Own Miniseries
+
+TV Features, Lev Grossman, Books, The Magicians, Fantasy
+
+Sun, 23 Aug 2026 19:41:11 GMT
+
+https://collider.com/the-magicians-creator-lev-grossman-bright-sword-miniseries-adaptation/
+
+The Bright Sword, from The Magicians author Lev Grossman, deserves a TV adaptation with its fresh take on Arthurian legend.
+---------
+
+# 38 Years Later, Star-Studded Crime Thriller Returns With a New Release
+
+Movie News, Tequila Sunrise, Thriller
+
+Sun, 23 Aug 2026 19:30:14 GMT
+
+https://movieweb.com/tequila-sunrise-4k-arrow-video-release/
+
+Robert Towne's 1988 crime drama 'Tequila Sunrise' is returning in a new 4K UHD edition from Arrow Video.
+---------
+
 # Bruce Lee's 54-Year-Old Martial Arts Classic Created Another Action Movie Legend
 
 Movies, Bruce Lee, Chuck Norris, Enter the Dragon, The Way of the Dragon, Fist of Fury
