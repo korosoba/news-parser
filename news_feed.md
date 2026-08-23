@@ -1,3 +1,36 @@
+# Xbox Game Pass Adding Another Day-One Release On August 25
+
+Gaming, Xbox Game Pass
+
+Sun, 23 Aug 2026 09:00:15 GMT
+
+https://screenrant.com/xbox-game-pass-day-one-game-august-2026/
+
+Experience exciting action on Xbox Game Pass with this August 25 release. Discover fast-paced gameplay and unlockable characters!
+---------
+
+# Disney Officially Confirms New Hero for Its Villain-Inspired Anime Series
+
+TV News, Disney Twisted-Wonderland the Animation, Disney+, Fantasy, Anime
+
+Sun, 23 Aug 2026 09:20:11 GMT
+
+https://collider.com/disney-twisted-wonderland-season-2-new-hero-reveal/
+
+Get the latest on Disney Twisted-Wonderland Season 2, featuring a new protagonist and details on Savanaclaw.
+---------
+
+# The 76-Year-Old Masterpiece That Inspired Ridley Scott Is Officially Leaving HBO Max
+
+Movie News, HBO Max, The Last Duel, Rashomon, Akira Kurosawa
+
+Sun, 23 Aug 2026 09:00:11 GMT
+
+https://collider.com/akira-kurosawa-rashomon-leaving-hbo-max-spetember-2026/
+
+Ridley Scott drew heavily from a Japanese masterpiece for his period drama The Last Duel; the Japanese movie is now about to be removed from HBO Max.
+---------
+
 # Netflix Subscribers Officially Have 1 Week Left To Watch This 5-Part Sci-Fi Masterpiece
 
 TV News, Orphan Black, Severance, Netflix, Tatiana Maslany
