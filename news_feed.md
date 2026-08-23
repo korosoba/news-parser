@@ -1,3 +1,69 @@
+# The Princess Bride Meets Monty Python In Disney's Underrated 2-Part Fantasy Series
+
+Classic TV, Masked Recs
+
+Sun, 23 Aug 2026 11:00:15 GMT
+
+https://screenrant.com/galavant-princess-bride-meets-monty-python-disney/
+
+Disney’s 2-season underrated fantasy series is the perfect blend of The Princess Bride’s action-adventure and Monty Python’s satirical comedy.
+---------
+
+# Super Mario Galaxy 3 Leaves Gamers Split
+
+Gaming, Super Mario
+
+Sun, 23 Aug 2026 11:00:15 GMT
+
+https://screenrant.com/super-mario-fans-arent-sure-if-they-want-galaxy-3-or-something-completely-new/
+
+Debate among fans on whether to pursue Super Mario Galaxy 3 or a new adventure.
+---------
+
+# 10 Brilliant The Far Side Comics about Hunting, Ranked
+
+Comics, The Far Side
+
+Sun, 23 Aug 2026 11:00:11 GMT
+
+https://www.cbr.com/genius-the-far-side-comics-about-hunting-ranked/
+
+Being a strong advocate for animals and the environment, the dangers of hunting play a big role in Gary Larson's The Far Side cartoons.
+---------
+
+# 10 TV Shows Critics Obsess Over That Are Actually Pretty Bad
+
+TV, Television, Halo, Homeland, The Lord of the Rings: The Rings of Power
+
+Sun, 23 Aug 2026 11:09:11 GMT
+
+https://collider.com/shows-critics-love-actually-bad/
+
+From the video game adaptation Halo to the spy thriller Homeland, these TV shows are praised by critics, but in reality, they are mediocre at best.
+---------
+
+# Emma Stone's Genius Twisted Sci-Fi Masterpiece Is Officially HBO Max's Newest Hit
+
+Movie News, Emma Stone, Sci-Fi, HBO Max, Bugonia
+
+Sun, 23 Aug 2026 11:00:11 GMT
+
+https://collider.com/emma-stone-bugonia-streaming-hit-hbo-max-august-2026/
+
+Emma Stone's twisted sci-fi masterpiece alongside Jesse Plemons is HBO Max's newest hit. Read on for more details.
+---------
+
+# 10 Apple TV Shows That Are the Perfect Weekend Binge
+
+TV, Apple TV, Severance, Slow Horses, The Afterparty
+
+Sun, 23 Aug 2026 10:59:11 GMT
+
+https://collider.com/apple-tv-shows-perfect-weekend-binge/
+
+Discover addictive Apple TV shows perfect for binge-watching over a weekend, including Severance, Pluribus, and Slow Horses.
+---------
+
 # Project Zomboid Meets Stardew Valley In New Zombie Survival Game
 
 Gaming, Indie Games, PC, Stardew Valley, Project Zomboid
