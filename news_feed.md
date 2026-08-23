@@ -1,3 +1,113 @@
+# Bruce Lee's 54-Year-Old Martial Arts Classic Created Another Action Movie Legend
+
+Movies, Bruce Lee, Chuck Norris, Enter the Dragon, The Way of the Dragon, Fist of Fury
+
+Sun, 23 Aug 2026 19:10:15 GMT
+
+https://screenrant.com/the-way-of-the-dragon-movie-bruce-lee-chuck-norris/
+
+The Way of the Dragon contains arguably one of the finest fights in the martial arts genre, and introduced audiences to a budding action star.
+---------
+
+# The Witcher's RT Audience Score Collapsed To 20% & Season 4 Is Doubling Down On Criticisms
+
+Streaming TV, The Witcher
+
+Sun, 23 Aug 2026 19:00:15 GMT
+
+https://screenrant.com/the-witcher-rotten-tomatoes-audience-score-season-4-double-down/
+
+The Witcher's strong start has given way, with the unpopular fourth season setting a tone for the show that might yet be fixable in its final season.
+---------
+
+# 3 Rockstar Games That Are Perfect 10/10s
+
+Gaming, Rockstar Games, Grand Theft Auto 5, Red Dead Redemption 2, Bully
+
+Sun, 23 Aug 2026 19:00:15 GMT
+
+https://screenrant.com/rockstar-games-perfect-10s/
+
+Discover the three Rockstar Games titles that deserve a perfect score and why they are considered gaming masterpieces. Games worthy of your attention.
+---------
+
+# Task: HBO's 7-Part 96% RT Thriller Boasts One Of TV's Most Stacked Casts
+
+Streaming TV, Masked Recs
+
+Sun, 23 Aug 2026 18:57:15 GMT
+
+https://screenrant.com/hbo-task-series-best-cast/
+
+HBO has a vast library of modern masterpieces & all-time-great classic series, but Task, a near-perfect 7-part thriller, has one of its best casts.
+---------
+
+# 5 Complete Supernatural Anime Series That Are 10/10, No Notes
+
+Anime, Mob Psycho 100, Parasyte The Maxim
+
+Sun, 23 Aug 2026 19:15:11 GMT
+
+https://www.cbr.com/perfect-complete-supernatural-anime/
+
+There is no shortage of exciting, supernatural anime, but it's much rarer to find flawless series that also feature complete, satisfying conclusions!
+---------
+
+# Doctor Who Fan-Favorite Confirms Sad Truth About the New Doctor
+
+TV, Doctor Who
+
+Sun, 23 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/doctor-who-billie-piper-new-doctor-comments-sci-fi-convention/
+
+As the fate of Doctor Who hangs in the balance, one of the series' biggest stars might have delivered some disappointing news for fans.
+---------
+
+# New Attack on Titan Release Hit With Major Delay Over Production Issue
+
+Anime, Attack on Titan, merchandise, kodansha
+
+Sun, 23 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/attack-on-titan-definitive-edition-production-delay/
+
+A highly anticipated Attack on Titan release has been officially delayed, and fans now have no idea when they'll be able to get it.
+---------
+
+# 8 Old-School Sci-Fi Shows That Are Unwatchable, No Exceptions
+
+TV, Sci-Fi, Innovation, TekWar, Cleopatra 2525
+
+Sun, 23 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/unwatchable-old-school-sci-fi-shows-list/
+
+There is nothing like an old-school science fiction show to wrap you in nostalgia, but some classic oldies are absolutely unwatchable.
+---------
+
+# ‘Alien’ Meets ‘Black Hawk Down’ in the 10/10 Sci-Fi Thriller Officially Streaming on Netflix
+
+Movie News, Sci-Fi, District 9, Neill Blomkamp, Sharlto Copley
+
+Sun, 23 Aug 2026 19:00:11 GMT
+
+https://collider.com/district-9-streaming-netflix-august-2026/
+
+The Oscar-nominated sci-fi thriller District 9 is streaming on Netflix, bringing Neill Blomkamp’s acclaimed alien movie back to audiences.
+---------
+
+# All the "Stolen Lives" in Avengers: Doomsday, Ranked by How Dangerous They Are to The Multiverse
+
+Movie Lists, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sun, 23 Aug 2026 19:00:14 GMT
+
+https://movieweb.com/avengers-doomsday-stolen-lives/
+
+Through time travel, multiverse hopping, and cosmic resurrection, many MCU characters have cheated death...and Doctor Doom is coming for them.
+---------
+
 # Star Trek Meets Douglas Adams In The BBC's 74-Episode Sci-Fi Masterpiece
 
 Classic TV, Masked Recs
