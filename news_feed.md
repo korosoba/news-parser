@@ -1,3 +1,146 @@
+# Harry Potter’s Newest Star Was Almost Cast In The Title Role 26 Years Ago
+
+TV, Harry Potter
+
+Sun, 23 Aug 2026 21:30:15 GMT
+
+https://screenrant.com/harry-potter-new-casting-nicholas-hoult-almost-played-harry/
+
+As more cast members get added to HBO's new Harry Potter TV series, the franchise has stumbled upon its strangest casting coincidence yet.
+---------
+
+# Disney Has Three Competing Reboots Of One '90s Cartoon And None Are Greenlit
+
+Classic TV, Masked Recs
+
+Sun, 23 Aug 2026 21:30:15 GMT
+
+https://screenrant.com/disney-gargoyles-90s-show-reboot-plans-status/
+
+Gargoyles, a beloved '90s cartoon, could be coming back to animation or even live action if Disney decides to move forward with one of three options.
+---------
+
+# 5 Free Steam Games With Game Of Thrones Vibes
+
+Gaming, Game Of Thrones, Steam
+
+Sun, 23 Aug 2026 21:30:15 GMT
+
+https://screenrant.com/free-steam-games-like-game-of-thrones/
+
+From Westeros-inspired RPGs to massive medieval battles and political scheming, these five free Steam games bring plenty of Game of Thrones energy.
+---------
+
+# Jon Bernthal's Acclaimed 93% Crime Series Is Streaming On HBO Max Now
+
+TV, Masked Recs, We Own This City
+
+Sun, 23 Aug 2026 21:24:38 GMT
+
+https://screenrant.com/we-own-this-city-jon-bernthal-streaming-hbo-max/
+
+Jon Bernthal's acclaimed six-episode crime miniseries We Own This City, which holds a 93% Rotten Tomatoes score, is streaming on HBO Max now.
+---------
+
+# The DCU Has Shown Exactly Why Wonder Woman Can’t Debut Yet In Its First 6 Movies & Shows
+
+Movies, DC Universe, Wonder Woman
+
+Sun, 23 Aug 2026 21:15:14 GMT
+
+https://screenrant.com/dc-universe-wonder-woman-delay-wait-7-releases-sci-fi/
+
+The DC Universe's first roster of movies & shows serve to explain why it's not yet been the right time for the franchise to have Wonder Woman debut.
+---------
+
+# Hulu's Reboot of a Beloved Animated Series Is an Instant Streaming Hit After Perfect RT Score
+
+TV, King of the Hill
+
+Sun, 23 Aug 2026 21:30:11 GMT
+
+https://www.cbr.com/hulu-king-of-the-hill-nielsen-success-july-2026/
+
+The latest season of King of the Hill has once again found itself at the top of the charts following Season 15's critically acclaimed premiere.
+---------
+
+# George R. R. Martin's Elden Ring is Bigger Than Lord of the Rings
+
+Movies, Elden Ring, The Lord of the Rings
+
+Sun, 23 Aug 2026 21:30:11 GMT
+
+https://www.cbr.com/george-r-r-martin-elden-ring-movie-bigger-than-lord-of-the-rings/
+
+A new video game adaptation is coming to the screen, and it's already going to be bigger than Lord of the Rings.
+---------
+
+# 10 Anime to Watch If You Love Black Clover
+
+Anime, Black Clover
+
+Sun, 23 Aug 2026 21:15:11 GMT
+
+https://www.cbr.com/best-anime-if-you-love-black-clover/
+
+Black Clover is one of the most celebrated shonen anime in recent years, and for those looking for similar series, there are plenty to fill the void.
+---------
+
+# 8 Must-Watch 1950s Movies, Ranked
+
+Movie, 12 Angry Men, All About Eve, Seven Samurai, Classics
+
+Sun, 23 Aug 2026 21:42:11 GMT
+
+https://collider.com/best-1950s-movies-must-watch-ranked/
+
+All-time classics like All About Eve, Seven Samurai, and 12 Angry Men rank among the best, must-watch movies of the 1950s.
+---------
+
+# ‘Marshals’ Star Goes Full ‘John Wick’ in Brutal Cyberpunk Thriller Officially Streaming on Netflix
+
+Movie News, Upgrade, Sci-Fi, Leigh Whannell, Logan Marshall-Green
+
+Sun, 23 Aug 2026 21:30:11 GMT
+
+https://collider.com/upgrade-logan-marshall-green-netflix-streaming-august-2026/
+
+Upgrade, Blumhouse’s brutal 100-minute cyberpunk action thriller with Marshal's star Logan Marshall-Green, is streaming on Netflix.
+---------
+
+# Harlan Coben’s History-Making Netflix Hit Is Officially Dominating the Streaming Charts
+
+TV News, Harlan Coben, I Will Find You, Netflix, Streaming
+
+Sun, 23 Aug 2026 21:15:11 GMT
+
+https://collider.com/i-will-find-you-streaming-hit-netflix-august-2026/
+
+Harlan Coben's history-making new adaptation, starring Sam Worthington, is still a streaming hit. Here's everything you should know.
+---------
+
+# 'The Rookie's Breakout Character Deserves More Credit
+
+TV Features, The Rookie, ABC, Jenna Dewan, Procedural
+
+Sun, 23 Aug 2026 21:14:11 GMT
+
+https://collider.com/the-rookie-bailey-nune-jenna-dewan/
+
+Bailey Nune joined The Rookie in Season 3 and despite some rough development at first, she's evolved into one of the show's strongest characters.
+---------
+
+# Prime Video's Long-Awaited Fantasy Epic Will Make 'House of the Dragon' Feel Small
+
+Features, House of the Dragon, Fourth Wing, Fantasy
+
+Sun, 23 Aug 2026 21:30:14 GMT
+
+https://movieweb.com/fourth-wing-prime-video-house-of-the-dragon-comparison/
+
+Prime Video's long-awaited dragon series will make 'House of the Dragon' feel small, mostly because it has a few extra things going for it.
+---------
+
 # 12 Greatest Square Enix Games Of All Time
 
 Gaming, Square Enix, Triple-A Games
