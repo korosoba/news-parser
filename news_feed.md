@@ -1,3 +1,157 @@
+# The MCU Just Kicked Off a Dark New Era for The Hulk (& It Could Finally Mean World War Hulk)
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, World War Hulk
+
+Sun, 23 Aug 2026 18:05:15 GMT
+
+https://screenrant.com/spider-man-brand-new-day-world-war-hulk-setup-explained/
+
+18 years after the Hulk became part of the MCU, we're finally perfectly set up for a World War Hulk movie thanks to Spider-Man: Brand New Day.
+---------
+
+# Taylor Sheridan's The Madison Needs To Switch Genres In Season 2
+
+Streaming TV, The Madison
+
+Sun, 23 Aug 2026 18:00:15 GMT
+
+https://screenrant.com/the-madison-season-2-change-genre/
+
+Taylor Sheridan's grief-heavy drama series would benefit from leaning more into its lighter side ahead of its upcoming sophomore season.
+---------
+
+# 6 Games To Play If You're A Fan Of The Expanse
+
+Gaming, The Expanse, Mass Effect, Starfield, PC
+
+Sun, 23 Aug 2026 18:00:15 GMT
+
+https://screenrant.com/best-games-like-the-expanse/
+
+Fans of The Expanse looking for a game to fill the void now that the show has ended should check out these amazing games.
+---------
+
+# 36 Years Later, The Far Side’s Last Comic Remains Undefeated in Comic Strip History
+
+Comics, The Far Side
+
+Sun, 23 Aug 2026 17:58:39 GMT
+
+https://screenrant.com/far-side-last-best-all-time-comic-strip/
+
+Despite being 31 years old, Gary Larson's final Far Side comic remains undefeated as the most iconic comic strip ending of all time.
+---------
+
+# 11 Years Later, Ahsoka’s Greatest Star Wars Line Will Be Undone (Theory Explained)
+
+Star Wars, Ahsoka, Star Wars Rebels
+
+Sun, 23 Aug 2026 17:45:15 GMT
+
+https://screenrant.com/ahsoka-season-2-jedi-quote-star-wars-theory/
+
+Over a decade later, I truly believe that we're about to see one of Ahsoka Tano's greatest Star Wars being completely undone in Ahsoka season 2.
+---------
+
+# Christopher Abbott’s Professor X Powers Up Cerebro In New MCU X-Men Art
+
+Movies, X-Men, Christopher Abbott, Marvel Cinematic Universe
+
+Sun, 23 Aug 2026 17:43:29 GMT
+
+https://screenrant.com/marvel-studios-x-men-movie-christopher-abbott-professor-x-concept-art/
+
+Christopher Abbott has been tapped to play the MCU's Professor X, and there's new fan art depicting what he might look like in the X-Men reboot.
+---------
+
+# Michael Jackson's Biopic Sequel Will Give More "Insight" Into Abuse Allegations
+
+Movies, Michael
+
+Sun, 23 Aug 2026 17:42:49 GMT
+
+https://screenrant.com/michael-jackson-biopic-sequel-abuse-allegations-jaafar-jackson/
+
+Michael 2 will finally confront some major issues, as Jaafar Jackson confirms that the biopic's sequel will address the abuse allegations.
+---------
+
+# 5 Isekai Anime That Are Perfectly Written
+
+Anime, Re:Zero -Starting Life in Another World-, Ascendance of a Bookworm, Isekai
+
+Sun, 23 Aug 2026 18:15:11 GMT
+
+https://www.cbr.com/isekai-anime-that-are-perfectly-written/
+
+These isekai anime go beyond common tropes with intelligent writing, compelling characters, and unforgettable stories.
+---------
+
+# Netflix Scores New No. 1 With 'Easy-to-Follow' Sicario Replacement
+
+Movies, Facing El Chapo, Netflix
+
+Sun, 23 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/facing-el-chapo-netflix-success-august-2026/
+
+A brand-new crime thriller is dominating Netflix's charts.
+---------
+
+# Canceled Yellowstone Spinoff Confirms Physical Release in 2 Months
+
+TV, The Madison
+
+Sun, 23 Aug 2026 17:54:43 GMT
+
+https://www.cbr.com/the-madison-season-1-dvd-blu-ray-october-2026/
+
+The Yellowstone universe is still expanding, but one show was dropped from under its umbrella.
+---------
+
+# The Making of an Abbott Elementary Episode: 400 Extras, A Real Ball Game and an Elite Cast
+
+TV, Abbott Elementary
+
+Sun, 23 Aug 2026 18:15:11 GMT
+
+https://collider.com/video/the-making-of-an-abbott-elementary-episode-400-extras-a-real-ball-game-and-an-elite-cast/
+
+Randal Einhorn breaks down filming Abbott Elementary at a live baseball game, where the production had to coordinate 400 extras, multiple cameras, more than 70 planned whip pans, and a game they couldn’t control. He explains how Kyle Schwarber’s real home runs gave the cast genuine reactions that ultimately made it into the episode — including a memorable look from Sheryl Lee Ralph.
+---------
+
+# Florence Pugh’s Thriller That Officially Proved She’s the “Best of Her Generation” Is Back on Top
+
+Movie News, Florence Pugh, Avengers: Doomsday, Don't Worry Darling, HBO Max
+
+Sun, 23 Aug 2026 18:00:11 GMT
+
+https://collider.com/dont-worry-darling-streaming-hit-hbo-max-august-2026/
+
+Florence Pugh's controversial thriller with Harry Styles is a big streaming hit ahead of Avengers: Doomsday. Read on for more details.
+---------
+
+# The MCU's New Era Owes Everything to HBO’s Best 6-Season Dramedy
+
+TV Features, Girls, Adam Driver, Christopher Abbott, Ebon Moss-Bachrach
+
+Sun, 23 Aug 2026 17:58:11 GMT
+
+https://collider.com/mcu-xmen-cast-girls-hbo/
+
+The MCU's new X-Men cast wouldn't have been possible without HBO's Girls starting it all.
+---------
+
+# The 10 Best Peanuts Comic Strips of the 1960s, Ranked
+
+Movie Lists, Peanuts, comics
+
+Sun, 23 Aug 2026 18:00:13 GMT
+
+https://movieweb.com/best-peanuts-comic-strips-1960s/
+
+These are the 10 best Peanuts comic strips of the 1960s, ranked for their enduring commentary on childhood and timeless sense of humor.
+---------
+
 # Pluribus Season 2’s Progress Gets The Best Update Yet From Vince Gilligan
 
 TV, Pluribus, Pluribus - Season 2
