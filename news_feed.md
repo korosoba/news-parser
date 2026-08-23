@@ -1,3 +1,91 @@
+# Apple TV’s Murderbot Season 2 Gets Major Filming Update After Adding 25 To Cast
+
+TV, Murderbot
+
+Sun, 23 Aug 2026 15:37:25 GMT
+
+https://screenrant.com/murderbot-season-2-filming-start-apple-tv-confirmed/
+
+Following the announcement that Michael Sheen and 24 other actors are joining the season 2 cast, Murderbot received a major filming update.
+---------
+
+# Spider-Man: Brand New Day Box Office Swings Past Star Wars' Biggest Hit On All-Time Chart
+
+Superheroes, Box Office, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Sun, 23 Aug 2026 15:35:49 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-week-4-global-chart-report/
+
+Spider-Man: Brand New Day climbs the chart of the highest-grossing movies of all time by outgrossing the biggest Star Wars movie in history.
+---------
+
+# Will Avengers: Doomsday Beat Spider-Man: Brand New Day's Box Office?
+
+Superheroes, Avengers: Doomsday, Spider-Man: Brand New Day, Marvel Cinematic Universe, Box Office
+
+Sun, 23 Aug 2026 15:30:15 GMT
+
+https://screenrant.com/avengers-doomsday-beat-spiderman-brand-new-day-box-office/
+
+Spider-Man: Brand New Day has been a global box office sensation, making it a real challenge for Avengers: Doomsday to beat. So will it?
+---------
+
+# Shameless Ending Explained: Frank's Death & What Happens To The Other Gallaghers
+
+Classic TV, Shameless
+
+Sun, 23 Aug 2026 15:30:15 GMT
+
+https://screenrant.com/shameless-season-11-ending-explained-frank-death-song/
+
+A decade of South Side chaos came to a close in the Shameless season 11 finale. Here's what happened to Frank Gallagher and his kids in the end.
+---------
+
+# 10 Strongest Eye Abilities in Anime, Ranked
+
+Anime, Naruto, My Hero Academia, Jujutsu Kaisen, Code Geass: Lelouch of the Rebellion
+
+Sun, 23 Aug 2026 15:15:11 GMT
+
+https://www.cbr.com/strongest-eye-abilities-in-anime-ranked/
+
+Eye abilities are some of the most exciting in anime, and while there are plenty to go around, there are only a few that can be considered strongest.
+---------
+
+# Jason Statham’s New $40M Action Movie Officially Hits a Box Office Roadblock
+
+Movie News, Jason Statham, Mutiny, Box Office, Action
+
+Sun, 23 Aug 2026 15:30:11 GMT
+
+https://collider.com/mutiny-jason-statham-box-office-2026-underperformer/
+
+Jason Statham’s $40 million action thriller Mutiny faces a disappointing box office start following his earlier 2026 release Shelter.
+---------
+
+# Jason Statham Joins Forces With Unique Female Action Hero Lead in New 95-Minute Action Thriller
+
+Movie News, Mutiny, Action, Jason Statham, Annabelle Wallis
+
+Sun, 23 Aug 2026 15:30:14 GMT
+
+https://movieweb.com/jason-statham-mutiny-annabelle-wallis-action-hero/
+
+Jason Statham's new action partner is no sidekick.
+---------
+
+# 70 Years Later, Landmark Sci-Fi Film Officially Returns With New Release
+
+Movie News, Forbidden Planet, Sci-Fi
+
+Sun, 23 Aug 2026 15:30:09 GMT
+
+https://movieweb.com/forbidden-planet-4k-70th-anniversary-release/
+
+Arrow Video is releasing 'Forbidden Planet' on limited edition 4K UHD on Sept. 29, with a new restoration of the 1956 sci-fi classic.
+---------
+
 # 100 Years Later, An American Literary Masterpiece Gets A Complete Overhaul On October 13
 
 Books
