@@ -1,3 +1,124 @@
+# Stardew Valley Meets Valheim In New Open-World Sandbox You Can Play Free Now
+
+Gaming, Stardew Valley, Valheim, PC
+
+Sun, 23 Aug 2026 14:40:55 GMT
+
+https://screenrant.com/stardew-valley-meets-valheim-delverium-free-demo/
+
+This game mixes Stardew Valley-style farming with Valheim-inspired survival and dungeon crawling, with co-op, crafting, and procedural worlds.
+---------
+
+# 10 Movies To Watch If You Love Insidious
+
+Movies, Insidious
+
+Sun, 23 Aug 2026 14:40:15 GMT
+
+https://screenrant.com/movies-like-insidious-movie/
+
+Loved Insidious for its supernatural twists? These 10 horror movies will leave you wondering what you're watching.
+---------
+
+# One Piece Announces Two New Movies In End Of A 27 Year Tradition
+
+Anime, One Piece
+
+Sun, 23 Aug 2026 14:39:44 GMT
+
+https://screenrant.com/one-piece-god-valley-baad-two-movies-end-era/
+
+Nearly four years after Film Red, One Piece has finally announced its next return to theaters, and it's doing so with not just one but two movies.
+---------
+
+# The Mandalorian & Grogu Needed The Villain Twist We All Thought Would Happen
+
+Movies, The Mandalorian and Grogu
+
+Sun, 23 Aug 2026 14:32:15 GMT
+
+https://screenrant.com/star-wars-the-mandalorian-and-grogu-need-sigourney-weaver-villain-twist/
+
+Sigourney Weaver's Mandalorian and Grogu character would've been a lot more interesting if she was a secret villain who betrayed Mando.
+---------
+
+# Why Jon Snow's "Fire Wight" Resurrection In Winds Of Winter Will Shock Game Of Thrones Fans
+
+Books, The Winds of Winter, Game of Thrones
+
+Sun, 23 Aug 2026 14:30:14 GMT
+
+https://screenrant.com/the-winds-of-winter-book-jon-snow-resurrection-wight-game-of-thrones/
+
+Jon Snow returned from the dead in Game of Thrones season 6, but the story will likely be quite different in George R.R. Martin's The Winds of Winter.
+---------
+
+# Dark Matter Author Blake Crouch Teases New Sci-Fi Books Ahead Of Apple TV Return
+
+Books, Dark Matter
+
+Sun, 23 Aug 2026 14:24:04 GMT
+
+https://screenrant.com/blake-crouch-new-sci-fi-books-tease/
+
+Before Dark Matter season 2 makes its Apple TV debut on August 28, author and series creator Blake Crouch teases new sci-fi books on the way.
+---------
+
+# Former MCU Star Reveals Near-Casting As Professor X For X-Men Reboot
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Sun, 23 Aug 2026 14:16:55 GMT
+
+https://screenrant.com/xmen-professor-x-near-casting-tom-pelphrey-mcu/
+
+After having already been in the MCU, a former star of the franchise confirms he was very close to being cast as Professor X in the X-Men reboot.
+---------
+
+# Harry Potter's Highest-Grossing Film Officially Gets Hexed at the Box Office by 'The Odyssey'
+
+Movie News, Harry Potter and the Deathly Hallows - Part 2, The Odyssey, Box Office, Christopher Nolan
+
+Sun, 23 Aug 2026 14:45:11 GMT
+
+https://collider.com/the-odyssey-worldwide-box-office-overtakes-harry-potter-deathly-hallows-part-2/
+
+Christopher Nolan’s The Odyssey officially passes Harry Potter and the Deathly Hallows — Part 2 at the worldwide box office.
+---------
+
+# 9 Netflix Movies That Are 10/10, No Notes
+
+Movie, Netflix, KPop Demon Hunters, The Ritual, Rebel Ridge
+
+Sun, 23 Aug 2026 14:33:11 GMT
+
+https://collider.com/netflix-movies-perfect-no-notes/
+
+From the animated musical sensation KPop Demon Hunters to Aaron Pierre's action thriller Rebel Ridge, these Netflix movies are genuinely flawless.
+---------
+
+# George R.R. Martin’s Forgotten Vampire Novel Deserves a Second Life
+
+Books and Comics, George R.R. Martin, Vampire, Horror, Books
+
+Sun, 23 Aug 2026 14:27:11 GMT
+
+https://collider.com/george-rr-martin-fevre-dream-vampire-novel/
+
+Long before Game of Thrones, George R.R. Martin reinvented the vampire with his historical horror novel, Fevre Dream.
+---------
+
+# The Biggest 'Star Wars' Movie of All Time Is About to Be Dethroned by Jon Bernthal's New Action Movie
+
+Movie News, Star Wars: The Force Awakens, Sci-Fi, Action
+
+Sun, 23 Aug 2026 14:30:13 GMT
+
+https://movieweb.com/spider-man-brand-new-day-star-wars-box-office/
+
+'Spider-Man: Brand New Day' is now within striking distance of 'Star Wars: The Force Awakens' on the all-time global box office chart.
+---------
+
 # Insidious Meets The Exorcist In 2026's Terrifying New Horror Praised By Stephen King
 
 Movies, Masked Recs
