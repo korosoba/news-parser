@@ -1,3 +1,190 @@
+# Warner Bros.’ 110-Episode Space Opera Remains Light Years Ahead Of Its Time
+
+Classic TV, Masked Recs
+
+Sun, 23 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/babylon-5-light-years-ahead-space-opera/
+
+One of the greatest space operas from the 1990s is still so compelling to watch that it is hard not to see how it was light years ahead of its time.
+---------
+
+# Seinfeld And Friends' Crossover Had the Darkest Condition in Sitcom History
+
+TV, Seinfeld, Friends
+
+Sun, 23 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/seinfeld-friends-crossover-dark-requirement-kill-ross/
+
+It would have been a killer crossover... literally!
+---------
+
+# 7 Unadaptable Fantasy Novels Too Good For TV
+
+Books
+
+Sun, 23 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/best-unadaptable-fantasy-novels/
+
+Not every popular fantasy series needs to be adapted to screen, and after The Wheel of Time's cancellation, some are better left on the page.
+---------
+
+# 10 Best Westerns Of The 1930s That Are Still Worth Watching Today
+
+Movies, Western, Ranking
+
+Sun, 23 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/best-western-movies-1930s-ranked/
+
+Though some of these films are nearing their 100th birthday, these 10 classic westerns from the 1930s are still worth watching today.
+---------
+
+# 8 Must-Watch Movies Leaving Hulu In September (#1 Is Will Smith's $817M Sci-Fi Blockbuster)
+
+Movies, Hulu, What to Watch on Hulu
+
+Sun, 23 Aug 2026 11:57:15 GMT
+
+https://screenrant.com/movies-leaving-hulu-september-2026/
+
+These 8 must-watch movies are leaving Hulu in September 2026, including Independence Day, Dirty Dancing, Bad Boys and more.
+---------
+
+# James Bond Sequel Officially Gets Title and Release Date Ahead of Reboot
+
+Movies, James Bond, daniel craig, Action
+
+Sun, 23 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/james-bond-sequel-king-zero-title-release-date/
+
+The next chapter of James Bond's story has been revealed.
+---------
+
+# Supernatural Officially Confirms Sam Winchester's Return After the Series Finale
+
+Comics, Supernatural
+
+Sun, 23 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/supernatural-sam-winchester-returns-solo-series/
+
+Supernatural is back...but this time, Sam Winchester is going on a solo mission.
+---------
+
+# The 10 Greatest Fantasy Books of the Last 20 Years, Ranked
+
+TV, Game Of Thrones, The Wheel of Time, Books, Fantasy
+
+Sun, 23 Aug 2026 12:21:11 GMT
+
+https://collider.com/best-fantasy-books-last-20-years-ranked/
+
+Explore the best fantasy books from the last 20 years, highlighting novels with unique plots and characters, from Oathbringer to A Dance with Dragons.
+---------
+
+# ‘Spa Weekend’s Directors Reveal the “Dark and Weird” Scene They Had To Cut From the Movie
+
+Interviews, Spa Weekend, Jon Lucas, Scott Moore, Comedy
+
+Sun, 23 Aug 2026 12:15:11 GMT
+
+https://collider.com/spa-weekend-directors-scott-moore-jon-lucas-producer-suzanne-todd-interview/
+
+Spa Weekend producer Suzanne Todd and directors Jon Lucas and Scott Moore reveal the scene they had to cut from the film and the art of bloopers.
+---------
+
+# ‘Dune: Part Three’ Is Already Breaking Franchise Records Before It Opens
+
+Movie News, Avengers: Doomsday, Dune: Part Three, Box Office, Denis Villeneuve
+
+Sun, 23 Aug 2026 12:00:11 GMT
+
+https://collider.com/dune-part-three-box-office-projections-pre-sales-franchise-record/
+
+Denis Villeneuve's Dune: Part Three is eyeing a franchise-record opening-weekend haul at the box office after bumper pre-sales revenue.
+---------
+
+# Forget 'Game of Thrones,' This 10/10 Historical Dragon Fantasy Adaptation Needs to Finally Happen
+
+TV Features, Fantasy, Game Of Thrones
+
+Sun, 23 Aug 2026 11:57:11 GMT
+
+https://collider.com/temeraire-book-series-noami-novik-historical-fantasy/
+
+Naomi Novik's Temeraire series delivers a unique take on dragons, and the iconic book series deserves a television adaptation now more than ever.
+---------
+
+# Prime Videos's Hit Thriller Quietly Changed a 23-Year-Old Franchise's Formula
+
+Movie Features, Wrong Turn, Horror, Matthew Modine
+
+Sun, 23 Aug 2026 11:57:11 GMT
+
+https://collider.com/wrong-turn-remake-2021-streaming-prime-video-august-2026/
+
+2021's Wrong Turn, now climbing the Prime Video streaming charts, takes the 23-year-old slasher franchise in a vicious new direction.
+---------
+
+# James Gunn's Decade-Defining Flop Is Officially a Hit on Netflix
+
+Movie News, James Gunn, Supergirl, The Suicide Squad, Netflix
+
+Sun, 23 Aug 2026 11:45:11 GMT
+
+https://collider.com/james-gunn-the-suicide-squad-streaming-hit-netflix-august-2026/
+
+Forget Supergirl, James Gunn's biggest flop of the decade, starring Margot Robbie, is a hit on Netflix. Here's everything you should know.
+---------
+
+# 10 Greatest Upstairs-Downstairs Movies of All Time
+
+Movie, Gosford Park, Parasite, The Grand Budapest Hotel, The Remains of the Day
+
+Sun, 23 Aug 2026 11:44:11 GMT
+
+https://collider.com/best-upstairs-downstairs-movies-all-time-ranked/
+
+Whether it's Gosford Park or Parasite, these are the best movies that explore the complex, layered dynamics between rich employers and their servants.
+---------
+
+# Peacock’s ‘Reacher’-Inspired Spy Thriller Is the Perfect Weekend Binge Before Season 2
+
+TV Features, The Day of the Jackal, Peacock, Reacher, Series
+
+Sun, 23 Aug 2026 11:43:11 GMT
+
+https://collider.com/reacher-replacement-series-peacock-day-of-the-jackal-thriller/
+
+Peacock’s The Day of the Jackal is a gripping spy thriller starring Eddie Redmayne and Lashana Lynch. Here’s why it’s worth watching.
+---------
+
+# Leonardo DiCaprio's Epic 168-Minute Crime Thriller Fights Its Way Onto New Streaming Home
+
+Movie News, Leonardo DiCaprio, Gangs of New York, Coming/Leaving Streaming, Crime
+
+Sun, 23 Aug 2026 12:00:14 GMT
+
+https://movieweb.com/leonardo-dicaprio-gangs-of-new-york-stream-free-tubi-september-2026/
+
+Nominated for 10 Academy Awards, the film was shut out at the 2003 ceremony, but it still remains one of DiCaprio and Scorsese's very best.
+---------
+
+# Every Upcoming Pixar Movie in 2027 & Beyond
+
+Movie Lists, D23, Pixar, Gatto
+
+Sun, 23 Aug 2026 12:00:14 GMT
+
+https://movieweb.com/every-upcoming-pixar-movie-2027-beyond/
+
+From 'Gatto' to 'Monsters, Inc. 3', here's everything you can expect from Pixar in the coming years.
+---------
+
 # 6 HBO Shows That Deserve to Be Called Classics
 
 TV, hbo, Game Of Thrones, The Sopranos, Innovation
