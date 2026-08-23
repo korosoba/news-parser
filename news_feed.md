@@ -1,3 +1,124 @@
+# Downton Abbey's 10 Best Crawleys, Ranked
+
+Classic TV, Downton Abbey
+
+Sun, 23 Aug 2026 20:30:15 GMT
+
+https://screenrant.com/downton-abbey-best-crawley-family-characters/
+
+The Crawley family is the heart of Downton Abbey. Not all characters were created equal, though; some were more memorable and impactful than others.
+---------
+
+# Christian Bale & Nicolas Cage's New Prime Video Movie Officially Stamped With R-Rating
+
+Movies, Madden, Prime Video, Christian Bale, Nicolas Cage
+
+Sun, 23 Aug 2026 20:23:04 GMT
+
+https://screenrant.com/prime-video-madden-movie-mpa-rating-christian-bale-nicolas-cage/
+
+Prime Video's new movie starring Christian Bale and Nicolas Cage finally secures an MPA, but it will be rated R despite its November release.
+---------
+
+# The Walking Dead Meets Valheim in New Open-World Survival Game You Can Try Free
+
+Games, Steam, Indie Games, Zombie
+
+Sun, 23 Aug 2026 20:40:11 GMT
+
+https://www.cbr.com/games-like-valheim-new-open-world-survival-game-free/
+
+Try The Last Disease Z for free, and explore a sprawling infected landscape and scavenge for resources in this open-world homage to The Walking Dead.
+---------
+
+# Star Trek's 89% RT Modern Classic Quietly Killed the Biggest Fumble in Sci-Fi History
+
+TV, Star Trek: Picard, Sci-Fi, Paramount
+
+Sun, 23 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/star-trek-picard-killed-biggest-sci-fi-bumble/
+
+Long-running sci-fi series can lean too much into fan service, but this Star Trek show eventually found the right way to balance it with new ideas.
+---------
+
+# What's Coming to Tubi in September 2026? Full List
+
+TV, Tubi
+
+Sun, 23 Aug 2026 20:23:33 GMT
+
+https://www.cbr.com/what-coming-tubi-september-2026-full-list/
+
+Tons of excellent additions are coming to Tubi in September.
+---------
+
+# Nathan Fillion Confirms Much-Needed Green Lantern Upgrade in Man of Tomorrow
+
+Movies, Man of Tomorrow
+
+Sun, 23 Aug 2026 20:20:37 GMT
+
+https://www.cbr.com/man-of-tomorrow-nathan-fillion-guy-gardner-haircut/
+
+After his appearance in Lanterns, Guy Gardner is getting the upgrade he badly needs in Man of Tomorrow.
+---------
+
+# 10 Best Complete Anime Series Since 2010, Ranked
+
+Anime, Attack On Titan, Steins;Gate, Mob Psycho 100
+
+Sun, 23 Aug 2026 20:15:11 GMT
+
+https://www.cbr.com/best-complete-anime-since-2010-ranked/
+
+These modern, completed anime series prove that the best stories can stick the landing and leave a lasting impression.
+---------
+
+# HBO’s 10-Part World War II Epic Went Even Darker Than ‘Band of Brothers’
+
+TV Features, Band of Brothers, Masters of the Air, The Pacific, HBO
+
+Sun, 23 Aug 2026 20:43:11 GMT
+
+https://collider.com/band-of-brothers-spinoff-the-pacific-true-story-details/
+
+HBO’s The Pacific tells the harrowing true stories of Marines Robert Leckie, Eugene Sledge, and John Basilone during World War II.
+---------
+
+# Netflix’s Perfect ‘Bridgerton’ Replacement Is Officially Taking Over
+
+TV News, Bridgerton, My Brilliant Career, Netflix, Streaming
+
+Sun, 23 Aug 2026 20:30:11 GMT
+
+https://collider.com/my-brilliant-career-streaming-hit-netflix-august-2026/
+
+My Brilliant Career, a perfect Bridgerton replacement, is officially taking over Netflix. Read on for more details.
+---------
+
+# Jeff Buckley's 'Grace' Officially Remains One of the Greatest Rock Albums of the 1990s
+
+Music Features, Jeff Buckley - Live in Chicago, Music, Rock
+
+Sun, 23 Aug 2026 20:13:35 GMT
+
+https://collider.com/jeff-buckley-grace-greatest-rock-albums-1990s/
+
+Jeff Buckley’s Grace remains one of the greatest and most influential rock albums of the 1990s, decades after its release.
+---------
+
+# 8 'House of the Dragon' Changes That Are Better Than the Books
+
+TV Lists, House of the Dragon, Game of Thrones, Game Of Thrones
+
+Sun, 23 Aug 2026 20:30:13 GMT
+
+https://movieweb.com/house-of-the-dragon-changes-better-fire-blood-book/
+
+'House of the Dragon' makes some notable changes to 'Fire & Blood,' and the best of them manage to improve on George R.R. Martin's book.
+---------
+
 # The Lord Of The Rings Has Found Its Perfect Next TV Show
 
 Streaming TV, The Lord of the Rings
