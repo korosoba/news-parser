@@ -1,3 +1,135 @@
+# The Lord Of The Rings Has Found Its Perfect Next TV Show
+
+Streaming TV, The Lord of the Rings
+
+Sun, 23 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/lord-of-the-rings-war-in-north-perfect-tv-show/
+
+Lord of the Rings has found great success in the realm of TV and could continue this with one project that suits the small-screen medium perfectly.
+---------
+
+# After 26 Years, The PS1's Best RPG Deserves A Remake
+
+Gaming, PlayStation (Original), Triple-A Games
+
+Sun, 23 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/legend-of-dragoon-remake-best-ps1-game/
+
+If you've been avoiding this classic PlayStation 1 RPG for all this time, you should not only check it out, but ask for a remake.
+---------
+
+# Ridley Scott Is Determined To Break A 49-Year-Old Directing Streak
+
+Movies, Ridley Scott
+
+Sun, 23 Aug 2026 19:55:14 GMT
+
+https://screenrant.com/ridley-scott-first-western-movie-details-explained/
+
+EXCLUSIVE: After 49 years of directing beloved movies like Alien, Blade Runner, Thelma and Louise, and Gladiator, Ridley Scott explores a new genre.
+---------
+
+# 8 Oldest X-Men Characters Still Missing From Marvel Movies
+
+Movies, X-Men, Marvel, Marvel Cinematic Universe
+
+Sun, 23 Aug 2026 19:49:15 GMT
+
+https://screenrant.com/oldest-xmen-characters-still-missing-marvel-movies/
+
+From Mastermind to Sauron, these 8 early X-Men characters have existed since the 1960s but still haven't appeared in a Marvel movie.
+---------
+
+# 44 Years Later, Blade Runner's Best Quote Remains The Greatest Line In Sci-Fi Movie History
+
+Movies, Masked Recs
+
+Sun, 23 Aug 2026 19:42:24 GMT
+
+https://screenrant.com/blade-runner-movie-best-quote-sci-fi-genre-history/
+
+The Blade Runner franchise will soon continue with a Prime Video series, and Harrison Ford's original continues to have the best sci-fi movie quote.
+---------
+
+# Ryan Hurst's 113-Minute Drama Returns as a Streaming Hit After God of War Recast
+
+Movies, Remember the Titans, God of War
+
+Sun, 23 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/ryan-hurst-remember-the-titans-apple-tv-digital-success-august-2026/
+
+One of Hurst's most memorable movies is getting some newfound love on streaming.
+---------
+
+# 10 Greatest Movie Sequels of the 21st Century, Ranked
+
+Movies
+
+Sun, 23 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/greatest-movie-sequels-21st-century-list-ranked/
+
+Some sequels are even better than the original. These are the very best follow-ups released in the last twenty-six years.
+---------
+
+# Nearly 45 Years Later, This Marvel Epic Still Defines the X-Men
+
+Comics, X-Men, graphic novels, Chris Claremont's X-Men
+
+Sun, 23 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/chris-claremont-change-x-men-lore-forever/
+
+The classic X-Men graphic novel God Loves, Man Kills remains one of the genre's best works and a significant revelation courtesy of Chris Claremont.
+---------
+
+# Marvel Officially Teases Rogue and Gambit's Next Adventure Will End in Tragedy
+
+Books and Comics News, X-Men, Marvel Comics, Marvel, Comics
+
+Sun, 23 Aug 2026 20:00:11 GMT
+
+https://collider.com/marvel-gambit-gone-comic-release-november-2026/
+
+Gambit and Rogue team up for the heist of a lifetime, which may end in disastrous results, in Marvel's new X-Men release. Find out more here.
+---------
+
+# HBO’s Sci-Fi Detective Series ‘Lanterns’ Almost Made a Huge Mistake With Its Premiere
+
+TV Features, Lanterns, HBO Max, Kyle Chandler, Aaron Pierre
+
+Sun, 23 Aug 2026 19:55:11 GMT
+
+https://collider.com/hbo-lanterns-premiere-original-ending-death-sheriff-kane-meaning/
+
+Lanterns might have shocked fans with its premiere episode, but it thankfully sidestepped a cliché that's plagued superhero fiction.
+---------
+
+# Netflix's 10-Part Sci-Fi Action Masterpiece Officially Returns to Streaming in Two Months
+
+TV News, Cyberpunk: Edgerunners, Netflix, Coming/Leaving Streaming, Sci-Fi
+
+Sun, 23 Aug 2026 20:00:14 GMT
+
+https://movieweb.com/cyberpunk-edgerunners-season-2-scifi-netflix-return/
+
+The best sci-fi series on Netflix is gearing up for its second season.
+---------
+
+# Taylor Sheridan's Greatest Neo-Western Yet Officially Beats 'Yellowstone' at Its Own Game
+
+Features, Yellowstone, The Madison, Taylor Sheridan, Western
+
+Sun, 23 Aug 2026 20:00:14 GMT
+
+https://movieweb.com/the-madison-better-than-yellowstone/
+
+'Yellowstone' has been over for almost two years, but it's left a hole that multiple creators and streaming services want to fill.
+---------
+
 # Batman & Robin Get Epic Sci-Fi Redesigns In New Superman Team-Up
 
 DC Comics, Batman, Robin
