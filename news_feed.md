@@ -1,3 +1,91 @@
+# 100 Years Later, An American Literary Masterpiece Gets A Complete Overhaul On October 13
+
+Books
+
+Sun, 23 Aug 2026 15:03:52 GMT
+
+https://screenrant.com/ernest-hemingway-sun-also-rises-100-anniversary-release/
+
+One of the greatest American literary novels of all time is getting a complete overhaul a century later, available starting October 13.
+---------
+
+# 8 Greatest Jason Statham Revenge Action Movies, Ranked
+
+Movies, Jason Statham, The Beekeeper, A Working Man, Wrath of Man, The Expendables 2, Killer Elite, Parker, Crank: High Voltage
+
+Sun, 23 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/best-jason-statham-revenge-action-movies-ranked/
+
+Jason Statham is a beloved action hero with an expansive filmography, including several fantastic titles if you want to watch a great revenge story.
+---------
+
+# I Love One Piece, But Netflix's Season 3 Must Ignore Oda This One Time
+
+Streaming TV, One Piece
+
+Sun, 23 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/one-piece-season-3-netflix-pell-death/
+
+One Piece is incredible, but season 3 of the Netflix live-action series must ignore Eiichiro Oda's story for this one crucial moment.
+---------
+
+# NBC's 4-Season Sci-Fi Show Is 1 of the Biggest Shows This Summer
+
+TV, Heroes, Netflix, superheroes
+
+Sun, 23 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/heroes-superhero-netflix-streaming-success-august-2026/
+
+A superhero show that was way ahead of its time is finding new life on streaming.
+---------
+
+# 5 Best Complete Shonen Anime Series of the 21st Century
+
+Anime, Attack on Titan, Gintama
+
+Sun, 23 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/best-complete-shonen-anime-21-century/
+
+Anime series like Attack on Titan and Gintama tell complete stories that are masterpieces in the shonen genre.
+---------
+
+# 34 Years Later, Picard's Best Star Trek Line Is Still the 1 of the Greatest Quotes in Sci-Fi History
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Sun, 23 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/star-trek-the-next-generation-picard-inner-light-quote/
+
+Most sci-fi stories focus on the distant future, but this Star Trek: The Next Generation episode gave fans a timeless lesson on living in the now.
+---------
+
+# Alongside 'Reacher' Season 4, This Underrated 118-Minute Action Thriller Is a Streaming Must-See
+
+Movie News, Jack Reacher: Never Go Back, Hot on Streaming
+
+Sun, 23 Aug 2026 15:00:14 GMT
+
+https://movieweb.com/jack-reacher-never-go-back-streaming-hit-paramount-plus-august-2026/
+
+The action hero has proven to be just as successful on the big screen as he is on television.
+---------
+
+# Forget 'Reacher': Taylor Sheridan's Global Hit Is Officially the King of TV Action Thrillers
+
+Features, Reacher, Lioness, Taylor Sheridan, Thriller
+
+Sun, 23 Aug 2026 15:00:14 GMT
+
+https://movieweb.com/forget-reacher-lioness-best-action-thriller/
+
+'Reacher' is the gold standard for modern action TV, but its strongest contender comes straight from the 'Yellowstone' mega-producer himself.
+---------
+
 # Stardew Valley Meets Valheim In New Open-World Sandbox You Can Play Free Now
 
 Gaming, Stardew Valley, Valheim, PC
