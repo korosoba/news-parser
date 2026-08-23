@@ -1,3 +1,168 @@
+# Insidious Meets The Exorcist In 2026's Terrifying New Horror Praised By Stephen King
+
+Movies, Masked Recs
+
+Sun, 23 Aug 2026 14:15:15 GMT
+
+https://screenrant.com/never-after-dark-insidious-exorcist-stephen-king/
+
+An upcoming horror movie is on its way to be one of the best of the year, and it already has the seal of approval of some of the masters of horror.
+---------
+
+# 3 Fantasy Movies From 1991 That '80s & '90s Kids Love
+
+Movies, Fantasy
+
+Sun, 23 Aug 2026 14:15:15 GMT
+
+https://screenrant.com/fantasy-movies-1991-80s-90s-kids-love/
+
+1991 was a magical year for movies in general, but '80s and '90s kids will never forget these three fantasy flicks that made the year so special.
+---------
+
+# Fallout Season 3 Set Video Hints At Terrifying Threat For Two Characters
+
+TV, Fallout
+
+Sun, 23 Aug 2026 14:11:27 GMT
+
+https://screenrant.com/fallout-season-3-set-video-norm-claudia-threat/
+
+Fallout season 3 is raising the stakes, as two characters face a terrifying threat while on the run after season 2's dramatic conclusion.
+---------
+
+# Netflix’s Outer Banks Finale Shatters An IMDb Series Record
+
+TV, Outer Banks
+
+Sun, 23 Aug 2026 14:01:32 GMT
+
+https://screenrant.com/outer-banks-series-finale-highest-rated-episode-imdb/
+
+Outer Banks just released its final season this week, and its series finale has now blown past a notable series record on IMDb.
+---------
+
+# It’s Finally The Start Of An Era For Star Trek’s Most Iconic Hero
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sun, 23 Aug 2026 14:00:15 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-spock-logic-change-nimoy-vulcan/
+
+Lieutenant Spock has been markedly different from Leonard Nimoy's Spock in Star Trek: Strange New Worlds, but he's about to 'Vulcan Up," at last.
+---------
+
+# Terminator Meets The Backrooms In New Sci-Fi Horror Game
+
+Gaming
+
+Sun, 23 Aug 2026 14:00:15 GMT
+
+https://screenrant.com/terminator-meets-backrooms-ironwake/
+
+Explore Ironwake, a chilling horror game merging Terminator and Backrooms themes. Launching October 28, 2026.
+---------
+
+# Crunchyroll's Action-Packed Fantasy Anime With Near-Perfect Ratings Returns With Surprise Crossover
+
+Anime, Wistoria: Wand and Sword, Shangri-La Frontier, Crunchyroll
+
+Sun, 23 Aug 2026 14:15:11 GMT
+
+https://www.cbr.com/shangri-la-frontier-wistoria-wand-and-sword-crossover-crunchyroll/
+
+Two of Crunchyroll's most popular action-packed adventures have joined together in a surprise crossover fans didn't know they wanted.
+---------
+
+# Taylor Sheridan's 121-Minute Action Masterpiece Is Finally Getting a Sequel
+
+Movies, Sicario
+
+Sun, 23 Aug 2026 14:06:10 GMT
+
+https://www.cbr.com/taylor-sheridan-sicario-3-happening/
+
+Taylor Sheridan's franchise is still thriving.
+---------
+
+# Kevin Hart's New Netflix Movie Turned Into an Instant Streaming Hit Despite 18% RT
+
+Movies, 72 Hours, Kevin Hart, Netflix
+
+Sun, 23 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/kevin-hart-72-hours-comedy-nielsen-success-july-2026/
+
+Hart's latest comedy is a smash hit on streaming services.
+---------
+
+# Evangelion Launches a Brand-New Mecha Line With a Unit-01 Redesign
+
+Anime, Neon Genesis Evangelion, merchandise, Good Smile Company, toys
+
+Sun, 23 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/evangelion-unit-01-dx-scale-model-kit/
+
+Neon Genesis Evangelion fans are getting a brand-new line of model kits to celebrate their favorite franchise with, and Unit-01 is leading the pack.
+---------
+
+# The MCU Officially Crowns a New Domestic Box Office King
+
+Movie News, Spider-Man: Brand New Day, MCU, Avengers: Endgame, Box Office
+
+Sun, 23 Aug 2026 14:00:11 GMT
+
+https://collider.com/spider-man-brand-new-day-avengers-endgame-domestic-box-office-record/
+
+Spider-Man: Brand New Day passes Avengers: Endgame at the domestic box office, giving Tom Holland’s Spider-Man another historic MCU record.
+---------
+
+# 5 Greatest Charlie Brown Quotes in Peanuts History
+
+TV Features, Peanuts, Apple TV, Snoopy
+
+Sun, 23 Aug 2026 13:57:11 GMT
+
+https://collider.com/greatest-charlie-brown-quotes-peanuts-history/
+
+Charlie Brown has dispensed some powerful quotes over seven decades of Peanuts comics and cartoons. His best are contemplative with dry humor.
+---------
+
+# 'The Batman Part 2' Set Footage Teases High-Octane Action
+
+Movie News, The Batman Part II, Superhero
+
+Sun, 23 Aug 2026 14:15:14 GMT
+
+https://movieweb.com/the-batman-part-2-bts-chase-sequence/
+
+Looks like the Dark Knight is again at odds with Gotham's finest.
+---------
+
+# Terrifying Festival Favorite Drops Wild Trailer, Announces Long-Awaited Release Date
+
+Movie News, Family, Horror
+
+Sun, 23 Aug 2026 14:01:14 GMT
+
+https://movieweb.com/family-film-ruth-wilson-trailer/
+
+A terrifying trailer for 'Family' has dropped and caused a stir online.
+---------
+
+# 8 Prime Thrillers That Get More Intense With Every Episode (#5 Has a Wild Twist)
+
+TV Lists, Prime Video, Thriller
+
+Sun, 23 Aug 2026 14:01:14 GMT
+
+https://movieweb.com/prime-video-tv-thrillers-intense/
+
+Amazon Prime Video has many thriller TV series to choose from, and these shows, whether miniseries or longer, get more intense with every episode.
+---------
+
 # Terminator Meets Inception Sci-Fi Movie Is Now Available To Stream For Free
 
 Classic Movies, Looper
