@@ -1,3 +1,289 @@
+# 7 Unmissable Neo-Western Movies on Prime Right Now
+
+Movies, Prime Video
+
+Sun, 23 Aug 2026 00:51:01 GMT
+
+https://screenrant.com/7-unmissable-neo-western-movies-on-prime-right-now/
+
+Neo-westerns ditch the glorious and heroic praise of western culture in favor of more difficult moral questions.
+---------
+
+# 27 Years Later, The Greatest Opening Line In Sci-Fi TV Remains Unchallenged
+
+Classic TV, Futurama
+
+Sun, 23 Aug 2026 00:45:02 GMT
+
+https://screenrant.com/sci-fi-tv-best-opening-line-futurama/
+
+Futurama's opening line remains the best in sci-fi TV, blending humor and existential insights for an exciting mix on screen.
+---------
+
+# Every Green Lantern Movie & TV Show, Ranked
+
+Streaming TV, Lanterns, DC Universe
+
+Sun, 23 Aug 2026 00:40:19 GMT
+
+https://screenrant.com/green-lantern-movies-shows-ranked/
+
+HBO's Lanterns is the latest DC Studios release focused on the Justice League hero, but is it the best Green Lantern movie or TV show to date?
+---------
+
+# 8-Part Satire Series Now On Netflix Is The Social Network Meets Succession
+
+Streaming TV, Masked Recs
+
+Sun, 23 Aug 2026 00:30:14 GMT
+
+https://screenrant.com/the-audacity-netflix-succession-social-network/
+
+Netflix’s library keeps growing with the addition of a dark satire TV show, which can best be described as The Social Network meets Succession.
+---------
+
+# DC Officially Confirms Batman Has at Least 1 Superpower
+
+DC Comics, Batman
+
+Sun, 23 Aug 2026 00:30:14 GMT
+
+https://screenrant.com/batman-superpower-black-mercy/
+
+DC has confirmed the Dark Knight possesses one ability that pushes him far beyond the limits of ordinary humans, revealing his one superpower.
+---------
+
+# Netflix's The Lincoln Lawyer Is Spinning Off A Character Who Isn't In The Books
+
+Streaming TV, The Lincoln Lawyer
+
+Sun, 23 Aug 2026 00:15:15 GMT
+
+https://screenrant.com/the-lincoln-lawyer-spinoff-cobie-smulders-emi-finch-harry-bosch-replacement/
+
+Colbie Smulders new character, Emi Finch, will be stepping into Bosch's role for Netflix's popular The Lincoln Lawyer before headlining a spinoff.
+---------
+
+# Paramount's Star Trek Movie Reboot Starts A New Era That Cannot Afford To Fail
+
+Movies, Star Trek
+
+Sun, 23 Aug 2026 00:10:15 GMT
+
+https://screenrant.com/star-trek-movie-paramount-reboot-new-era-not-fail/
+
+Star Trek is one of Paramount’s best and longest lasting franchises, but the future of the series is even riskier than many seem to realize.
+---------
+
+# 6 Best Disney Villains Who Are Pure Evil
+
+Movies, Disney
+
+Sun, 23 Aug 2026 00:02:31 GMT
+
+https://screenrant.com/best-disney-villains-pure-evil/
+
+These villains from Disney animated films are infamous and evil to the core, created to commit the vilest atrocities without eliciting any empathy.
+---------
+
+# After 23 Years, Iconic Marvel Team Get the Costumes They've Always Deserved
+
+Comics, Marvel
+
+Sun, 23 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/runaways-redesign-costumes-pride/
+
+Looking sharp.
+---------
+
+# Peacock's 8-Episode Offbeat Sci-Fi Series Didn't Deserve To Be Forgotten After Just 3 Years
+
+Classic TV, Masked Recs
+
+Sun, 23 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/mrs-davis-peacock-forgotten-not-deserved/
+
+Sci-fi shows tend to remain a topic of discussion long after they come to a close, but that hasn't been the case for a series that deserved better.
+---------
+
+# 8 Strongest Demon Slayer Infinity Castle Fighters, Ranked
+
+Anime, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Demon Slayer
+
+Sun, 23 Aug 2026 00:45:11 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-strongest-fighters-ranked/
+
+These Demon Slayer Infinity Castle characters are some of the mightiest in anime, capable of defeating opponents with ease.
+---------
+
+# Nintendo's Zelda: Ocarina of Time Remake Problem Has the Perfect Solution
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Sun, 23 Aug 2026 00:30:11 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-remake-changes-hidden-skills/
+
+Ocarina of Time has a sterling reputation, but it's undeniably dated, and one facet needing modernization can learn from past Zelda games.
+---------
+
+# Paramount+'s Lioness Season 3 Pivot Changes the Format of Taylor Sheridan's Spy Show
+
+TV, Lioness
+
+Sun, 23 Aug 2026 00:25:38 GMT
+
+https://www.cbr.com/oleksandra-balakin-elizaveta-neretin-next-lioness-season-3/
+
+A significant pivot in Lioness Season 3 makes a compelling alteration to the format of Taylor Sheridan's spy series amid its highest stakes yet.
+---------
+
+# 10 Greatest Sci-Fi Anime Series of the 21st Century, Ranked
+
+Anime, Gintama, Gurren Lagann, Steins;Gate (2011)
+
+Sun, 23 Aug 2026 00:15:11 GMT
+
+https://www.cbr.com/greatest-sci-fi-anime-21-century/
+
+Sci-fi anime series like Steins;Gate and Gurren Lagann are the prime exemplars of the genre.
+---------
+
+# Mass Effect Officially Returns in 2027 With 2 New Releases
+
+Games, Mass Effect
+
+Sun, 23 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/mass-effect-officially-returns-new-release-2027/
+
+Mass Effect is making its official return in 2027 with two new releases.
+---------
+
+# DC’s Best Comic Almost Had a Completely Different, Too-Vulgar Title
+
+Comics, DC Comics
+
+Sun, 23 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/absolute-martian-manhunter-original-title-revealed/
+
+Scott Snyder fought to keep a wild name for one of DC's most fascinating modern comics.
+---------
+
+# 5 Greatest Batman & Superman Team-Up Movies, Ranked
+
+Movies, DCU, Batman, Superman
+
+Sun, 23 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/best-batman-superman-team-up-movies/
+
+Batman and Superman have headlined some of the best DC movies of all time, but they're at their best when they team up for the World's Finest.
+---------
+
+# The Perfect Jujutsu Kaisen Replacement Is Hiding in Plain Sight
+
+Anime, Kagurabachi, Jujutsu Kaisen
+
+Sat, 22 Aug 2026 23:45:11 GMT
+
+https://www.cbr.com/kagurabachi-perfect-jujutsu-kaisen-replacement/
+
+Jujutsu Kaisen is a standout dark shonen success, but it's ready to be dethroned by Kagurabachi as the next great supernatural fantasy anime!
+---------
+
+# ‘Prince of Persia’ Is Officially Back With New 2026 Release
+
+Gaming News, Video Game, Gaming, Ubisoft, Prince of Persia: The Sands of Time
+
+Sun, 23 Aug 2026 00:45:11 GMT
+
+https://collider.com/prince-of-persia-sands-of-time-remake-2026-release/
+
+One of gaming’s most beloved adventures unexpectedly returns with a modern refresh giving longtime fans a new reason to revisit it.
+---------
+
+# Tim Bradford Delivered the Greatest Line in 'The Rookie's History, and It Still Holds Up
+
+TV Features, The Rookie, Eric Winter, Melissa O'Neil, ABC
+
+Sun, 23 Aug 2026 00:38:11 GMT
+
+https://collider.com/the-rookie-tim-bradford-best-quote/
+
+Tim Bradford has had many great lines and quotes in The Rookie's eight seasons, but this is certainly the best one.
+---------
+
+# George Lucas’ “Favorite Movie of All Time” Is Officially Leaving HBO Max
+
+Movie News, George Lucas, Seven Samurai, Akira Kurosawa, HBO Max
+
+Sun, 23 Aug 2026 00:30:11 GMT
+
+https://collider.com/seven-samurai-leaving-hbo-max-september-2026/
+
+The soaring epic that inspired George Lucas' original Star Wars movie is about to be removed from HBO Max.
+---------
+
+# Say Goodbye to Gerard Butler’s $80 Million Action Hit Before It Officially Leaves Netflix
+
+Movie News, Den of Thieves, Gerard Butler, Netflix, Den of Thieves 2: Pantera
+
+Sun, 23 Aug 2026 00:15:11 GMT
+
+https://collider.com/gerard-butler-den-of-thieves-leaving-netflix-august-31-2026/
+
+Netflix recently announced that it's removing Gerard Butler's $80 million heist thriller from streaming at the end of August.
+---------
+
+# Say Goodbye to This Twisted 111-Minute Horror Hit Leaving HBO Max in 2 Weeks
+
+Movie News, Heretic, Hugh Grant, Sophie Thatcher, HBO Max
+
+Sun, 23 Aug 2026 00:00:11 GMT
+
+https://collider.com/sophie-thatcher-hugh-grant-heretic-leaving-hbo-max-september-2026/
+
+The claustrophobic thriller Heretic, starring Sophie Thatcher and Hugh Grant, is about to be removed from HBO Max in a few days.
+---------
+
+# 'Interview with the Vampire' Meets Dark Academia in This Fantasy Thriller That Deserves an Adaptation
+
+TV Features, Fantasy, Books, Young Adult, Interview with the Vampire
+
+Sat, 22 Aug 2026 23:52:11 GMT
+
+https://collider.com/immortal-dark-fantasy-thriller-deserves-tv-adaptation/
+
+Tigest Girma's fantasy thriller book Immortal Dark is a fresh take on vampires that deserves its own TV adaptation.
+---------
+
+# Forget ‘Reacher,’ This 2026 Action Sleeper Is Officially a Prime Video Heavyweight
+
+TV News, Reacher, Ride or Die, Prime Video, Action
+
+Sat, 22 Aug 2026 23:45:11 GMT
+
+https://collider.com/ride-or-die-streaming-success-prime-video-august-2026/
+
+Forget Reacher, Prime Video's other 2026 action gem starring a Ted Lasso fan-favorite hits a big milestone. Read on for more details.
+---------
+
+# John Carpenter's 91-Minute Action Thriller Secretly Adapted a John Wayne Western Classic
+
+Features
+
+Sun, 23 Aug 2026 00:00:13 GMT
+
+https://movieweb.com/assault-on-precinct-13-action-thriller-youtube-streaming/
+
+Celebrating its 40th anniversary this November, John Carpenter's cult action thriller owes a lot to a John Wayne classic.
+---------
+
 # Marvel Officially Confirms Epic Doctor Doom vs Doctor Strange Battle
 
 Comics, Doctor Doom, Doctor Strange
