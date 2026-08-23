@@ -1,3 +1,146 @@
+# Shelley Fabares, Beloved Donna Reed Show & Coach Star Dies at 82
+
+TV, The Donna Reed Show
+
+Sun, 23 Aug 2026 22:40:39 GMT
+
+https://screenrant.com/shelley-fabares-dies-82/
+
+Shelley Fabares, the beloved star of The Donna Reed Show, Coach, and so much more has sadly passed away on Sunday at 82 years old.
+---------
+
+# 17 Best D&D OP Character Builds You Probably Haven't Tried Yet
+
+Gaming, Dungeons and Dragons, Dungeons & Dragons
+
+Sun, 23 Aug 2026 22:30:15 GMT
+
+https://screenrant.com/dnd-overpowered-character-builds/
+
+Dungeons & Dragons has the potential to create some massively overpowered characters either through clever use of feats or by multiclassing.
+---------
+
+# 88 Years Later, DC's Greatest Comic Cover Ever Is Still a Stunning Achievement
+
+Comics, DC
+
+Sun, 23 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/dc-comics-best-cover-all-time-action-comics/
+
+Still the best.
+---------
+
+# Mad Max Meets Barry In Peacock's Post-Apocalyptic Action Comedy With Season 3 Coming
+
+Streaming TV, Masked Recs
+
+Sun, 23 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/twisted-metal-mad-max-barry-peacock-season-3-return/
+
+Peacock’s video game adaptation combines Mad Max’s car-combat energy and Barry’s dark humor into a perfect TV show, with season 3 on the way.
+---------
+
+# Chris Hemsworth’s Cult Classic Horror Hit Comes To Streaming In Just 7 Days
+
+Movies, The Cabin in the Woods
+
+Sun, 23 Aug 2026 22:25:15 GMT
+
+https://screenrant.com/the-cabin-in-the-woods-hbo-max-release-august/
+
+Chris Hemsworth's oft-forgotten horror movie is getting a new lease of life thanks to its upcoming arrival on a new streaming platform soon.
+---------
+
+# Gerard Butler's 129-Minute Action Movie Is Blowing Up On Streaming
+
+Movies, Masked Recs
+
+Sun, 23 Aug 2026 22:16:54 GMT
+
+https://screenrant.com/machine-gun-preacher-gerard-butler-paramount-streaming-hit/
+
+Gerard Butler's gritty 129-minute action movie is finding a new audience on streaming, nearly 15 years after its theatrical release.
+---------
+
+# Firefly's 10 Best Characters, Ranked
+
+Classic TV, Firefly
+
+Sun, 23 Aug 2026 22:15:15 GMT
+
+https://screenrant.com/best-firefly-characters-ranked/
+
+A list of the top 10 characters of Firefly, ranked from worst to best, as well as their unique roles within the beloved sci-fi series.
+---------
+
+# Samuel L. Jackson's Crime Thriller Finds Redemption 2 Years Later Despite Abysmal Reviews
+
+Movies, Damaged, samuel l jackson, Prime Video
+
+Sun, 23 Aug 2026 22:30:11 GMT
+
+https://www.cbr.com/samuel-l-jackson-crime-thriller-damage-prime-video-success-august-2026/
+
+Jackson dives down a rabbit hole of mystery in a movie that's earning some new fans.
+---------
+
+# A Quiet Place Meets Jurassic World in JJ Abrams' New Sci-Fi That's the Surprise Hit of the Summer
+
+Movies, The End of Oak Street, Sci-Fi
+
+Sun, 23 Aug 2026 22:30:11 GMT
+
+https://www.cbr.com/the-end-of-oak-street-surprise-hit-summer-2026/
+
+JJ Abrams' new Hollywood blockbuster is a perfect mix of A Quiet Place and Jurassic World.
+---------
+
+# Shelley Fabares, Coach and Superman: The Animated Series Actress, Dies at 82
+
+TV, obituary, Coach, The Donna Reed Show
+
+Sun, 23 Aug 2026 22:15:41 GMT
+
+https://www.cbr.com/shelley-fabares-dead/
+
+Shelley Fabares is also known for her No. 1 hit song "Johnny Angel" and was married to M*A*S*H actor Mike Farrell.
+---------
+
+# 5 Greatest D&D 5e Anthologies Of All Time
+
+Games, Dungeons and Dragons, Tabletop
+
+Sun, 23 Aug 2026 22:15:11 GMT
+
+https://www.cbr.com/greatest-dnd-5e-anthologies-all-time/
+
+Wizards of the Coast has released several amazing Dungeons & Dragons adventure anthologies, giving DMs and players lots of quick quests to jump into.
+---------
+
+# One Cinema's Greatest Masterpieces Leaves HBO Max in 1 Month
+
+Movie News, In the Mood For Love, HBO Max, Wong Kar-wai, Tony Leung
+
+Sun, 23 Aug 2026 22:30:11 GMT
+
+https://collider.com/wong-kar-wai-romance-in-the-mood-for-love-leaving-hbo-max-september-2026/
+
+One of the greatest romance movies ever made inspired everyone from Sofia Coppola to Destin Daniel Cretton; it's now about to leave HBO Max.
+---------
+
+# Horror’s Most Controversial Cult Classic Is Officially Getting a “PG-Rated” Physical Release
+
+Movie News, Cannibal Holocaust, Horror, Blu-ray, The Blair Witch Project
+
+Sun, 23 Aug 2026 22:15:11 GMT
+
+https://collider.com/cannibal-holocaust-alternate-pg-rated-cut-4k-blu-ray-october-2026/
+
+One of horror’s most infamous films is returning with multiple restored editions including a version audiences have never seen before.
+---------
+
 # Netflix’s New 5-Part Crime Thriller Masterpiece Is Already The Biggest Show In The World
 
 TV, Masked Recs
