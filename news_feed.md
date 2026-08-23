@@ -1,3 +1,25 @@
+# Netflix Subscribers Officially Have 1 Week Left To Watch This 5-Part Sci-Fi Masterpiece
+
+TV News, Orphan Black, Severance, Netflix, Tatiana Maslany
+
+Sun, 23 Aug 2026 08:40:11 GMT
+
+https://collider.com/orphan-black-leaving-netflix-august-31-2026/
+
+Netflix's sci-fi thriller with shades of Severance and Black Mirror is officially leaving streaming after only one more week.
+---------
+
+# Ridley Scott Officially Takes Over Free Streaming With $100M Epic Ahead of Sci-Fi Return
+
+Movie News, Gladiator, Ridley Scott, Pluto TV, Russell Crowe
+
+Sun, 23 Aug 2026 08:20:11 GMT
+
+https://collider.com/ridley-scott-historical-epic-gladiator-streaming-free-pluto-tv-august-2026/
+
+Ridley Scott's $100 million historical epic with shades of The Odyssey and Braveheart is officially streaming for free.
+---------
+
 # One of Mark Wahlberg’s Highest Rated Movies Is Officially Named a Netflix “Instant Classic”
 
 Movie News, Mark Wahlberg, Netflix, Arthur the King, Streaming
