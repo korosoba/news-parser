@@ -1,3 +1,14 @@
+# One of Mark Wahlberg’s Highest Rated Movies Is Officially Named a Netflix “Instant Classic”
+
+Movie News, Mark Wahlberg, Netflix, Arthur the King, Streaming
+
+Sun, 23 Aug 2026 08:00:11 GMT
+
+https://collider.com/mark-wahlberg-arthur-the-king-streaming-hit-netflix-august-2026/
+
+Mark Wahlberg's heartwarming gem is a big hit on Netflix. Here's everything you should know about Arthur the King.
+---------
+
 # Elden Ring: Where To Find All Somberstone Miner's Bell Bearings
 
 Gaming, Elden Ring, PC
