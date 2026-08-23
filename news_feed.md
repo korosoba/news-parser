@@ -1,3 +1,14 @@
+# Red Dead Redemption 2 Gets New Fan-Made Van Horn Expansion
+
+Gaming, Red Dead Redemption 2, Triple-A Games
+
+Sun, 23 Aug 2026 07:00:15 GMT
+
+https://screenrant.com/red-dead-redemption-2-van-horn-expansion-mod/
+
+If you've been itching to get back into the wide world of Red Dead Redemption 2, now is a good time thanks to the Van Horn expansion.
+---------
+
 # 3 PS1 RPGs Everyone Loved In The '90s
 
 Gaming, RPG, Triple-A Games, PlayStation (Original)
