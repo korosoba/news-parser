@@ -1,3 +1,157 @@
+# Marvel's New Wolverine Replacement Officially Announced
+
+Marvel Comics, Wolverine
+
+Sun, 23 Aug 2026 13:00:16 GMT
+
+https://screenrant.com/marvel-new-wolverine-sidekicks/
+
+Marvel unveils four new characters who wield Wolverine's exact adamantium claws and healing factor, promising to replace the X-Men icon.
+---------
+
+# All 5 Seasons Of The Wire, Ranked
+
+Classic TV, The Wire
+
+Sun, 23 Aug 2026 13:00:16 GMT
+
+https://screenrant.com/the-wire-hbo-seasons-ranked/
+
+HBO's The Wire is one of the defining shows of the 21st century and inarguably one of the greatest shows ever, so let us rank each season.
+---------
+
+# 28 Years Ago, Metal Gear Solid Dropped One Of The Most Beautiful Quotes In Gaming History
+
+Gaming, Metal Gear Solid, Triple-A Games, PC
+
+Sun, 23 Aug 2026 13:00:16 GMT
+
+https://screenrant.com/metal-gear-solid-gaming-beautiful-quote/
+
+Metal Gear Solid's writing is often exemplary, and one quote from the original game perfectly encapsulates a key meaning of the entire series.
+---------
+
+# Marvel Has The Perfect Movie For Wonder Man's Return After Devastating Season 2 Cancellation
+
+Movies, Wonder Man, Marvel Cinematic Universe, X-Men
+
+Sun, 23 Aug 2026 12:55:15 GMT
+
+https://screenrant.com/wonder-man-character-return-x-men-mcu-movie-future/
+
+Wonder Man season 2 may be canceled, but Marvel already has the perfect way to quickly bring Simon Williams back into the MCU's future plans.
+---------
+
+# Disney's New Lion King Companion Series Is #1 After Just Two Days On Streaming
+
+TV, The Lion King
+
+Sun, 23 Aug 2026 12:52:50 GMT
+
+https://screenrant.com/disney-lion-series-streaming-charts-success-august-2026/
+
+The Lion King is one of Disney's most successful franchises of all time, but it is a companion series that is getting the most attention right now.
+---------
+
+# The Arrowverse's Real Barry Allen Was Trapped In The Flash's Secret Timeline
+
+Classic TV, Arrowverse, The Flash, DC
+
+Sun, 23 Aug 2026 12:50:14 GMT
+
+https://screenrant.com/arrowverse-real-barry-allen-the-flash-alternate-future/
+
+Arrowverse's main Barry Allen differs from the original comic book character, but The Flash secretly includes a version close to Silver Age Barry.
+---------
+
+# Stephen King Meets True Detective In New Horror Game About A Missing Child
+
+Gaming, Steam, Indie Games
+
+Sun, 23 Aug 2026 12:30:14 GMT
+
+https://screenrant.com/stephen-king-meets-true-detective-polar-darkness/
+
+If you're a fan of mysteries, you'll want to keep an eye out for this horror experience, which is one part Stephen King, and one part True Detective.
+---------
+
+# 2028’s 3 Officially Confirmed MCU Movie Release Dates Are A Game-Changer For Marvel
+
+Movies, Marvel Cinematic Universe
+
+Sun, 23 Aug 2026 12:30:14 GMT
+
+https://screenrant.com/2028-mcu-movie-release-dates-order-good/
+
+The release dates of the MCU's 2028 movie roster - and the order they will debut in - sets up the year to be one of the franchise's most promising.
+---------
+
+# 5 Sith More Powerful Than Emperor Palpatine, Ranked
+
+Movies, Star Wars, Sci-Fi
+
+Sun, 23 Aug 2026 13:00:12 GMT
+
+https://www.cbr.com/sith-more-powerful-than-emperor-palpatine-list/
+
+Emperor Palpatine is one of the strongest Sith Lords in Star Wars history--but not the most powerful. These legendary Sith are even stronger.
+---------
+
+# Netflix's 5-Part Historical Drama Is the Only Viking Show That Can Be Called Perfect
+
+TV, The Last Kingdom, Netflix
+
+Sun, 23 Aug 2026 12:30:11 GMT
+
+https://www.cbr.com/netflix-the-last-kingdom-great-viking-show/
+
+This underrated Netflix show brings political drama, religious outrage, memorable characters, and ruthless Viking battles worthy of Valhalla.
+---------
+
+# The Iconic Western That Orson Welles Watched 40 Times While Directing ‘Citizen Kane’ Is Leaving HBO Max
+
+Movie News, Stagecoach, John Wayne, John Ford, HBO Max
+
+Sun, 23 Aug 2026 12:45:11 GMT
+
+https://collider.com/john-wayne-john-ford-western-stagecoach-leaving-hbo-max-september-2026/
+
+One of the greatest Westerns of all time, starring John Wayne and directed by John Ford, is about to leave HBO Max.
+---------
+
+# HBO's 91-Minute 'John Wick' Replacement Is Officially Taking Over
+
+Movie News, Bob Odenkirk, HBO Max, Henry Winkler, Normal
+
+Sun, 23 Aug 2026 12:30:11 GMT
+
+https://collider.com/bob-odenkirk-action-normal-streaming-hbo-max-august-2026/
+
+Bob Odenkirk’s brutal 91-minute action thriller Normal is officially streaming on HBO Max after arriving on the service last weekend.
+---------
+
+# Forget 'John Wick,' New 103-Minute Revenge Action Thriller Is a Worldwide Streaming Hit
+
+Movie News, Prime Video, Hot on Streaming
+
+Sun, 23 Aug 2026 13:00:15 GMT
+
+https://movieweb.com/vengeance-streaming-hit-prime-video-august-2026/
+
+Revenge action movies are never this relentless.
+---------
+
+# 35 Years & Hundreds of Panels Later, The Far Side's Greatest Quote Still Has No Equal
+
+Features, The Far Side
+
+Sun, 23 Aug 2026 13:00:15 GMT
+
+https://movieweb.com/far-side-chicken-other-side-quote/
+
+Since its 1980 introduction, Gary Larson's The Far Side has never been more on brand with this all-time great panel and quote.
+---------
+
 # Warner Bros.’ 110-Episode Space Opera Remains Light Years Ahead Of Its Time
 
 Classic TV, Masked Recs
