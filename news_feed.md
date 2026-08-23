@@ -1,3 +1,124 @@
+# DC Concerns Major Genre Change For Green Lantern, And It's Actually Perfect
+
+DC Comics, Green Lantern
+
+Sun, 23 Aug 2026 23:00:15 GMT
+
+https://screenrant.com/green-lantern-genre-change-comedy-condiment-king/
+
+After Hal Jordan's latest Green Lantern story, DC switches genres completely and pits the Emerald Knight against a ludicrous Batman villain.
+---------
+
+# Buffy The Vampire Slayer Meets L.A. Noire In New Gothic Detective Thriller Game
+
+Gaming, Buffy The Vampire Slayer, L.A. Noire, PC, Steam
+
+Sun, 23 Aug 2026 23:00:15 GMT
+
+https://screenrant.com/buffy-vampire-slayer-meets-la-noire-nightborn/
+
+This brand-new vampire-hunting detective thriller that combines the best elements of Buffy the Vampire Slayer with L.A. Noire looks perfect for fans.
+---------
+
+# Ahead of Sci-Fi Return, Ridley Scott Insists He's Not a Filmmaker: 'I'm an Influencer'
+
+Movies, ridley scott, The Dog Stars
+
+Sun, 23 Aug 2026 23:09:17 GMT
+
+https://www.cbr.com/ridley-scott-not-filmmaker-is-influencer/
+
+Don't call Ridley Scott a filmmaker.
+---------
+
+# The Most Controversial Show on TV Finally Returns in Just 1 Month
+
+TV, South Park
+
+Sun, 23 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/south-park-season-29-release-date/
+
+The series has been constantly dominating Paramount+'s charts even without new episodes.
+---------
+
+# Transformers Reimagines Ultra Magnus With a Brand-New Spacecraft Design
+
+Anime, Transformers, toys, merchandise, action figures
+
+Sun, 23 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/transformers-ultra-magnus-spacecraft-design/
+
+One of the coolest Transformers figures of the year just quietly rolled out, and it might just be the best Ultra Magnus of all time.
+---------
+
+# 10 Little-Known Actors Who Became Famous in the MCU
+
+Movies, Marvel Cinematic Universe
+
+Sun, 23 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/unknown-actors-became-famous-mcu-list/
+
+Some of the biggest stars in Hollywood were made famous in the MCU, and even more young actors will soon be joining their ranks.
+---------
+
+# Netflix's New True-Crime Movie Officially Passes Major Streaming Milestone in 4 Days
+
+Movie News, Netflix, Crime, Documentary, True Crime
+
+Sun, 23 Aug 2026 23:00:11 GMT
+
+https://collider.com/netflix-true-crime-a-child-of-my-own-streaming-success-august-2026/
+
+A newly released true-crime drama is racing up Netflix’s charts as an unsettling real-life story leaves viewers unable to look away.
+---------
+
+# The Moment That Changed ‘NCIS’ Forever Wasn't Ziva's Exit
+
+TV Features, NCIS, CBS, Procedural
+
+Sun, 23 Aug 2026 22:46:11 GMT
+
+https://collider.com/ncis-kate-todd-death-sasha-alexander/
+
+Caitlin Todd was not in NCIS long, but her death had a dramatic impact on the show and the characters.
+---------
+
+# Gerard Butler's Revenge Thriller Officially Shoots Up Paramount+ Streaming Charts
+
+Movie News, Gerard Butler, Machine Gun Preacher, Paramount Plus, Marc Forster
+
+Sun, 23 Aug 2026 22:45:11 GMT
+
+https://collider.com/gerard-butler-machine-gun-preacher-streaming-success-paramount-plus-august-2026/
+
+Gerard Butler's 129-minute revenge thriller based on real events is gaining popularity in the U.S. 15 years after its release. Here's all to know.
+---------
+
+# 10 Great Fantasy TV Shows That Are Considered Book Accurate
+
+TV Lists, Fantasy
+
+Sun, 23 Aug 2026 23:00:14 GMT
+
+https://movieweb.com/fantasy-tv-shows-faithful-book-accurate-adaptations/
+
+It's always nice when a series honors the source material.
+---------
+
+# 'Reacher' Season 4 Star Shares Hope for Role in MCU’s 'X-Men' Reboot
+
+Movie News, X-Men, Reacher
+
+Sun, 23 Aug 2026 22:46:44 GMT
+
+https://movieweb.com/x-men-mcu-agnez-mo/
+
+A 'Reacher' newcomer may be looking to join Marvel Studios' 'X-Men' reboot after a new fan post on social media.
+---------
+
 # Shelley Fabares, Beloved Donna Reed Show & Coach Star Dies at 82
 
 TV, The Donna Reed Show
