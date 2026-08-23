@@ -1,3 +1,58 @@
+# 6 HBO Shows That Deserve to Be Called Classics
+
+TV, hbo, Game Of Thrones, The Sopranos, Innovation
+
+Sun, 23 Aug 2026 11:30:11 GMT
+
+https://www.cbr.com/best-classic-hbo-shows-list/
+
+The best HBO shows have stood the test of time, earning a lasting place in television history for what they brought to the medium and their genres.
+---------
+
+# Transformers Meets Jurassic Park in Sony's New Sci-Fi Adventure Movie
+
+Movies, Horizon Zero Dawn
+
+Sun, 23 Aug 2026 11:30:11 GMT
+
+https://www.cbr.com/horizon-zero-dawn-movie-is-transformers-jurassic-park/
+
+Sony's upcoming Horizon Zero Dawn adaptation promises a new take on the post-apocalypse
+---------
+
+# One Piece Officially Reveals 2 New Films for 2027 & 2029
+
+Anime, One Piece, Shonen Jump, One Piece Film: Red
+
+Sun, 23 Aug 2026 11:17:27 GMT
+
+https://www.cbr.com/one-piece-film-god-valley-baad-2027-2029/
+
+One Piece officially announces two new theatrical movies, God Valley and Baad, for summer 2027 and 2029.
+---------
+
+# The 8 Most Intense Action Thrillers of All Time, Ranked
+
+Movie, Thriller, Mad Max: Fury Road, Battle Royale, Taken
+
+Sun, 23 Aug 2026 11:41:11 GMT
+
+https://collider.com/most-intense-action-thrillers-all-time-ranked/
+
+From Mad Max: Fury Road to Taken, these unrelenting action thrillers are intense from start to finish.
+---------
+
+# HBO Max Is Officially Losing the Sci-Fi Movie That Left Quentin Tarantino Speechless
+
+Movie News, The Terminator, James Cameron, Sci-Fi, HBO Max
+
+Sun, 23 Aug 2026 11:30:11 GMT
+
+https://collider.com/james-cameron-the-terminator-leaving-hbo-max-september-2026/
+
+One of the greatest sci-fi movies ever made left Quentin Tarantino in stunned disbelief back; it's now streaming on HBO Max.
+---------
+
 # The Princess Bride Meets Monty Python In Disney's Underrated 2-Part Fantasy Series
 
 Classic TV, Masked Recs
