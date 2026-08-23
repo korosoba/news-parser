@@ -1,3 +1,25 @@
+# Resident Evil Meets Silent Hill In 96% RT Horror Masterpiece
+
+Streaming TV, Masked Recs
+
+Sun, 23 Aug 2026 05:00:15 GMT
+
+https://screenrant.com/from-resident-evil-meets-silent-hill-horror/
+
+A 4-season horror series that boasts a near-perfect Rotten Tomatoes score of 96% feels like the perfect merger between Resident Evil & Silent Hill.
+---------
+
+# Game Of Thrones Meets Settlers Of Catan In New 10/10 Steam Hit
+
+Gaming, Game Of Thrones, Game of Thrones, Steam, PC, The Settlers of Catan
+
+Sun, 23 Aug 2026 05:00:15 GMT
+
+https://screenrant.com/got-meets-catan-feed-the-scorchpot-steam/
+
+Game of Thrones collides with Settlers of Catan in a newly released strategy game with 100% positive reviews on Steam, with a free demo available.
+---------
+
 # 4 Free Steam Games You Can Beat In 5 Hours Or Less
 
 Gaming, Steam, PC
