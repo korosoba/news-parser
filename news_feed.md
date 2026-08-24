@@ -1,3 +1,267 @@
+# 10 Great Sci-Fi Movies To Watch If You Like Netflix's The Last House
+
+Movies, The Last House, Netflix
+
+Mon, 24 Aug 2026 17:45:14 GMT
+
+https://screenrant.com/best-movies-like-the-last-house/
+
+What if the strangest thing about The Last House is that you have no idea what is happening? These 10 movies get that feeling right.
+---------
+
+# HBO's 9-Part Sequel To The Best Graphic Novel Of All Time Is Back On Streaming Charts
+
+TV, Masked Recs
+
+Mon, 24 Aug 2026 17:43:27 GMT
+
+https://screenrant.com/watchmen-show-hbo-streaming-success-chart-august-2026/
+
+HBO's nine-part sequel to the best graphic novel of all time is officially back on the streaming charts in light of its spiritual follow-up.
+---------
+
+# GTA 6 Leaked Gameplay Confirms GTA Is Going All In On Full-Frontal Nudity After 29 Years
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Mon, 24 Aug 2026 17:36:52 GMT
+
+https://screenrant.com/gta-6-leaked-nudist-colony-gameplay/
+
+Grand Theft Auto 6 will undoubtedly be the biggest and boldest entry in the franchise, and its amount of full-frontal nudity is proof of that.
+---------
+
+# David Duchovny’s 101-Minute ‘X-Files Meets Ghostbusters’ Cult Classic Is One Of The Biggest Movies On Streaming
+
+Movies, Masked Recs, David Duchovny
+
+Mon, 24 Aug 2026 17:26:02 GMT
+
+https://screenrant.com/david-duchovny-evolution-movie-x-files-meets-ghostbusters-hbo-max-streaming-success-august-2026/
+
+Streaming subscribers are currently going wild for a David Duchovny cult classic comedy movie that mashes up The X-Files and Ghostbusters.
+---------
+
+# Jon Bernthal’s Gritty 124-Minute Spy Thriller Officially Crosses Major Prime Video Milestone
+
+Movies, Masked Recs
+
+Mon, 24 Aug 2026 17:23:35 GMT
+
+https://screenrant.com/jon-bernthal-the-amateur-prime-video-streaming-milestone-august-2026/
+
+An underrated Jon Bernthal spy thriller continues to crush Prime Video's streaming charts as it officially crosses a major milestone on the platform.
+---------
+
+# Star Wars Meets True Grit In Pedro Pascal's Forgotten Sci-Fi Movie That's On Hulu
+
+Movies, Masked Recs
+
+Mon, 24 Aug 2026 17:20:15 GMT
+
+https://screenrant.com/prospect-movie-pedro-pascal-star-wars-sci-fi-western/
+
+Star Wars meets True Grit in a forgotten sci-fi Western movie starring Pedro Pascal that's available to watch for free on YouTube right now.
+---------
+
+# Netflix Renews 6-Part Crime Thriller Masterpiece for Season 2
+
+TV, Legends
+
+Mon, 24 Aug 2026 17:47:28 GMT
+
+https://www.cbr.com/netflix-renews-legends-season-2/
+
+The renewal comes just months after the series debuted on Netflix.
+---------
+
+# The Witcher 4 Officially Confirmed for 2028 by CD Projekt Red
+
+Games, The Witcher IV, The Witcher
+
+Mon, 24 Aug 2026 17:45:11 GMT
+
+https://www.cbr.com/witcher-4-release-window-2028-cd-projekt-red/
+
+CD Projekt Red's next full game, The Witcher 4, is expected in 2028, and will be the start of a brand new saga starring CIri within the series.
+---------
+
+# Star Trek III has the Best Scene in Sci-Fi Movie History
+
+Movies, Star Trek III: The Search for Spock, Star Trek, Star Trek: The Original Series
+
+Mon, 24 Aug 2026 17:30:11 GMT
+
+https://www.cbr.com/star-trek-iii-search-for-spock-best-scene-in-sci-fi-history/
+
+An often underappreciated Star Trek movie, The Search for Spock features a scene that's not just the greatest in the franchise but sci-fi history.
+---------
+
+# SNES and Sega Genesis Get 2 New Official Physical Releases in 2027
+
+Games, Nintendo, Sega Genesis
+
+Mon, 24 Aug 2026 17:25:11 GMT
+
+https://www.cbr.com/snes-sega-genesis-new-official-physical-releases-2027/
+
+The SNES and Sega Genesis, the gaming consoles that defined the early 1990s, are officially getting new physical releases in 2027.
+---------
+
+# Hello Kitty Reveals Collectible Popcorn Bucket & Character Cups at AMC Theaters
+
+Anime, Hello Kitty, sanrio, merchandise, collectibles, amc theatres
+
+Mon, 24 Aug 2026 17:20:11 GMT
+
+https://www.cbr.com/hello-kitty-popcorn-bucket-amc-theaters-release/
+
+Hello Kitty and AMC are teaming up to give fans some of the cutest collectibles of the year, but they're already becoming nearly impossible to find.
+---------
+
+# Netflix's Peaky Blinders Replacement Series Finally Confirmed for Season 2
+
+TV, House of Guinness, Netflix, Drama
+
+Mon, 24 Aug 2026 17:16:37 GMT
+
+https://www.cbr.com/house-of-guinness-netflix-season-2-confirmed/
+
+The hit period piece will return.
+---------
+
+# 10 Best Games That Let You Run a Kingdom
+
+Games, Assassin's Creed Valhalla, Video Games, Fable, Age of Empires IV: Anniversary Edition
+
+Mon, 24 Aug 2026 17:15:11 GMT
+
+https://www.cbr.com/best-games-that-let-you-run-a-kingdom/
+
+Everyone daydreams what it would be like to run their very own kingdom, and these game titles take the daydream to a whole new level.
+---------
+
+# John Wick Meets Blade Runner in New Sci-Fi RPG Coming in 2028
+
+Games, Steam
+
+Mon, 24 Aug 2026 17:06:16 GMT
+
+https://www.cbr.com/neo-berlin-2087-gets-2028-release/
+
+Elysium Game Studio also reveals a new look at the violent cyberpunk game.
+---------
+
+# Brendan Fraser's 115-Minute Crime Thriller With 92% RT Explodes on Streaming
+
+Movies, No Sudden Move, HBO Max
+
+Mon, 24 Aug 2026 17:04:44 GMT
+
+https://www.cbr.com/no-sudden-move-crime-thriller-hbo-max-success-august-2026/
+
+Five years after its release, Brendan Fraser's acclaimed crime thriller finds new success on streaming.
+---------
+
+# Prime Video’s 92%-Rated Superhero Series Just Made Its Strongest Case for Season 2
+
+TV Features, Spider-Noir, Prime Video, Invincible, The Boys
+
+Mon, 24 Aug 2026 17:47:11 GMT
+
+https://collider.com/prime-video-spider-noir-season-2-renewal-chart-success/
+
+Spider-Noir premiered to rave reviews and strong ratings, setting the stage for a potential renewal.
+---------
+
+# ‘Silo’ Author Officially Defends Season 3’s Biggest Change: "It’s an Improvement"
+
+TV News, Silo, Sci-Fi, Apple TV, Rebecca Ferguson
+
+Mon, 24 Aug 2026 17:30:11 GMT
+
+https://collider.com/silo-season-3-daniel-keene-change-rewrite-hugh-howey/
+
+Silo author Hugh Howey explains why Apple TV’s controversial Season 3 changes to Daniel Keene improve on his original books.
+---------
+
+# James Bond's Legacy Officially Continues in Brutal New Bloody Spy Thriller
+
+Movie News, Roger Moore, James Bond, Action, Movie Trailers
+
+Mon, 24 Aug 2026 17:30:11 GMT
+
+https://collider.com/knightfall-trailer-geoffrey-moore-roger-moore-spy-thriller/
+
+Watch the ‘Knightfall’ trailer featuring James Bond star Roger Moore’s son Geoffrey Moore as an MI5 agent in the new British action thriller.
+---------
+
+# ‘Dungeon Crawler Carl’ Officially Confirms Massive New Release
+
+Books and Comics News, Dungeon Crawler Carl, Fantasy, Sci-Fi, Seth MacFarlane
+
+Mon, 24 Aug 2026 17:30:03 GMT
+
+https://collider.com/dungeon-crawler-carl-october-2026-release-rpg-unstoppable/
+
+Dungeon Crawler Carl officially sets release date for a brand new immersive adventure with Carl and Princess Donut.
+---------
+
+# All-Star ’80s Action Thriller Officially Gets New Release
+
+Movie News, Tequila Sunrise, Mel Gibson, Kurt Russell, Michelle Pfeiffer
+
+Mon, 24 Aug 2026 17:16:09 GMT
+
+https://collider.com/tequila-sunrise-4k-release-mel-gibson-kurt-russell-michelle-pfeiffer/
+
+Tequila Sunrise, starring Mel Gibson, Kurt Russell and Michelle Pfeiffer, gets a new limited-edition 4K restoration from Arrow Films in September 2026
+---------
+
+# 8 Essential RPGs You Should Play in 2026
+
+Gaming, Video Game, Baldur's Gate 3, The Witcher 3: Wild Hunt, Disco Elysium
+
+Mon, 24 Aug 2026 17:14:11 GMT
+
+https://collider.com/rpgs-essential-ranked/
+
+From Final Fantasy VII to Mass Effect 2, these essential RPGs shaped the genre through unforgettable worlds, choices, and adventures.
+---------
+
+# The 10 Most Rewatchable Fantasy Movies of All Time, Ranked
+
+Movie, Fantasy, Spirited Away, The Lord of the Rings: The Fellowship of the Ring, Harry Potter and the Prisoner of Azkaban
+
+Mon, 24 Aug 2026 17:12:11 GMT
+
+https://collider.com/rewatchable-fantasy-movies/
+
+The best fantasy movies are timeless and are beloved by fans who can still watch them over and over again today, from Harry Potter to Spirited Away.
+---------
+
+# One of the Biggest Action Fantasy Franchises Ever Sets Movie Release That Breaks 26-Year Trend
+
+Movie News, One Piece
+
+Mon, 24 Aug 2026 17:28:28 GMT
+
+https://movieweb.com/one-piece-god-valley-movie-2027-release/
+
+The latest 'One Piece' movie, 'God Valley,' is breaking a 26-year trend.
+---------
+
+# Rebecca Ferguson Gets Steamy in New Look at Upcoming Lesbian Romance
+
+Movie News, Rebecca Ferguson
+
+Mon, 24 Aug 2026 17:05:29 GMT
+
+https://movieweb.com/rebecca-ferguson-greta-lee-lesbian-romcom-photos/
+
+New photos confirm Rebecca Ferguson is taking her career into a bold new direction.
+---------
+
 # NYT Connections Solution And Hints For August 24, 2026
 
 Gaming, Connections, Mobile
