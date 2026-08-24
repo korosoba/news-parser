@@ -1,3 +1,179 @@
+# Prime Video's New 103-Minute Revenge Thriller Is Taking Over Streaming Worldwide
+
+Movies, Masked Recs
+
+Mon, 24 Aug 2026 03:22:49 GMT
+
+https://screenrant.com/vengeance-prime-video-streaming-hit/
+
+Prime Video's 103-minute long revenge thriller is finally finding a worldwide audience more than four months after its streaming debut.
+---------
+
+# 6 Game Of Thrones Lies Told By The Show
+
+Streaming TV, Game Of Thrones
+
+Mon, 24 Aug 2026 03:15:15 GMT
+
+https://screenrant.com/game-of-thrones-lies-asoiaf-misconceptions/
+
+It's all too easy to confuse Game of Thrones' more unique character and plot additions with George R.R. Martin's A Song of Ice and Fire canon.
+---------
+
+# 10 Greatest Cosmic Horror TV Shows Of All Time
+
+Classic TV, Horror
+
+Mon, 24 Aug 2026 03:00:15 GMT
+
+https://screenrant.com/best-cosmic-horror-tv-shows/
+
+Cosmic horror comes to play in these excellent television shows that aired from the 1970s to the present day.
+---------
+
+# 3 Legend Of Zelda Games That Are Perfect 10/10s
+
+Gaming
+
+Mon, 24 Aug 2026 03:00:15 GMT
+
+https://screenrant.com/legend-of-zelda-games-perfect-10s/
+
+The Legend of Zelda series has no shortage of true masterpieces, and these three excellent adventures are essentially beyond any reproach.
+---------
+
+# How Sharon Raydor Died During Major Crimes' Final Season
+
+Classic TV, Major Crimes
+
+Mon, 24 Aug 2026 02:30:16 GMT
+
+https://screenrant.com/major-crimes-season-6-sharon-raydor-death-explained/
+
+In a shock move Major Crimes killed off Sharon Raydor before the end of the final season. Here's how Raydor died on the series.
+---------
+
+# Maggie Is Finally Getting A New Lover In The Walking Dead
+
+Streaming TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 24 Aug 2026 02:30:15 GMT
+
+https://screenrant.com/the-walking-dead-maggie-new-lover-explained/
+
+After Glenn's tragic death almost a decade ago, The Walking Dead is finally giving Maggie a new romantic partner, and thankfully, it's not Negan.
+---------
+
+# 8 Genius DC Villains Who Beat Batman at His Own Game
+
+Comics, Batman, DC Comics
+
+Mon, 24 Aug 2026 02:30:15 GMT
+
+https://screenrant.com/genius-batman-villains/
+
+While the Dark is both protector and tormentor-in-chief of Gotham City, these villains are worthy of being called his true nemesis.
+---------
+
+# 5 Open-World Games You Can Play for Months
+
+Games, The Elder Scrolls V: Skyrim, kingdoms of amalur, Sleeping Dogs, Far Cry, Cyberpunk 2077
+
+Mon, 24 Aug 2026 03:15:11 GMT
+
+https://www.cbr.com/open-world-games-you-can-play-for-months/
+
+These masterpiece open-world games offer massive maps, memorable stories, and enough content to keep players engaged for months.
+---------
+
+# 19 Years Later, Gundam Finally Brings Back Its PS3-Era Samurai Mecha
+
+Anime, Mobile Suit Gundam, bandai, toys, merchandise
+
+Mon, 24 Aug 2026 03:00:11 GMT
+
+https://www.cbr.com/shin-mushra-gundam-blue-master-grade-gunpla/
+
+Gunpla fans can now celebrate multiple major milestones with a brand-new model kit that reimagines one of the most stunning figures in years.
+---------
+
+# 10 Best The Far Side Comics Revealing '80s Culture
+
+Comics, The Far Side
+
+Mon, 24 Aug 2026 03:00:11 GMT
+
+https://www.cbr.com/funniest-the-far-side-comics-80s-culture/
+
+The '80s were a historic and strange time for the world as cultures shifted and technology advanced, making it the perfect decade for The Far Side.
+---------
+
+# 7 Near-Perfect PS1 Games That Are Forgotten Masterpieces
+
+Games, PlayStation (Original), Video Games, Sony
+
+Mon, 24 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/near-perfect-ps1-games-forgotten-masterpieces/
+
+The original PlayStation has some all-time classics that are beloved to this day, but there are also amazing titles that have been forgotten by time.
+---------
+
+# All 24 Episodes of Steven Spielberg's Forgotten 31-Year-Old Superhero Show Landing on Tubi
+
+TV, Freakazoid!
+
+Mon, 24 Aug 2026 02:30:11 GMT
+
+https://www.cbr.com/steven-spielberg-freakazoid-streaming-free-tubi-september-2026/
+
+The series can be streamed for free over three decades after its debut on television.
+---------
+
+# 7 Most Powerful Versions of Optimus Prime, Officially Ranked
+
+Anime, Transformers, optimus prime
+
+Mon, 24 Aug 2026 02:30:11 GMT
+
+https://www.cbr.com/strongest-optimus-prime-variants-ranked-list/
+
+Not all Optimus Primes are created equal, as some powerful incarnations have access to different abilities and technologies to make them stand out.
+---------
+
+# 5 Essential Detective Books for Beginners
+
+Books and Comics, Mystery, Murder on the Orient Express, The Maltese Falcon, Sherlock Holmes
+
+Mon, 24 Aug 2026 03:22:11 GMT
+
+https://collider.com/essential-detective-books-beginners/
+
+For readers exploring detective fiction for the first time, books like Murder on the Orient Express and The Big Sleep are a great place to start.
+---------
+
+# Netflix’s 6-Part Murder Mystery Became a 481 Million-Hour Hit Because of Scenes Like This
+
+TV Features, The Perfect Couple, Netflix, Dakota Fanning, Nicole Kidman
+
+Mon, 24 Aug 2026 02:44:11 GMT
+
+https://collider.com/the-perfect-couple-netflix-481-million-hours-best-scene-cake-fight/
+
+Nicole Kidman’s The Perfect Couple has amassed 481 million hours viewed on Netflix, and one scene perfectly explains why the mystery hit works.
+---------
+
+# 10 Ongoing Apple TV Shows Perfect for Binge-Watching
+
+TV Lists, Apple TV, Ted Lasso, Pluribus, Silo
+
+Mon, 24 Aug 2026 03:00:14 GMT
+
+https://movieweb.com/apple-tv-ongoing-shows-to-binge-watch/
+
+Apple TV is rapidly becoming one of the most promising streaming services, and it has a number of ongoing series that subscribers can binge-watch.
+---------
+
 # 12 Years Later, One Matthew McConaughey Line In True Detective Is The Bleakest Quote In Crime Thriller History
 
 Streaming TV, True Detective
