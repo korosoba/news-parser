@@ -1,3 +1,124 @@
+# Now Is The Perfect Time To Watch Nathan Fillion's HBO Max Space Opera With High Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Mon, 24 Aug 2026 23:08:56 GMT
+
+https://screenrant.com/hbo-max-green-lantern-emerald-knights-watch-now/
+
+Nathan Fillion made a name for himself in the sci-fi genre with the Firefly series, but his space opera on HBO Max is now a timely watch.
+---------
+
+# The BBC's 30-Part Assassin's Creed Meets Guy Ritchie Series Deserved At Least One More Season
+
+Classic TV, Masked Recs
+
+Mon, 24 Aug 2026 23:02:14 GMT
+
+https://screenrant.com/the-musketeers-tv-series-deserve-one-more-season/
+
+When the historical adventures of iconic heroes meet the swashbuckling action of Guy Ritchie, the result deserves more than three seasons.
+---------
+
+# Need For Speed Underground Goes Open World In This Slick New Racer
+
+Gaming, Steam, Triple-A Games
+
+Mon, 24 Aug 2026 23:00:15 GMT
+
+https://screenrant.com/need-for-speed-underground-open-world-heatwarped/
+
+If you're a fan of underground racing and want more, this new racer aims to bring that classic formula to Steam, with a night-driving theme.
+---------
+
+# Game of Thrones Meets The Witcher In The 12-Part Dark Fantasy Masterpiece That's Flawless
+
+Comics, Masked Recs
+
+Mon, 24 Aug 2026 23:00:15 GMT
+
+https://screenrant.com/game-thrones-witcher-coda-dark-fantasy-masterpiece/
+
+Fans of fantasy series like Game of Thrones and The Witcher will want to check out this twelve-part dark fantasy masterpiece that is unmissable.
+---------
+
+# 10 Best Movies If You Love Terminator 2
+
+Movies, Terminator 2: Judgment Day, Dredd, RoboCop, Upgrade, Timecop, Soldier, Universal Soldier, Looper, Predator, Aliens
+
+Mon, 24 Aug 2026 23:00:15 GMT
+
+https://screenrant.com/best-movies-like-terminator-2-judgment-day/
+
+Terminator 2 is arguably one of the greatest action movies ever made. It's a tough act to follow, but these titles are sure to please fans.
+---------
+
+# The DCU’s Batman Movie Pause Reports Get Official Response From James Gunn
+
+Movies, The Brave and the Bold
+
+Mon, 24 Aug 2026 22:52:52 GMT
+
+https://screenrant.com/batman-brave-bold-dcu-movie-pause-development-reports-james-gunn-response/
+
+Following rumors about the DCU's Batman movie being on pause due to the potential Warner Bros./Paramount merger, James Gunn sets the record straight.
+---------
+
+# Tracker Finally Sets Streaming Release Date Ahead of New Episodes
+
+TV, Hulu, Tracker
+
+Mon, 24 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/tracker-season-3-streaming-release-date-hulu/
+
+The latest season of CBS's hit drama series Tracker is finally coming to streaming.
+---------
+
+# Star Trek Canon Officially Erases Trek's Most Popular Borg Origin
+
+TV, Star Trek, Sci-Fi, Paramount
+
+Mon, 24 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/star-trek-canon-erases-borg-vger-creator-theory/
+
+Star Trek fans' longstanding belief about the Borg's creation is contradicted by several elements of the franchise's canon.
+---------
+
+# 3 MCU Origin Story Movies Better Than Batman Begins
+
+Movies, Batman Begins, Marvel Cinematic Universe
+
+Mon, 24 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/mcu-origin-movies-better-than-batman-begins-list/
+
+Batman Begins has become one of the definitive origin movies, but the MCU has 3 films that can certainly top it.
+---------
+
+# 7 Romance Shows Where Every Episode Is a Masterpiece
+
+TV, Romance, Heated Rivalry, Bridgerton, My Lady Jane
+
+Mon, 24 Aug 2026 23:14:11 GMT
+
+https://collider.com/romance-shows-every-episode-masterpiece/
+
+From the Netflix Regency series Bridgerton to the hockey sensation Heated Rivalry, every episode of these romance shows are genuine masterpieces.
+---------
+
+# Christopher Nolan Officially Beats His ‘Dark Knight’ Box Office Record After 18 Years
+
+Movie News, The Odyssey, Christopher Nolan, The Dark Knight, Box Office
+
+Mon, 24 Aug 2026 23:00:11 GMT
+
+https://collider.com/christopher-nolan-odyssey-beats-dark-knight-domestic-box-office-record/
+
+Christopher Nolan's new epic, The Odyssey, is now his highest-grossing hit both domestically and worldwide. Find out how much it has grossed.
+---------
+
 # The Office Franchise Officially Returns In 2 Weeks
 
 Streaming TV, Masked Recs
