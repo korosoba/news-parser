@@ -1,3 +1,157 @@
+# 5 Michael Connelly books better than Bosch
+
+Books, Michael Connelly, Bosch
+
+Mon, 24 Aug 2026 20:17:36 GMT
+
+https://screenrant.com/5-michael-connelly-books-better-than-bosch/
+
+Harry Bosch might be Michael Connelly's most popular main character, but these five books from the author beat the titular long-running series.
+---------
+
+# Hannibal Lecter Meets Patrick Jane In This 10-Season Crime Thriller Masterpiece
+
+TV, Masked Recs
+
+Mon, 24 Aug 2026 20:02:14 GMT
+
+https://screenrant.com/the-blacklist-raymond-reddington-hannibal-meets-patrick-jane/
+
+A velvet-voiced villain guides the FBI through a web of corruption and moral ambiguity across ten seasons in this mix of Hannibal and The Mentalist.
+---------
+
+# All 6 FAN EXPO Canada 2026 Panels Being Moderated By ScreenRant
+
+TV, Fan Expo
+
+Mon, 24 Aug 2026 19:58:40 GMT
+
+https://screenrant.com/fan-expo-canada-2026-panels-mel-gibson-oded-fehr/
+
+ScreenRant is returning as a media partner for FAN EXPO Canada, moderating panels with celebrity talent throughout the 4-day convention.
+---------
+
+# 5 Best Netflix Series To Binge-Watch This Week (Aug 24–28, 2026)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 24 Aug 2026 19:58:15 GMT
+
+https://screenrant.com/best-netflix-shows-to-binge-week-august-24-2026/
+
+The top shows to binge on Netflix this week, August 24–28, 2026 are Blood Sacrifice, SEAL Team, Talamasca: The Secret Order, Leanne & Beauty In Black.
+---------
+
+# The Best Jim Carrey Movie Ever Is Free On YouTube & It's Aged Like A Fine Wine
+
+Movies, Jim Carrey, Eternal Sunshine of the Spotless Mind
+
+Mon, 24 Aug 2026 19:55:14 GMT
+
+https://screenrant.com/jim-carrey-eternal-sunshine-spotless-mind-streaming-free-youtube/
+
+Jim Carrey delivers the best performance of his career in an emotional sci-fi masterpiece, now free on YouTube and still as visually stunning as ever.
+---------
+
+# 10 Anime I Knew Would Be Masterpieces Within the First 10 Minutes
+
+Anime, FLCL, Attack On Titan, Samurai Champloo
+
+Mon, 24 Aug 2026 20:15:11 GMT
+
+https://www.cbr.com/anime-masterpieces-within-the-first-10-minutes/
+
+Anime series like FLCL and Samurai Champloo waste no time selling the audience on their brilliance.
+---------
+
+# Gotham Stars Set New Reunion 7 Years Later in CBS' Hit Police Spinoff Sheriff Country
+
+TV, Sheriff Country, Gotham
+
+Mon, 24 Aug 2026 20:00:28 GMT
+
+https://www.cbr.com/sheriff-country-season-2-ben-mckenzie-gotham-reunion/
+
+The on-screen reunion comes seven years after Gotham.
+---------
+
+# Mark Wahlberg's 107-Minute Feel-Good Adventure Movie Hits Harder Than Ever 2 Years Later
+
+Movies, Arthur the King, mark wahlberg, Adventure
+
+Mon, 24 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/mark-wahlberg-arthur-the-king-perfect-adventure-movie/
+
+Fading into obscurity upon release, this Mark Wahlberg movie got a second chance through streaming and has been steadily climbing in popularity.
+---------
+
+# M.A.S.K. Unleashes V.E.N.O.M. in Full Force in an All-New Series
+
+Comics, M.A.S.K.
+
+Mon, 24 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/mask-6-venom-new-story-arc/
+
+Matt Trakker may be in over his head as V.E.N.O.M is unleashed upon the Energon Universe.
+---------
+
+# New Steam Co-Op Game Launches With Over 340,000 Concurrent Players
+
+Games, Steam
+
+Mon, 24 Aug 2026 19:57:11 GMT
+
+https://www.cbr.com/new-steam-coop-game-how-to-fish/
+
+It is currently a golden age for wacky co-op games, and a newcomer has exploded onto the scene with hundreds of thousands of concurrent players.
+---------
+
+# Gordon Ramsay’s Most Ambitious ‘MasterChef’ Episode Leaves No Room for Error
+
+Exclusives, MasterChef, Gordon Ramsay, Fox, Food and Cooking Shows
+
+Mon, 24 Aug 2026 20:00:11 GMT
+
+https://collider.com/masterchef-season-16-restaurant-takeover-gordon-ramsay-set-visit-interview/
+
+Gordon Ramsay, Joe Bastianich and Tiffany Derry break down MasterChef Season 16’s Restaurant Takeover and what makes the challenge so brutal.
+---------
+
+# Beloved Disney Pixar Classic Officially Sets New Release for 20th Anniversary
+
+Movie News, Cars, Pixar, Disney
+
+Mon, 24 Aug 2026 20:17:16 GMT
+
+https://movieweb.com/cars-disney-pixar-theaters-anniversary/
+
+But will there be a sequel?
+---------
+
+# 8 War Miniseries That Are Still 10/10 Masterpieces
+
+TV Lists, War, Band of Brothers
+
+Mon, 24 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/best-war-miniseries/
+
+These war miniseries depict combat with strong storylines, impressive character development, and emotion.
+---------
+
+# Netflix's New 95-Minute Action Thriller Is Officially One of the Biggest Hits on Streaming
+
+Movie News, Netflix, Action, Thriller, Sniper, Sniper: The Last Stand, Hot on Streaming
+
+Mon, 24 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/netflix-sniper-no-nation-biggest-action-streaming-hit/
+
+The latest installment in one of the longest-running action franchises is a streaming smash hit.
+---------
+
 # Tom Selleck’s First Post-Blue Bloods Role Revealed In New Apple TV Series
 
 TV, Blue Bloods, Tom Selleck
