@@ -1,3 +1,69 @@
+# DC Officially Reveals Supergirl’s New Black and Blue Costume
+
+DC Comics, Supergirl
+
+Mon, 24 Aug 2026 23:33:14 GMT
+
+https://screenrant.com/supergirl-new-black-and-blue-costume/
+
+Supergirl ditches her iconic blue, red, and yellow costume for a new blue-and-black look, and Kal-El is following his cousin’s lead.
+---------
+
+# Star Wars Officially Introduces The New Jedi Order: All 7 Members Explained
+
+Streaming TV, Star Wars, Star Wars: Visions Presents - The Ninth Jedi
+
+Mon, 24 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/star-wars-the-ninth-jedi-season-1-finale-new-jedi-order/
+
+The Ninth Jedi has introduced the first new Jedi Order since Revenge of the Sith; here's what you need to know about Star Wars' new Jedi Council.
+---------
+
+# The Mess Graphic Novel Officially Confirms That Death is Not the End
+
+Comics, noah van sciver, fantagraphics
+
+Mon, 24 Aug 2026 23:36:10 GMT
+
+https://www.cbr.com/the-mess-graphic-novel-review-death-not-end-van-sciver/
+
+In Noah Van Sciver's brand-new original graphic novel, The Mess, we learn definitively that death is not the end
+---------
+
+# Taylor Sheridan Reveals the $350M Reason He Officially Said Yes to Paramount
+
+Movie News, Taylor Sheridan, Yellowstone, Landman, Lioness
+
+Mon, 24 Aug 2026 23:30:11 GMT
+
+https://collider.com/taylor-sheridan-homelessness-before-tv-empire-yellowstone-success/
+
+Yellowstone creator Taylor Sheridan spoke about sticking to his guns despite being homeless at the start of his career.
+---------
+
+# 'The Simpsons' Debuts Trailer for Crossover With Acclaimed Netflix Sci-Fi Series
+
+TV News, The Simpsons, Black Mirror, Disney+
+
+Mon, 24 Aug 2026 23:40:53 GMT
+
+https://movieweb.com/the-simpsons-black-mirror-parody-trailer-disney-plus/
+
+The Simpsons puts its own spin on 'Black Mirror' in the all-new special.
+---------
+
+# Netflix's Hit 2-Part 'Yellowstone' Replacement Is Officially One of the Biggest Shows on Streaming
+
+TV News, Ransom Canyon, Netflix, Hot on Streaming, Yellowstone
+
+Mon, 24 Aug 2026 23:30:14 GMT
+
+https://movieweb.com/ransom-canyon-netflix-yellowstone-streaming-success-nielsen/
+
+Forget Taylor Sheridan, Netflix's new western hit is a streaming sensation.
+---------
+
 # Now Is The Perfect Time To Watch Nathan Fillion's HBO Max Space Opera With High Rotten Tomatoes Score
 
 Movies, Masked Recs
