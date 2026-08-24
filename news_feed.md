@@ -1,3 +1,113 @@
+# 3 2000's Turn-Based RPGs That Are Still 10/10 Masterpieces
+
+Gaming, Final Fantasy X
+
+Mon, 24 Aug 2026 21:37:00 GMT
+
+https://screenrant.com/3-00s-turn-based-rpgs-that-are-still-1010-masterpieces/
+
+The 00's were a magical time for turn-based RPGS and these 3 games standout as some of the very best ever made.
+---------
+
+# Prime Video Spider-Noir's 2.6 Billion Minutes Watched Increases Season 2 Chances After The End Of An Era
+
+Streaming TV, Spider-Noir, Spider-Man, Marvel Cinematic Universe
+
+Mon, 24 Aug 2026 21:34:24 GMT
+
+https://screenrant.com/spider-noir-season-2-prime-video-billion-minutes-watched/
+
+Prime Video's Spider-Noir boasts impressive viewership numbers after a new report, and season 2 of the live-action Spider-Man show looks more likely.
+---------
+
+# HBO's 7-Episode Crime Drama Masterpiece Deserves Even Higher Than Its 95% Rotten Tomatoes Score
+
+Streaming TV, Masked Recs
+
+Mon, 24 Aug 2026 21:30:15 GMT
+
+https://screenrant.com/mare-of-easttown-hbo-deserve-higher-rotten-tomatoes-score/
+
+The multi-Emmy-winning Mare of Easttown is such a spectacular crime drama that even 95% on Rotten Tomatoes is an underrated score for the HBO show.
+---------
+
+# Why Zoe McLellan's Meredith Brody Left NCIS: New Orleans
+
+Classic TV, NCIS: New Orleans
+
+Mon, 24 Aug 2026 21:30:15 GMT
+
+https://screenrant.com/ncis-new-orleans-zoe-mcllelan-meredith-brody-exit-reason/
+
+Zoe McLellan was one of the original cast members of NCIS: New Orleans, but the actress, who played Meredith Brody, eventually left the show.
+---------
+
+# Hit $217M Horror Smile That Kicked Off a Franchise Sets First-Ever Free Streaming Release
+
+Movies, Smile, Smile 2, Pluto
+
+Mon, 24 Aug 2026 21:50:28 GMT
+
+https://www.cbr.com/smile-horror-franchise-sets-free-streaming-release-date/
+
+One of the best horror franchises of all-time is finally free — years later.
+---------
+
+# After Reboot Cancellation, Buffy the Vampire Slayer Confirms New Physical Release
+
+TV, Buffy The Vampire Slayer
+
+Mon, 24 Aug 2026 21:38:35 GMT
+
+https://www.cbr.com/buffy-the-vampire-slayer-polly-pocket-monster-high/
+
+An exciting new release has been revealed for Buffy the Vampire Slayer fans.
+---------
+
+# 8 Animated Shows That Are Better Than 'Futurama'
+
+TV, Futurama, Animation, The Simpsons, Invincible
+
+Mon, 24 Aug 2026 21:36:11 GMT
+
+https://collider.com/animated-shows-better-than-futurama/
+
+For as entertaining as the sci-fi series Futurama is, animated shows like Adventure Time, Bob's Burgers, and The Simpsons are arguably better.
+---------
+
+# 10 Classic Action Movies You Must Watch in 2026
+
+Movie, Action, Aliens, Predator, The Running Man
+
+Mon, 24 Aug 2026 21:31:11 GMT
+
+https://collider.com/classic-action-movies-must-watch-2026/
+
+From Schwarzenegger cult classics like The Running Man to sci-fi sequel masterpieces like Aliens, these action movies are perfect to watch in 2026.
+---------
+
+# 44 Years Later, the "Greatest Action Film Ever Made" Lands on Streaming Ahead of New Prequel
+
+Movie News, First Blood, Rambo, Coming/Leaving Streaming, Action
+
+Mon, 24 Aug 2026 21:30:14 GMT
+
+https://movieweb.com/rambo-first-blood-action-streaming-free-tubi-september-2026/
+
+One of the most influential action movies of all time is returning to streaming ahead of a new prequel that's set to release next year.
+---------
+
+# New 'Resident Evil' Teaser Finally Unleashes Iconic Franchise Monster
+
+Movie News, Resident Evil, Horror
+
+Mon, 24 Aug 2026 21:23:39 GMT
+
+https://movieweb.com/resident-evil-teaser-zombie-dog/
+
+The latest look at 'Resident Evil' reveals the beloved zombie dogs from the video games.
+---------
+
 # Supernatural Meets Terry Pratchett In Prime Video's 13-Part Fantasy Show
 
 TV, Masked Recs
