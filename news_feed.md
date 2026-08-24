@@ -1,3 +1,124 @@
+# Supernatural Meets Terry Pratchett In Prime Video's 13-Part Fantasy Show
+
+TV, Masked Recs
+
+Mon, 24 Aug 2026 21:00:15 GMT
+
+https://screenrant.com/good-omens-prime-video-terry-pratchett-supernatural/
+
+Prime's hilarious fantasy show masterpiece takes Supernatural's angels vs demons storyline and gives it the Discworld-esque humor it always needed.
+---------
+
+# Insidious: Out Of The Further Has 1 Post-Credits Scene - Does It Set Up Insidious 7?
+
+Movies, Insidious: Out of the Further
+
+Mon, 24 Aug 2026 21:00:15 GMT
+
+https://screenrant.com/insidious-out-of-the-further-post-credits-scene/
+
+The latest film in the Insidious franchise has one post credits scene, which highlights what the villain of the story is up to.
+---------
+
+# Glen Powell’s 130-Minute Thriller That Took 12 Years To Make Passes One Of Streaming’s Biggest-Ever Milestones
+
+Movies, Masked Recs
+
+Mon, 24 Aug 2026 20:58:33 GMT
+
+https://screenrant.com/glen-powell-top-gun-maverick-paramount-plus-streaming-milestone/
+
+A hit Glen Powell thriller that took over a decade to finally get made is now passing one of streaming's most impressive and biggest-ever milestone.
+---------
+
+# Blood Sacrifice: Netflix's 5-Part Psychological Thriller Is One Of Its Best New Shows To Binge
+
+Streaming TV, Masked Recs
+
+Mon, 24 Aug 2026 20:56:14 GMT
+
+https://screenrant.com/netflix-blood-sacrifice-best-show-binge-watch/
+
+Blood Sacrifice, Netflix's new 5-part psychological thriller, is one of its best to binge this week following its breakout success over the weekend.
+---------
+
+# PlayStation Officially Reveals New Hardware Available for Preorder
+
+Games, PlayStation 5, PlayStation (Original)
+
+Mon, 24 Aug 2026 21:20:11 GMT
+
+https://www.cbr.com/playstation-officially-reveals-new-hardware-august-2026/
+
+As the PlayStation 6 looms on the horizon, the PS5 is about to receive a new hardware upgrade.
+---------
+
+# 10 Classic Turn-Based RPGs That Are Unplayable Today
+
+Games, Role Playing Game, Video Games
+
+Mon, 24 Aug 2026 21:15:11 GMT
+
+https://www.cbr.com/unplayable-classic-turn-based-rpgs/
+
+Not all classic games can stand the test of time, and these turn-based RPGs are all but impossible to play today.
+---------
+
+# HBO Max's 82-Episode Reboot of Flawless Cartoons Explodes Ahead of Long-Awaited Movie
+
+TV, Looney Tunes, Coyote Vs. Acme, HBO Max
+
+Mon, 24 Aug 2026 21:06:25 GMT
+
+https://www.cbr.com/looney-tunes-cartoons-hbo-max-success-august-2026/
+
+The reboot is a streaming hit.
+---------
+
+# Transformers Take On a Mysterious New Threat in a Dark New Era
+
+Comics, Transformers
+
+Mon, 24 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/transformers-38-megatron-threat/
+
+Skybound and Image Comics are about to unleash a whole new form of the Autobots' classic nemesis, and there is no telling how much worse he'll become.
+---------
+
+# 10 Greatest Cozy Horror Books of All Time, Ranked
+
+Movies, Horror
+
+Mon, 24 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/best-cozy-horror-books-list/
+
+It may sound contradictive but some of the best horror books have the coziest atmospheres with low stakes to enjoy spooky thrills without all the gore
+---------
+
+# 10 Fantasy Books That Are a Masterclass in Worldbuilding
+
+Books and Comics, Books, Fantasy, J.R.R. Tolkien, Philip Pullman
+
+Mon, 24 Aug 2026 21:08:11 GMT
+
+https://collider.com/fantasy-books-that-are-a-masterclass-in-worldbuilding/
+
+Classic fantasy books like The Golden Compass by Philip Pullman and The Lord of the Rings by JRR Tolkien have some of the genre's best worldbuilding.
+---------
+
+# Matthew McConaughey & Woody Harrelson's 'True Detective' Reunion Revealed in First Look at New Series
+
+TV News, Brothers, Woody Harrelson, Matthew McConaughey, Apple TV
+
+Mon, 24 Aug 2026 20:59:12 GMT
+
+https://movieweb.com/brothers-matthew-mcconaughey-woody-harrelson-tv-show-first-images/
+
+In Apple TV's new series 'Brothers,' the actors play fictionalized versions of themselves
+---------
+
 # Iconic Law & Order Star Cast As The President In NBC’s New Crime Thriller
 
 TV, Line of Fire
