@@ -1,3 +1,344 @@
+# Disney Sued Over 25-Year-Old Sci-Fi Movie In Lawsuit Alleging "Repeated" Sexual Assaults
+
+Movies, Disney, The Poof Point
+
+Mon, 24 Aug 2026 15:14:33 GMT
+
+https://screenrant.com/disney-the-poof-point-movie-set-lawsuit-sexual-assaults-raquel-lee-bolleau/
+
+Disney is finding itself at the center of a damaging lawsuit from a sci-fi movie set in which an actor alleges "repeated" sexual assaults.
+---------
+
+# 41 Years Later, The Very First Calvin and Hobbes Strip Is Still Essentially Flawless
+
+Comics, Calvin and Hobbes
+
+Mon, 24 Aug 2026 15:09:49 GMT
+
+https://screenrant.com/first-calvin-hobbes-comic-tiger-trap-flawless/
+
+Unpacking the first Calvin and Hobbes.
+---------
+
+# Power Rangers Cosmic Fury's Zayto Officially Returns In New Mighty Morphin Crossover
+
+Streaming TV, Power Rangers
+
+Mon, 24 Aug 2026 15:03:14 GMT
+
+https://screenrant.com/power-rangers-dino-fury-zayto-mighty-morphin-crossover/
+
+The new live-action Power Rangers series connects to distant ends of the timeline, but does it in a way that's unlike anything that's been before.
+---------
+
+# Rebel Wilson Introduces The Pixie Cups In Directorial Debut The Deb
+
+Exclusive, The Deb, Rebel Wilson
+
+Mon, 24 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/video/the-deb-movie-musical-rebel-wilson-clip/
+
+EXCLUSIVE: ScreenRant presents a clip from Rebel Wilson's hotly anticipated directorial debut, The Deb, a musical comedy arriving August 25.
+---------
+
+# 4 10/10 Free PlayStation Games You Don't Need PS Plus For
+
+Gaming, PlayStation, Fortnite, Warframe, Genshin Impact, Rocket League
+
+Mon, 24 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/playstation-free-10-rated-games-no-ps-plus-required/
+
+Explore amazing free PS4 and PS5 games that require no subscription.
+---------
+
+# The Rings Of Power Introduces LOTR's Next Generation Of Dwarves In Exclusive New Image
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Rings of Power - Season 3, The Lord of the Rings
+
+Mon, 24 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/rings-of-power-prime-video-new-dwarves-generation-exclusive-image/
+
+EXCLUSIVE: New image from Prime Video's The Lord of the Rings: The Rings of Power introduces LOTR's first teenage dwarves, Gerda and Gamli.
+---------
+
+# Transformers Meets Silo In A Near-Perfect Dystopian Series With Just 27 Episodes
+
+TV, Masked Recs
+
+Mon, 24 Aug 2026 14:59:14 GMT
+
+https://screenrant.com/gurren-lagann-dystopian-series-transformers-silo/
+
+A compact mecha odyssey fuses the purely fun action of Transformers with Silo's bleak conspiracies across 27 episodes of relentless momentum.
+---------
+
+# Mark Wahlberg's $40M Movie In Netflix's Top 10 Is One Of His Most Underrated Performances
+
+Movies, Arthur the King
+
+Mon, 24 Aug 2026 14:45:15 GMT
+
+https://screenrant.com/mark-wahlberg-arthur-the-king-movie-netflix-streaming-underrated/
+
+Following a disappointing theatrical run, Arthur The King is topping streaming charts, proving that this heartwarming feature is a must-see.
+---------
+
+# The Pitt Season 3 Officially Confirms Bigger Role For Key Character
+
+TV, The Pitt
+
+Mon, 24 Aug 2026 14:40:43 GMT
+
+https://screenrant.com/the-pitt-season-3-night-shift-bigger-role-confirmed-shawn-hatosy/
+
+The Pitt season 3 will feature a key character in a bigger role, as this series star explains how they are going to appear more in the medical drama.
+---------
+
+# Justin Hartley's Tracker Confirms Exciting New Release Next Week
+
+TV, Tracker
+
+Mon, 24 Aug 2026 14:34:57 GMT
+
+https://screenrant.com/tracker-season-3-hulu-release-date-september-2026/
+
+Tracker is getting an exciting new release at exactly the right moment, just as the CBS procedural's fourth installment is taking shape.
+---------
+
+# Prime Video's 8-Episode Mystery Show Based on a Bestselling Novel Is the Perfect Twisty Thriller
+
+TV, We Were Liars, Prime Video
+
+Mon, 24 Aug 2026 15:30:11 GMT
+
+https://www.cbr.com/prime-video-we-were-liars-twisty-thriller/
+
+Prime Video's eight-episode mystery series turns extreme privilege, toxic family dysfunction, and unaddressed grief into the true source of horror.
+---------
+
+# 6 Strongest One Piece Characters From the Void Century, Ranked
+
+Anime, One Piece
+
+Mon, 24 Aug 2026 15:15:11 GMT
+
+https://www.cbr.com/strongest-one-piece-characters-void-century/
+
+The Void Century is a mysterious era in One Piece, with a few characters known to have lived through it. Who is the strongest among them?
+---------
+
+# Pierce Brosnan's Remake of 33-Year-Old Action Thriller Classic Officially Scores Release Date
+
+Movies, Cliffhanger
+
+Mon, 24 Aug 2026 15:11:11 GMT
+
+https://www.cbr.com/pierce-brosnan-cliffhanger-remake-release-date/
+
+Pierce Brosnan's long-awaited remake of a classic Sylvester Stallone movie finally scores a theatrical release date.
+---------
+
+# 8 Reasons It's Hard To Watch the Star Wars Prequel Trilogy Today
+
+Movies, Star Wars
+
+Mon, 24 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/reasons-star-wars-prequel-trilogy-hard-to-watch-list/
+
+Despite cultural reappraisal from Star Wars fans, the years have not been kind to George Lucas's prequel trilogy.
+---------
+
+# 10 Bestselling Light Novels of All Time, Ranked
+
+Anime, light novels, That Time I Got Reincarnated as a Slime, Isekai, The Apothecary Diaries
+
+Mon, 24 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/bestselling-light-novels-all-time-ranked/
+
+These light novels are not only best-sellers, but they've changed the anime and manga landscape for the better.
+---------
+
+# Jason Statham's 105-Minute R-Rated Action Thriller Smash Hit Lands New Streaming Home
+
+Movies, The Beekeeper, Peacock, Action
+
+Mon, 24 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/jason-statham-the-beekeeper-peacock-september-2026/
+
+There will be new ways to watch the ultimate scammer revenge film.
+---------
+
+# 5 Most Rewatchable Netflix Shows Ever Made
+
+TV, Netflix, Mindhunter, Bridgerton
+
+Mon, 24 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/netflix-most-rewatchable-shows-list/
+
+Netflix series like Mindhunter and Dark continue to hold the crown of most rewatchable shows ever made by the streaming service.
+---------
+
+# The Duskbloods Hands-On Preview: FromSoftware's Switch 2 Exclusive Needs More Time In The Oven
+
+Games, Video Games, Nintendo, Bloodborne
+
+Mon, 24 Aug 2026 14:45:11 GMT
+
+https://www.cbr.com/the-duskbloods-hands-on-preview/
+
+FromSoftware's The Duskbloods for Nintendo Switch 2 is finally playable, but it's clear the game has issues that need to be resolved before launch.
+---------
+
+# Thanos' Return Officially Confirmed for New Avengers Release
+
+Movie News, Avengers: Doomsday, Avengers: Endgame, MCU, Disneyland
+
+Mon, 24 Aug 2026 15:15:11 GMT
+
+https://collider.com/avengers-infinity-defense-king-thanos-return/
+
+Disney officially confirms the return of Thanos for new 2028 Avengers project, and he's getting a major upgrade.
+---------
+
+# Halo Is Officially Getting a Prequel and It Releases This Year
+
+Books and Comics News, Halo, Paramount, Steven Spielberg
+
+Mon, 24 Aug 2026 15:00:11 GMT
+
+https://collider.com/halo-prequel-parasites-wake-release-date/
+
+Halo is officially getting a prequel story and it's set to release later this year. Get the details about Halo: Parasite's Wake.
+---------
+
+# ‘Days of Our Lives’ Stars Officially Lead a Messy Age-Gap Romance in New Trailer [Exclusive]
+
+Movie News, Indie, Romance, Movie Trailers, Blake Jenner
+
+Mon, 24 Aug 2026 15:00:11 GMT
+
+https://collider.com/veronica-and-julian-trailer-nadia-bjorlin-kyler-pettis/
+
+Two lovers at different points in their lives find a connection in the first trailer for Veronica and Julian. Watch it now.
+---------
+
+# 'New Girl' Star's Age-Gap Love-Triangle Officially Goes Off the Rails in New Sneak Peek [Exclusive]
+
+Movie News, The Sun Never Sets, Dakota Fanning, Jake Johnson, Joe Swanberg
+
+Mon, 24 Aug 2026 15:00:11 GMT
+
+https://collider.com/the-sun-never-sets-jake-johnson-dakota-fanning-exclusive-sneak-peek/
+
+Watch Jake Johnson and Dakota Fanning in an exclusive The Sun Never Sets sneak peek from Joe Swanberg’s first film in seven years.
+---------
+
+# Matrix Stunt Veteran Officially Brings the Pain to ‘Kung Fu Deadly’ in New Look [Exclusive]
+
+Exclusives, Kung Fu, Fantastic Fest, Collider Exclusive Preview, Comedy
+
+Mon, 24 Aug 2026 15:00:11 GMT
+
+https://collider.com/kung-fu-deadly-image-steven-he-action-comedy-fantastic-fest/
+
+A new image from the martial arts action comedy Kung Fu Deadly sees YouTube star Steven He in the middle of a painful battle for his life.
+---------
+
+# HBO's Sci-Fi Detective Series Just Revived a Major Part of DC Comics Lore
+
+TV Features, Lanterns, HBO, DC, Green Lantern: The Animated Series
+
+Mon, 24 Aug 2026 15:00:11 GMT
+
+https://collider.com/lanterns-episode-2-manhunters-reveal-dc-comics/
+
+HBO's Lanterns series reveals its biggest threat: a villain with deep roots in DC Comics lore.
+---------
+
+# James Gunn Is Officially Removing a Controversial Detail in 'Man of Tomorrow'
+
+Movie News, Man of Tomorrow, Superman, James Gunn, DCU
+
+Mon, 24 Aug 2026 14:45:11 GMT
+
+https://collider.com/nathan-fillion-guy-gardner-haircut-man-of-tomorrow/
+
+Man of Tomorrow is officially fixing one of Superman's most controversial details by changing Nathan Fillion's Guy Gardner.
+---------
+
+# Netflix’s 8-Part ‘Twilight Zone’ Replacement Series Is Officially Returning
+
+TV News, Netflix, Black Mirror, Sci-Fi, The Twilight Zone
+
+Mon, 24 Aug 2026 14:36:22 GMT
+
+https://collider.com/black-mirror-season-8-filming-start-date/
+
+Netflix’s binge-worthy Twilight Zone replacement series, Black Mirror, is officially returning for Season 8.
+---------
+
+# Guy Ritchie's 'The Gentlemen' Season 2 Gets New Trailer Ahead of Next Month's Netflix Debut
+
+TV News, The Gentleman, Guy Ritchie, Netflix
+
+Mon, 24 Aug 2026 15:12:16 GMT
+
+https://movieweb.com/the-gentleman-season-2-trailer-netflix/
+
+Netflix revealed an exciting new look at 'The Gentleman' Season 2 with a trailer highlighting its leading cast of stars.
+---------
+
+# 'Lord of the Rings: Rings of Power' Officially Sets New Release Ahead of Season 3
+
+TV News, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Amazon
+
+Mon, 24 Aug 2026 15:05:12 GMT
+
+https://movieweb.com/lord-of-the-rings-of-power-steelbook/
+
+Bring home the first two seasons of 'The Lord of the Rings: The Rings of Power.'
+---------
+
+# Netflix's New 5-Part Thriller Masterpiece Is Officially the Biggest Streaming Show in the World
+
+TV News, Thriller, Hot on Streaming, Crime, Netflix
+
+Mon, 24 Aug 2026 15:01:14 GMT
+
+https://movieweb.com/blood-sacrifice-crime-thriller-streaming-netflix-august-2026/
+
+'True Detective' meets 'The Killing' In Netflix's newest hit, which has already become a global sensation just four days after its premiere.
+---------
+
+# "Yellowstone Meets True Detective" In a Neo-Western Epic That's Aged Like Fine Wine
+
+Features, Western, Longmire, Yellowstone, True Detective
+
+Mon, 24 Aug 2026 15:01:14 GMT
+
+https://movieweb.com/longmire-yellowstone-meets-true-detective-recommendation/
+
+'Yellowstone' and 'True Detective' fans will want to watch this neo-Western TV series with beloved actors and great storylines.
+---------
+
+# Netflix Confirms Fate of Guy Ritchie's Hit Action Crime Thriller Ahead of Season 2
+
+TV News, The Gentlemen
+
+Mon, 24 Aug 2026 14:44:33 GMT
+
+https://movieweb.com/netflix-the-gentlemen-season-3-renewal-trailer/
+
+Netflix's hit crime thriller series 'The Gentlemen' from Guy Ritchie just scored a major Season 3 update.
+---------
+
 # Netflix's Hit New Crime Thriller Series Officially Returning For Season 2 With Filming Timeline Confirmed
 
 TV, Legends
