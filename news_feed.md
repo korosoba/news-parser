@@ -1,3 +1,47 @@
+# Scarlet Witch's Official Team-Up With the Sorcerer Supreme of the Quantum Realm
+
+Comics, Scarlet Witch
+
+Mon, 24 Aug 2026 11:42:43 GMT
+
+https://www.cbr.com/scarlet-witch-sorcerer-supreme-9-preview-torture-star/
+
+In a preview of this week's Sorcerer Supreme #9, see how Scarlet Witch and the Sorcerer Supreme of the Quantum Realm deal with a Torture Star
+---------
+
+# 25 Best 'It's Always Sunny In Philadelphia' Quotes, Ranked
+
+TV, It's Always Sunny in Philadelphia, Sitcom, FX, Rob Mac
+
+Mon, 24 Aug 2026 11:38:11 GMT
+
+https://collider.com/its-always-sunny-in-philadelphia-best-quotes-ranked/
+
+It's Always Sunny In Philadelphia is the longest-running comedy sitcom of all time, leading to plenty of great lines. Which quotes are the best?
+---------
+
+# 10 Essential Nintendo Games Every Fan Must Play
+
+Gaming, Video Game, Nintendo, Super Smash Bros. Ultimate, Animal Crossing
+
+Mon, 24 Aug 2026 11:31:11 GMT
+
+https://collider.com/essential-nintendo-games-every-fan-must-play/
+
+Several video game titles have become synonymous with Nintendo itself, from recent hits like Splatoon to classic masterpieces like Super Mario Bros.
+---------
+
+# 8 Near-Perfect Thriller Movie Trilogies, Ranked
+
+Movie, Thriller, Mad Max, Taken, The Silence of the Lambs
+
+Mon, 24 Aug 2026 11:20:12 GMT
+
+https://collider.com/near-perfect-thriller-movie-trilogies-ranked/
+
+From Hercule Poirot to Mad Max, great characters are why these thriller trilogies are iconic.
+---------
+
 # The Walking Dead, Valheim Collide In New Open-World Zombie Survival Game
 
 Gaming, The Walking Dead, Valheim
