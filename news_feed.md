@@ -1,3 +1,146 @@
+# Iconic Law & Order Star Cast As The President In NBC’s New Crime Thriller
+
+TV, Line of Fire
+
+Mon, 24 Aug 2026 20:44:55 GMT
+
+https://screenrant.com/line-of-fire-show-sam-waterston-cast-president/
+
+Years after exiting Law & Order, one of the show's most iconic stars is returning to NBC, this time to star in a crime thriller series.
+---------
+
+# The Ages Of How I Met Your Mother's Main Cast In Season 1 Vs Now
+
+Classic TV, How I Met Your Mother
+
+Mon, 24 Aug 2026 20:30:16 GMT
+
+https://screenrant.com/how-i-met-your-mother-main-cast-ages/
+
+How I Met Your Mother had a great run on CBS and lasted many seasons. Here are the ages of the actors when they first started on the show versus now.
+---------
+
+# The Walking Dead Meets Snowpiercer In Michael Bay's 5-Part Sci-Fi Series
+
+Classic TV, Masked Recs
+
+Mon, 24 Aug 2026 20:30:15 GMT
+
+https://screenrant.com/the-last-ship-michael-bay-walking-dead-meets-snowpiercer/
+
+The Walking Dead meets Snowpiercer in the Michael Bay-produced TNT series, The Last Ship, a five-season post-apocalyptic adventure on Netflix.
+---------
+
+# 7 Actors Perfect For The Next James Bond Who Are Flying Under The Radar
+
+Movies, James Bond
+
+Mon, 24 Aug 2026 20:30:15 GMT
+
+https://screenrant.com/best-next-james-bond-actors-casting-lesser-known/
+
+The next James Bond doesn't have to be an A-list name. These seven rising actors could be exactly what 007 needs.
+---------
+
+# All 3 Star Wars Universe Releases Coming To Disney+ In September 2026
+
+Movies, Star Wars, Disney+
+
+Mon, 24 Aug 2026 20:23:13 GMT
+
+https://screenrant.com/star-wars-the-mandalorian-releases-disney-plus-september-2026/
+
+Multiple Star Wars universe releases are coming to Disney+ in September, including the movie everyone was waiting for and Luke Skywalker's return.
+---------
+
+# 5 Michael Connelly Books Better Than Bosch
+
+Books, Michael Connelly, Bosch
+
+Mon, 24 Aug 2026 20:17:36 GMT
+
+https://screenrant.com/michael-connelly-books-better-than-bosch/
+
+Harry Bosch might be Michael Connelly's most popular main character, but these five books from the author beat the titular long-running series.
+---------
+
+# Valuable Batman and X-Men Comic Grails Still Up For Grabs in CBR Repackz
+
+Comics, X-Men, Absolute Batman
+
+Mon, 24 Aug 2026 20:44:42 GMT
+
+https://www.cbr.com/absolute-batman-giant-size-x-men-comic-grails-cbr-repackz/
+
+We planted two valuable comic book grails in CBR Repackz, and from what we can tell, no one has pulled them yet.
+---------
+
+# Steven Spielberg’s 35-Year-Old Fantasy Adventure Classic Officially Returns With New Release
+
+Movies, Hook, Fantasy
+
+Mon, 24 Aug 2026 20:35:11 GMT
+
+https://www.cbr.com/hook-4k-blu-ray-release/
+
+Steven Spielberg's beloved fantasy movie is back with a new release in 2026.
+---------
+
+# New Sailor Moon Quest Series Launches With First 4 Character Designs
+
+Anime, Sailor Moon, merchandise, collectibles
+
+Mon, 24 Aug 2026 20:35:11 GMT
+
+https://www.cbr.com/sailor-moon-quest-new-figpin-series-launch/
+
+Sailor Moon debuts four new full-sized FiGPiN collectibles, including a sparkly Super Sailor Moon and a free Luna and Artemis collectible for fans.
+---------
+
+# Matthew McConaughey's Beloved 23-Year-Old Classic Finally Returning With New Sequel
+
+Movies, How to Lose A Guy In 10 Days
+
+Mon, 24 Aug 2026 20:31:42 GMT
+
+https://www.cbr.com/matthew-mcconaughey-how-to-lose-a-guy-in-10-days-sequel/
+
+The actor previously shared his interest in a continuation.
+---------
+
+# 3 Near-Perfect Series to Binge on Netflix This Week (Aug 24-28)
+
+TV, The Four Seasons, Yellowjackets, Revival, Netflix
+
+Mon, 24 Aug 2026 20:47:11 GMT
+
+https://collider.com/netflix-shows-binge-week-august-24-2026/
+
+Yellowjackets, Revival, and The Four Seasons make up our list of the best Netflix shows to binge the week of August 24, 2026.
+---------
+
+# Matthew McConaughey's Long-Awaited Cult Favorite Sequel Officially Happening 23 Years Later
+
+Movie News, How to Lose A Guy In 10 Days, Matthew McConaughey, Kate Hudson
+
+Mon, 24 Aug 2026 20:47:41 GMT
+
+https://movieweb.com/how-to-lose-a-guy-in-10-days-sequel-matthew-mcconaughey/
+
+The upcoming legacy sequel is in the early stages of development.
+---------
+
+# Creator of Netflix's 5-Part Thriller Smash Officially Confirms Streaming Return
+
+TV News, You, Netflix
+
+Mon, 24 Aug 2026 20:46:18 GMT
+
+https://movieweb.com/you-netflix-caroline-kepnes-thriller-series-the-attentionist/
+
+Creator of 'You,' Caroline Kepnes, will be adapting another one of her stories for YouTube project.
+---------
+
 # 5 Michael Connelly books better than Bosch
 
 Books, Michael Connelly, Bosch
