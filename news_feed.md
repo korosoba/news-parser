@@ -1,3 +1,245 @@
+# Netflix's Hit New Crime Thriller Series Officially Returning For Season 2 With Filming Timeline Confirmed
+
+TV, Legends
+
+Mon, 24 Aug 2026 14:28:42 GMT
+
+https://screenrant.com/netflix-legends-season-2-renewal-2027-filming-start/
+
+After becoming a viewership and critical success, Netflix’s intense new crime thriller show is now confirmed to be returning for season 2.
+---------
+
+# Netflix’s Longest-Running Sci-Fi Series Begins Filming For New Season
+
+TV, Black Mirror
+
+Mon, 24 Aug 2026 14:19:15 GMT
+
+https://screenrant.com/black-mirror-season-8-netflix-confirmed-filming-begins/
+
+Production has begun on one of Netflix’s longest-running sci-fi shows, which is returning for its eighth season after debuting in 2011.
+---------
+
+# The Exorcist’s 2026 Return Debuts To Rare Rotten Tomatoes Score
+
+Movies
+
+Mon, 24 Aug 2026 14:16:49 GMT
+
+https://screenrant.com/the-exorcist-boormand-and-the-devil-rotten-tomatoes-score-debut-rare/
+
+There is a new film about The Exorcist world in 2026, and it is a rarity both in subject and now in Rotten Tomatoes score as well.
+---------
+
+# 45 Years Later, One Of Horror’s Most Infamous Movies Ever Is Getting A Shocking Never-Before-Seen Release
+
+Movies, Cannibal Holocaust
+
+Mon, 24 Aug 2026 14:14:48 GMT
+
+https://screenrant.com/cannibal-holocaust-movie-pg-rated-ultimate-edition-release-october-2026/
+
+45 years after its initial release, one of horror's most infamous movies ever made is getting a shocking, limited, never-before-seen release.
+---------
+
+# Rachael Harris & Joe Lo Truglio Are Honored To Be Star Trek: Strange New Worlds Puppet Episode Villains (Exclusive)
+
+Interviews, Star Trek: Strange New Worlds
+
+Mon, 24 Aug 2026 14:10:56 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-rachael-harris-joe-lo-truglio-interview/
+
+ScreenRant interviews Rachael Harris and Joe Lo Truglio about playing Orion pirates taking on Star Trek: Strange New Worlds' puppet Enterprise crew.
+---------
+
+# Guy Ritchie’s The Gentlemen Season 3 Fate Officially Decided By Netflix
+
+TV, The Gentlemen
+
+Mon, 24 Aug 2026 14:04:02 GMT
+
+https://screenrant.com/the-gentlemen-season-3-renewal-season-2-trailer/
+
+The Gentlemen is back for more as Netflix officially decides the series' fate, and the Guy Ritchie crime show drops the trailer for season 2.
+---------
+
+# 14 Years Ago, The Walking Dead Delivered A Gut-Wrenching 4-Word Goodbye
+
+Gaming, The Walking Dead
+
+Mon, 24 Aug 2026 14:00:15 GMT
+
+https://screenrant.com/walking-dead-telltale-lees-final-words/
+
+The Walking Dead has been filled with tough moments to watch over the last couple of decades or more, but one in particular hits harder than the rest.
+---------
+
+# ScreenRant’s 2026 Fall TV Preview: An Exclusive Look At Over 40 Upcoming Shows
+
+Streaming TV
+
+Mon, 24 Aug 2026 14:00:15 GMT
+
+https://screenrant.com/2026-fall-tv-preview-exclusive-images/
+
+Fall 2026's TV schedule is stacked with new and returning series. Check out ScreenRant's official preview, featuring exclusive images of 40+ shows.
+---------
+
+# The Last Of Us Season 3 Set Video Reveals Major Dead Character’s Return For Key Tommy Scene
+
+TV, The Last of Us
+
+Mon, 24 Aug 2026 13:55:41 GMT
+
+https://screenrant.com/the-last-of-us-season-3-set-video-jesse-return/
+
+The Last of Us is resurrecting a familiar face, as a new set video confirms a major character's return, with filming underway for season 3.
+---------
+
+# Grey's Anatomy Changed ABC's TV Rules Forever With Just 4 Words
+
+TV, Grey's Anatomy, Drama, Innovation
+
+Mon, 24 Aug 2026 14:30:11 GMT
+
+https://www.cbr.com/greys-anatomy-best-quote/
+
+Miranda Bailey has just five rules, and they're destined to make Grey's Anatomy the most influential medical drama of all time.
+---------
+
+# 1 of Transformers' Rarest Optimus Prime Pepsi Releases Is Back After 40 Years
+
+Anime, Transformers, merchandise, toys, hasbro, action figures
+
+Mon, 24 Aug 2026 14:20:11 GMT
+
+https://www.cbr.com/transformers-optimus-prime-original-action-figure-heritage-auctions/
+
+An incredibly rare piece of Transformers memorabilia is back on the market after more than four decades, and it might set a new franchise record.
+---------
+
+# 10 Most Overpowered Isekai Heroes, Officially Ranked
+
+Anime, Isekai, Re:Zero -Starting Life in Another World-, Mushoku Tensei: Jobless Reincarnation, Overlord
+
+Mon, 24 Aug 2026 14:15:11 GMT
+
+https://www.cbr.com/most-op-isekai-heroes-officially-ranked/
+
+Isekai heroes are usually absurdly strong, but these heroes are so much stronger than the rest that there's no point in comparing them.
+---------
+
+# Netflix's 10-Part Revenge Thriller Show With 90% RT Is 1 of the World's Most-Watched Shows
+
+TV, Agent Kim Reactivated, Netflix
+
+Mon, 24 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/netflix-agent-kim-reacivated-nielsen-success-july-2026/
+
+Netflix's hit revenge thriller is one of the most-watched shows in the world with almost 400 million minutes viewed.
+---------
+
+# 5 Greatest Sci-Fi Shows With Fewer Than 30 Episodes, Ranked
+
+TV, Bodies, Station Eleven, Sci-Fi, Innovation
+
+Mon, 24 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/best-sci-fi-shows-under-30-episodes-list/
+
+Although sci-fi shows like The Expanse are renowned for their epic storytelling, some conclude their stories in fewer episodes.
+---------
+
+# Netflix's Best Crime Thriller Officially Renewed
+
+TV News, The Gentlemen, Netflix, Guy Ritchie
+
+Mon, 24 Aug 2026 14:30:22 GMT
+
+https://collider.com/the-gentlemen-season-3-renewed-netflix-season-2-trailer/
+
+Watch the new trailer for The Gentlemen Season 2 as Netflix officially greenlights Season 3 just one week ahead of new episodes.
+---------
+
+# 'Fallout' Officially Expands With Stunning New 2026 Release
+
+TV News, Fallout, Fallout 76, Gaming, Prime Video
+
+Mon, 24 Aug 2026 14:15:11 GMT
+
+https://collider.com/fallout-lucky-38-sunglasses/
+
+Prime Video's hit series Fallout is officially expanding with a stunning new release this year. Get the details here.
+---------
+
+# Taylor Sheridan Star's Brutal Thriller With the "Most Visceral Knife Combat in Cinema History" Is Officially Back on Top
+
+Movie News, The Hunted, Benicio Del Toro, Paramount Plus, Tommy Lee Jones
+
+Mon, 24 Aug 2026 14:01:11 GMT
+
+https://collider.com/the-hunted-streaming-success-paramount-plus-august-2026/
+
+Taylor Sheridan star's brutal thrilled with a visceral knife combat scene is officially back on top of streaming charts.
+---------
+
+# Prime Video's 'The Rings of Power' Officially Gets a Surprising New Release Before Season 3
+
+TV News, The Lord of the Rings: The Rings of Power, Prime Video, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings
+
+Mon, 24 Aug 2026 13:50:15 GMT
+
+https://collider.com/the-lord-of-the-rings-the-rings-of-power-season-1-2-4k-uhd-steelbook-release/
+
+Prime Video is officially releasing The Lord of the Rings: The Rings of Power on 4K UHD. Get the details on the steelbook here.
+---------
+
+# Marvel Officially Reveals the Longest MCU Movie Ever
+
+Movie News, Avengers: Endgame, MCU, Marvel, Avengers: Doomsday
+
+Mon, 24 Aug 2026 13:45:11 GMT
+
+https://collider.com/avengers-endgame-extended-cut-theatrical-release-date/
+
+Marvel officially announces the theatrical release for their longest MCU film ever. Get the details here about the new release.
+---------
+
+# 35 Years Later, Robin Williams' Cult Classic Fantasy Adventure Sets New Release
+
+Movie News, Hook, Robin Williams, Steven Spielberg, Fantasy, Blu-ray
+
+Mon, 24 Aug 2026 14:15:50 GMT
+
+https://movieweb.com/robin-williams-hook-4k-blu-ray/
+
+Steven Spielberg and Robin Williams' fantasy classic 'Hook' is getting a new 4K Blu-ray release to commemorate the movie's 35th anniversary.
+---------
+
+# 22-Year-Old 'Scrubs' Quote Spoils the Revival's Biggest Storyline
+
+Features, Scrubs
+
+Mon, 24 Aug 2026 14:00:14 GMT
+
+https://movieweb.com/scrubs-quote-jd-elliot-twist-spoiled/
+
+Sean's return to 'Scrubs' suggests Elliot has a new happy ending in sight. But what if it's not with Sean? Read on for more.
+---------
+
+# MCU Star Slams Their Character's Fatal Ending Ahead of 'Avengers: Doomsday'
+
+Movie News, Doctor Strange In the Multiverse of Madness, Doctor Strange in the Multiverse of Madness
+
+Mon, 24 Aug 2026 13:54:59 GMT
+
+https://movieweb.com/hayley-atwell-slams-captain-carter-death-doctor-strange-2/
+
+Marvel did this superhero dirty in 'Doctor Strange in the Multiverse of Madness.'
+---------
+
 # The Last Of Us Season 3 Needs A Canon Character Even The Games Didn't Show
 
 Streaming TV, The Last of Us
