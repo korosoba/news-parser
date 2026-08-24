@@ -1,3 +1,14 @@
+# Naruto X Baruto: Ultimate Ninja Storm Connections Gets Surprise New Release
+
+Gaming, Naruto x Boruto: Ultimate Ninja Storm Connections, Naruto
+
+Mon, 24 Aug 2026 05:00:15 GMT
+
+https://screenrant.com/naruto-baruto-ultimate-ninja-storm-update-august-2026/
+
+Nanashi Uchiha is finally playable in Naruto X Boruto: Ultimate Ninja Storm Connections, alongside new modes, balance changes, and more.
+---------
+
 # Red Dead Redemption 2 Meets Valheim In Huge New Open-World Survival RPG
 
 Gaming, Red Dead Redemption 2, Valheim
