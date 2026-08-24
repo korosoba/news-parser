@@ -1,3 +1,223 @@
+# NYT Connections Solution And Hints For August 24, 2026
+
+Gaming, Connections, Mobile
+
+Mon, 24 Aug 2026 17:00:15 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-24-2026/
+
+There are few patterns that go across categories in today's Connections, leading to a chaotic puzzle that works with titles rather than meanings.
+---------
+
+# Shogun Meets Baldur's Gate 3 In New Sengoku-Era Japan RPG
+
+Gaming, Baldur's Gate 3, Shogun, RPG, PC, Steam
+
+Mon, 24 Aug 2026 17:00:15 GMT
+
+https://screenrant.com/shogun-meets-baldurs-gate-3-new-japan-rpg/
+
+Fans of Baldur's Gate 3 will want to check out this new Sengoku-Era Japan RPG that feels a lot like the legendary show Shogun.
+---------
+
+# All 9 Of Jason Statham’s 2020s Action Movies Ranked (Including Mutiny)
+
+New Movies, Jason Statham
+
+Mon, 24 Aug 2026 16:45:14 GMT
+
+https://screenrant.com/jason-statham-2020s-action-movies-ranked/
+
+Jason Statham is not slowing down as an action movie lead in the 2020s. Here is every action movie he's made this decade, ranked worst to best.
+---------
+
+# Guy Ritchie & Charlie Hunnam's Fantasy Action Epic Finds Streaming Salvation After Flopping
+
+Movies, Masked Recs
+
+Mon, 24 Aug 2026 16:39:36 GMT
+
+https://screenrant.com/king-arthur-movie-guy-ritchie-streaming-hit-hbomax-august-2026/
+
+Before helming Aladdin and developing Young Sherlock, Guy Ritchie directed Charlie Hunnam in a fantasy film that’s surging up the charts right now.
+---------
+
+# Harry Potter Season 2 Recasts Major Role With Kit Harington After Star Exits
+
+TV, Harry Potter, HBO
+
+Mon, 24 Aug 2026 16:38:18 GMT
+
+https://screenrant.com/harry-potter-season-2-gilderoy-lockhart-kit-harington-cast-nicholas-hoult-exit/
+
+HBO's Harry Potter season 2 has a major shake-up as a massive role is getting recast for the show with Game of Thrones star Kit Harington taking over.
+---------
+
+# Deadpool Announces New Team Name, 10 Years After X-Force Massacre
+
+Marvel Comics, Deadpool
+
+Mon, 24 Aug 2026 16:33:58 GMT
+
+https://screenrant.com/deadpool-new-team-merc-mobile/
+
+Deadpool is joining a brand-new team this holiday season, and it's not one that he's willing to watch get massacred before their first mission begins.
+---------
+
+# Marvel Releases Official New Version Of Avengers: Doomsday’s High-Stakes Trailer
+
+Movies, Avengers: Doomsday
+
+Mon, 24 Aug 2026 16:31:45 GMT
+
+https://screenrant.com/avengers-doomsday-trailer-lego-remake-official/
+
+Marvel Studios has officially released a brand new version of the Avengers: Doomsday trailer ahead of the Phase 6 film's upcoming release this fall.
+---------
+
+# Balatro Meets Cities: Skylines In New Strategy Game Available Today
+
+Gaming, Balatro, Cities: Skylines, PC
+
+Mon, 24 Aug 2026 16:25:20 GMT
+
+https://screenrant.com/balatro-meets-cities-skylines-combolands/
+
+A new roguelike city builder has hit Steam as of this week, and it’s already garnering lots of positive reviews from its first crop of players.
+---------
+
+# HBO Is Ready to Wipe Out the Original Hogwarts Approach in the Harry Potter Reboot
+
+TV, Harry Potter, HBO Max, Innovation
+
+Mon, 24 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/harry-potter-hbo-max-reboot-fix-movie-hogwarts-mistake/
+
+HBO Max's upcoming Harry Potter television show is about to fix one of the movies' biggest mistakes.
+---------
+
+# Harry Potter Star Recast After Just 13 Days
+
+TV, Harry Potter
+
+Mon, 24 Aug 2026 16:45:47 GMT
+
+https://www.cbr.com/harry-potter-nicholas-hoult-replaced-kit-harington/
+
+Harry Potter is losing a new cast member, but is being replaced by a Game of Thrones favorite.
+---------
+
+# Pokémon Is Moving Away From Its Classic Battle System After 30 Years
+
+Games, Pokemon
+
+Mon, 24 Aug 2026 16:38:11 GMT
+
+https://www.cbr.com/pokemon-champions-classic-battle-system-changes/
+
+As new Pokémon games continue to iterate on the series' classic battle system, Pokémon Champions has become a preservation project for Game Freak.
+---------
+
+# 27 Years Later, Catch 22’s Jamie Egan Is Officially Getting a Second Chance at Music [Exclusive]
+
+Exclusives, Documentary, Punk, Music
+
+Mon, 24 Aug 2026 17:00:11 GMT
+
+https://collider.com/misfit-mentor-trailer-jamie-egan-documentary/
+
+The official trailer for the music documentary Misfit Mentor follows former Catch 22 member Jamie Egan as he prepares to make his comeback.
+---------
+
+# Harry Potter Officially Recasts Gilderoy Lockhart With a 'Game of Thrones' Star
+
+TV News, Harry Potter, Kit Harington, Game Of Thrones, Nicholas Hoult
+
+Mon, 24 Aug 2026 16:56:41 GMT
+
+https://collider.com/harry-potter-kit-harington-gilderoy-lockhart-nicholas-hoult-recast/
+
+Kit Harington reportedly replaces Nicholas Hoult as Gilderoy Lockhart in HBO’s Harry Potter Season 2, reprising his audiobook role.
+---------
+
+# ‘Magic: The Gathering’ Officially Reveals New ‘Masters of the Universe’ Crossover
+
+Gaming News, Masters of the Universe, Mattel, Magic: The Gathering
+
+Mon, 24 Aug 2026 16:54:50 GMT
+
+https://collider.com/magic-the-gathering-masters-of-the-universe-secret-lair-he-man-skeletor-she-ra/
+
+Magic: The Gathering reveals five Masters of the Universe Secret Lair drops featuring He-Man, Skeletor, She-Ra and other iconic characters.
+---------
+
+# Banned First-Person Shooter Game Officially Returns 24 Years Later
+
+Gaming News, Steam, Grand Theft Auto V, Grand Theft Auto 5, San Andreas
+
+Mon, 24 Aug 2026 16:50:32 GMT
+
+https://collider.com/postal-2-redux-2027-release-kickstarter-funded/
+
+Postal 2 Redux will bring the controversial cult shooter back in 2027 after its successful Kickstarter funded the complete rebuild.
+---------
+
+# George R.R. Martin's Newest 'Game of Thrones' Story Finally Fills in the Blanks HBO Missed | Review
+
+Reviews, Game of Thrones: The Mad King, Game Of Thrones, House of the Dragon, A Song of Ice and Fire
+
+Mon, 24 Aug 2026 16:37:46 GMT
+
+https://collider.com/game-of-thrones-the-mad-king-play-review-george-rr-martin/
+
+Game of Thrones: The Mad King dives deep into the Tourney at Harrenhal and Robert's Rebellion, finally giving life to these major events.
+---------
+
+# 'Harry Potter' Season 2 Recasts Lockhart With 'Game of Thrones' Star After Nicholas Hoult Drops Out
+
+TV News, Harry Potter, Nicholas Hoult
+
+Mon, 24 Aug 2026 17:01:40 GMT
+
+https://movieweb.com/harry-potter-season-2-kit-harrington-cast/
+
+HBO recast a role originally set to be played by Nicholas Hoult in the next season of the upcoming 'Harry Potter' reboot series.
+---------
+
+# Best Classic Older Movies on Disney+ to Watch Right Now
+
+Movie Lists, Disney+
+
+Mon, 24 Aug 2026 17:00:14 GMT
+
+https://movieweb.com/best-classic-movies-disney-plus/
+
+Disney+ is more than just a home for Marvel and Star Wars, with plenty of classic older movies available to watch.
+---------
+
+# Apple's Must-See Sci-Fi Thriller Series Is a Global Streaming Hit Ahead of This Month's New Season
+
+TV News, Dark Matter, Hot on Streaming
+
+Mon, 24 Aug 2026 16:31:14 GMT
+
+https://movieweb.com/dark-matter-streaming-hit-apple-tv-august-2026/
+
+Apple TV has established its sci-fi prowess, and their latest hit is proof.
+---------
+
+# Is James Gunn's DCU Really Introducing Batman in a Green Lantern TV Show?
+
+Features, Lanterns, DCU, Batman
+
+Mon, 24 Aug 2026 16:31:04 GMT
+
+https://movieweb.com/lanterns-hbo-batman-references/
+
+Batman is still to have a live-action debut in the DCU, but 'Lanterns' could be about to fix that. Read on for more.
+---------
+
 # Hulu's New Crime Thriller With Near-Perfect RT Score Continues #1 Streak In Week 3
 
 TV, Masked Recs
