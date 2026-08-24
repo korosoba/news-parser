@@ -1,3 +1,102 @@
+# The Walking Dead, Valheim Collide In New Open-World Zombie Survival Game
+
+Gaming, The Walking Dead, Valheim
+
+Mon, 24 Aug 2026 11:00:15 GMT
+
+https://screenrant.com/walking-dead-meets-valheim-new-open-world-survival-games/
+
+Explore The Last Disease Z, a new zombie survival game with friends. Try the free demo now!
+---------
+
+# The Boys Meets John Wick In Banned 2003 Game That's Being Remade For Modern Platforms
+
+Gaming, The Boys, John Wick, PlayStation 5, Xbox Series X/S, PC
+
+Mon, 24 Aug 2026 10:55:37 GMT
+
+https://screenrant.com/the-boys-meets-john-wick-banned-2003-game/
+
+Banned 2003 Game Returns. Kickstarter success breathes life into an infamous title with harder-hitting weapons, smarter NPCs and faster load times.
+---------
+
+# Terminator Defiance: Evolution Officially Launches September 2026
+
+Gaming, Terminator
+
+Mon, 24 Aug 2026 10:30:15 GMT
+
+https://screenrant.com/terminator-defiance-evolution-september-2026/
+
+Discover the new challenges in Terminator: Dark Fate - Defiance Evolution, launching September with tactical gameplay.
+---------
+
+# The 10 Best Far Side Comics Involving Urban Legends
+
+Comics, The Far Side
+
+Mon, 24 Aug 2026 11:00:11 GMT
+
+https://www.cbr.com/best-far-side-comics-urban-legends/
+
+Comic strips like The Far Side have entertained readers for decades, providing humorous takes on even the most beloved urban legends and cryptids.
+---------
+
+# Michael Star Jaafar Jackson Recalls Seeing Uncle MJ for the Very Last Time
+
+Movies, Michael
+
+Mon, 24 Aug 2026 11:00:11 GMT
+
+https://www.cbr.com/jaafar-jackson-last-time-seeing-michael-jackson/
+
+Michael Jackson's nephew Jaafar, who played the King of Pop in the hit movie Michael, recalls the final time he saw his uncle alive.
+---------
+
+# Spider-Man Is Challenged by Luke Cage on His New Official Damage Control Partnership
+
+Comics, Spider-Man
+
+Mon, 24 Aug 2026 10:47:16 GMT
+
+https://www.cbr.com/amazing-spider-man-35-preview-damage-control-luke-cage/
+
+In a preview of this week's Amazing Spider-Man #35, see how Luke Cage challenges Spider-Man on Spidey's new Damage Control partnership
+---------
+
+# Marvel Officially Replaces Wolverine With a New Secret Weapon
+
+Books and Comics News, Godzilla, Marvel, Marvel Comics, X-Men
+
+Mon, 24 Aug 2026 11:00:11 GMT
+
+https://collider.com/godzilla-conquers-the-marvel-universe-2-wolverine-transformation/
+
+Godzilla gets a massive upgrade, combining with the powers of Wolverine and Ghost Rider, in the newest MCU crossover. Find out more here.
+---------
+
+# Marvel Officially Brings Venom Back for New Spider-Man Series
+
+TV News, Your Friendly Neighborhood Spider-Man, Disney+, Spider-Man, Superhero
+
+Mon, 24 Aug 2026 10:30:11 GMT
+
+https://collider.com/marvels-your-friendly-neighborhood-spider-man-venom-comeback/
+
+Your Friendly Neighborhood Spider-Man Season 2 expands its cast with a familiar Marvel voice actor in a surprising role.
+---------
+
+# Daniel Craig's Netflix Fantasy Epic Reboot Is Already Breaking Streaming Records
+
+Movie News, Narnia: The Magician's Nephew, The Chronicles of Narnia, Daniel Craig, Netflix
+
+Mon, 24 Aug 2026 10:55:40 GMT
+
+https://movieweb.com/narnia-daniel-craig-netflix-production-budget/
+
+'Narnia: The Magician's Nephew' reportedly carries a staggering production budget, making it one of Netflix's most expensive films ever.
+---------
+
 # Steam's Latest 9/10 Game Launches To 260,000 Concurrent Players, And It's Dirt-Cheap
 
 Gaming, Steam, PC
