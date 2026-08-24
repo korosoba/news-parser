@@ -1,3 +1,256 @@
+# Tom Selleck’s First Post-Blue Bloods Role Revealed In New Apple TV Series
+
+TV, Blue Bloods, Tom Selleck
+
+Mon, 24 Aug 2026 19:46:29 GMT
+
+https://screenrant.com/tom-selleck-cast-post-blue-bloods-apple-tv-elizabeth-banks-comedy/
+
+It’s been almost two years since Blue Bloods ended on CBS after 14 seasons. Now Tom Selleck has a new TV series in the works at Apple TV.
+---------
+
+# Matthew McConaughey & Kate Hudson To Return For How To Lose A Guy In 10 Days Sequel
+
+Movies, How to Lose A Guy In 10 Days
+
+Mon, 24 Aug 2026 19:44:16 GMT
+
+https://screenrant.com/kate-hudson-how-to-lose-a-guy-in-10-days-sequel-paramount/
+
+How to Lose a Guy in 10 Days is back for more romance, as co-stars Kate Hudson and Matthew McConaughey return to the beloved 2000s rom-com.
+---------
+
+# Where James Spader’s Ultron Has Been For 14 Years Explained Ahead of 2026 MCU Return
+
+TV, VisionQuest, Marvel Cinematic Universe
+
+Mon, 24 Aug 2026 19:33:40 GMT
+
+https://screenrant.com/visionquest-ultron-mcu-absence-return-explained-james-spader/
+
+James Spader is officially returning to the Marvel Cinematic Universe in 2026, as the Ultron actor speaks out on where his villain has been.
+---------
+
+# Will Smith's New Amazon Murder Mystery Thriller Officially Hits Major Filming Milestone
+
+Movies, Supermax
+
+Mon, 24 Aug 2026 19:31:50 GMT
+
+https://screenrant.com/supermax-will-smith-amazon-filming-update/
+
+Will Smith's new Amazon murder mystery thriller officially hits a major filming milestone several months after it was first announced.
+---------
+
+# Stephen King's Hit New Sci-Fi Thriller Series Officially Releasing Season 2 This Fall With First-Look Images Revealing Gritty Return
+
+TV, The Institute, Stephen King
+
+Mon, 24 Aug 2026 19:31:08 GMT
+
+https://screenrant.com/stephen-king-the-institute-season-2-release-window-first-look-images/
+
+EXCLUSIVE: New first-look images reveal the highly-anticipated return of Stephen King's The Institute adaptation for season 2 this fall on MGM+.
+---------
+
+# September 1 Will Be A Good Day For Beetlejuice Fans
+
+Streaming TV, Masked Recs
+
+Mon, 24 Aug 2026 19:30:15 GMT
+
+https://screenrant.com/beetlejuice-animated-tv-series-tubi-streaming-september-2026/
+
+Fans of Beetlejuice are in for a treat as Beetlejuice’s animated series will be added to Tubi on September 1 as part of their Series Spotlight.
+---------
+
+# Who Is Lanterns' Hidden Manhunter? 5 Possible Characters Ranked By Likelihood
+
+Superheroes, Lanterns, DC Universe
+
+Mon, 24 Aug 2026 19:20:15 GMT
+
+https://screenrant.com/lanterns-manhunter-identity-characters-likelihood/
+
+Lanterns episode 2 sets up a new mystery regarding the identity of a Manhunter hiding in Rushville. Several characters could be tied to the twist.
+---------
+
+# Author Behind Netflix's Best Psychological Thriller Sets Directorial Debut
+
+Movies, Netflix
+
+Mon, 24 Aug 2026 19:10:08 GMT
+
+https://screenrant.com/author-behind-netflixs-best-psychological-thriller-sets-directorial-debut/
+
+The author behind Netflix's best psychological thriller series sets directorial debut as new details about their first big project arrives.
+---------
+
+# 10 Most Powerful Swordswomen In Anime History, Ranked
+
+Anime, Sword Art Online, Fullmetal Alchemist: Brotherhood, Bleach, Akame ga Kill!, Kill la Kill, Attack on Titan, Fate, Fairy Tail
+
+Mon, 24 Aug 2026 19:45:11 GMT
+
+https://www.cbr.com/most-powerful-anime-swordswomen-ranked/
+
+Some of the most powerful sword-wielders in anime are actually women, including Berserk's Casca and Mikasa Ackerman from Attack on Titan.
+---------
+
+# Hulu Drops New 8-Part Political Vampire Series in Just 3 Weeks
+
+TV, Hulu, Disney+, vampires
+
+Mon, 24 Aug 2026 19:41:50 GMT
+
+https://www.cbr.com/city-of-blood-hulu-vampire-series-trailer/
+
+A new vampire series is headed to Hulu.
+---------
+
+# Stranger Things' Underrated Prequel Officially Confirms Global Release
+
+Comics, Stranger Things, Netflix
+
+Mon, 24 Aug 2026 19:35:06 GMT
+
+https://www.cbr.com/stranger-things-underrated-prequel-officially-confirms-global-release/
+
+The world now knows when the prequel chapter in the Stranger Things saga will arrive.
+---------
+
+# 9-1-1's Peter Krause Is Back in Brand-New NBC Thriller Series
+
+TV, 9-1-1, NBC, Peacock, Line of Fire
+
+Mon, 24 Aug 2026 19:30:11 GMT
+
+https://www.cbr.com/peter-krause-nbc-thriller-series-line-of-fire-cast/
+
+Over a year after leaving 9-1-1, Peter Krause is making his return to television for NBC's brand-new thriller series, Line of Fire, this fall.
+---------
+
+# Japan Names Its Top 10 Anime of Summer 2026 in New Official Ranking
+
+Anime, Mushoku Tensei: Jobless Reincarnation, The 100 Girlfriends Who Really, Really, Really, Really, Really Love You
+
+Mon, 24 Aug 2026 19:20:11 GMT
+
+https://www.cbr.com/top-10-anime-summer-2026-niconico/
+
+NicoNico's mid-season user rankings confirm that Mushoku Tensei, is still losing ground to one of the most eccentric anime shows in recent memory.
+---------
+
+# Metal Gear Solid Officially Launches New Cat Scratchers in October 2026
+
+Games, Metal Gear Solid
+
+Mon, 24 Aug 2026 19:11:11 GMT
+
+https://www.cbr.com/metal-gear-solid-cat-scratcher/
+
+Turn your kitty into Solid Snake with the official Metal Gear Solid cat scratchers.
+---------
+
+# Prime Video’s 16-Episode Sci-Fi Series Found the Winning Formula for Video Game Adaptations
+
+TV Features, Fallout, Prime Video, Ella Purnell, Walton Goggins
+
+Mon, 24 Aug 2026 19:50:11 GMT
+
+https://collider.com/prime-video-best-sci-fi-video-game-adaptation-fallout-formula/
+
+Prime Video's Fallout is the gold standard of video game adaptations, putting other television shows such as The Last of Us to shame.
+---------
+
+# 'Peaky Blinders' Meets 'Succession' in Netflix's Explosive New Series Returning for Season 2
+
+TV News, House of Guinness, Netflix, Steven Knight, Drama
+
+Mon, 24 Aug 2026 19:48:31 GMT
+
+https://collider.com/house-of-guinness-season-2-renewed-netflix-steven-knight/
+
+House of Guinness has officially been renewed for Season 2 at Netflix, with creator Steven Knight teasing what comes next for the Guinness family.
+---------
+
+# 10 Best Kung Fu Movies in Film History
+
+Movie, Drunken Master II, Enter the Dragon, Kill Bill: The Whole Bloody Affair, The 8 Diagram Pole Fighter
+
+Mon, 24 Aug 2026 19:41:11 GMT
+
+https://collider.com/best-kung-fu-movies-in-film-history/
+
+The best kung fu movies in the history of cinema include classics like Last Hurrah for Chivalry, Drunken Master II, and Enter the Dragon.
+---------
+
+# The 10 Best Things To Do at FAN EXPO Canada 2026
+
+Movie, Fan Expo, X-Men: The Animated Series, Mark Hamill, John Cena
+
+Mon, 24 Aug 2026 19:38:11 GMT
+
+https://collider.com/best-things-to-do-fan-expo-canada-2026/
+
+FAN EXPO Canada will bring many surprises, including panels with the cast of X-Men: The Animated Series and experiences with legends like Mark Hamill.
+---------
+
+# 3 Greatest Movies To Watch on Netflix This Week (Aug 24-28)
+
+Movie, Remarkably Bright Creatures, M3GAN, The Great Wall, Netflix
+
+Mon, 24 Aug 2026 19:19:11 GMT
+
+https://collider.com/best-netflix-movies-watch-august-24-2026/
+
+Remarkably Bright Creatures, The Great Wall, and M3GAN make up our list of the best movies to watch on Netflix the week of August 24, 2026.
+---------
+
+# 'Landman' Finds Perfect New Cast Candidate as Taylor Sheridan Favorite Officially Confirms Interest
+
+TV News, Landman
+
+Mon, 24 Aug 2026 19:46:43 GMT
+
+https://movieweb.com/lioness-thad-luckinbill-landman-interest/
+
+'Lioness' regular Thad Luckinbill hints at a seamless fit for 'Landman’s oil country authenticity.
+---------
+
+# 'Lanterns' Episode 2 Confirms Batman Connection After Name-Dropping Iconic DC Setting
+
+TV News, Lanterns, Batman
+
+Mon, 24 Aug 2026 19:28:48 GMT
+
+https://movieweb.com/lanterns-episode-2-gotham-reveal/
+
+An iconic DC location was name-dropped in the latest episode of 'Lanterns,' expanding the DCU's boundaries further.
+---------
+
+# Netflix Finally Reveals Future of 'House of Guinness' After 1 Season
+
+TV News, House of Guinness
+
+Mon, 24 Aug 2026 19:23:14 GMT
+
+https://movieweb.com/house-of-guinness-renewed-season-2-netflix/
+
+Netflix has finally revealed the fate of 'House of Guinness' one year after the series debuted.
+---------
+
+# New 'Harry Potter' Star Kit Harrington Officially Addresses HBO Reboot Casting
+
+TV News, Kit Harington, Harry Potter
+
+Mon, 24 Aug 2026 19:13:57 GMT
+
+https://movieweb.com/harry-potter-kit-harington-hbo-casting/
+
+He'll play a role he's already comfortable with.
+---------
+
 # VisionQuest: Marvel TV’s Future Rides on White Vision
 
 TV, VisionQuest
