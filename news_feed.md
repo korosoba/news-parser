@@ -1,3 +1,245 @@
+# Netflix's Narnia Movie Budget Makes It One Of The Streamer's Most Expensive Movies Ever
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, Netflix, Greta Gerwig
+
+Mon, 24 Aug 2026 18:21:06 GMT
+
+https://screenrant.com/narnia-magicians-nephew-movie-netflix-budget-record/
+
+Greta Gerwig's new Chronicles of Narnia adaptation has is budget and is now one of Netflix's most-expensive movies ever made, claiming the No. 2 spot.
+---------
+
+# 6 Unforgettable Far Side Comics Set in the Front Yard
+
+Comics, The Far Side
+
+Mon, 24 Aug 2026 18:20:15 GMT
+
+https://screenrant.com/far-side-comics-front-yard-setting/
+
+Gary Larson makes a scene out in the front yard.
+---------
+
+# 26 Years Later, The Greatest Opening Line In Horror History Remains Undefeated
+
+Books, Horror, Masked Recs
+
+Mon, 24 Aug 2026 18:18:34 GMT
+
+https://screenrant.com/house-of-leaves-greatest-horror-book-opening-line/
+
+While some horror books opt for a slow build to terror, the greatest opening line in the genre's history promises an unpleasant time from the start.
+---------
+
+# Why Nicholas Hoult Left HBO's Harry Potter TV Series
+
+Streaming TV, Harry Potter
+
+Mon, 24 Aug 2026 18:16:15 GMT
+
+https://screenrant.com/harry-potter-hbo-series-nicholas-hoult-exit-reason/
+
+Nicholas Hoult has dropped out of HBO's Harry Potter show — Professor Lockhart will now be played by Kit Harington — but why did he exit the series?
+---------
+
+# Sheriff Country Season 2 Casts The OC & Gotham Alum With Unique Twist
+
+TV, Sheriff Country, Sheriff Country - Season 2, Ben McKenzie
+
+Mon, 24 Aug 2026 18:07:28 GMT
+
+https://screenrant.com/sheriff-country-season-2-ben-mckenzie-casting/
+
+There’s a new sheriff in town to help Mickey Fox during Sheriff Country season 2. This latest guest star announcement comes with familial twist.
+---------
+
+# The X-Files Meets Severance In The New King Of Sci-Fi TV
+
+TV, Masked Recs
+
+Mon, 24 Aug 2026 18:00:15 GMT
+
+https://screenrant.com/pluribus-apple-tv-new-king-of-sci-fi/
+
+Severance's sharp satire of corporate overreach meet the slow burn alien infiltration of The X-Files in Apple TV's new sci-fi masterpiece.
+---------
+
+# 26 Years Later, This Climatic Pokémon Battle Is Still The Series' Greatest Moment
+
+Gaming, Pokemon, Triple-A Games
+
+Mon, 24 Aug 2026 18:00:15 GMT
+
+https://screenrant.com/pokemon-best-final-battle-series-history/
+
+With over 30 years of history, there are tons of great moments in the Pokémon franchise, but none of them beat this single battle from 26 years ago.
+---------
+
+# Man Of Tomorrow Will Officially Be A Surprising First For Superman In 40 Years
+
+Movies, Man of Tomorrow, Superman, DC Universe
+
+Mon, 24 Aug 2026 17:54:25 GMT
+
+https://screenrant.com/superman-man-of-tomorrow-first-sequel-since-superman-4/
+
+James Gunn's Superman movie sequel, 2027's Man of Tomorrow, is set to mark a surprising first for the DC hero after a long 40-year wait.
+---------
+
+# 10 Anime to Watch If You Love Hunter x Hunter
+
+Anime, Hunter x Hunter, Hunter X Hunter
+
+Mon, 24 Aug 2026 18:15:11 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-love-hunter-x-hunter/
+
+Hunter x Hunter lovers do not have to worry about running out of similar anime to keep them fully immersed in the adventure.
+---------
+
+# The Gentlemen Season 2   Official Trailer
+
+Movies, The Gentlemen
+
+Mon, 24 Aug 2026 18:13:47 GMT
+
+https://www.cbr.com/video/the-gentlemen-season-2-official-trailer/
+
+Netflix unveiled the official trailer for The Gentlemen Season 2
+---------
+
+# Netflix's Mind-Bending Sci-Fi Masterpiece Confirms New Season 8 Update
+
+TV, Black Mirror, Netflix, Drama
+
+Mon, 24 Aug 2026 18:07:48 GMT
+
+https://www.cbr.com/black-mirror-netflixs-season-8-update/
+
+The hit sci-fi series keeps thriving.
+---------
+
+# The Lord of the Rings Confirms Unexpected New Physical Release in 3 Months
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video, Innovation
+
+Mon, 24 Aug 2026 18:00:24 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-the-rings-of-power-4k-blu-ray-release/
+
+The Lord of the Rings returns with a new physical release in 2026.
+---------
+
+# Absolute Batman Spinoff Teases A Horrifying New Look At Beyond Ark M Special
+
+Comics, Absolute Batman, Batman
+
+Mon, 24 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/absolute-batman-beyond-ark-m-1-horrifying-tease/
+
+Absolute Batman is about to uncover more dark secrets.
+---------
+
+# 10 Best DC Comics Runs That Deserve Their Own TV Series, Ranked
+
+Comics, DC Comics, Justice League, Horror
+
+Mon, 24 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/dc-comics-runs-that-deserve-their-own-tv-series-ranked/
+
+The world of DC Comics boasts some of the greatest superhero stories ever told, and many are perfect for a TV adaptation under James Gunn.
+---------
+
+# 'Gotham' Stars Officially Reunite in New CBS Crime Thriller 7 Years Later
+
+TV News, Sheriff Country, Morena Baccarin, Fire Country, CBS
+
+Mon, 24 Aug 2026 18:24:41 GMT
+
+https://collider.com/sheriff-country-season-2-ben-mckenzie-morena-baccarin-gotham-reunion/
+
+Ben McKenzie joins wife Morena Baccarin in Sheriff Country Season 2, reuniting the former Gotham co-stars for the CBS premiere.
+---------
+
+# Why Knight of the Seven Kingdoms Threw a Fake Horse Through a Fence
+
+TV, A Knight Of The Seven Kingdoms
+
+Mon, 24 Aug 2026 18:15:11 GMT
+
+https://collider.com/video/why-knight-of-the-seven-kingdoms-threw-a-fake-horse-through-a-fence/
+
+Director of photography Gustav Danielsson breaks down the seven-on-seven fight and explains why shooting on location in fog and morning mist offered a grittier, more practical alternative to surrounding the action with green screen or filming on an LED stage. He discusses how the team worked with VFX to finesse the fog while preserving what was photographed on the natural set.
+---------
+
+# Kit Harington Officially Reacts to 'Harry Potter' Recast [Exclusive]
+
+Exclusives, Harry Potter, Kit Harington, HBO, Nicholas Hoult
+
+Mon, 24 Aug 2026 18:01:23 GMT
+
+https://collider.com/harry-potter-recast-gilderoy-lockhart-kit-harington/
+
+Kit Harington reacts to playing Gilderoy Lockhart in Harry Potter Season 2 & explains why his live-action performance will differ from the audiobook.
+---------
+
+# 29 Years Later, ‘One Piece’ Is Officially Heading Toward the End of an Era
+
+TV News, One Piece, Anime, Manga
+
+Mon, 24 Aug 2026 18:00:11 GMT
+
+https://collider.com/one-piece-luffy-imu-final-saga-gear-five/
+
+One Piece pushes Luffy deeper into the Final Saga as his battle with Imu tests whether Gear Five is enough to overcome his greatest threat yet.
+---------
+
+# 'The Walking Dead' Resurrects Original Cast Member in Teaser for New Episode
+
+TV News, The Walking Dead, The Walking Dead: Dead City
+
+Mon, 24 Aug 2026 18:11:05 GMT
+
+https://movieweb.com/the-walking-dead-dead-city-beth-greene-episode-6/
+
+'The Walking Dead' has brought back Beth Greene from the original season for 'The Walking Dead: Dead City.'
+---------
+
+# Will Smith's New Action Thriller Officially Moves Forward at Amazon with Stacked Ensemble
+
+Movie News, Prime Video, Will Smith, Crime
+
+Mon, 24 Aug 2026 18:04:35 GMT
+
+https://movieweb.com/will-smiths-supermax-new-cast-members/
+
+Will Smith will have a lot of company on the inside.
+---------
+
+# Netflix’s Number 1 in the World 5-Part Crime Thriller Is a Perfect One-Night Binge
+
+Features, Netflix, Thriller
+
+Mon, 24 Aug 2026 18:00:14 GMT
+
+https://movieweb.com/blood-sacrifice-netflix-thriller-binge/
+
+Netflix recently released a new crime TV thriller that has five episodes and can be binge-watched in one evening.
+---------
+
+# Gerard Butler's 117-Minute Action Epic Roger Ebert Said "Flaunts Logic" Arrives on Streaming
+
+Movie News, Gerard Butler, 300, Coming/Leaving Streaming, Action, Roger Ebert
+
+Mon, 24 Aug 2026 18:00:14 GMT
+
+https://movieweb.com/gerard-butler-300-action-streaming-paramount-august-2026/
+
+The movie that made Gerard Butler an international superstar 20 years ago is finally returning to streaming after a brief absence.
+---------
+
 # 10 Great Sci-Fi Movies To Watch If You Like Netflix's The Last House
 
 Movies, The Last House, Netflix
