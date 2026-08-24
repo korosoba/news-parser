@@ -1,3 +1,80 @@
+# Pokémon Winds & Waves Battle System And Turn-Based Future Officially Confirmed
+
+Gaming, Pokemon Winds and Waves, Pokemon
+
+Mon, 24 Aug 2026 09:35:50 GMT
+
+https://screenrant.com/pokemon-winds-waves-turn-based-battle-system/
+
+Discover the new battle system in Pokémon Winds & Waves, combining classic turn-based mechanics with exciting features.
+---------
+
+# PlayStation Officially Unveils New Hardware And Pre-Order Details
+
+Gaming, PlayStation, PlayStation 5
+
+Mon, 24 Aug 2026 09:15:17 GMT
+
+https://screenrant.com/playstation-new-hardware-pre-orders-september-2026/
+
+Discover the latest on PlayStation 6 and the new DualSense controller launch, plus fan reactions on digital gaming.
+---------
+
+# The Legend Of Zelda’s Official Link Redesign Confirms The Series’ Future
+
+Gaming, The Legend of Zelda
+
+Mon, 24 Aug 2026 09:05:15 GMT
+
+https://screenrant.com/zelda-official-link-redesign-series-future-confirmed/
+
+The Legend Of Zelda’s protagonist Link has been through a lot of iterations over the years, and there's a new design that could have big consequences.
+---------
+
+# HBO Max Loses the 74-Year-Old Classic Roger Ebert Called His Ultimate Rewatch
+
+Movie News, Roger Ebert, Akira Kurosawa, Ikiru, HBO Max
+
+Mon, 24 Aug 2026 09:30:11 GMT
+
+https://collider.com/akira-kurosawa-ikiru-leaving-hbo-max-september-2026/
+
+The classic drama that Roger Ebert rewatched every few years is currently streaming on HBO Max, but not for much longer.
+---------
+
+# The 35 Best Thrillers of All Time, Ranked
+
+Movie, Thriller, Jaws, The Silence of the Lambs, Psycho
+
+Mon, 24 Aug 2026 09:11:11 GMT
+
+https://collider.com/best-thriller-movies-all-time-ranked/
+
+From Hitchcock's Vertigo and Psycho to more modern classics like Parasite and Se7en, this is Collider's ranking of the best thriller movies ever made.
+---------
+
+# The 10 Greatest Manga Masterpieces of the Last 25 Years, Ranked
+
+Books and Comics, Manga, Grand Blue Dreaming, One Punch Man, Fullmetal Alchemist
+
+Mon, 24 Aug 2026 09:09:11 GMT
+
+https://collider.com/best-manga-masterpieces-last-25-years-ranked/
+
+From Fullmetal Alchemist to One-Punch Man, these manga have stood out as the best, most complex, and most compelling of the last quarter century.
+---------
+
+# Marvel Officially Reveals Scarlet Witch's Fate
+
+Books and Comics News, Scarlet Witch, Marvel Comics, Doctor Strange In the Multiverse of Madness, Superhero
+
+Mon, 24 Aug 2026 09:00:11 GMT
+
+https://collider.com/sorcerer-supreme-issue-9-preview-scarlet-witch-fate-worse-than-death-marvel-comics/
+
+Marvel's new preview for Sorcerer Supreme #9 subjects the Scarlet Witch to a fate worse than death that will take a miracle to escape.
+---------
+
 # The Good Place Meets Undertale In 9/10 Free RPG You Can Play Right Now
 
 Gaming, The Good Place, Undertale
