@@ -1,3 +1,245 @@
+# 12 Years Later, One Matthew McConaughey Line In True Detective Is The Bleakest Quote In Crime Thriller History
+
+Streaming TV, True Detective
+
+Mon, 24 Aug 2026 02:15:15 GMT
+
+https://screenrant.com/matthew-mcconaughey-rust-cohle-true-detective-line-bleak/
+
+One of Matthew McConaughey’s most memorable quotes from True Detective season 1 remains the bleakest in the history of crime thrillers after 12 years.
+---------
+
+# Why Larry David Left Seinfeld After Season 7
+
+Classic TV, Seinfeld
+
+Mon, 24 Aug 2026 02:15:15 GMT
+
+https://screenrant.com/seinfeld-show-larry-david-left-reason-season-7/
+
+Comedian Larry David helmed Seinfeld for seven seasons as co-creator and showrunner, but why did he leave the series after the season 7 finale?
+---------
+
+# James Gunn’s DCU Officially Debuts New Gotham City Character Before Batman
+
+Streaming TV, Masked Recs
+
+Mon, 24 Aug 2026 02:05:15 GMT
+
+https://screenrant.com/lanterns-sheriff-kerry-gotham-city-batman-dc-universe-connection/
+
+Batman is likely still years away in James Gunn's DC Universe, but the franchise's latest release has just debuted a Gotham City character.
+---------
+
+# The Pitt’s Night-Shift Spinoff Gets Disappointing Update From Star
+
+TV, The Pitt
+
+Mon, 24 Aug 2026 02:03:33 GMT
+
+https://screenrant.com/the-pitts-night-shift-spinoff-update-shawn-hatosy/
+
+One of the stars of The Pitt revealed HBO Max's plans for a night-shift spinoff of the medical drama and addresses his own feelings about the matter.
+---------
+
+# The Walking Dead: Dead City Season 3, Episode 6 Trailer: Maggie & Negan Meet In Another Life As "What If" Episode Arrives
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 24 Aug 2026 02:03:14 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-season-3-episode-6-trailer/
+
+The Walking Dead: Dead City season 3, episode 6 trailer unveils the show's alternate universe episode as Maggie and Negan meet in another life.
+---------
+
+# How The Outlander Book Series Lines Up With Each Season Of The Show (& What Changes)
+
+Streaming TV, Outlander
+
+Mon, 24 Aug 2026 02:00:27 GMT
+
+https://screenrant.com/outlander-book-series-lines-up-show-major-differences/
+
+The Outlander book series by Diana Gabaldon is the inspiration behind the epic Starz TV show but which novels are the source of which season?
+---------
+
+# James Gunn’s DCU Brings Back One Of The Most Powerful DC Villains After 15 Years
+
+Streaming TV, Lanterns, DC Universe
+
+Mon, 24 Aug 2026 02:00:25 GMT
+
+https://screenrant.com/lanterns-episode-2-ending-explained/
+
+Lanterns episode 2 continues the hit DC series after the premiere's shocking reveal by debuting one of the biggest villains in James Gunn's DCU.
+---------
+
+# 7 Marvel Characters So Powerful That Even The Hulk Is Afraid Of Them
+
+Comics, Marvel, Hulk
+
+Mon, 24 Aug 2026 02:00:25 GMT
+
+https://screenrant.com/marvel-characters-make-hulk-afraid/
+
+The Hulk might be nigh-unstoppable, but these Marvel entities are formidable enough to strike true fear into the Green Goliath.
+---------
+
+# 3 Super Mario Spinoffs Literally Nobody Remembers
+
+Gaming, Super Mario Bros., Super Mario
+
+Mon, 24 Aug 2026 02:00:25 GMT
+
+https://screenrant.com/super-mario-spinoff-games-nobody-remembers/
+
+Explore some Super Mario spin-offs that have been forgotten over time, from quirky games to educational adventures.
+---------
+
+# Forget Hogwarts Legacy 2, The Perfect Harry Potter Game Is Staring Us Right In The Face
+
+Gaming, Hogwarts Legacy 2, Hogwarts Legacy, Harry Potter, LEGO Harry Potter, Triple-A Games
+
+Mon, 24 Aug 2026 02:00:25 GMT
+
+https://screenrant.com/harry-potter-game-lego-batman-hogwarts-legacy/
+
+Hogwarts Legacy is easily one of the best Harry Potter games we've ever received, but it could easily be eclipsed if one studio gave it a remake.
+---------
+
+# The Walking Dead: Dead City Stars Break Down the Show's Major Tonal Change in New BTS Clip
+
+TV, The Walking Dead: Dead City
+
+Mon, 24 Aug 2026 02:05:11 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-party-at-dillards-bts-clip/
+
+Exclusive: The Walking Dead: Dead City makes a major change to its tone in the most recent episode.
+---------
+
+# 5 Near-Perfect NES Games That Are Forgotten Masterpieces
+
+Games, Nintendo, The Legend of Zelda
+
+Mon, 24 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/near-perfect-nes-games-forgotten-masterpieces/
+
+These NES games may be forgotten, but that doesn't mean they aren't masterpieces.
+---------
+
+# 10 Strongest Gundam Mobile Suits of All Time, Officially Ranked
+
+Anime, Gundam
+
+Mon, 24 Aug 2026 01:45:11 GMT
+
+https://www.cbr.com/most-powerful-gundam-mobile-suits-ever-ranked-list/
+
+The most powerful Gundam Mobile Suits can be ranked by their incredible power and unique abilities across timelines.
+---------
+
+# ABC's 6-Season Drama Gem Is Leaving Netflix After Just 1 Year (But It's Streaming for Free)
+
+TV, Nashville, Drama, Netflix
+
+Mon, 24 Aug 2026 01:30:11 GMT
+
+https://www.cbr.com/nashville-leaving-netflix-pluto-tv-drama-august-2026/
+
+After only a year on Netflix, this fan-favorite drama with six excellent seasons is moving streaming homes (and you can watch it for free).
+---------
+
+# 5 Netflix Sci-Fi Anime That Are Perfect Masterpieces
+
+Anime, Netflix, Pluto, Cyberpunk: Edgerunners
+
+Mon, 24 Aug 2026 01:25:11 GMT
+
+https://www.cbr.com/netflix-perfect-sci-fi-anime-masterpieces-list/
+
+Netflix is the top destination for sci-fi anime, with titles like Pluto, Moonrise, and Terminator Zero reflecting the streamer's strongest offerings.
+---------
+
+# Kingdom Hearts’ New TV Series Follows Disney+’s Record-Breaking Anime
+
+Anime, Kingdom Hearts, Disney Twisted-Wonderland the Animation, Disney+
+
+Mon, 24 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/kingdom-hearts-anime-tv-series-disney-plus/
+
+After almost 30 years, Kingdom Hearts is finally getting an official anime TV series, building on the success of this record-breaking fall 2025 anime.
+---------
+
+# Netflix's New 8-Episode Steamy Drama Is Finally Coming Next Month
+
+TV, Crew Girl
+
+Mon, 24 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/netflix-crew-girl-september-release-date/
+
+Netflix is trying to score the next viral show.
+---------
+
+# 10 Masterpiece Movies to Watch If You Love The Dark Knight
+
+Movies, The Dark Knight, Batman, Thriller
+
+Mon, 24 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/must-watch-movies-if-you-love-the-dark-knight-list/
+
+As audiences look back on Christopher Nolan's The Dark Knight as the best superhero movie, there are some perfect films to watch if you love it.
+---------
+
+# HBO's Sci-Fi Detective Series 'Lanterns' Officially Drops a Major Villain Revelation | Review
+
+TV Reviews, Lanterns, Aaron Pierre, Kyle Chandler, HBO
+
+Mon, 24 Aug 2026 02:00:21 GMT
+
+https://collider.com/lanterns-episode-2-recap/
+
+Lanterns Episode 2 splits up its main duo while unleashing its biggest villain revelation yet. Read our review.
+---------
+
+# The 5 Best Fantasy TV Shows With Complex Magic Systems, Ranked
+
+TV, The Wheel of Time, Shadow and Bone, The Magicians, Fantasy
+
+Mon, 24 Aug 2026 01:22:11 GMT
+
+https://collider.com/best-fantasy-shows-complex-magic-systems-ranked/
+
+Explore the best fantasy TV shows featuring fascinating and intricate magic systems, from The Wheel of Time to Shadow and Bone.
+---------
+
+# Disney+'s 10/10 Sci-Fi Crime Thriller Officially Pulls 1 Billion Views a Year After Ending
+
+TV News, Andor, Star Wars, Disney+, Diego Luna
+
+Mon, 24 Aug 2026 01:00:11 GMT
+
+https://collider.com/star-wars-andor-2026-viewership-918-million-minutes-watched-disney-plus/
+
+Andor, the best Star Wars Disney+ show, pulled nearly one billion minutes viewed during the first half of 2026.
+---------
+
+# 12 Most Overrated Classic Movies (& the Underrated Options to Watch Instead)
+
+Movie Lists, Rocky, The Lost Boys, Avatar, The Sixth Sense
+
+Mon, 24 Aug 2026 02:00:24 GMT
+
+https://movieweb.com/overrated-classic-movies-underrated-alternatives/
+
+When you dig a little deeper and look past the hype, there are often movies with similar themes and plots that are even more enjoyable.
+---------
+
 # 32 Years Later, The Simpsons Just Revived A Classic Gag For The New Movie
 
 TV, The Simpsons, The Simpsons 2
