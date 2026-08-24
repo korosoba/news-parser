@@ -1,3 +1,113 @@
+# 30 Years Later, An Unplayable 10/10 SNES Masterpiece Is Being Revived For Modern Consoles
+
+Gaming, SNES
+
+Mon, 24 Aug 2026 22:16:00 GMT
+
+https://screenrant.com/unplayable-snes-masterpiece-remake-confirmed/
+
+After 30 years, an underrated SNES RPG is coming back on Nintendo Switch, Nintendo Switch 2, PlayStation 5, XBOX and PC in early 2027.
+---------
+
+# Recasting Cheers For The British Remake: 9 All Main Roles
+
+TV, Cheers
+
+Mon, 24 Aug 2026 22:15:14 GMT
+
+https://screenrant.com/cheers-recasting-british-remake-actors/
+
+A UK remake of the classic sitcom Cheers is currently in development, and these 9 comedy actors would be the perfect fit for the series.
+---------
+
+# 5 Best Prime Video Series To Binge-Watch This Week (Aug 24–28, 2026)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 24 Aug 2026 22:03:14 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-week-august-24-2026/
+
+The best shows to binge-watch on Prime Video this week, August 24–28, 2026, are Reacher, Sterling Point, The Grand Tour, and The Ghost in the Shell.
+---------
+
+# 3 Square Enix Games That Are Perfect 10/10 Masterpieces
+
+Gaming, Square Enix, Triple-A Games
+
+Mon, 24 Aug 2026 22:00:15 GMT
+
+https://screenrant.com/square-enix-perfect-masterpieces/
+
+Square Enix is one of those companies that has incredible games in its roster, but even among several hits, there are those that truly stand out.
+---------
+
+# Forget Everything You Know About Game World Isekai With This New Series (Exclusive)
+
+Exclusive, The Exiled Heavy Knight Knows How to Game the System, Isekai
+
+Mon, 24 Aug 2026 22:00:15 GMT
+
+https://screenrant.com/exiled-heavy-knight-new-game-world-isekai/
+
+This new game world isekai is one that will make you think twice about calling all RPG-based anime similar, and this exclusive interview proves it.
+---------
+
+# 10 Anime Arcs Where the Strongest Character Loses
+
+Anime, Naruto: Shippuden, Jujutsu Kaisen, Hunter x Hunter
+
+Mon, 24 Aug 2026 22:15:11 GMT
+
+https://www.cbr.com/anime-arcs-where-the-strongest-character-loses/
+
+Sometimes anime's strongest characters fall through arrogance, when they become too confident to see the threat building against them.
+---------
+
+# Guy Ritchie's 126-Minute Fantasy Action Flop Is Now One of the Biggest Movies on Streaming
+
+Movies, King Arthur: Legend of the Sword, Fantasy
+
+Mon, 24 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/guy-ritchie-king-arthur-legend-of-the-sword-hbo-max-success-august-2026/
+
+Guy Ritchie's fantasy drama about a legendary figure found streaming success after a box-office failure.
+---------
+
+# Jim Carrey's The Jetsons' is Star Trek Meets Back to the Future
+
+Movies, The Jetsons, Star Trek, Back to the Future
+
+Mon, 24 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/jim-carrey-the-jetsons-is-star-trek-meets-back-to-the-future/
+
+A live-action reboot of The Jetsons is coming from Warner Bros. and it will likely share elements with both Star Trek and Back to the Future.
+---------
+
+# 7 Book Authors Without Many Movie or TV Adaptations
+
+Books and Comics, The Stormlight Archive, Brandon Sanderson, Don Delillo, Mistborn
+
+Mon, 24 Aug 2026 21:53:11 GMT
+
+https://collider.com/authors-books-without-many-adaptations/
+
+Some books are easier to adapt than others, with authors like Thomas Pynchon, Don DeLillo, and Brandon Sanderson having few adaptations (so far).
+---------
+
+# Netflix’s New 'Gritty' and 'Raunchy' Thriller Series Is a Must-Watch for Fall 2026
+
+Features, The Body, Netflix, Thriller
+
+Mon, 24 Aug 2026 22:00:14 GMT
+
+https://movieweb.com/the-body-netflix-must-watch/
+
+Netflix has an upcoming thriller TV series that will be released in fall 2026 and has eight episodes.
+---------
+
 # 3 2000's Turn-Based RPGs That Are Still 10/10 Masterpieces
 
 Gaming, Final Fantasy X
