@@ -1,3 +1,14 @@
+# The Good Place Meets Undertale In 9/10 Free RPG You Can Play Right Now
+
+Gaming, The Good Place, Undertale
+
+Mon, 24 Aug 2026 08:00:14 GMT
+
+https://screenrant.com/good-place-meets-undertale-grimms-hollow/
+
+A free Steam RPG about death, grief, and family, Grimm’s Hollow blends Undertale-style heart with a surprisingly moving afterlife adventure.
+---------
+
 # Brandon Sanderson's Stormlight: War For Roshar Officially Kicks Off A Brand-New Era
 
 Gaming, Brandon Sanderson, The Stormlight Archive, tabletop games
