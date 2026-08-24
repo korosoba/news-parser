@@ -1,3 +1,91 @@
+# The Office Franchise Officially Returns In 2 Weeks
+
+Streaming TV, Masked Recs
+
+Mon, 24 Aug 2026 22:45:15 GMT
+
+https://screenrant.com/the-paper-season-2-september-9-peacock/
+
+The Office is expanding with a spinoff, The Paper, which, after a successful first season on Peacock, is ready to return with its second season.
+---------
+
+# It's Officially The End Of An Era For Squid Game
+
+TV, Squid Game
+
+Mon, 24 Aug 2026 22:31:14 GMT
+
+https://screenrant.com/squid-game-franchise-end-of-an-era-spinoffs/
+
+After a global phenomenon and years of speculation about an English language remake from David Fincher, Squid Game's story is seemingly finally over.
+---------
+
+# New Indiana Jones Release Confirmed, And It Already Looks Essential
+
+Comics, Indiana Jones
+
+Mon, 24 Aug 2026 22:30:15 GMT
+
+https://screenrant.com/indiana-jones-further-adventures-new-release/
+
+We're heading back to the '80s.
+---------
+
+# Official Kiki's Delivery Service Sequel Finally Reaches Fans Decades Later
+
+Anime, Kiki's Delivery Service, books
+
+Mon, 24 Aug 2026 22:20:11 GMT
+
+https://www.cbr.com/kiki-and-the-other-witch-english-release-date/
+
+Next year, Kiki returns to charm Western readers with a tale that has never before been published in North America.
+---------
+
+# The 8 Best Film Noir Movies of the '40s, Ranked
+
+Movie, Humphrey Bogart, The Maltese Falcon, Classics, Film Noir
+
+Mon, 24 Aug 2026 22:42:11 GMT
+
+https://collider.com/best-film-noir-masterpieces-1940s-ranked/
+
+Double Indemnity, The Third Man, and Laura are among the very best classic film noir movies from the 1940s.
+---------
+
+# 6 Major Streamers Just Made the Same Move, and It Could Change How We Find TV Shows
+
+TV Features, Netflix, HBO Max, Disney+, Prime Video
+
+Mon, 24 Aug 2026 22:41:11 GMT
+
+https://collider.com/streaming-apps-social-media-clips-short-form-feeds-formula-change/
+
+6 major streamers are adopting a surprising new strategy to lead viewers to new shows.
+---------
+
+# 3 Perfect Movies To Stream on Prime Video This Week (Aug 24-28)
+
+Movie, Prime Video, The Wolf of Wall Street, Despicable Me 4, Bad Moms
+
+Mon, 24 Aug 2026 22:34:11 GMT
+
+https://collider.com/best-movies-prime-video-august-24-2026/
+
+The Wolf of Wall Street, Despicable Me 4, and Bad Moms make up our list of the best movies to watch on Prime Video the week of August 24, 2026.
+---------
+
+# 4 Months Later, Stephen Lang's 88-Minute 9/10 Twisted Thriller Is Being Removed by Netflix
+
+Movie News, Don't Breathe, Coming/Leaving Streaming, Stephen Lang
+
+Mon, 24 Aug 2026 22:30:14 GMT
+
+https://movieweb.com/dont-breathe-leaving-netflix-september-2026/
+
+You only have a few days left to stream what is genuinely a near-perfect home invasion movie.
+---------
+
 # 30 Years Later, An Unplayable 10/10 SNES Masterpiece Is Being Revived For Modern Consoles
 
 Gaming, SNES
