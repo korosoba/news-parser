@@ -1,3 +1,58 @@
+# Steam's Latest 9/10 Game Launches To 260,000 Concurrent Players, And It's Dirt-Cheap
+
+Gaming, Steam, PC
+
+Mon, 24 Aug 2026 10:00:41 GMT
+
+https://screenrant.com/steam-how-to-fish-major-hit/
+
+A brand-new Steam game has just launched to rave reviews and a massive influx of players, and you can enjoy it too for dirt cheap.
+---------
+
+# Star Wars: Legacy Of Skywalker Officially Confirmed For 2027
+
+Gaming, Star Wars
+
+Mon, 24 Aug 2026 10:00:14 GMT
+
+https://screenrant.com/star-wars-legacy-of-skywalker-2027/
+
+Star Wars Unlimited has become one of the best adaptations of the beloved sci-fi franchise, and there's plenty more where that came from.
+---------
+
+# Marvel Officially Confirms Major X-Men Origin Story Rewrite
+
+Books and Comics News, X-Men, Marvel Comics, Marvel, Comics
+
+Mon, 24 Aug 2026 10:00:11 GMT
+
+https://collider.com/marvel-comics-what-if-x-men-charles-xavier-cassandra-nova-death/
+
+Marvel's latest X-Men installment explores a world where Charles Xavier is killed before becoming Professor X. Here's everything you should know.
+---------
+
+# Prime Video’s New 140-Minute Action Epic Officially Crowned the Biggest Movie on Streaming
+
+Movie News, Masters of the Universe, Prime Video, Hot on Streaming, Action
+
+Mon, 24 Aug 2026 10:06:26 GMT
+
+https://movieweb.com/masters-of-the-universe-action-prime-video-streaming-nielsen-debut/
+
+After a disastrous box office run, Prime Video's newest action epic finds redemption on streaming.
+---------
+
+# Reboot of Sylvester Stallone Action Thriller Classic Lands New Release Date
+
+Movie News, Sylvester Stallone, Cliffhanger, Action, Thriller
+
+Mon, 24 Aug 2026 09:57:01 GMT
+
+https://movieweb.com/cliffhanger-reboot-release-date-2027/
+
+The long-awaited reboot of the action cult classic has reportedly now been given a final release following much backstage turmoil.
+---------
+
 # Pokémon Winds & Waves Battle System And Turn-Based Future Officially Confirmed
 
 Gaming, Pokemon Winds and Waves, Pokemon
