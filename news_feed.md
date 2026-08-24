@@ -1,3 +1,124 @@
+# Marvel's Black Panther Change Is A Reminder To Watch This Overlooked Movie With 98% On Rotten Tomatoes
+
+Movies, Marvel Cinematic Universe, Black Panther 3, Black Panther, Rye Lane, Masked Recs
+
+Mon, 24 Aug 2026 12:30:14 GMT
+
+https://screenrant.com/black-panther-3-tchalla-david-jonsson-watch-rye-lane/
+
+David Jonsson's Black Panther casting makes his acclaimed 98%-rated hidden gem essential viewing before he takes over the iconic MCU role.
+---------
+
+# 23 Years Later, This Lord Of The Rings Game Remains An Undefeated Adaptation
+
+Gaming, The Lord of the Rings, The Lord of the Rings: The Return of the King
+
+Mon, 24 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/lord-of-the-rings-greatest-game-of-all/
+
+There have been some brilliant Lord of the Rings games over the years, but one has secured its place near the top of the list.
+---------
+
+# Disney Officially Announces New Adaptation of Iconic Story
+
+Comics, Disney, Masked Recs
+
+Mon, 24 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/disney-new-christmas-carol-adaptation-scrooge-mcduck/
+
+Disney does A Christmas Carol!
+---------
+
+# 1 Puppet Replacement Totally Stole Star Trek's Cutest Episode
+
+TV, Op-Ed, Star Trek, Star Trek: Strange New Worlds
+
+Mon, 24 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-pelia-puppet-replacement/
+
+Star Trek: Strange New Worlds' puppet episode was a cuteness and whimsy overload, but one Jim Henson Creature Shop creation is a true masterpiece.
+---------
+
+# The Best Predator Line Was First Done By A Stallone Action Franchise 2 Years Earlier
+
+Movies, Predator
+
+Mon, 24 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/predator-movie-dutch-best-quote-bleeds-kill-rocky-4-stallone/
+
+Predator's most iconic line is an action-movie classic, but its crucial storytelling purpose was actually used by a Sylvester Stallone movie first.
+---------
+
+# Star Trek Unveils a Terrifying New Anti-Borg Weapon That Changes Everything
+
+Comics, Star Trek
+
+Mon, 24 Aug 2026 12:30:11 GMT
+
+https://www.cbr.com/star-trek-the-last-starship-anti-borg-weapon/
+
+Star Trek has finally introduced a weapon powerful enough to stop the Borg in their tracks, and it could be a game changer for the franchise.
+---------
+
+# Ridley Scott Disagrees With Quentin Tarantino's Pick for Best Movie of the Century
+
+Movies, ridley scott, Quentin Tarantino, Black Hawk Down
+
+Mon, 24 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/ridley-scott-disagrees-quentin-tarantino-best-movie-21st-century/
+
+Ridley Scott had quite the response to Quentin Tarantino picking one of his films as the best movie of the century.
+---------
+
+# 10 Classic Rock Songs That Would Be Perfect Soundtracks for These Fantasy Books
+
+Music Features, Led Zeppelin, Aerosmith, Rock, Music
+
+Mon, 24 Aug 2026 11:54:11 GMT
+
+https://collider.com/classic-rock-songs-fantasy-books/
+
+From Game of Thrones to The Lord of the Rings, these classic rock songs create the perfect soundtrack for epic fantasy worlds.
+---------
+
+# The 8 Most Suspenseful Thriller Movies You'll Ever Watch
+
+Movie, Thriller, Psycho, Memento, The Talented Mr. Ripley
+
+Mon, 24 Aug 2026 11:51:11 GMT
+
+https://collider.com/most-suspenseful-thriller-movies-youll-ever-watch/
+
+From Psycho to The Silence of the Lambs, these thrillers deliver high-stakes suspense.
+---------
+
+# James Bond's Son Leaps Into Action in New 82-Minute Straight-To-Streaming Spy Thriller
+
+Movie News, Roger Moore, James Bond, Action, Thriller
+
+Mon, 24 Aug 2026 12:05:24 GMT
+
+https://movieweb.com/knightfall-trailer-james-bond-moore-action-thriller/
+
+The action thriller has been hailed as "reminiscent of one of the best 007 epics."
+---------
+
+# Guy Ritchie's 126-Minute Fantasy Action Flop Officially Finds Global Redemption on Streaming
+
+Movie News, Guy Ritchie, King Arthur: Legend of the Sword, Hot on Streaming
+
+Mon, 24 Aug 2026 12:00:13 GMT
+
+https://movieweb.com/king-arthur-guy-ritchie-streaming-hit-hbo-max-august-2026/
+
+The film is one of the most infamous box-office bombs in modern Warner Bros. history.
+---------
+
 # Scarlet Witch's Official Team-Up With the Sorcerer Supreme of the Quantum Realm
 
 Comics, Scarlet Witch
