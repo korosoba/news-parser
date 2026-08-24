@@ -1,3 +1,278 @@
+# Hulu's New Crime Thriller With Near-Perfect RT Score Continues #1 Streak In Week 3
+
+TV, Masked Recs
+
+Mon, 24 Aug 2026 16:21:23 GMT
+
+https://screenrant.com/furious-show-hulu-crime-thriller-streaming-success-streak-august-2026/
+
+After dominating for two straight weeks, an intense new crime thriller show from Hulu is still a winner with audiences as it remains in the top spot.
+---------
+
+# Ryan Gosling's $180 Million Action Thriller Movie Deserves Its Netflix Streaming Success
+
+Movies, Masked Recs
+
+Mon, 24 Aug 2026 16:02:07 GMT
+
+https://screenrant.com/netflix-the-fall-guy-streaming-charts-rise-august-2026/
+
+Ryan Gosling's action movie has become a Netflix global hit, and this energetic release's success is deserved after the film's poor box office.
+---------
+
+# The Witcher 4 Just Got An Official Release Date Update
+
+Gaming, The Witcher 4, Triple-A Games
+
+Mon, 24 Aug 2026 16:01:51 GMT
+
+https://screenrant.com/the-witcher-4-release-date-2028/
+
+CD Projekt Red has been keeping The Witcher 4 close to the chest, but now we have an official update on when the game is finally coming out.
+---------
+
+# Dungeons & Dragons 8 New Subclasses For Arcana Unleashed
+
+Gaming, Dungeons and Dragons
+
+Mon, 24 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/dungeons-dragons-arcana-unleashed-new-subclasses/
+
+Dungeons & Dragons has revealed details on 8 new subclasses joining 5.5e thanks to the release of the upcoming Arcana Unleashed sourcebook.
+---------
+
+# Netflix's 18-Part Steampunk Fantasy Masterpiece Is A 'Quality Over Quantity' Series
+
+Classic TV, Masked Recs
+
+Mon, 24 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/arcane-quality-over-quantity-netflix-fantasy-steampunk/
+
+Netflix’s library includes a steampunk fantasy television show which demonstrates that a series can be of great quality even with just a few episodes.
+---------
+
+# The MCU Is Repeating Its Biggest Recent Mistake In Order To Fix It
+
+Movies, Marvel Cinematic Universe
+
+Mon, 24 Aug 2026 15:55:14 GMT
+
+https://screenrant.com/mcu-2025-2028-release-order-mistake-fix/
+
+The most exciting part of the MCU's future requires it to repeat a move that led to one of its biggest recent mistakes, albeit in a different way.
+---------
+
+# Over 20 Major Easter Eggs, Comics References, And DCU Ties in Lanterns Episode 2
+
+Superheroes, Lanterns, DC Universe
+
+Mon, 24 Aug 2026 15:50:14 GMT
+
+https://screenrant.com/lanterns-easter-eggs-references-and-dcu-ties-episode-2/
+
+Lanterns episode 2 is just as good as the premiere, featuring an exciting collection of Easter eggs, comic references, key DCU ties, and more.
+---------
+
+# Red Dead Redemption 2 Players Can Finally Explore Mexico On September 16
+
+Gaming, Red Dead Redemption 2
+
+Mon, 24 Aug 2026 15:30:17 GMT
+
+https://screenrant.com/red-dead-redemption-2-mexico-map-expansion-arrives-september-16/
+
+Red Dead Redemption 2 players will be able to explore Mexico on September 16, so mark those calendars.
+---------
+
+# 10 Most Rewatchable Sci-Fi Anime Series, Ranked
+
+Anime, Cowboy Bebop, Steins;Gate, Sci-Fi
+
+Mon, 24 Aug 2026 16:15:11 GMT
+
+https://www.cbr.com/most-rewatchable-sci-fi-anime-ranked-list/
+
+These sci-fi anime series stand out for their replay value, offering layered stories and details that reward repeat viewings.
+---------
+
+# Rivals Star Cast as Agatha Christie in 10-Part Mystery About Golden Age of Detective Fiction
+
+TV, Mystery, Britbox UK
+
+Mon, 24 Aug 2026 16:00:16 GMT
+
+https://www.cbr.com/britbox-bbc-the-detection-club-full-cast/
+
+BritBox's upcoming mystery inspired by the golden age of detective fiction, The Detection Club, finds its Queen of Crime.
+---------
+
+# Dungeons & Dragons Arcana Unleashed Offers Familiars For Everyone
+
+Games, Dungeons and Dragons, Tabletop
+
+Mon, 24 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/dnd-arcana-unleashed-review/
+
+Arcana Unleashed is an excellent resource for Dungeons & Dragons players and DMs, providing powerful new spells, subclasses, and monsters.
+---------
+
+# 52 Years Later, Disney Is Remaking One of Its Greatest Animated Classics
+
+Comics, Robin Hood
+
+Mon, 24 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/disney-robin-hood-remake-dynamite-entertainment-release-details/
+
+A classic Disney animated movie from the 70s is getting an unexpected remake, and the first look is absolutely top tier.
+---------
+
+# 7 Things Netflix's Narnia Movie Must Learn From The Lord of the Rings
+
+Movies, Narnia: The Magician's Nephew, The Lord of the Rings, Fantasy
+
+Mon, 24 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/chronicles-of-narnia-reboot-lessons-lord-of-the-rings-fantays/
+
+Netflix's new Chronicles of Narnia reboot needs to learn these crucial lessons from The Lord of the Rings' success.
+---------
+
+# Apple TV's Sci-Fi Series With 96% RT Score Gets First-Ever Season 2 Announcement
+
+TV, Murderbot, Apple TV, Alexander Skarsgard
+
+Mon, 24 Aug 2026 15:59:37 GMT
+
+https://www.cbr.com/murderbot-season-2-cast-announcement-apple-tv/
+
+The series was a major hit when it landed on Apple TV in 2025.
+---------
+
+# Guy Ritchie's Netflix Thriller's Future Revealed 1 Week Ahead of Season 2
+
+TV, guy ritchie, The Gentlemen
+
+Mon, 24 Aug 2026 15:37:19 GMT
+
+https://www.cbr.com/guy-ritchie-the-gentlemen-season-3-fate/
+
+The crime thriller is set to return in early September.
+---------
+
+# 4 Action Thrillers That Were Robbed of the Best Picture Oscar
+
+Movie, Action, Thriller, Academy Awards, Mad Max: Fury Road
+
+Mon, 24 Aug 2026 16:11:12 GMT
+
+https://collider.com/action-thriller-movies-deserved-best-picture-oscar/
+
+The Academy has a bias against genre films, but action thrillers like The Matrix and The Dark Knight undeniably deserved the Best Picture Oscar.
+---------
+
+# Agatha Christie Is Officially the Star of a New 10/10 British Mystery Series
+
+TV News, Agatha Christie, Britbox, Crime, Mystery
+
+Mon, 24 Aug 2026 16:01:42 GMT
+
+https://collider.com/the-detection-club-agatha-christie-cast-britbox-filming/
+
+BritBox’s The Detection Club begins filming with Bryony Hannah as Agatha Christie alongside Miles Jupp and Cara Theobold in the 10-part mystery drama.
+---------
+
+# Prime Video’s 'Reacher' Meets 'John Wick' Thriller Officially Returns This Year
+
+TV News, The Terminal List, Chris Pratt, Prime Video
+
+Mon, 24 Aug 2026 16:00:11 GMT
+
+https://collider.com/prime-video-terminal-list-season-2-release-date/
+
+Prime Video's Reacher meets John Wick thriller series officially returns this year. Get the details on Chris Pratt's hit 2-part series.
+---------
+
+# Dominic Sessa Has No Reservations About His Rise to Fame
+
+Interviews, Dominic Sessa, Tony, Antonio Banderas, Leo Woodall, profile
+
+Mon, 24 Aug 2026 16:00:11 GMT
+
+https://collider.com/dominic-sessa-tony-anthony-bourdain-movie-the-holdovers/
+
+Dominic Sessa discusses playing Anthony Bourdain in Tony, his unconventional approach to the role, and what he learned after The Holdovers.
+---------
+
+# Marvel Is Officially Replacing Wolverine After Nearly 50 Years
+
+Books and Comics News, Wolverine, Hugh Jackman, X-Men, X-Men '97
+
+Mon, 24 Aug 2026 15:53:34 GMT
+
+https://collider.com/wolverine-replacement-new-clones-adamantium-claws-uncanny-x-men/
+
+Marvel’s Uncanny X-Men introduces four new Wolverine clones with Logan’s powers and adamantium claws, bringing his Weapon X nightmare back to life.
+---------
+
+# Who Is the Manhunter in 'Lanterns'? The 5 Best Theories, Ranked by Evidence
+
+TV Lists, Lanterns
+
+Mon, 24 Aug 2026 16:23:43 GMT
+
+https://movieweb.com/lanterns-manhunter-theories-hbo/
+
+'Lanterns,' the HBO series starring Aaron Pierre and Kyle Chandler, has introduced the mystery of the identity of the manhunter.
+---------
+
+# Netflix Officially Confirms Future of Near-Perfect Spy Thriller Series After 1 Season
+
+TV News, Legends
+
+Mon, 24 Aug 2026 16:06:56 GMT
+
+https://movieweb.com/netflix-legends-season-2-renewal/
+
+Netflix has officially renewed 'Legends' for Season 2, confirming the future of one of its best-reviewed series of 2026.
+---------
+
+# 'The Last of Us' Season 3 Officially Brings Back Dead Character in New Video
+
+TV News, The Last of Us, HBO Max, Horror
+
+Mon, 24 Aug 2026 16:06:15 GMT
+
+https://movieweb.com/last-of-us-season-3-dead-character-returns/
+
+The show has done this before.
+---------
+
+# 8 Masterpiece World War II Movies With Historical Accuracy Praised by Experts
+
+Movie Lists, War
+
+Mon, 24 Aug 2026 16:01:13 GMT
+
+https://movieweb.com/world-war-2-movies-historically-accurate/
+
+These World War II movies depict this period of history with impressive accuracy, and several experts, including war historians, have celebrated them.
+---------
+
+# Major 'Doctor Who' Recasting Theory Officially Shut Down by Franchise Icon
+
+TV News, Doctor Who / Whoniverse
+
+Mon, 24 Aug 2026 15:43:34 GMT
+
+https://movieweb.com/doctor-who-billie-piper-casting-theory/
+
+'Doctor Who' star Billie Piper has shut down casting theories on who the next Doctor will be.
+---------
+
 # Disney Sued Over 25-Year-Old Sci-Fi Movie In Lawsuit Alleging "Repeated" Sexual Assaults
 
 Movies, Disney, The Poof Point
