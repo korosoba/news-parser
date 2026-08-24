@@ -1,3 +1,267 @@
+# 32 Years Later, The Simpsons Just Revived A Classic Gag For The New Movie
+
+TV, The Simpsons, The Simpsons 2
+
+Mon, 24 Aug 2026 00:30:15 GMT
+
+https://screenrant.com/the-new-simpsons-movie-title-idea-lisa-vs-malibu-stacy/
+
+The Simpsons has always been able to poke fun at itself, and the classic animated sitcom has done it again with the title of its "new" movie.
+---------
+
+# 76 Years Later, Snoopy's First Peanuts Appearance Is Still Genius
+
+Comics, Peanuts
+
+Mon, 24 Aug 2026 00:12:04 GMT
+
+https://screenrant.com/peanuts-snoopy-first-appearance/
+
+Originally, Snoopy looked quite different from the droopy-eared, peanut-headed icon he's known as today, starring in a beautifully minimalistic strip.
+---------
+
+# 3 Forgotten MCU Post-Credits Scenes Marvel Needs To Address In Avengers: Doomsday
+
+Movies, Marvel Cinematic Universe
+
+Mon, 24 Aug 2026 00:10:15 GMT
+
+https://screenrant.com/mcu-credits-scenes-avengers-doomsday-address/
+
+The Marvel Cinematic Universe has had countless post credits scenes over the years, but some need to be readdressed in Doomsday.
+---------
+
+# 12 Greatest Scenes In Christopher Nolan Movies (Including 2 From The Odyssey)
+
+Movies, Christopher Nolan, The Odyssey, The Dark Knight, Interstellar, Tenet, The Prestige, Inception
+
+Mon, 24 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/christopher-nolan-movies-best-scenes-ranked/
+
+Now that The Odyssey is in the mix, here's our ranking and favorite picks for the greatest Christopher Nolan movie scenes of all time.
+---------
+
+# Netflix's 3-Part Agatha Christie Mystery Landed Two Of Britain's Biggest Stars
+
+Streaming TV, Masked Recs
+
+Mon, 24 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/agatha-christie-seven-dials-netflix-british-cast/
+
+Netflix's high-profile three-episode Agatha Christie adaptation features an incredible cast, led by two of Britain's biggest A-list stars.
+---------
+
+# 30 Years Later, Pokémon Officially Unveils Stunning New Mewtwo Redesign
+
+Gaming, Pokémon, Pokemon, Pokemon Trading Card Game, Pokemon Trading Card Game Pocket, PC
+
+Mon, 24 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/pokemon-tcg-team-rocket-ambition-mewtwo-redesign/
+
+Pokémon's most iconic psychic type, Mewtwo, just got an absolutely stunning redesign in this brand-new 30th Anniversary release, available this week.
+---------
+
+# 5 Anime Heroes More Overpowered Than Sung Jinwoo
+
+Anime, Solo Leveling, Dragon Ball
+
+Mon, 24 Aug 2026 00:45:11 GMT
+
+https://www.cbr.com/anime-heroes-more-overpowered-than-sung-jinwoo-list/
+
+Anime heroes like Saitama and Yogiri Takatou have abilities that can outmatch Sung Jinwoo's power in Solo Leveling.
+---------
+
+# The $897M Fantasy Film That Kicked Off a Franchise Returns as a PVOD Sensation Ahead of Sequel
+
+Movies, The Lord of the Rings: The Fellowship of the Ring, elijah wood, Prime Video, Innovation
+
+Mon, 24 Aug 2026 00:30:11 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-the-fellowship-of-the-ring-pvod-success-august-2026/
+
+One of the biggest movies of all-time is gaining some new fans on the digital charts.
+---------
+
+# 10 Greatest Cozy Games of All Time, Ranked
+
+Games, Animal Crossing: New Horizons, The Sims, Disney Dreamlight Valley, Video Games
+
+Mon, 24 Aug 2026 00:30:11 GMT
+
+https://www.cbr.com/best-cozy-games-ranked/
+
+Cozy gaming, for many gamers, is the best way to kick back, relax, and wind down, so let's take a look at the best cozy games ever made!
+---------
+
+# It’s the End of the Patrick Stewart Era for The X-Men Movies
+
+Movies, X-Men, professor x, Marvel Cinematic Universe
+
+Mon, 24 Aug 2026 00:30:11 GMT
+
+https://www.cbr.com/mcu-x-men-end-of-patrick-stewart-professor-x-era/
+
+Marvel Studios has announced the star playing the MCU's new Professor X, marking the end of an era for the X-Men in live-action.
+---------
+
+# 5 Weakest Akatsuki Members in Naruto, Ranked
+
+Anime, Naruto, Innovation
+
+Mon, 24 Aug 2026 00:15:11 GMT
+
+https://www.cbr.com/naruto-shippuden-weakest-akatsuki-members-ranked-list/
+
+Naruto's Akatsuki are extremely powerful, but members like Sasori just don't measure up.
+---------
+
+# Anya Taylor-Joy's 88% RT Horror Masterpiece Is Headed to Peacock
+
+Movies, The Menu
+
+Mon, 24 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-menu-horror-peacock-release-date/
+
+The film is also required viewing for Harry Potter fans.
+---------
+
+# 10 Greatest JRPG Worlds of All Time, Ranked
+
+Games, JRPG, Final Fantasy, Dragon Quest XI S, Yakuza
+
+Mon, 24 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/greatest-jrpg-worlds-all-time-ranked/
+
+Many of the most unforgettable JRPGs earn that status not just through outstanding gameplay, but through the creativity of their world.
+---------
+
+# 10 Must-Watch Isekai Anime That Have Zero Bad Seasons
+
+Anime, Isekai, Innovation
+
+Sun, 23 Aug 2026 23:45:11 GMT
+
+https://www.cbr.com/best-isekai-anime-no-bad-seasons-official-list/
+
+The best isekai anime, like Re:Zero and Jobless Reincarnation, don't have a single bad season.
+---------
+
+# Forgotten 'Jaws' Dupe Officially Shoots Onto Netflix's Most-Watched List 10 Years Later
+
+Movie News, Jaws, The Shallows, Netflix, Streaming
+
+Mon, 24 Aug 2026 00:45:11 GMT
+
+https://collider.com/blake-lively-the-shallows-streaming-hit-netflix-august-2026/
+
+An underrated Jaws dupe starring Blake Lively is a streaming hit on Netflix. Read on for more details.
+---------
+
+# Stephen King's Favorite Sci-Fi Show Is a Forgotten Series That Blends '24' With 'Lost'
+
+TV Features, The Event, Stephen King, 24, Lost
+
+Mon, 24 Aug 2026 00:20:11 GMT
+
+https://collider.com/the-event-nbc-stephen-king-lost-24/
+
+The 2010 NBC sci-fi series The Event merged politics and aliens, becoming one of Stephen King's favorites.
+---------
+
+# Alan Ritchson’s $700M Blockbuster Is Officially Leaving Streaming Competition in the Dust
+
+Movie News, Fast X, Alan Ritchson, Reacher, Peacock
+
+Mon, 24 Aug 2026 00:15:11 GMT
+
+https://collider.com/alan-ritchson-fast-x-streaming-success-peacock-prime-video-august-2026/
+
+Fast X, the $700 million-grossing blockbuster starring Alan Ritchson, is breaking out on streaming alongside Reacher Season 4.
+---------
+
+# ‘The Westies’ Desperately Needs a Season 2 After That Stunning Finale Twist
+
+Interviews, The Westies, Sarah Bolger, Tom Brittney, J.K. Simmons
+
+Mon, 24 Aug 2026 00:10:11 GMT
+
+https://collider.com/the-westies-finale-twist-bridget-sarah-bolger-season-2/
+
+Sarah Bolger discusses The Westies, Bridget Walsh's shocking finale revenge, her desire for Season 2, and shooting the upcoming period movie Fog City.
+---------
+
+# J.K. Simmons and Tom Brittney Break Down How ‘The Westies’ Finale Changes Everything
+
+Interviews, The Westies, J.K. Simmons, Tom Brittney, Titus Welliver
+
+Mon, 24 Aug 2026 00:05:11 GMT
+
+https://collider.com/the-westies-finale-jk-simmons-tom-brittney-season-2/
+
+J.K. Simmons and Tom Brittney discuss The Westies finale, the major clash between their characters, and what they'd like to see in Season 2.
+---------
+
+# 5 Classic Comedy Shows That Are Still Better Than Most New Series
+
+TV, Comedy, Everybody Loves Raymond, Cheers, Seinfeld
+
+Mon, 24 Aug 2026 00:02:11 GMT
+
+https://collider.com/classic-comedy-shows-better-than-new-series/
+
+Discover classic comedy shows that still outshine today's series, including timeless hits like Everybody Loves Raymond and The Golden Girls.
+---------
+
+# ‘The Westies’ Creators Confirm Why That Shocking Finale Moment Isn’t the End of Sweeney’s Story
+
+Interviews, The Westies, J.K. Simmons, Titus Welliver, Sarah Bolger
+
+Mon, 24 Aug 2026 00:00:11 GMT
+
+https://collider.com/the-westies-finale-creators-chris-brancato-michael-panes-season-2/
+
+Creators Chris Brancato and Michael Panes discuss The Westies, the shocking events of the finale, and still having plenty of story for future seasons.
+---------
+
+# Netflix Officially Adds Keanu Reeves’ Deep Cut '90s Cyberpunk Sci-Fi Mind-Bender
+
+Movie News, Johnny Mnemonic, Sci-Fi, Keanu Reeves, Dina Meyer
+
+Mon, 24 Aug 2026 00:00:11 GMT
+
+https://collider.com/keanu-reeves-sci-fi-johnny-mnemonic-streaming-netflix-august-2026/
+
+Keanu Reeves’ forgotten cyberpunk sci-fi thriller Johnny Mnemonic is streaming on Netflix three decades after its original release.
+---------
+
+# The Greatest Sci-Fi Thriller TNT Ever Made Is Officially Streaming Free
+
+TV News, Snowpiercer, Sci-Fi, Thriller, TNT
+
+Sun, 23 Aug 2026 23:45:11 GMT
+
+https://collider.com/tnt-snowpiercer-streaming-success-itunes-august-2026/
+
+TNT's must-watch sci-fi drama finds a new life on streaming six years after it premiered. Get all the details here.
+---------
+
+# The 8 Greatest Martial Arts Anime, Ranked
+
+TV Lists, Anime
+
+Mon, 24 Aug 2026 00:00:13 GMT
+
+https://movieweb.com/anime-best-martial-arts-ranked/
+
+Mixed Martial Arts and anime have long been intertwined, but only these shows get the formula right.
+---------
+
 # 6 Most Heartbreaking Last Strips In Comic Book History
 
 Comics
