@@ -1,3 +1,14 @@
+# Brandon Sanderson's Stormlight: War For Roshar Officially Kicks Off A Brand-New Era
+
+Gaming, Brandon Sanderson, The Stormlight Archive, tabletop games
+
+Mon, 24 Aug 2026 06:00:14 GMT
+
+https://screenrant.com/brandon-sanderson-stormlight-war-for-roshar-new-era/
+
+Brandon Sanderson's Stormlight Archive is in-between arcs right now, but War for Roshar will offer a large-scale adventure for fans to experience.
+---------
+
 # Naruto X Baruto: Ultimate Ninja Storm Connections Gets Surprise New Release
 
 Gaming, Naruto x Boruto: Ultimate Ninja Storm Connections, Naruto
