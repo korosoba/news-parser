@@ -1,3 +1,168 @@
+# The Last Of Us Season 3 Needs A Canon Character Even The Games Didn't Show
+
+Streaming TV, The Last of Us
+
+Mon, 24 Aug 2026 13:30:15 GMT
+
+https://screenrant.com/the-last-of-us-season-3-abby-mother-show/
+
+The Last of Us season 3 needs to introduce a key character that even the games didn't include. It's about time we finally met Abby's mother.
+---------
+
+# Marvel Unveils Armored Magneto Design for X-Men's Next Comic Appearance
+
+Comics, X-Men
+
+Mon, 24 Aug 2026 13:30:15 GMT
+
+https://screenrant.com/x-men-magneto-new-costume-redesign/
+
+Magneto is ready for the fight of his life.
+---------
+
+# Mel Gibson's Passion Of The Christ Finally Continues In 2027 (But With Major Changes)
+
+Movies, The Passion of the Christ, The Resurrection of the Christ Part 1
+
+Mon, 24 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/passion-resurrection-of-the-christ-part-1-2027-release-sequel-changes/
+
+More than 20 years after The Passion of the Christ, Mel Gibson's biblical epic returns with an unexpected sequel and some major changes.
+---------
+
+# Avengers Just Introduced Its Era-Defining Infinity Gauntlet Replacement
+
+Comics, The Avengers
+
+Mon, 24 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/avengers-new-weapon-infinity-gauntlet-replacement/
+
+The What If Machine isn't just powerful - it's got huge creative potential.
+---------
+
+# So That's It? The Walking Dead Has Some Kinda Suicide Squad?
+
+Streaming TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 24 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/the-walking-dead-city-suicide-squad/
+
+We're used to The Walking Dead's survivors taking some pretty extreme risks, but after 16 years, the franchise finally has its own Suicide Squad.
+---------
+
+# Game Of Thrones Fans Should Officially Mark Their Calendars For September 17
+
+Gaming, Game of Thrones, Game Of Thrones, George R.R. Martin
+
+Mon, 24 Aug 2026 13:00:03 GMT
+
+https://screenrant.com/game-of-thrones-return-september-17-board-game/
+
+Game Of Thrones officially returns September 17 with a major new release.
+---------
+
+# One Piece Season 3 Casts Key Figures In Battle Of Alabasta
+
+TV, One Piece
+
+Mon, 24 Aug 2026 12:39:09 GMT
+
+https://screenrant.com/one-piece-season-3-battle-of-alabasta-casting/
+
+One Piece season 3 casts key figures in the Battle of Alabasta as the live-action series' 2027 return window continues to approach.
+---------
+
+# Gamescom 2026 Opening Night When & Where To Watch, And Every Confirmed Reveal
+
+Gaming, Gamescom
+
+Mon, 24 Aug 2026 12:37:25 GMT
+
+https://screenrant.com/gamescom-2026-opening-night-time-where-watch-confirmed-reveal/
+
+Gamescom Opening Night Live is coming, and Geoff Keighley will be back with a ton of brand-new reveals for good gamers everywhere.
+---------
+
+# Kiki's Delivery Service Officially Enters A Brand New Era
+
+Anime
+
+Mon, 24 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/kikis-delivery-service-new-era-book-review/
+
+For the first time ever, the sequel to Eiko Kadono's Kiki's Delivery Service has an official English translation, and it's absolutely gorgeou
+---------
+
+# Anya Taylor-Joy's The Gorge is the Perfect Aliens Copycat
+
+Movies, The Gorge, Apple TV, scott derrickson, Sci-Fi
+
+Mon, 24 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-gorge-perfect-aliens-copycat/
+
+After a year and a half, Scott Derrickson's best sci-fi movie, starring Anya Taylor-Joy and Miles Teller still hasn't been beaten on Apple.
+---------
+
+# 4-Part ‘Andor’ Meets ‘Lost’ Sci-Fi Goliath Is Officially Back on Top
+
+TV News, Silo, Apple TV, Andor, Lost
+
+Mon, 24 Aug 2026 13:11:02 GMT
+
+https://collider.com/silo-apple-tv-streaming-success-august-2026/
+
+Apple TV's sci-fi giant that is Andor meets Lost is currently back on top of streaming charts as the new season hits screens.
+---------
+
+# SDCC 2026 Proved That We Need More Panels Like This at Comic-Con
+
+Interviews, Ladies Night, Poorna Jagannathan, Lana Condor, SDCC
+
+Mon, 24 Aug 2026 13:00:11 GMT
+
+https://collider.com/sdcc-2026-panel-lanterns-coyote-vs-acme-silo-the-walking-dead-dead-city/
+
+Poorna Jagannathan, Lana Condor, Aimee Garcia and Jessica Henwick brought an unparalleled conversation to San Diego Comic-Con.
+---------
+
+# Pierce Brosnan’s Remake of a Sylvester Stallone Classic Thriller Officially Sets Release Date
+
+Movie News, Pierce Brosnan, Cliffhanger, Sylvester Stallone
+
+Mon, 24 Aug 2026 12:51:38 GMT
+
+https://collider.com/pierce-brosnan-cliffhanger-release-date/
+
+Pierce Brosnan's remake of a Sylverster Stallone classic thriller officially sets release date.
+---------
+
+# Jason Statham's 116-Minute Action Hit Dethroned by New 10/10 Revenge Thriller on Streaming
+
+Movie News, Jason Statham, A Working Man, Is God Is, Action, Thriller, Streamer Comparisons
+
+Mon, 24 Aug 2026 13:30:14 GMT
+
+https://movieweb.com/jason-statham-working-man-is-god-is-streaming-august-2026/
+
+Not even The Stath can hold back the brilliance of this 2026 Southern Gothic tale of vengeance.
+---------
+
+# 11 Sci-Fi Movies With Perfect Time Travel (#9 Is a Hidden Gem)
+
+Movie Lists, Sci-Fi, Arrival, The Terminator
+
+Mon, 24 Aug 2026 13:00:14 GMT
+
+https://movieweb.com/sci-fi-movies-perfect-time-travel/
+
+Time travel can be a challenging trope, but these 11 sci-fi movies are impressive examples of how well this trope can work.
+---------
+
 # Marvel's Black Panther Change Is A Reminder To Watch This Overlooked Movie With 98% On Rotten Tomatoes
 
 Movies, Marvel Cinematic Universe, Black Panther 3, Black Panther, Rye Lane, Masked Recs
