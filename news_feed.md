@@ -1,3 +1,124 @@
+# The End Of An Era For WB's Game Of Thrones Meets Star Wars Franchise Is Officially Coming Soon
+
+Movies, Masked Recs
+
+Tue, 25 Aug 2026 21:01:45 GMT
+
+https://screenrant.com/dune-3-movie-franchise-end-era/
+
+Star Wars meets Game of Thrones in this sci-fi franchise that will soon have to undergo the end of an era, and it all happens for a crucial reason.
+---------
+
+# 30 Years Later, Super Mario 64’s Best Area Remains Undefeated In Video Game History
+
+Gaming, Super Mario 64
+
+Tue, 25 Aug 2026 21:00:15 GMT
+
+https://screenrant.com/super-mario-64-all-time-best-level/
+
+After 30 years, Super Mario 64 still has one of gaming's most iconic levels, and it's still great to play to this day.
+---------
+
+# Mike Flanagan's New 8-Part Stephen King Series Can Continue A 50-Year Adaptation Trend
+
+Streaming TV, Stephen King, Mike Flanagan
+
+Tue, 25 Aug 2026 21:00:15 GMT
+
+https://screenrant.com/mike-flanagan-carrie-stephen-king-adaptation-least-scary/
+
+Mike Flanagan's upcoming horror series for Amazon Prime, Carrie, is a hotly anticipated 8-episode show, and it could continue a Stephen King trend.
+---------
+
+# Scream: 10 Clues That Gave Away The Ghostface Identity Twist You Might've Missed
+
+Movies, Scream, Horror
+
+Tue, 25 Aug 2026 21:00:15 GMT
+
+https://screenrant.com/scream-movie-ghostface-billy-stu-killers-identity-clues/
+
+Every remembers the horror references and flimsy alibis, but these overlooked Scream clues revealed the killers long before the iconic final twist.
+---------
+
+# 5 Long Sci-Fi Anime Series That Are 10/10 Masterpieces
+
+Anime, Gintama, Legend Of The Galactic Heroes
+
+Tue, 25 Aug 2026 21:15:11 GMT
+
+https://www.cbr.com/long-sci-fi-anime-series-masterpieces/
+
+Sci-fi anime like Gintama and Legend of the Galactic Heroes may be long, but they're 100% worth the time commitment.
+---------
+
+# Peacock's 2-Season Fantasy Comedy Series Is Thriving on PVOD Amid Uncertain Future
+
+TV, Ted, Peacock
+
+Tue, 25 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/ted-peacock-fantasy-comedy-pvod-success-august-2026/
+
+The series continues to do well on streaming.
+---------
+
+# The 5 Strongest Magical Weapons in Movie History, Ranked
+
+Movies, The Lord of the Rings, Marvel, Disney, Masters of the Universe
+
+Tue, 25 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/most-powerful-magical-weapons-in-movies-list/
+
+There are some incredibly powerful tools throughout movie history, but these five are the strongest magical weapons existing in film.
+---------
+
+# The 10 Best Grunge Music Videos of All Time, Ranked
+
+Music Features, Rock, 90s, Nirvana, Pearl Jam
+
+Tue, 25 Aug 2026 21:03:11 GMT
+
+https://collider.com/best-grunge-music-videos-all-time-ranked/
+
+"Black Hole Sun" by Soundgarden, "Smells Like Teen Spirit" by Nirvana, and "Violet" by Hole are among the best grunge music videos of all time.
+---------
+
+# 12 Perfect Action Thriller Movies That Have Great Car Chase Scenes
+
+Movie Lists, Action, Mad Max: Fury Road, John Wick: Chapter 4
+
+Tue, 25 Aug 2026 21:01:13 GMT
+
+https://movieweb.com/action-thrillers-with-car-chases-that-still-hold-up/
+
+Fast cars, great movies. That's all a true action lover needs. These are the gold standard of riveting car chase scenes.
+---------
+
+# 'Coyote vs. Acme' Is No 'Roger Rabbit,' But the Almost-Cancelled Movie Gets One Thing Right | Review
+
+Movie Reviews, Coyote Vs. Acme, Will Forte
+
+Tue, 25 Aug 2026 21:01:13 GMT
+
+https://movieweb.com/coyote-vs-acme-review/
+
+Will Forte, John Cena, and loads of Looney Tunes favorites enliven a hit-and-miss comedy notoriously dumped by its studio for a tax write-off.
+---------
+
+# The Fate of Taylor Sheridan's 'Lioness' Season 4 Was Just Accidentally Revealed
+
+TV News, Lioness, Taylor Sheridan, Zoe Saldana
+
+Tue, 25 Aug 2026 20:58:16 GMT
+
+https://movieweb.com/lioness-season-4-renewed-taylor-sheridan/
+
+'Lioness' Season 4 prospects are looking bright following a surprising update from a reported new writer.
+---------
+
 # Netflix's New Brutal Crime Thriller Dominates Streaming With 7M Viewership Debut
 
 TV, Masked Recs
