@@ -1,3 +1,58 @@
+# Prime Video's 15-Episode Sci-Fi Western Is Yellowstone Meets Dark
+
+TV, Masked Recs
+
+Tue, 25 Aug 2026 23:34:15 GMT
+
+https://screenrant.com/outer-range-yellowstone-meets-dark-prime-video-western/
+
+A Wyoming ranch, a mysterious black void, and intergenerational secrets collide in Prime Video's moody, twist-driven acclaimed sci-fi western.
+---------
+
+# 46 Years Later, The Far Side's First Comic Is an Undefeated Masterpiece
+
+Comics, The Far Side
+
+Tue, 25 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/far-side-first-best-all-time-comic-strip/
+
+The gag that began it all is still a belly laugh.
+---------
+
+# MGM+'s 2-Season World War II Drama With 100% Returns as a Streaming Hit
+
+TV, SAS: Rogue Heroes, MGM+, Drama
+
+Tue, 25 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/sas-rogue-heroes-war-drama-prime-video-success-august-2026/
+
+The critically acclaimed series continues to be a streaming success.
+---------
+
+# CBS' Forgotten Political Thriller Quietly Becomes a Streaming Hit 7 Years Later
+
+TV Features, Madam Secretary, CBS, Tea Leoni, Bebe Neuwirth
+
+Tue, 25 Aug 2026 23:42:11 GMT
+
+https://collider.com/madam-secretary-cbs-political-thriller-streaming-hit/
+
+Madam Secretary is the must-watch political thriller now climbing the charts on Apple TV.
+---------
+
+# Forget 'The Witcher,' This Epic Dark Fantasy Series Deserves Its Own TV Adaptation
+
+TV Features, Books, Fantasy, The Witcher, Streaming
+
+Tue, 25 Aug 2026 23:18:11 GMT
+
+https://collider.com/fallen-gods-trilogy-dark-fantasy-series-deserves-tv-adaptation/
+
+As Netflix's The Witcher prepares to air its final season, the next best epic dark fantasy series is hiding in plain sight to be adapted for TV.
+---------
+
 # HBO's New Harry Potter Season 2 Actor Played The Same Role Only One Year Ago
 
 Streaming TV, Harry Potter
