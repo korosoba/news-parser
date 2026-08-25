@@ -1,3 +1,179 @@
+# Paramount Sued In Shocking Lawsuit For Destroying Crime Drama Series
+
+TV, Paramount Pictures
+
+Tue, 25 Aug 2026 13:23:54 GMT
+
+https://screenrant.com/paramount-lawsuit-blackbox-multimedia-crime-drama/
+
+Paramount has been sued in a shocking lawsuit for destroying a crime drama series, with major allegations being levied against the studio.
+---------
+
+# Founding X-Men Hero's Permanent New Costume Revealed by Marvel
+
+Comics, X-Men
+
+Tue, 25 Aug 2026 13:22:22 GMT
+
+https://screenrant.com/x-men-jean-grey-new-costume/
+
+Are they replacing Cyclops as team leader?
+---------
+
+# The Gilded Age Season 4 Release Date On HBO Officially Revealed
+
+TV, The Gilded Age
+
+Tue, 25 Aug 2026 13:22:08 GMT
+
+https://screenrant.com/the-gilded-age-season-4-release-date-hbo/
+
+HBO's popular historical drama The Gilded Age sets the official release date for season 4, which was renewed before season 3 even ended.
+---------
+
+# Marvel Studios' Plans For New X-Men Characters Reportedly Revealed
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Tue, 25 Aug 2026 13:21:16 GMT
+
+https://screenrant.com/marvel-studios-xmen-future-movies-deal-report/
+
+Following the massive X-Men movie cast reveal, a new report reveals more details about the mutants in the Marvel Cinematic Universe franchise.
+---------
+
+# Stardew Valley Meets Final Fantasy In Gorgeous New RPG
+
+Gaming, Final Fantasy, Stardew Valley, RPG, PC
+
+Tue, 25 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/stardew-valley-meets-final-fantasy-rune-factory-6/
+
+Fans of Stardew Valley and Final Fantasy will want to check out this brand-new RPG that blends life sim mechanics with role-playing greatness.
+---------
+
+# Matt Damon & Pedro Pascal's Instantly Controversial Fantasy Epic Finds Streaming Redemption
+
+Movies, Masked Recs
+
+Tue, 25 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/matt-damon-pedro-pascal-the-great-wall-movie-streaming-success/
+
+Matt Damon and Pedro Pascal's controversial fantasy epic is finding a new audience nearly 10 years later after climbing Netflix's U.S. chart.
+---------
+
+# 10 Best Discworld Settings, Ranked
+
+Books, Discworld
+
+Tue, 25 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/10-best-discworld-settings-ranked/
+
+Terry Pratchett's Discworld is one of the most unique fantasy settings ever put to page, and these are the locations that make it so iconic.
+---------
+
+# Harrison Ford Did One Thing In Indiana Jones That No Action Hero Has Matched In Over 40 Years
+
+Movies, Raiders of the Lost Ark, Indiana Jones
+
+Tue, 25 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/indiana-jones-raiders-lost-ark-harrison-ford-action-hero/
+
+Harrison Ford's Indiana Jones pulled a move so perfect in Raiders of the Lost Ark that no other action movie hero has topped it in 45 years.
+---------
+
+# 7 Most Powerful Dinobots in Transformers, Officially Ranked
+
+Anime, Transformers
+
+Tue, 25 Aug 2026 13:15:11 GMT
+
+https://www.cbr.com/transformers-most-powerful-dinobots-officially-ranked/
+
+The Dinobots aren't as powerful as the main Autobots and Decepticons, but they're still formidable robots in disguise.
+---------
+
+# Netflix's New 95-Minute Action Sequel Is Officially One of the Most-Watched Movies on Streaming
+
+Movies, Sniper: The Last Stand, Netflix
+
+Tue, 25 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/netflix-sniper-no-nation-action-nielsen-success-july-2026/
+
+Netflix quietly released a standout action sequel, and it's surprisingly becoming one of the most watched movies surpassing even blockbuster titles.
+---------
+
+# 10 Most Important X-Men Marvel Hasn’t Cast Yet
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Tue, 25 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/mcu-most-important-x-men-casting-list/
+
+Marvel Studios has confirmed the first few X-Men stars for the MCU, but there are many more mutants that haven't yet been cast.
+---------
+
+# Hulu Officially Cancels 5/10 'New Girl' Replacement
+
+TV News, Hulu, New Girl, Not Suitable for Work, Comedy
+
+Tue, 25 Aug 2026 12:39:47 GMT
+
+https://collider.com/not-suitable-for-work-cancelled/
+
+Mindy Kailing's 5/10 New Girl replacement has been officially cancelled by Hulu despite ending on a major cliffhanger.
+---------
+
+# 8 Years Later, This Technopunk Sci-Fi Game Deserves a TV Adaptation
+
+TV Features, Detroit Become Human, Jesse Williams, Quantic Dream, Sony
+
+Tue, 25 Aug 2026 12:36:11 GMT
+
+https://collider.com/detroit-become-human-tv-show-adaptation-technopunk-sci-fi/
+
+Quantic Dream's Detroit: Become Human deserves a transformative TV adaptation eight years later.
+---------
+
+# 5 Years Later, One of the MCU's Most Powerful Heroes Returns in New Look at Spin-Off
+
+TV News, VisionQuest, WandaVision, Paul Bettany
+
+Tue, 25 Aug 2026 13:35:18 GMT
+
+https://movieweb.com/visionquest-paul-bettany-mcu-return-new-look/
+
+Marvel's upcoming series 'VisionQuest' will bring back Paul Bettany's MCU hero Vision, following the events of 'WandaVision' and 'Agatha All Along.'
+---------
+
+# 64 Years Later, a John Wayne Classic Still Has the Greatest Quote in War Movie History
+
+Features, War, The Longest Day, John Wayne, Great Line
+
+Tue, 25 Aug 2026 13:00:14 GMT
+
+https://movieweb.com/the-longest-day-john-wayne-best-war-movie-quote/
+
+'The Longest Day,' a John Wayne war movie released in 1962, has arguably the best quote from the entire genre.
+---------
+
+# Matt Damon's $416 Million Action Thriller Finds Redemption on New Streaming Home
+
+Movie News, Jason Bourne, Hot on Streaming, Action, Matt Damon
+
+Tue, 25 Aug 2026 13:00:14 GMT
+
+https://movieweb.com/jason-bourne-action-stream-amc-august-2026/
+
+With a new sequel in the works, Matt Damon's 2016 action thriller gets a new lease on life on streaming.
+---------
+
 # Unless Avengers: Doomsday Does The Unthinkable, One $35 Billion MCU Record Is Guaranteed
 
 Movies, Avengers: Doomsday, Marvel Cinematic Universe
