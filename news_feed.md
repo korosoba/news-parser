@@ -1,3 +1,223 @@
+# Marvel Reportedly Fixing Direction For Disney's MCU Shows To Protect The Brand
+
+TV, Marvel Cinematic Universe, Disney+
+
+Tue, 25 Aug 2026 14:33:59 GMT
+
+https://screenrant.com/marvel-studios-tv-series-future-mcu-plans-report/
+
+As many are still wondering about the future of MCU TV shows on Disney+, a report reveals how the franchise is changing its approach to new series.
+---------
+
+# Sonic The Hedgehog Official Redesign Slammed As "Utter Abomination" By Fans
+
+Gaming, Sonic the Hedgehog
+
+Tue, 25 Aug 2026 14:33:31 GMT
+
+https://screenrant.com/sonic-the-hedgehog-official-redesign-gamers-react/
+
+Sonic The Hedgehog is back with a new look, but fans are pretty freaked out by the blue blur's latest appearance. It's not hard to see why.
+---------
+
+# Xbox Officially Unveils New Hardware For 25th Anniversary
+
+Gaming, Xbox, Gaming Hardware
+
+Tue, 25 Aug 2026 14:18:12 GMT
+
+https://screenrant.com/xbox-new-hardware-25th-anniversary/
+
+Xbox continues to celebrate the brand’s 25th anniversary, and now, we’re getting brand-new hardware that pays homage to the classic Xbox console.
+---------
+
+# Heated Rivalry Season 2 Casts Tough Guy Book Characters Fabian & Ryan
+
+TV, Heated Rivalry
+
+Tue, 25 Aug 2026 14:11:16 GMT
+
+https://screenrant.com/heated-rivalry-season-2-cast-fabian-ryan/
+
+Heated Rivalry season 2, which premieres in spring 2027, continues to expand its cast, and latest announcement reveals who’s playing Fabian and Ryan.
+---------
+
+# Netflix's New 5-Part Crime Thriller Series That Is The Perfect One-Night Binge Is Already One Of Its Best
+
+TV, Masked Recs
+
+Tue, 25 Aug 2026 14:10:48 GMT
+
+https://screenrant.com/netflix-blood-sacrifice-crime-thriller-series-best/
+
+Netflix's new crime thriller series has become a global streaming sensation, and it already proves to be one of the streaming service's best.
+---------
+
+# Ella Purnell’s Hit R-Rated Murder Thriller Series Returns In Sweetpea Season 2 Trailer
+
+TV, Sweetpea
+
+Tue, 25 Aug 2026 14:05:22 GMT
+
+https://screenrant.com/sweetpea-season-2-teaser-ella-purnell/
+
+Sky TV has released a new teaser for Sweetpea season 2, featuring the return of the cold-blooded, psychotic killer played by Fallout's Ella Purnell.
+---------
+
+# Matthew McConaughey & Woody Harrelson Uncover A Secret In Apple TV’s Brothers Trailer
+
+TV, Brothers
+
+Tue, 25 Aug 2026 14:00:14 GMT
+
+https://screenrant.com/brothers-apple-tv-show-matthew-mcconaughey-woody-harrelson-trailer/
+
+12 years after True Detective season 1, Matthew McConaughey and Woody Harrelson uncover a secret in the trailer for Apple TV's Brothers.
+---------
+
+# 5 SNES Games On Nintendo Switch Online That Are 10/10 Masterpieces
+
+Gaming, Nintendo Switch, Nintendo Switch 2
+
+Tue, 25 Aug 2026 14:00:14 GMT
+
+https://screenrant.com/snes-games-nintendo-switch-online-masterpieces/
+
+Discover the most iconic SNES games available on Nintendo Switch Online that are timeless classics.
+---------
+
+# 21 Years Ago, Avatar: The Last Airbender Took Down Gender Stereotypes
+
+Classic TV, Avatar: The Last Airbender
+
+Tue, 25 Aug 2026 14:00:14 GMT
+
+https://screenrant.com/avatar-the-last-airbender-warriors-of-kyoshi-gender-stereotypes/
+
+Avatar: The Last Airbender explained sexism and gender stereotypes in a way that kids could understand in season 1's "The Warriors of Kyoshi."
+---------
+
+# Only Murders In The Building Season 6 Release Date Revealed As Trio Sails For London In First Image
+
+TV, Only Murders in the Building
+
+Tue, 25 Aug 2026 13:59:50 GMT
+
+https://screenrant.com/only-murders-in-the-building-season-6-release-date-first-images-hulu/
+
+Only Murders in the Building season 6 is back, and the Hulu mystery comedy has revealed a close look at what's next for Charles, Oliver, and Mabel.
+---------
+
+# Pokémon Gives Rayquaza a Legendary Adidas Redesign for 30th Anniversary
+
+Anime, Pokemon, merchandise, Clothing
+
+Tue, 25 Aug 2026 14:20:11 GMT
+
+https://www.cbr.com/pokemon-30th-anniversary-rayquaza-adidas-sneakers/
+
+Pokémon fans are getting another way to show off their favorite legendary Pokémon this year with another brand-new 30th anniversary design.
+---------
+
+# Nintendo Switch 2's Price Officially Goes Up In One Week
+
+Games, Nintendo, Nintendo Switch, Video Games
+
+Tue, 25 Aug 2026 14:15:11 GMT
+
+https://www.cbr.com/nintendo-switch-2-price-increase-official-one-week/
+
+People who want to own a Nintendo Switch 2 will have to act quickly, as the console's price is set to increase in all regions on September 1, 2026.
+---------
+
+# Apple TV's New 8-Part Series Is the Perfect True Detective Follow-Up
+
+TV, Brothers
+
+Tue, 25 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/apple-tv-brothers-season-1-trailer/
+
+The True Detective co-stars are playing themselves in Apple TV's new meta-comedy series.
+---------
+
+# Marvel Just Confirmed Wolverine's New Replacement
+
+Comics, X-Men
+
+Tue, 25 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/uncanny-x-men-38-wolverine-clones-replacement/
+
+Has the next Wolverine finally been revealed?
+---------
+
+# 6 Forgotten Supernatural Shows From the 2000s That Deserve a Rewatch
+
+TV, Pushing Daisies, Tru Calling, Reaper
+
+Tue, 25 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/forgotten-2000s-supernatural-shows-list/
+
+The supernatural genre had some of the best shows in the 2000s, and a few forgotten shows of that era deserve a rewatch.
+---------
+
+# 'Tulsa King' Star's New Netflix Mystery Thriller Gets First Look and Release Date
+
+Movie News, Tulsa King, Netflix, Garrett Hedlund, Jessica Chastain
+
+Tue, 25 Aug 2026 14:26:49 GMT
+
+https://collider.com/heartland-first-look-jessica-chastain-garrett-hedlund-netflix-release-date/
+
+Jessica Chastain and Garrett Hedlund star in Netflix’s Heartland, a mystery thriller about a former country star searching for her missing niece.
+---------
+
+# Matthew McConaughey and Woody Harrelson's 'True Detective' Replacement Officially Debuts First Trailer
+
+TV News, Matthew McConaughey, Brothers, Woody Harrelson, Holland Taylor
+
+Tue, 25 Aug 2026 14:00:11 GMT
+
+https://collider.com/matthew-mcconaughey-woody-harrelson-brothers-series-trailer/
+
+Apple TV is bringing audiences a new comedy starring Matthew McConaughey and Woody Harrelson. Get the details on Brothers here.
+---------
+
+# Henry Cavill's New Guy Ritchie Action Thriller Is One of the Biggest Streaming Hits in the World
+
+Movie News, Henry Cavill, Guy Ritchie, In the Grey, Action, Thriller, Prime Video, Hot on Streaming
+
+Tue, 25 Aug 2026 14:31:14 GMT
+
+https://movieweb.com/henry-cavill-in-the-grey-biggest-streaming-hit-august-2026/
+
+The action thriller is officially a global smash hit.
+---------
+
+# 'Lanterns' Unleashes First Look at Major New DCU Villain
+
+TV News, Lanterns
+
+Tue, 25 Aug 2026 14:10:06 GMT
+
+https://movieweb.com/lanterns-sinestro-poster-hbo-dc/
+
+'Lanterns' Episode 2 ended with another cliffhanger teasing the show's cosmic-level narrative by introducing Sinestro.
+---------
+
+# The 10 Most Inspiring 'Ted Lasso' Quotes From the First 3 Seasons
+
+TV Lists, Ted Lasso, Comedy, Apple TV
+
+Tue, 25 Aug 2026 14:00:13 GMT
+
+https://movieweb.com/ted-lasso-most-inspiring-quotes/
+
+'Ted Lasso' Season 4 is currently streaming on Apple TV, and Seasons 1 through 3 have many memorable and inspiring quotes.
+---------
+
 # Paramount Sued In Shocking Lawsuit For Destroying Crime Drama Series
 
 TV, Paramount Pictures
