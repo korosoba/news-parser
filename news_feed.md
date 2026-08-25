@@ -1,3 +1,333 @@
+# Taylor Sheridan’s The Madison Season 2 Set Images Reveal Major Character Returns & Location Change
+
+TV, The Madison, Paramount Plus
+
+Tue, 25 Aug 2026 16:17:54 GMT
+
+https://screenrant.com/he-madison-season-2-new-york-city-patrick-j-adams-rebecca-spence-set-images/
+
+New photos of The Madison season 2 reveal returning characters and an interesting change of scenery for the popular Taylor Sheridan series.
+---------
+
+# Nathan Fillion's The Rookie Season 9 & Spinoff Series Gets New Release Windows In Major ABC Update
+
+TV, The Rookie
+
+Tue, 25 Aug 2026 16:17:04 GMT
+
+https://screenrant.com/the-rookie-season-9-north-spinoff-release-windows/
+
+The Nathan Fillion police drama The Rookie gets an official release window for season 9, as well as its upcoming spinoff starring Jay Ellis.
+---------
+
+# Sony's Remake Of Action Sci-Fi Classic Remains A Streaming Hit As Another Reboot Looms
+
+Movies, Masked Recs
+
+Tue, 25 Aug 2026 16:13:22 GMT
+
+https://screenrant.com/robocop-movie-remake-streaming-success-paramount-plus-august-2026/
+
+Sony's remake of a major action sci-fi classic remains a streaming hit as another reboot for the franchise looms on the horizon.
+---------
+
+# Amazon Officially Finds Its New RoboCop With Monsterverse Alum
+
+TV, Robocop
+
+Tue, 25 Aug 2026 16:10:06 GMT
+
+https://screenrant.com/amazon-robocop-dan-stevens-casting/
+
+RoboCop is suiting up once again, as a Monsterverse alum has been tapped to portray the iconic sci-fi character and hero of Prime Video's new series.
+---------
+
+# Shudder's 5-Part Horror Anthology Deserves Credit For Being Genuinely Disturbing
+
+TV, Masked Recs
+
+Tue, 25 Aug 2026 16:03:15 GMT
+
+https://screenrant.com/slasher-shudder-tv-series-disturbing-horror/
+
+Shudder's unflinching, disturbing anthology horror show kills kindness and shocks viewers with grotesque reveals in every merciless episode.
+---------
+
+# Antonio Banderas Has 1 Job For You In Above & Below Clip
+
+Exclusive, Antonio Banderas
+
+Tue, 25 Aug 2026 16:00:16 GMT
+
+https://screenrant.com/video/above-and-below-antonio-banderas-clip/
+
+Exclusive: ScreenRant presents a clip from Above & Below, a shark diving adventure featuring Antonio Banderas in a delightfully villainous role.
+---------
+
+# 10 Classic Fantasy Romance Books To Read If Modern Romantasy Isn't Hitting Anymore
+
+Books, Romantasy
+
+Tue, 25 Aug 2026 16:00:16 GMT
+
+https://screenrant.com/best-classic-fantasy-romance-romantasy-book-recommendations/
+
+Rediscover sweeping love and strange magic through these 10 classic fantasy romance books, before the "romantasy" genre was ever invented.
+---------
+
+# Netflix Reveals First Look At Jessica Chastain's New Mystery Thriller Releasing This November
+
+Movies, Jessica Chastain
+
+Tue, 25 Aug 2026 15:54:27 GMT
+
+https://screenrant.com/netflix-heartland-jessica-chastain-first-images-release-date/
+
+Jessica Chastain is starring in a new mystery thriller. Find out when the film will be released on Netflix and check out eight first-look images.
+---------
+
+# Prime Video's #1 New Action Movie Is A Jason Statham-Like Action Thriller With A Killer Cast
+
+Movies, Masked Recs
+
+Tue, 25 Aug 2026 15:50:46 GMT
+
+https://screenrant.com/icefall-movie-streaming-success-prime-video-august-2026/
+
+Prime Video has a new action movie that’s dominating its top 10, and the thrilling flick feels like a Jason Statham movie in all the best ways.
+---------
+
+# Batman: Knightfall Part 1's Brutal Ending Explained & How It Sets Up Part 2
+
+Movies, Batman: Knightfall Part 1: Knightfall, DC Universe
+
+Tue, 25 Aug 2026 15:50:15 GMT
+
+https://screenrant.com/batman-knightfall-movie-part-1-ending-explained/
+
+2026's newly released Batman movie ends with one of DC's most dramatic moments, setting the stage for an impactful upcoming sequel story.
+---------
+
+# 5 Strongest New Generation Saiyans in Dragon Ball, Ranked
+
+Anime, Dragon Ball, Super Dragon Ball Heroes, Akira Toriyama
+
+Tue, 25 Aug 2026 16:15:11 GMT
+
+https://www.cbr.com/dragon-ball-strongest-new-generation-saiyans-ranked/
+
+Everybody knows about Goku, Vegeta, and Gohan, but Dragon Ball also has "new gen" Saiyans like Cumber, Shallot, and Giblet who also pack a real punch.
+---------
+
+# Prime Video Officially Recasts RoboCop for Reboot Series
+
+TV, Robocop, Prime Video
+
+Tue, 25 Aug 2026 16:08:50 GMT
+
+https://www.cbr.com/robocop-dan-stevens-prime-video-series/
+
+Prime Video's long-gestating RoboCop reboot finally has its lead.
+---------
+
+# James Bond Series Officially Returns After 65 Years
+
+Comics, James Bond
+
+Tue, 25 Aug 2026 16:07:28 GMT
+
+https://www.cbr.com/ian-flemings-james-bond-signature-comic-strip-vol-1-release-date-confirmed/
+
+Catch up with James Bond before his next on-screen adventure.
+---------
+
+# Zelda: Ocarina of Time Release Date Leaks
+
+Games, The Legend of Zelda, Nintendo
+
+Tue, 25 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-release-date-leak-2026/
+
+The release date of the Switch 2 remake of The Legend of Zelda: Ocarina of Time has been leaked ahead of its official reveal.
+---------
+
+# There's No Stopping Critical Role And Daggerheart: Hope & Fear Proves It
+
+Games, Critical Role, Daggerheart, Tabletop
+
+Tue, 25 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/daggerheart-hope-and-fear-review/
+
+One year after Daggerheart's official 2025 release, the game's first expansion is officially here, and it takes an already stellar game to new heights
+---------
+
+# Midnight Spider-Man Writer Gives Away The Real Villain Of His Upcoming Story
+
+Comics, Spider-Man, Marvel
+
+Tue, 25 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/marvel-midnight-spider-man-real-villain/
+
+Who's the real monster of Marvel's upcoming creature feature comic?
+---------
+
+# Indiana Jones Meets Gladiator In Hugh Jackman's New Adventure Movie Reboot
+
+Movies, hugh jackman, ridley scott, Indiana Jones
+
+Tue, 25 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/hugh-jackman-treasure-island-reboot-gladiator-meets-indiana-jones/
+
+Ridley Scott's next film, set to star Hugh Jackman, is a reimagining of a classic 1883 adventure film in the vein of Indiana Jones.
+---------
+
+# Netflix’s 2-Season Animated Sci-Fi Returns With First Trailer for New Episodes
+
+TV, Stranger Things: Tales from '85, Netflix, Sci-Fi
+
+Tue, 25 Aug 2026 15:34:56 GMT
+
+https://www.cbr.com/stranger-things-tales-from-85-season-2-trailer/
+
+Netflix's sci-fi animated show is back with new episodes in September.
+---------
+
+# Prime Video's 'RoboCop' Reboot Officially Casts a Sci-Fi Icon to Lead
+
+TV News, RoboCop, Robocop, Dan Stevens
+
+Tue, 25 Aug 2026 16:21:20 GMT
+
+https://collider.com/prime-video-robocop-reboot-series-cast-dan-stevens-alex-murphy/
+
+Prime Video has officially announced that Downton Abbey star Dan Stevens will play Alex Murphy in the upcoming RoboCop series.
+---------
+
+# One of the Best Horror Movies of 2026 Is Officially Going Nationwide With Final Trailer
+
+Movie News, It Ends, Neon, Horror, Indie
+
+Tue, 25 Aug 2026 16:17:38 GMT
+
+https://collider.com/it-ends-trailer-new-neon-horror-movie/
+
+Watch the new trailer for NEON's It Ends, a 94%-rated existential horror thriller expanding to theaters nationwide on August 28.
+---------
+
+# HBO's 10/10 'Downton Abbey' Replacement Officially Sets 2026 Release Date
+
+TV News, The Gilded Age, HBO, Carrie Coon, Christine Baranski
+
+Tue, 25 Aug 2026 16:16:16 GMT
+
+https://collider.com/hbo-the-gilded-age-season-3-trailer-release-date-november-2026/
+
+HBO Max has officially confirmed the 2026 return of The Gilded Age in a brand-new trailer for Season 3. See it here!
+---------
+
+# September’s Wildest Horror Movie Is Officially Crawling Into Theaters With New Sneak Peek [Exclusive]
+
+Movie News, Don't Move, Rob Riggle, Tom Cavanagh, Horror
+
+Tue, 25 Aug 2026 16:00:12 GMT
+
+https://collider.com/dont-move-featurette-rob-riggle-lyndsy-fonseca/
+
+The cast of the new creature feature Don't Move discuss their connections to horror in this exclusive featurette. Watch it now.
+---------
+
+# 'Harry Potter's New Lucius Malfoy Seeks Redemption in Official Look at Fiery Western [Exclusive]
+
+Exclusives, A Prayer for the Dying, John C. Reilly, Johnny Flynn, Horror
+
+Tue, 25 Aug 2026 16:00:12 GMT
+
+https://collider.com/a-prayer-for-the-dying-poster-johnny-flynn-john-c-reilly/
+
+Quiver Distribution has shared a fiery new poster for their new western A Prayer for the Dying starring Johnny Flynn and John C. Reilly. See it here!
+---------
+
+# Brandon Sanderson’s ‘Blightfall’ Officially Releases Early Look Before September 1 Release [Exclusive]
+
+Books and Comics News, Brandon Sanderson, Mistborn, Fantasy, Apple TV
+
+Tue, 25 Aug 2026 16:00:12 GMT
+
+https://collider.com/brandon-sanderson-blightfall-sneak-peek/
+
+A readable and audio excerpt from Brandon Sanderson's new fantasy novel, Blightfall, has been released before the book's premiere on September 1.
+---------
+
+# Netflix’s 7/10 Spy Thriller Officially Sets Season 2 Release Window
+
+TV News, Keira Knightley, Netflix, Black Doves, Ben Whishaw
+
+Tue, 25 Aug 2026 15:45:11 GMT
+
+https://collider.com/black-doves-season-2-release-window-confirmed/
+
+Keira Knightley's 7/10 Netflix spy thriller has officially confirmed the release window for the return of Season 2.
+---------
+
+# 'Only Murders in the Building' Season 6 Release Date Confirms Major Change
+
+TV News, Only Murders in the Building
+
+Tue, 25 Aug 2026 16:01:06 GMT
+
+https://movieweb.com/only-murders-building-season-6-release-date/
+
+The acclaimed series, rebranded 'Only Murders in London, ' returns to Hulu on Dec. 8, 2026, just in time for the holiday season.
+---------
+
+# 6 Years Later, Prime’s Sci-Fi Masterpiece Still Tells a Perfect Time Travel Story
+
+Features, Sci-Fi
+
+Tue, 25 Aug 2026 16:00:15 GMT
+
+https://movieweb.com/tales-from-the-loop-prime-time-travel/
+
+Amazon Prime Video has one memorable sci-fi TV show that has perfected the trope of time travel, and it's worth binge-watching.
+---------
+
+# The 411-Episode Action Fantasy Epic That's One of the Biggest Shows on Streaming
+
+TV News, Bleach, Disney+, Hot on Streaming, Action, Fantasy
+
+Tue, 25 Aug 2026 16:00:15 GMT
+
+https://movieweb.com/bleach-action-fantasy-stream-disney-hulu-august-2026/
+
+One of the biggest anime of all time is finally coming to an end.
+---------
+
+# 'Stranger Things' Officially Unveils New Trailer for Netflix Return This September
+
+TV News, Stranger Things: Tales from '85, Stranger Things, Netflix
+
+Tue, 25 Aug 2026 15:44:27 GMT
+
+https://movieweb.com/stranger-things-tales-from-85-season-2-trailer/
+
+The upcoming new season explores an interesting paranormal threat.
+---------
+
+# 'Ali G' Officially Returns in First Trailer for Sequel 24 Years in the Making
+
+Movie Trailers, Ali G Indahouse, Sacha Baron Cohen, Comedy, Da Ali G Show
+
+Tue, 25 Aug 2026 15:42:31 GMT
+
+https://movieweb.com/ali-g-who-iz-i-trailer/
+
+Sacha Baron Cohen is up to his old tricks.
+---------
+
 # Hayden Panettiere’s 10 Best Roles To Remember Her By
 
 TV, Hayden Panettiere
