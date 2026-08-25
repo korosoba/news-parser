@@ -1,3 +1,256 @@
+# Extinct: Prime Video's 83%-Rated Sci-Fi Thriller Deserves A Binge 9 Years Later
+
+Streaming TV, Masked Recs
+
+Tue, 25 Aug 2026 19:07:15 GMT
+
+https://screenrant.com/prime-video-extinct-cancelled-sci-fi-thriller-deserves-binge/
+
+Extinct, a cancelled 2017 sci-fi thriller, earned an 83% Rotten Tomatoes audience score and is suddenly finding new life on Prime Video this week.
+---------
+
+# Captain Picard’s Star Trek TNG Love Interest Vash, Explained
+
+Classic TV, Star Trek: The Next Generation, Star Trek: Deep Space Nine, Star Trek
+
+Tue, 25 Aug 2026 19:01:15 GMT
+
+https://screenrant.com/star-trek-tng-vash-picard-love-interest-jennifer-hetrick/
+
+Captain Jean-Luc Picard's archeologist love interest, Vash, was played by Jennifer Hetrick in Star Trek: The Next Generation.
+---------
+
+# Netflix Finds New Hit In 117-Minute Action Movie From The Creator Of Widow's Bay
+
+Movies, Masked Recs
+
+Tue, 25 Aug 2026 19:00:07 GMT
+
+https://screenrant.com/the-heat-movie-netflix-streaming-hit-august-2026/
+
+Several years before Widow’s Bay, creator Katie Dippold wrote the script for an action comedy film that’s currently surging up the streaming charts.
+---------
+
+# Robert De Niro Officially Addresses Heat 2 Recasting Reports
+
+Movies, Heat 2, Heat, Robert De Niro
+
+Tue, 25 Aug 2026 18:57:49 GMT
+
+https://screenrant.com/heat-2-neil-recasting-stephen-graham-reports-robert-deniro-response/
+
+Exclusive: Robert De Niro officially weighs in on the recent Heat 2 recasting reports and the development of the long-awaited thriller sequel.
+---------
+
+# Agatha Christie Teams With 2 Writing Icons In First Look At BBC’s New Detective Series
+
+TV, Agatha Christie
+
+Tue, 25 Aug 2026 18:52:57 GMT
+
+https://screenrant.com/bbc-the-detection-club-show-agatha-christie-casting-first-images/
+
+Agatha Christie is teaming with two fellow writing icons for a new BBC detective series, with a new official image revealing the show's stars.
+---------
+
+# PlayStation, Xbox Get Huge Free 100-Hour Open-World RPG, Officially Available Today
+
+Gaming, Once Human, PC, Gamescom
+
+Tue, 25 Aug 2026 18:49:56 GMT
+
+https://screenrant.com/playstation-xbox-free-open-world-rpg-once-human/
+
+As part of Gamescom 2026, a huge and new open-world RPG was released as a surprise for PlayStation and Xbox consoles, no strings attached.
+---------
+
+# Game Of Thrones Officially Returns Early 2027
+
+Gaming, Game of Thrones, Game of Thrones: War for Westeros, Game Of Thrones, PC
+
+Tue, 25 Aug 2026 18:48:32 GMT
+
+https://screenrant.com/game-of-thrones-officially-returns-early-2027/
+
+Game of Thrones is officially making an epic return in 2027 with a brand-new release that fans of the franchise will not want to miss.
+---------
+
+# The Pitt's Best Future Is No Longer Possible
+
+Streaming TV, The Pitt
+
+Tue, 25 Aug 2026 18:45:15 GMT
+
+https://screenrant.com/the-pitt-season-3-rotating-cast-mohan-future/
+
+One of the best storylines in HBO's The Pitt comes to an unceremonious end with the departure of Supriya Ganesh from the cast for season 3.
+---------
+
+# Crimson Desert Officially Returns With New Release, Available Today
+
+Gaming, Crimson Desert, PC, Gamescom
+
+Tue, 25 Aug 2026 18:32:30 GMT
+
+https://screenrant.com/crimson-desert-enhanced-edition-available-now/
+
+Crimson Desert developers at Pearl Abyss have announced a brand-new release, officially available starting today with a trove of new content.
+---------
+
+# Leave It To Beaver Cast: Which Actors Are Still Alive
+
+Classic TV, Leave It to Beaver
+
+Tue, 25 Aug 2026 18:30:16 GMT
+
+https://screenrant.com/leave-it-to-beaver-cast-actors-still-alive/
+
+Leave It to Beaver was one of the most successful shows from the early days of TV, and some of its original cast members are still alive.
+---------
+
+# ABC's 8-Season Classic '60s Show Is the Most-Watched Show on Streaming
+
+TV, Bewitched, ABC, Fantasy
+
+Tue, 25 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/bewitched-fantasy-sitcom-abc-pvod-success-august-2026/
+
+ABC's beloved classic sitcom, Bewitched, is the No. 1 most-watched show in the United States.
+---------
+
+# 28 Years Later, ‘The Matrix’ Meets ‘Black Mirror’ Anime Classic Is Officially Missing From US Streaming
+
+Anime, Serial Experiments Lain, Sci-Fi, Innovation
+
+Tue, 25 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/serial-experiments-lain-not-streaming-us/
+
+The best '90s anime is the perfect mix of Black Mirror and The Matrix, but it's completely unavailable on streaming.
+---------
+
+# 5 Must-Read Fantasy Short Stories
+
+Movies, Fantasy
+
+Tue, 25 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/must-read-fantasy-short-stories-list/
+
+Fantasy short stories have shaped the genre for generations, giving some of the genre's most influential writers a format to tell memorable tales.
+---------
+
+# Game of Thrones' Jon Snow Officially Returns in War for Westeros Early 2027
+
+Games, Game Of Thrones
+
+Tue, 25 Aug 2026 18:48:11 GMT
+
+https://www.cbr.com/game-of-thrones-jon-snow-official-return-war-for-westeros-2027/
+
+Jon Snow and other Game of Thrones characters are back in the new game War for Westeros, coming next year.
+---------
+
+# 8 Years After Stan Lee’s Death, Documentary Exposes Harsh Truths About His Final Days
+
+Movies, stan lee
+
+Tue, 25 Aug 2026 18:36:06 GMT
+
+https://www.cbr.com/stan-lee-documentary-the-final-chapter-jon-bolerjack/
+
+The director also addresses fan criticism about the project.
+---------
+
+# Dolly Parton, Queen of Country Music & 2-Time Oscar Nominee, Dies at 80
+
+Movies, Dolly Parton: Here I Am, obituary
+
+Tue, 25 Aug 2026 18:34:31 GMT
+
+https://www.cbr.com/dolly-parton-dead/
+
+The music icon had an illustrious career that include movies and TV appearances.
+---------
+
+# Michael Weatherly Is Officially Back on 'NCIS' After Spin-Off Cancellation
+
+TV News, NCIS, Michael Weatherly, CBS
+
+Tue, 25 Aug 2026 18:47:15 GMT
+
+https://collider.com/ncis-season-24-michael-weatherly-tony-dinozzo-first-look/
+
+Michael Weatherly returns as Tony DiNozzo in the first look at NCIS Season 24, which brings the fan-favorite character back for a season-long arc.
+---------
+
+# Pierce Brosnan Trades ‘MobLand’ for a Bloody Revenge Western Officially Streaming on Hulu
+
+Movie News, The Unholy Trinity, Pierce Brosnan, Hulu, Samuel L. Jackson
+
+Tue, 25 Aug 2026 18:46:11 GMT
+
+https://collider.com/pierce-brosnan-western-the-unholy-trinity-streaming-hulu-august-2026/
+
+Pierce Brosnan's gritty Western thriller with shades of The Good, the Bad and the Ugly and Django Unchained is officially streaming on Hulu.
+---------
+
+# Forget 'Reacher': HBO's Latest Global Sensation Is the Best New Thriller Series on Streaming
+
+Features, Lanterns, Reacher
+
+Tue, 25 Aug 2026 19:00:14 GMT
+
+https://movieweb.com/forget-reacher-hbo-lanterns-best-thriller/
+
+'Reacher' may be a hit action TV series starring Alan Ritchson on Amazon Prime Video, but this new thriller is even better.
+---------
+
+# Amazon's 7-Part Action Thriller Series That's Better Than 'Reacher' Officially Becomes Streaming Hit
+
+TV News, The Terminal List: Dark Wolf, Hot on Streaming, Prime Video
+
+Tue, 25 Aug 2026 19:00:14 GMT
+
+https://movieweb.com/the-terminal-list-dark-wolf-prime-video-streaming-hit-august-2026/
+
+It's also the rare case of a spin-off outdoing the original.
+---------
+
+# Star Wars Debuts New Release After 'The Mandalorian and Grogu' Revives Movie Era
+
+Movie News, The Mandalorian and Grogu, Star Wars, Blu-ray
+
+Tue, 25 Aug 2026 18:40:31 GMT
+
+https://movieweb.com/star-wars-mandalorian-grogu-4k-blu-ray/
+
+Disney has released 'Star Wars: The Mandalorian and Grogu' on 4K Blu-ray, three months after the movie debuted in theaters to mixed reviews.
+---------
+
+# Stephen King's Addictive Sci-Fi Streaming Series Returns With First Look at Season 2
+
+TV News, The Institute, Stephen King
+
+Tue, 25 Aug 2026 18:38:43 GMT
+
+https://movieweb.com/the-institutestephen-king-season-2-photos/
+
+Stephen King's dystopian thriller adaptation 'The Institute' drops an exciting Season 2 update.
+---------
+
+# 'Backrooms' Streaming Release Date Officially Confirmed
+
+Movie News, Backrooms
+
+Tue, 25 Aug 2026 18:28:37 GMT
+
+https://movieweb.com/backrooms-hbo-max-streaming-release-date/
+
+One of the biggest horror releases of the year just got a streaming date on HBO Max.
+---------
+
 # One Of The MCU's Most Controversial Releases Is Finally Getting A Sequel
 
 Streaming TV, Masked Recs
