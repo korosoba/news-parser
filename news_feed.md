@@ -1,3 +1,102 @@
+# Final Fantasy 9 Officially Returns October 2026
+
+Gaming, Final Fantasy 9
+
+Tue, 25 Aug 2026 11:00:15 GMT
+
+https://screenrant.com/final-fantasy-9-zidane-resonance-return/
+
+Zidane from Final Fantasy 9 makes his comeback in Final Fantasy Resonance this October 2026.
+---------
+
+# 10 Best Far Side Comics About Comedians That Prove Gary Larson Is a Genius, Ranked
+
+Comics, The Far Side
+
+Tue, 25 Aug 2026 11:00:11 GMT
+
+https://www.cbr.com/best-far-side-comics-comedians-ranked/
+
+Comedians and comic strip writers have a fair bit in common, so it makes sense that Gary Larson would have some funny points to make in The Far Side.
+---------
+
+# 'Big Bang Theory's Newest Sci-Fi Spin-Off Just Made Its Most Important Change Yet
+
+TV Features, The Big Bang Theory, Stuart Fails to Save the Universe, Sci-Fi, HBO Max
+
+Tue, 25 Aug 2026 11:18:12 GMT
+
+https://collider.com/stuart-fails-to-save-the-universe-episode-5-cameo-change/
+
+Big Bang Theory’s spin-off series Stuart Fails to Save the Universe is leaving its original show behind with a major shift.
+---------
+
+# The 10 Most Satisfying Disney Villain Deaths, Ranked
+
+Movie, The Hunchback of Notre Dame, The Lion King, Tangled, Disney, Pixar
+
+Tue, 25 Aug 2026 11:03:11 GMT
+
+https://collider.com/disney-movie-villain-deaths-ranked/
+
+Claude Frollo from The Hunchback of Notre Dame and Scar from the Lion King are Disney villains with unforgettable, satisfying death scenes.
+---------
+
+# ‘The Dog Stars’ Jacob Elordi and Margaret Qualley on Why Apocalypse Movies Hit Different Right Now
+
+Exclusives, The Dog Stars, Jacob Elordi, Margaret Qualley, Ridley Scott
+
+Tue, 25 Aug 2026 11:00:11 GMT
+
+https://collider.com/the-dog-stars-jacob-elordi-margaret-qualley-interview/
+
+Jacob Elordi and Margaret Qualley discuss working with Ridley Scott's unique process, contributing to the script, and what they're filming next.
+---------
+
+# 'Sicario' Meets 'Training Day' in Netflix’s New Global Streaming Sensation
+
+Movie News, Facing El Chapo, Sicario, Training Day, Netflix
+
+Tue, 25 Aug 2026 11:00:11 GMT
+
+https://collider.com/facing-el-chapo-sicario-meets-training-day-netflix-new-streaming-hit/
+
+Netflix's new crime-thriller, based on real events, has beaten The Last House to claim the streamer's viewership crown. Find out more.
+---------
+
+# 7 Emmy-Winning Shows That Have Aged Like Milk
+
+TV, Emmy Awards, Glee, How I Met Your Mother, Two and a Half Men
+
+Tue, 25 Aug 2026 10:52:11 GMT
+
+https://collider.com/emmy-winning-shows-aged-like-milk/
+
+Time hasn't been so kind to Emmy-winning series like Glee, Entourage, and How I Met Your Mother, with their poor reputation only growing worse.
+---------
+
+# The Walking Dead's Next Episode Makes Bold Play To Win Back 14M Lost Viewers
+
+Features, The Walking Dead: Dead City, The Walking Dead
+
+Tue, 25 Aug 2026 11:00:14 GMT
+
+https://movieweb.com/the-walking-dead-alt-timeline-episode/
+
+The Walking Dead franchise used to be one of the biggest in the world, and 'Dead City' wants to turn the clock back to that era. Read on for more.
+---------
+
+# NBC's New Thriller Casts 'Law & Order' Icon as the President
+
+TV News, Law & Order, Sam Waterston, Line of Fire
+
+Tue, 25 Aug 2026 10:47:00 GMT
+
+https://movieweb.com/nbc-line-of-fire-sam-waterston-president/
+
+Sam Waterston will guest star as former President Thomas Barnes in NBC's 'Line of Fire,' his first NBC role since leaving 'Law & Order.'
+---------
+
 # 2026's New Batman Movie Is Officially Available To Watch At Home
 
 Movies, Batman: Knightfall Part 1: Knightfall, DC Universe
