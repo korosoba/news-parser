@@ -1,3 +1,135 @@
+# 43 Years Later, The Most-Viewed TV Episode Ever Is Still The Greatest Finale
+
+Network TV, Masked Recs
+
+Tue, 25 Aug 2026 22:13:20 GMT
+
+https://screenrant.com/mash-most-viewed-tv-finale-all-time/
+
+1983 was the end of an era as a classic series ended its 11-year run with a finale that is still the most-viewed last episode in TV history.
+---------
+
+# Stranger Things Meets KPop Demon Hunters In Netflix's 2-Part Fantasy Series
+
+TV, Masked Recs
+
+Tue, 25 Aug 2026 22:00:15 GMT
+
+https://screenrant.com/the-uncanny-counter-netflix-stranger-things-meets-kpop-demon-hunters/
+
+A bittersweet blend of Stranger Things' teen angst and KPop Demon Hunters' supernatural fun unfolds in a K-drama balancing heart and horror.
+---------
+
+# 5 Nintendo Wii Games That Are 10/10 Masterpieces
+
+Gaming, Nintendo Wii, Nintendo, Retro
+
+Tue, 25 Aug 2026 22:00:15 GMT
+
+https://screenrant.com/nintendo-wii-games-10-rated-masterpieces/
+
+The Nintendo Wii might have just been virtual tennis and Mario Kart for some, but to others it had a treasure trove of essential video games.
+---------
+
+# SEAL Team: Netflix's 7-Season David Boreanaz Series Is Officially A Must-Binge After 2 Years
+
+Streaming TV, Masked Recs
+
+Tue, 25 Aug 2026 21:56:14 GMT
+
+https://screenrant.com/netflix-seal-team-military-thriller-david-boreanaz-binge/
+
+SEAL Team, Netflix's 7-season military thriller series starring David Boreanaz, is officially a must-binge hit two years after it ended.
+---------
+
+# Fullmetal Alchemist's Final Quote Is the Greatest Speech in Anime History
+
+Anime, Fullmetal Alchemist, Fullmetal Alchemist: Brotherhood
+
+Tue, 25 Aug 2026 22:15:11 GMT
+
+https://www.cbr.com/fullmetal-alchemist-final-quote-greatest-speech-anime-history/
+
+Fullmetal Alchemist: Brotherhood's final quote is a testament to Edward Elric's growth.
+---------
+
+# Joel Kinnaman’s 96-Minute Action Thriller Is the Biggest Movie on Streaming
+
+Movies, Icefall, Prime Video, Action
+
+Tue, 25 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/joel-kinnaman-icefall-action-thriller-prime-video-success-august-2026/
+
+The previously underseen film is now making a name for itself on Prime Video.
+---------
+
+# Alien: Romulus Is Still The Most Important Sci-Fi of the Decade
+
+Movies, Alien: Romulus, Alien, Disney
+
+Tue, 25 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/alien-romulus-most-important-sci-fi-movie/
+
+Two years on, there is one space thriller that could still be considered one of the most important sci-fi events in recent cinema memory.
+---------
+
+# X-Men's From the Ashes Era Is Officially Better Than Fans Expected
+
+Comics, X-Men
+
+Tue, 25 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/x-men-from-the-ashes-era-is-better-than-fans-expected/
+
+Marvel Comics had taken the X-Men to new heights, but From the Ashes acts as a reset button.
+---------
+
+# The 10 Best Films of the 2020s (So Far), Ranked
+
+Movie, The Odyssey, The Father, The Zone of Interest, Everything Everywhere All at Once
+
+Tue, 25 Aug 2026 21:55:11 GMT
+
+https://collider.com/best-films-2020s-so-far-ranked/
+
+There have been many amazing cinematic achievements in the 2020s so far, from blockbuster hits like Sinners to indie darlings like The Brutalist.
+---------
+
+# 'Sense and Sensibility' Is Getting Rid of Historical Accuracy and Everyone Needs to Chill Out
+
+Movie Features, Romance, Sense and Sensibility, Daisy Edgar-Jones, Jane Austen
+
+Tue, 25 Aug 2026 21:55:11 GMT
+
+https://collider.com/sense-and-sensibility-2026-historical-accuracy/
+
+Daisy Edgar-Jones is set to star in Jane Austen's Sense and Sensibility, but the internet is worried about the film's lack of historical accuracy.
+---------
+
+# One of the Year's Best Sci-Fi Thrillers Officially Arrives This Week
+
+Movie News, It Ends
+
+Tue, 25 Aug 2026 22:04:20 GMT
+
+https://movieweb.com/it-ends-neon-theatrical-release/
+
+Alexander Ullom's 'It Ends' hits theaters this week.
+---------
+
+# 5 Years Later, Harlan Coben’s 8-Part Netflix Thriller Remains a Perfect One-Night Binge
+
+Features, The Stranger, Netflix, Harlan Coben, Thriller
+
+Tue, 25 Aug 2026 22:01:13 GMT
+
+https://movieweb.com/the-stranger-harlan-coben-netflix-binge/
+
+Harlan Coben has many Netflix thriller adaptations of his bestselling novels, but one TV series is particularly great for a one-night binge.
+---------
+
 # Andrew Garfield's New Action Movie Was Secretly A Robin Hood Film This Whole Time
 
 Movies, The Uprising, Andrew Garfield
