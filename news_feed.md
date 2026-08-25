@@ -1,3 +1,113 @@
+# Stephen King Meets Home Alone In Twisted New Horror Game
+
+Gaming, Stephen King, Home Alone
+
+Tue, 25 Aug 2026 03:00:16 GMT
+
+https://screenrant.com/stephen-king-meets-home-alone-in-twisted-new-horror-game/
+
+This Steam game turns a kid’s worst nightmare into psychological horror, blending Stephen King vibes with Home Alone-style isolation after dark.
+---------
+
+# 2 Years Before Sherlock's Return, Another Detective Show Explained How He Faked His Death
+
+Classic TV, Sherlock
+
+Tue, 25 Aug 2026 02:30:15 GMT
+
+https://screenrant.com/bbc-sherlock-the-mentalist-explain-fake-death/
+
+Two years before Sherlock tried to explain how Holmes faked his death, The Mentalist casually explained a key detail in Holmes' plan.
+---------
+
+# 10 Greatest NES Games of All Time, Ranked
+
+Games, Nintendo, retro games, Innovation
+
+Tue, 25 Aug 2026 03:15:11 GMT
+
+https://www.cbr.com/greatest-nes-games-of-all-time-ranked-list/
+
+Decades later, classics like The Legend of Zelda stand as the best NES games of all time.
+---------
+
+# Gundam Goes Mega With a Massive New Farewell Release
+
+Anime, Mobile Suit Gundam Unicorn, Mobile Suit Gundam, merchandise, toys, bandai
+
+Tue, 25 Aug 2026 03:05:11 GMT
+
+https://www.cbr.com/unicorn-gundam-mega-size-final-gunpla-banda-release/
+
+One of the most iconic Mobile Suit Gundam designs of all time is about to be available for fans to take home to celebrate the end of its iconic run.
+---------
+
+# 10 Best Anime Where Every Season Is a Masterpiece, Ranked
+
+Anime, Innovation
+
+Tue, 25 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/best-anime-no-bad-seasons-ranked-list/
+
+Anime like Attack on Titan and Jujutsu Kaisen don't have a single bad season.
+---------
+
+# 10 Greatest Techno-Thrillers of All Time, Ranked
+
+Movies, Thriller, Minority Report, Enemy of the State, Cam, Wargames, Kimi, eXistenZ, Strange Days, Upgrade, The Matrix, Ex Machina
+
+Tue, 25 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/best-techno-thrillers-ranked-list/
+
+Throughout the entire history of the thriller genre, modern and advanced technologies have been a constant source of terror and drama.
+---------
+
+# 5 JRPGs With the Most Unique Leveling Systems
+
+Games, JRPG, Final Fantasy, Dragon Ball Z, Chrono Cross
+
+Tue, 25 Aug 2026 02:30:11 GMT
+
+https://www.cbr.com/jrpgs-most-unique-leveling-systems/
+
+There's nothing quite like a great JRPG, especially in how it allows players to eventually become over-powered by leveling up.
+---------
+
+# Hulu Pulls the Plug on Mindy Kaling's Divisive Friends-Style Comedy After 1 Season
+
+TV, Not Suitable for Work
+
+Tue, 25 Aug 2026 02:23:14 GMT
+
+https://www.cbr.com/mindy-kaling-not-suitable-for-work-canceled/
+
+There's not going to be a second season on Hulu.
+---------
+
+# Jennifer Garner's 105-Episode Spy Series Built the Formula Everyone Still Uses
+
+TV Features, Alias, Jennifer Garner, J.J. Abrams, Pluto TV
+
+Tue, 25 Aug 2026 03:16:11 GMT
+
+https://collider.com/alias-jennifer-garner-spy-series/
+
+Alias shaped modern spy dramas and showcased Jennifer Garner's iconic role in the memorable network series.
+---------
+
+# The Tom Cruise Thriller That Created 'Reacher's Formula Is Taking Over Streaming
+
+Movie Features, Tom Cruise, Jack Reacher, Jack Reacher: Never Go Back, Edward Zwick
+
+Tue, 25 Aug 2026 03:11:23 GMT
+
+https://collider.com/jack-reacher-never-go-back-tom-cruise-streaming-paramount-plus-august-2026/
+
+2016's Jack Reacher: Never Go Back, in which Tom Cruise played the action hero for the second time, is climbing the Paramount+ charts.
+---------
+
 # The Best Line In Twilight Zone History Is Still A Top 5 Sci-Fi Quote
 
 Classic TV, The Twilight Zone
