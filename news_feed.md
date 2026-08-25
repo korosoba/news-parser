@@ -1,3 +1,168 @@
+# Sam Neill's 10/10 Sci-Fi Horror Is 'Evil Dead In Space'
+
+Movies, Masked Recs
+
+Tue, 25 Aug 2026 17:00:15 GMT
+
+https://screenrant.com/event-horizon-sam-neill-evil-dead-in-space/
+
+Sam Neill's underrated sci-fi horror gem Event Horizon brings the demonic terror of The Evil Dead to the isolated cosmic setting of Alien.
+---------
+
+# NYT Connections Solution And Hints For August 25, 2026
+
+Gaming, Connections, Mobile
+
+Tue, 25 Aug 2026 16:45:14 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-25-2026/
+
+The Connections for today has far more surface-level concepts than what has come before, but requires more context from clues to figure out.
+---------
+
+# Sony's $478M Spider-Man Universe Movie That Ended An Era Is Now On Disney+
+
+Classic Movies, Masked Recs
+
+Tue, 25 Aug 2026 16:45:14 GMT
+
+https://screenrant.com/venom-the-last-dance-movie-streaming-disney-plus/
+
+One of the biggest movies in Sony's Spider-Man Universe is now streaming on Disney+ after the $478 million hit ended an era for the Marvel franchise.
+---------
+
+# Guy Ritchie's New R-Rated Action Thriller With Henry Cavill Becomes A Global Prime Video Streaming Hit
+
+Movies, Masked Recs
+
+Tue, 25 Aug 2026 16:37:02 GMT
+
+https://screenrant.com/in-the-grey-prime-video-streaming-success-august-2026/
+
+Guy Ritchie's latest action thriller movie starring Henry Cavill has become a global streaming hit, leaving major films behind on Prime Video.
+---------
+
+# Showtime's 4-Part Buffy Replacement Officially Returns This Fall
+
+Streaming TV, Masked Recs
+
+Tue, 25 Aug 2026 16:30:14 GMT
+
+https://screenrant.com/yellowjackets-season-4-return-buffy-replacement/
+
+Like Buffy, Showtime's Yellowjackets has been subverting teen girl stereotypes for three seasons, and its fourth and final season premieres this fall.
+---------
+
+# Paramount Ditching Star Trek's Winning Formula Just Became Even More Disappointing
+
+TV, Star Trek, Star Trek: Strange New Worlds, Paramount
+
+Tue, 25 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-puppet-episode-exposes-paramount-issues/
+
+The infamous "puppet episode" of Strange New Worlds exposes a major Paramount problem with Star Trek, but it's not the creatives' fault.
+---------
+
+# DC Is Officially Replacing Batman after 37 Years
+
+Movies, Clayface, Batman, DCU
+
+Tue, 25 Aug 2026 16:49:20 GMT
+
+https://www.cbr.com/dcu-clayface-batman-replacement-gotham-city-movie/
+
+An upcoming DC movie officially replaces Batman. What does this mean for the future of the DCU?
+---------
+
+# Only Murders in the Building Season 6 Confirms Major Format Change
+
+Movies, Only Murders in the Building
+
+Tue, 25 Aug 2026 16:42:10 GMT
+
+https://www.cbr.com/only-murders-in-the-building-season-6-release-date/
+
+The series will make its biggest change yet.
+---------
+
+# Patrick Dempsey’s New Sports Documentary Is Quietly One of the Most Inspiring Releases of 2026 [Exclusive]
+
+Movie News, Patrick Dempsey, Documentary, Sports, The Olympics
+
+Tue, 25 Aug 2026 17:00:11 GMT
+
+https://collider.com/threshold-clip-jessie-diggins-patrick-dempsey-documentary/
+
+Watch an exclusive clip from Threshold, the Jessie Diggins documentary executive produced by Patrick Dempsey, ahead of its August 28 digital release.
+---------
+
+# The 10 Greatest Sci-Fi Thriller Books of the Last 25 Years, Ranked
+
+Books and Comics, Books, Science Fiction, Thriller, Project Hail Mary
+
+Tue, 25 Aug 2026 16:45:11 GMT
+
+https://collider.com/best-sci-fi-thriller-books-last-25-years-ranked/
+
+From The Three-Body Problem to Leviathan Wakes, these are the best and most riveting sci-fi thriller books released over the last quarter century.
+---------
+
+# Marvel’s Longest Movie Ever Officially Unveils First Trailer
+
+Movie News, Avengers: Endgame, Avengers: Doomsday, Robert Downey Jr, Chris Evans
+
+Tue, 25 Aug 2026 16:32:49 GMT
+
+https://collider.com/avengers-engame-encore-theater-return-september-2026-tickets-on-sale/
+
+With Doomsday on the horizon, Avengers: Endgame is officially back with a brand-new trailer as tickets go on sale for its theatrical return.
+---------
+
+# 15 Best K-Dramas for Teens: Comedy, Drama, Fantasy, and Romance
+
+TV Lists, K-Drama
+
+Tue, 25 Aug 2026 17:00:14 GMT
+
+https://movieweb.com/k-dramas-for-teens/
+
+From comedies and romance to fantasy and horror, these are the best K-dramas for teens.
+---------
+
+# Ella Purnell Makes a Killer Comeback in First Trailer for 'Sweetpea' Season 2
+
+TV News, Sweetpea, Ella Purnell
+
+Tue, 25 Aug 2026 16:35:25 GMT
+
+https://movieweb.com/sweetpea-season-2-trailer/
+
+Sky and Starz have unveiled the first trailer for 'Sweetpea' Season 2, teasing Ella Purnell's deadly return as cold-blooded killer Rhiannon Lewis.
+---------
+
+# Netflix's Sci-Fi Thriller Series Masterpiece Is Officially Moving Forward After 16 Months
+
+TV News, Black Mirror, Charlie Brooker
+
+Tue, 25 Aug 2026 16:34:54 GMT
+
+https://movieweb.com/black-mirror-season-8-netflix-filming-begins/
+
+Netflix has confirmed 'Black Mirror' Season 8 is officially in production, with Charlie Brooker writing and filming underway in the UK this summer.
+---------
+
+# New 'Robocop' Officially Cast in Prime Video TV Reboot
+
+Movie News, Robocop, RoboCop, Dan Stevens
+
+Tue, 25 Aug 2026 16:33:20 GMT
+
+https://movieweb.com/robocop-dan-stevens-cast-prime-video/
+
+A new actor has been cast as Alex Murphy.
+---------
+
 # Taylor Sheridan’s The Madison Season 2 Set Images Reveal Major Character Returns & Location Change
 
 TV, The Madison, Paramount Plus
