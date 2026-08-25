@@ -1,3 +1,47 @@
+# Marvel Just Hit Spider-Man With A Major Nerf, And It’s A Bigger Problem Than Fans Think
+
+Marvel Comics, Spider-Man, Marvel
+
+Tue, 25 Aug 2026 07:00:15 GMT
+
+https://screenrant.com/marvel-spider-man-power-nerf-big-problem-lore/
+
+Lore being consistent or honored between runs is a lot to ask for, but Spider-Man's latest relaunch is risking making inconsistencies in its own run.
+---------
+
+# Insidious: Out of the Further Interviews with Amelia Eve, Brandon Perea, Lin Shaye & Jacob Chase
+
+Movies, Insidious: Out of the Further, Lin Shaye
+
+Tue, 25 Aug 2026 06:54:53 GMT
+
+https://screenrant.com/video/insidious-6-amelia-eve-brandon-perea-lin-shaye-jacob-chase-interview/
+
+Insidious: Out Of The Further stars Amelia Eve, Brandon Perea, Lin Shaye, and director Jacob Chase explain how Elise's role shifts in the sixth movie, and why it was important to establish a new chapter for the franchise.
+---------
+
+# Outer Banks Season 5 Interview with Madelyn Cline, Madison Bailey & Carlacia Grant
+
+TV, Outer Banks, Outer Banks - Season 5
+
+Tue, 25 Aug 2026 06:42:58 GMT
+
+https://screenrant.com/video/outer-banks-season-5-madelyn-cline-madison-bailey-carlacia-grant-interview/
+
+Outer Banks Season 5 stars Madelyn Cline, Madison Bailey, and Carlacia Grant explain how they feel about the series finale and what they would change (if anything).
+---------
+
+# Outer Banks Season 5 Interview with Chase Stokes, Jonathan Daviss & Drew Starkey
+
+TV, Outer Banks, Outer Banks - Season 5
+
+Tue, 25 Aug 2026 06:37:01 GMT
+
+https://screenrant.com/video/outer-banks-season-5-chase-stokes-jonathan-daviss-drew-starkey-interview/
+
+Outer Banks season 5 stars Chase Stokes, Jonathan Daviss & Drew Starkey explain how the show changed the most for each of them, and what the worst things their characters have ever done are.
+---------
+
 # 15 Years Later, Game Of Thrones' Ned Stark Officially Returns On September 23
 
 Gaming, Game Of Thrones, Game of Thrones, Game of Thrones: Legends, PC
