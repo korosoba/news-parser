@@ -1,3 +1,179 @@
+# Buffy & Angel Are Officially Reunited In Stunning New Release Available Next Week
+
+TV, Buffy The Vampire Slayer
+
+Tue, 25 Aug 2026 17:48:28 GMT
+
+https://screenrant.com/buffy-angel-reunion-mattel-release-september-2026/
+
+Buffy the Vampire Slayer ended in 2003, but 23 years later, Buffy and Angel are reuniting in September for an exciting and unexpected new release.
+---------
+
+# Netflix's New 95-Minute Action Movie In 33-Year Franchise Officially Hits Rare Streaming High
+
+Movies, Masked Recs
+
+Tue, 25 Aug 2026 17:44:34 GMT
+
+https://screenrant.com/netflix-sniper-no-nation-nielsen-top-10-milestone-august-2026/
+
+Netflix's new 95-minute action movie in a 33-year franchise officially hits a rare streaming high several months after its release date.
+---------
+
+# Doctor Who Isn't The Best Time Travel TV Series Of All Time (It Isn't Even 2nd)
+
+Streaming TV, Masked Recs
+
+Tue, 25 Aug 2026 17:30:15 GMT
+
+https://screenrant.com/doctor-who-not-best-time-travel-series/
+
+Doctor Who may be considered one of the best time travel sci-fi series ever made, but it's not the absolute best, and these two shows prove it.
+---------
+
+# Gamescom Opening Night Live 2026 Updates: All Reveals & Announcements
+
+Gaming, Gamescom, Triple-A Games, PC
+
+Tue, 25 Aug 2026 17:26:50 GMT
+
+https://screenrant.com/gamescom-opening-night-live-blog-2026/
+
+Screen Rant's live coverage of Gamescom Opening Night Live, keeping track of everything you want to know about from the showcase this year.
+---------
+
+# Agatha Christie Meets True Detective In HBO’s 8-Part Psychological Thriller Masterpiece
+
+TV, Masked Recs
+
+Tue, 25 Aug 2026 17:15:14 GMT
+
+https://screenrant.com/sharp-objects-agatha-christie-meets-true-detective-hbo/
+
+Grim psychological suspense meets Agatha Christie style misdirection in this eight part HBO thriller's slow burn unraveling of a decaying dynasty.
+---------
+
+# Hunger Games Prequel's PG-13 Rating Officially Cuts The Darkest Death From Sunrise On The Reaping Book
+
+Movies, The Hunger Games: Sunrise on the Reaping
+
+Tue, 25 Aug 2026 17:09:09 GMT
+
+https://screenrant.com/hunger-games-sunrise-on-the-reaping-pg-13-wellie-death-change/
+
+The Hunger Games: Sunrise on the Reaping is already making people lose their heads (or not), as a major death is officially cut from the movie.
+---------
+
+# Another Taylor Sheridan Show Has Quietly Joined the Yellowstone Universe
+
+TV, The Madison, Yellowstone, 1883
+
+Tue, 25 Aug 2026 17:51:13 GMT
+
+https://www.cbr.com/the-madison-stacy-clyburn-1883-yellowstone-elsa-dutton-quote/
+
+Taylor Sheridan's The Madison for Paramount+ quietly aligns with the Yellowstone creator's Dutton universe thanks to 1883.
+---------
+
+# Free Open-World Pokémon Replacement Officially Arrives September 16
+
+Games, open world
+
+Tue, 25 Aug 2026 17:48:11 GMT
+
+https://www.cbr.com/free-open-world-pokemon-replacement-official-september-2026/
+
+Pokémon officially has competition in Aniimo, which will arrive this September.
+---------
+
+# Evangelion: Cross Reflections Officially Delayed to 2027: 'We Sincerely Apologize to Everyone'
+
+Anime, Neon Genesis Evangelion
+
+Tue, 25 Aug 2026 17:20:11 GMT
+
+https://www.cbr.com/evangelion-cross-reflections-2027-delay/
+
+Neon Genesis Evangelion fans just got a disappointing update about one of the most hotly-anticipated upcoming titles after its unexpected delay.
+---------
+
+# HBO’s 3-Season Downton Abbey Replacement Finally Sets Return Date
+
+TV, The Gilded Age, hbo
+
+Tue, 25 Aug 2026 17:18:33 GMT
+
+https://www.cbr.com/hbo-the-gilded-age-season-4-return-date/
+
+The wait is almost over for HBO's acclaimed Downton Abbey replacement show.
+---------
+
+# 7 Classic PS1 JRPGs So Good They Never Need a Remake
+
+Games, Lists, Video Games, PlayStation (Original), Final Fantasy
+
+Tue, 25 Aug 2026 17:15:11 GMT
+
+https://www.cbr.com/classic-ps1-jrpgs-never-need-remakes/
+
+Some of the best JRPGs on the PS1 deserve comebacks, but others truly never need remakes.
+---------
+
+# Avengers: Endgame Encore Trailer Teases “The Story Continues” as Tickets Go on Sale
+
+Movies, Avengers: Endgame, Marvel Cinematic Universe, Avengers
+
+Tue, 25 Aug 2026 17:06:51 GMT
+
+https://www.cbr.com/avengers-endgame-encore-trailer-tickets/
+
+Avengers: Endgame returns to theaters with new footage leading into Avengers: Doomsday.
+---------
+
+# Ryan Reynolds' $237M Flop Loses Streaming Comeback to 4-Year-Old Animated Film
+
+Movies, Green Lantern: Beware My Power, Green Lantern, HBO Max
+
+Tue, 25 Aug 2026 17:04:42 GMT
+
+https://www.cbr.com/ryan-reynolds-green-lantern-loses-streaming-comeback-hbo-max/
+
+Even after 15 years, Ryan Reynolds' $237 million box office flop still can't win.
+---------
+
+# The 10 Greatest Detective Movies of the 21st Century, Ranked
+
+Movie, Zodiac, Knives Out, Memento, Shutter Island
+
+Tue, 25 Aug 2026 17:52:11 GMT
+
+https://collider.com/best-detective-movies-21st-century-ranked/
+
+Spanish gems like Marshland and cultural phenomenons like Knives Out are among the best detective movies released in the 21st century—so far, anyway.
+---------
+
+# Spider-Man's Most Anticipated Movie Officially Sets Netflix Release Date
+
+Movie News, Spider-Man: Beyond the Spider-Verse, Spider-Man: Brand New Day, Tom Holland, Netflix
+
+Tue, 25 Aug 2026 17:26:56 GMT
+
+https://collider.com/spider-man-beyond-the-spider-verse-netflix-release-date-2027/
+
+Should the current theatrical release date hold, Spider-Man: Beyond the Spider-Verse is officially expected to debut on Netflix in 2027.
+---------
+
+# Jon Bernthal & Taylor Sheridan's 121-Minute Action Thriller Becomes One of Streaming's Biggest Hits
+
+Movie News, Sicario, Hot on Streaming, Taylor Sheridan, Jon Bernthal, Action
+
+Tue, 25 Aug 2026 17:30:14 GMT
+
+https://movieweb.com/sicario-bernthal-sheridan-action-streaming-hit-hbo-max-august-2026/
+
+Taylor Sheridan's best action thriller is enjoying newfound success on streaming this month thanks to HBO Max.
+---------
+
 # Sam Neill's 10/10 Sci-Fi Horror Is 'Evil Dead In Space'
 
 Movies, Masked Recs
