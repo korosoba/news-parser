@@ -1,3 +1,157 @@
+# Netflix's New Brutal Crime Thriller Dominates Streaming With 7M Viewership Debut
+
+TV, Masked Recs
+
+Tue, 25 Aug 2026 20:47:34 GMT
+
+https://screenrant.com/netflix-blood-sacrifice-streaming-success-charts-august-2026/
+
+There are lots of crime thrillers streaming on Netflix, and the latest one is a new five-part TV series that’s made a huge splash in its debut week.
+---------
+
+# Severance Season 3 Returns to Lumon in First Set Photos
+
+TV, Severance
+
+Tue, 25 Aug 2026 20:42:03 GMT
+
+https://screenrant.com/apple-tvs-severance-season-3-returns-to-lumon-building-in-first-set-photos/
+
+Severance Season 3 has returned to the Lumon building, with the first new set photos offering fans an early look at production.
+---------
+
+# Blade Runner Meets Alien In Hulu's 8-Part Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Tue, 25 Aug 2026 20:38:14 GMT
+
+https://screenrant.com/alien-earth-blade-runner-cyberpunk-show-hulu/
+
+Both of Ridley Scott's foundational sci-fi franchises feel like they have a spiritual kinship, but one Hulu show brings them closer than ever before.
+---------
+
+# Dungeons & Dragons Meets Skyrim In New Open-World RPG
+
+Gaming, Dungeons & Dragons, Triple-A Games, Gamescom
+
+Tue, 25 Aug 2026 20:34:33 GMT
+
+https://screenrant.com/dungeons-dragons-open-world-rpg-like-skyrim/
+
+Dungeons & Dragons' newest game is forgoing the CRPG formula that Baldur's Gate 3 had and exploring an open world not unlike that of Skyrim's.
+---------
+
+# The Umbrella Academy Meets Legion In HBO Max's 4-Part Sci-Fi Series
+
+TV, Masked Recs
+
+Tue, 25 Aug 2026 20:30:15 GMT
+
+https://screenrant.com/doom-patrol-dc-umbrella-academy-meets-legion/
+
+R-rated shocks meet bizarre humor as a superhero found family confront trauma through surreal missions full of talking body parts and singing ghosts.
+---------
+
+# Every Spider-Man Movie Villain, Ranked Worst To Best
+
+Movies, Spider-Man, Marvel Cinematic Universe
+
+Tue, 25 Aug 2026 20:30:15 GMT
+
+https://screenrant.com/spider-man-movie-villains-ranked/
+
+Over ten main Spider-Man films produced by Sony Pictures and Marvel Studios, Peter Parker has faced off against a huge number of legendary villains.
+---------
+
+# Netflix’s Riveting New Crime Thriller Is The #1 Movie Worldwide With 18 Million Debut
+
+Movies, Masked Recs
+
+Tue, 25 Aug 2026 20:29:17 GMT
+
+https://screenrant.com/netflix-facing-el-chapo-global-streaming-success-august-2026/
+
+Netflix has just released a new crime thriller on its platform, and it is a strong performer, with its debut making it the no. 1 movie globally.
+---------
+
+# How Dolly Parton Helped Get Buffy the Vampire Slayer On the Air
+
+TV, Buffy The Vampire Slayer
+
+Tue, 25 Aug 2026 20:20:15 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-origin-dolly-parton-connection-history/
+
+Dolly's pivotal Buffy connection, explained.
+---------
+
+# A24’s Viral Horror Hit Finally Gets HBO Max Streaming Date After $396.5M Box Office Run
+
+Movies, Backrooms, A24, HBO Max
+
+Tue, 25 Aug 2026 20:46:40 GMT
+
+https://www.cbr.com/a24-backrooms-hbo-max-release-date/
+
+The hit movie is finally heading to streaming.
+---------
+
+# The Witcher 3 Remastered Officially Revealed, Free Upgrade For All Owners
+
+Games, The Witcher 3: Wild Hunt, The Witcher
+
+Tue, 25 Aug 2026 20:36:11 GMT
+
+https://www.cbr.com/witcher-3-remastered-free-upgrade-release-date/
+
+The Witcher 3 was slated to the Gamescom Opening Night Live headliner with its new expansion, but a remaster was surprisingly revealed too.
+---------
+
+# 'We're Giving Our Soul to This Project': Naruto Gets a Major New Release From TV Tokyo
+
+Anime, Naruto
+
+Tue, 25 Aug 2026 20:35:11 GMT
+
+https://www.cbr.com/naruto-ninja-cards-digital-app-tv-tokyo-mobile-game-details/
+
+Naruto fans just got a glorious new release with gorgeous artwork befitting the legendary Seventh Hokage.
+---------
+
+# Josh Brolin's Jaws Replacement Is Already the Thriller Event of the Year
+
+Movies, Whalefall, josh brolin, Thriller
+
+Tue, 25 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/josh-brolin-whalefall-thriller-event-of-the-year/
+
+Josh Brolin will be returning to our screens this October as the father of a young scuba diver in what promises to be an epic survival thriller.
+---------
+
+# Peacock Revives Canceled Reboot Series for New Spinoff
+
+TV, Bel-Air
+
+Tue, 25 Aug 2026 20:28:51 GMT
+
+https://www.cbr.com/bel-air-spinoff-series-peacock-hilary/
+
+The original series didn't even get get a spinoff.
+---------
+
+# Netflix's New 'Succession' Replacement Is a Biopic Thriller About Rupert Murdoch
+
+Movie News, Ink, Danny Boyle, Netflix, Thriller
+
+Tue, 25 Aug 2026 20:39:01 GMT
+
+https://movieweb.com/danny-boyle-ink-netflix-first-look-images/
+
+Guy Pearce and Jack O'Connell star in Danny Boyle's new Netflix thriller, 'Ink.'
+---------
+
 # Harlan Coben's New Netflix Crime Thriller Officially Dethrones 5-Season Hit On All-Time Most-Watched List
 
 TV, Masked Recs, Netflix
