@@ -1,3 +1,212 @@
+# One Of The MCU's Most Controversial Releases Is Finally Getting A Sequel
+
+Streaming TV, Masked Recs
+
+Tue, 25 Aug 2026 18:15:15 GMT
+
+https://screenrant.com/the-defenders-sequel-daredevil-born-again-season-3/
+
+Nearly a decade later, Daredevil: Born Again season 3 is finally revisiting The Defenders and giving its characters a second chance.
+---------
+
+# Backrooms Streaming Release Date Officially Confirmed After $396M Box Office Smash
+
+Movies, Backrooms
+
+Tue, 25 Aug 2026 18:09:04 GMT
+
+https://screenrant.com/backrooms-movie-hbo-max-streaming-release-date-september-2026/
+
+Backrooms' streaming release date has finally been revealed, and the hit 2026 horror movie will not take too long to arrive on a major streamer.
+---------
+
+# Jake Gyllenhaal’s Donnie Darko Sequel Officially Revealed With Epic New 2026 Release
+
+Books, Donnie Darko
+
+Tue, 25 Aug 2026 18:01:08 GMT
+
+https://screenrant.com/donnie-darko-sequel-novel-philosophy-time-travel-plot-2026-release-details/
+
+Jake Gyllenhaal's cult classic Donnie Darko is officially getting a new sequel with the first story details revealed along with a 2026 release.
+---------
+
+# Law & Order Meets Oz In HBO's 10/10 Crime Drama Based On A British Series
+
+Classic TV, Masked Recs
+
+Tue, 25 Aug 2026 18:01:16 GMT
+
+https://screenrant.com/the-night-of-law-and-order-meets-oz-hbo-crime-drama/
+
+Law & Order meets Oz in The Night Of, an HBO miniseries from 2016 that tells the harrowing story of a young man's journey through the prison system.
+---------
+
+# 20 Wild Things You Didn’t Know About Avatar: The Last Airbender
+
+Classic TV, Avatar: The Last Airbender
+
+Tue, 25 Aug 2026 18:01:16 GMT
+
+https://screenrant.com/avatar-last-airbender-secrets-facts-trivia/
+
+With mature writing and fleshed out characters, The Last Avatar became a massive hit. But there are some things that even die-hard fans don't know.
+---------
+
+# Dolly Parton Dies At 80
+
+Movies, Dolly Parton
+
+Tue, 25 Aug 2026 17:59:07 GMT
+
+https://screenrant.com/dolly-parton-obituary/
+
+The legendary Dolly Parton has tragically passed away at the age of 80, as her family shares the tragic news with millions of fans around the world.
+---------
+
+# 10 Anime to Watch If You Love Gundam
+
+Anime, Gundam
+
+Tue, 25 Aug 2026 18:15:11 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-love-gundam/
+
+Mobile Suit Gundam is one of the biggest anime franchises in history, and its influenced countless mecha anime that are perfect for its fans to enjoy.
+---------
+
+# Paramount Network Sued Over Collapse Of Crime Drama
+
+TV, Paramount
+
+Tue, 25 Aug 2026 18:05:12 GMT
+
+https://www.cbr.com/paramount-network-5-lawsuit-crime-drama-blackbox/
+
+Paramount Skydance has big plans for its assets but not everything is going smoothly.
+---------
+
+# The 10 Most Universally Beloved War Movies of All Time, Ranked
+
+Movies, War
+
+Tue, 25 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/most-beloved-war-movies-list/
+
+War movies are a constant in cinema, but only a handful have stood the test of time and remain loved by all who watch them.
+---------
+
+# 'Blue Bloods' Star Tom Selleck Officially Sets TV Return
+
+TV News, Blue Bloods, Tom Selleck, Apple TV, Elizabeth Banks
+
+Tue, 25 Aug 2026 18:23:52 GMT
+
+https://collider.com/apple-tv-tom-selleck-cast-elizabeth-banks-series/
+
+2 years after the cancellation of Blue Bloods, Tom Selleck returns to television in a new Apple TV series led by Elizabeth Banks.
+---------
+
+# Amazon Officially Closes in on the Next James Bond
+
+Movie News, James Bond, Jacob Elordi, Jack Lowden, Callum Turner
+
+Tue, 25 Aug 2026 18:15:34 GMT
+
+https://collider.com/james-bond-casting-final-stage-announcement/
+
+Fans of the James Bond franchise can expect a casting announcement imminently, as the search for the new 007 enters its final stages.
+---------
+
+# Henry Cavill’s 2026 Action Thriller Officially Becomes the King of Streaming
+
+Movie News, Henry Cavill, Guy Ritchie, Jake Gyllenhaal, In the Grey
+
+Tue, 25 Aug 2026 18:03:10 GMT
+
+https://collider.com/henry-cavill-guy-ritchie-in-the-grey-streaming-success-prime-video-apple-tv-august-2026/
+
+Henry Cavill and Guy Ritchie's 2026 action thriller is surging with global audiences after it failed to gain traction at the box office.
+---------
+
+# 25 Years Later, Cult Classic Psychological Sci-Fi Thriller Officially Gets New Sequel
+
+Books and Comics News, Donnie Darko, Jake Gyllenhaal, Richard Kelly, Mary McDonnell
+
+Tue, 25 Aug 2026 18:00:18 GMT
+
+https://collider.com/jake-gyllenhaal-donnie-darko-sequel-book-release-date-2026/
+
+Jake Gyllenhaal's legendary cult classic, Donnie Darko, is officially getting a sequel, with director Richard Kelly returning for the project.
+---------
+
+# New Must-Watch Horror Movie Officially Brings VHS Terror Back [Exclusive]
+
+Exclusives, Fantastic Fest, Collider Exclusive Preview, Horror, Thriller
+
+Tue, 25 Aug 2026 18:00:11 GMT
+
+https://collider.com/posthumous-image-sophie-lowe-horror-thriller-fantastic-fest/
+
+A new image from the dark horror mystery flick Posthumous sees Sophie Lowe eerily exploring an old camcorder for answers.
+---------
+
+# Dolly Parton Dead at 80
+
+Music News, Dolly Parton, Obituary, 9 to 5, Music
+
+Tue, 25 Aug 2026 17:58:31 GMT
+
+https://collider.com/dolly-parton-dead-age-80/
+
+Country music legend Dolly Parton has passed away at age 80. Parton was known for her philanthropy and her incredible career.
+---------
+
+# Dolly Parton, Star of '9 to 5' & Steel Magnolias,' Dies Aged 80
+
+Movie News, Dolly Parton, 9 to 5, Steel Magnolias
+
+Tue, 25 Aug 2026 18:20:42 GMT
+
+https://movieweb.com/dolly-parton-dies-aged-80/
+
+Dolly Parton, one of the greatest and most beloved entertainers in history, is no longer with us after six decades of top-tier movies and music.
+---------
+
+# Apple's Upcoming Fantasy Hit Will Make Every Other 'Game of Thrones' Replacement Feel Small
+
+Features, Fantasy, Game Of Thrones, The Cosmere, Apple TV
+
+Tue, 25 Aug 2026 18:01:15 GMT
+
+https://movieweb.com/apple-tv-cosmere-fantasy-shows-comparison/
+
+Apple TV is making a new fantasy TV project that will appeal to fans of HBO's 'Game of Thrones' and will be even better.
+---------
+
+# 'Insidious: Out of the Further' Box Office Debut Seals the Fate of the Franchise
+
+Movie News, Insidious, Insidious: Out of the Further
+
+Tue, 25 Aug 2026 17:53:39 GMT
+
+https://movieweb.com/insidious-out-of-the-further-box-office-numbers/
+
+'Insidious: Out of the Further' has had quite an impressive box office turnout six films in.
+---------
+
+# New 'Donnie Darko' Sequel Officially Announced as Teaser Reveals Sci-Fi Title
+
+Movie News, Donnie Darko, Richard Kelly
+
+Tue, 25 Aug 2026 17:52:22 GMT
+
+https://movieweb.com/donnie-darko-official-sequel-novel/
+
+The new novel, 'The Philosophy of Time Travel,' will explore the aftermath of the events of the original movie.
+---------
+
 # Buffy & Angel Are Officially Reunited In Stunning New Release Available Next Week
 
 TV, Buffy The Vampire Slayer
