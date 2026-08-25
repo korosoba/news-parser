@@ -1,3 +1,25 @@
+# 25 Years Later, This 10/10 PlayStation 2 Masterpiece Remains One Of The Highest-Rated Games Ever
+
+Gaming, PlayStation 2, Grand Theft Auto, Grand Theft Auto: The Trilogy - The Definitive Edition
+
+Tue, 25 Aug 2026 05:30:14 GMT
+
+https://screenrant.com/playstation-ps2-highest-rated-game-ever-gta-3/
+
+This PS2 game was not only a legendary game when it was released, but it remains one of the highest-rated games of all time.
+---------
+
+# 7 Peanuts Strips With The Best Art
+
+Comics, Peanuts
+
+Tue, 25 Aug 2026 05:03:04 GMT
+
+https://screenrant.com/peanuts-strips-panels-best-art/
+
+Peanuts is known for its funny and relatable punchlines, but Charles M. Schulz's comic strip is also a source of beautifully illustrated panels.
+---------
+
 # Super Mario: Galactic Adventure Arrives December 2026
 
 Gaming, Super Mario
