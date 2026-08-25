@@ -1,3 +1,234 @@
+# Harlan Coben's New Netflix Crime Thriller Officially Dethrones 5-Season Hit On All-Time Most-Watched List
+
+TV, Masked Recs, Netflix
+
+Tue, 25 Aug 2026 20:17:25 GMT
+
+https://screenrant.com/harlan-coben-i-will-find-you-netflix-top-10-rise-august-2026/
+
+Netflix's latest thriller series adapting the work of author Harlan Coben climbs up the streamer's all-time viewership chart, passing a huge hit.
+---------
+
+# Dolly Parton Was Secretly Behind The Best Vampire Show Of All Time
+
+Classic TV, Masked Recs, Dolly Parton
+
+Tue, 25 Aug 2026 20:07:57 GMT
+
+https://screenrant.com/dolly-parton-buffy-the-vampire-slayer-executive-producer-role/
+
+With Dolly Parton's passing, now is the time to remember her incredible legacy, including her secret involvement in the best vampire show of all time.
+---------
+
+# The Witcher 3: Wild Hunt Remastered Officially Announced For September 29, And It's Free
+
+Gaming, The Witcher 3: Wild Hunt, PC, The Witcher, Gamescom
+
+Tue, 25 Aug 2026 20:06:39 GMT
+
+https://screenrant.com/witcher-3-wild-hunt-remastered-september-29/
+
+The Witcher 3: Wild Hunt is officially back with a completely new remaster, available entirely for free on September 26.
+---------
+
+# The Witcher 3: Songs Of The Past Is Officially Geralt's Final Adventure
+
+Gaming, The Witcher 3: Wild Hunt, Triple-A Games, PC, Gamescom
+
+Tue, 25 Aug 2026 20:02:42 GMT
+
+https://screenrant.com/witcher-3-songs-of-the-past-release-date/
+
+CD Projekt RED has used the stage offered by Gamescom 2026 to announce the official trailer for The Witcher 3’s third and final DLC.
+---------
+
+# How To Romance Multiple Partners In Baldur’s Gate 3
+
+Gaming, Baldur's Gate, Baldur's Gate 3
+
+Tue, 25 Aug 2026 20:00:16 GMT
+
+https://screenrant.com/baldurs-gate-3-romance-multiple-partners/
+
+Just like in real life, romancing multiple partners in Baldur's Gate 3 takes communication, trust, and a bit of maneuvering to make everyone happy.
+---------
+
+# 5 Years After Foundation, Apple TV Is Entering A New Era Of Science Fiction
+
+Streaming TV, Apple TV
+
+Tue, 25 Aug 2026 20:00:15 GMT
+
+https://screenrant.com/apple-tv-new-sci-fi-era-neuromancer/
+
+Five years after Foundation premiered, Apple TV is bringing another science fiction story to life with Neuromancer, set to premiere in January 2027.
+---------
+
+# Gears of War: E-Day Could End Up Being Some People's GOTY
+
+Gaming, Gears of War, Triple-A Games, Gears of War: E-Day, Gamescom
+
+Tue, 25 Aug 2026 20:00:15 GMT
+
+https://screenrant.com/hands-on-gears-of-war-e-day-campaign/
+
+Gears of War: E-Day is aiming to finally let us experience Emergence Day, and based on our campaign preview, it's shaping up to be something special.
+---------
+
+# Final Fantasy 7 Revelation Gets Official Release Date Update In Jaw-Dropping New Trailer
+
+Gaming, Final Fantasy VII Revelation, Final Fantasy, Gamescom
+
+Tue, 25 Aug 2026 19:58:27 GMT
+
+https://screenrant.com/final-fantasy-7-revelation-release-date-gamescom-trailer/
+
+Final Fantasy 7 Revelation got a new trailer at Gamescom 2026, revealing new information on its upcoming release date in 2027 and more.
+---------
+
+# Stranger Things Officially Introduces Vecna's Replacement
+
+Streaming TV, Stranger Things: Tales from '85, Stranger Things
+
+Tue, 25 Aug 2026 19:58:14 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-season-2-ghost-vecna-replacement/
+
+Stranger Things: Tales From '85 is coming back in the fall of 2026, and it's introducing its official Vecna replacement, but with a twist.
+---------
+
+# Will Smith’s Bel-Air Reboot Sets New Spinoff Series To Make Streaming History
+
+TV, Bel-Air
+
+Tue, 25 Aug 2026 19:57:21 GMT
+
+https://screenrant.com/bel-air-reboot-spinoff-hilary-development-peacock-history/
+
+After 2022's Bel-Air rebooted the classic The Fresh Prince of Bel-Air, Peacock has now announced a history-making streaming spinoff series.
+---------
+
+# 10 Anime Series Where the Villain Wins
+
+Anime, Attack on Titan, Devilman Crybaby, Cyberpunk: Edgerunners, Berserk
+
+Tue, 25 Aug 2026 20:15:11 GMT
+
+https://www.cbr.com/anime-series-where-the-villain-wins/
+
+In these shocking anime series, the story takes a dark turn where the villain comes out as the winner.
+---------
+
+# Warlock: Dungeons & Dragons First-Look Preview, No Spell Slots Required
+
+Games, Dungeons and Dragons, Video Games, Tabletop
+
+Tue, 25 Aug 2026 20:05:11 GMT
+
+https://www.cbr.com/warlock-dnd-first-look-preview-eldritch-blast/
+
+CBR finally saw Warlock: Dungeons & Dragons' gameplay ahead of Gamescom 2026, witnessing Kaatri’s magical prowess and Eldritch Blasts in action.
+---------
+
+# Reacher Lands New Physical Release Today From Prime Video Following Season 4 Premiere
+
+TV, Reacher
+
+Tue, 25 Aug 2026 20:03:39 GMT
+
+https://www.cbr.com/reacher-season-3-physical-bluray-dvd-release/
+
+Reacher gets physical amid the show's fourth season on Prime Video.
+---------
+
+# Indiana Jones’ Forgotten Sequel Officially Returns With New Adventures
+
+Comics, Indiana Jones
+
+Tue, 25 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/indiana-jones-further-adventures-facsimilie-edition-release-dates/
+
+Indiana Jones is making a comeback, and a deluxe new release is ready to celebrate his return in style.
+---------
+
+# 6 Margaret Atwood Books Better Than The Handmaid’s Tale
+
+TV, The Handmaid's Tale, margaret atwood
+
+Tue, 25 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/margaret-atwood-books-better-than-the-handmaids-tale-list/
+
+From surreal debut anxieties to bioengineered apocalypse, these books trace Margaret Atwood's restless, genre-defying imagination.
+---------
+
+# Dungeons & Dragons Video Game Returns To Ravenloft In 2027Dungeons & Dragons' Best Setting Is Officially Getting a New Video Game in 2027
+
+Games, Dungeons and Dragons, Video Games, Dungeons & Dragons
+
+Tue, 25 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/dungeons-dragons-best-setting-officially-new-video-game-2027/
+
+Warlock: Dungeons & Dragons is a video game that will trap players in one of the most beloved horror settings from the tabletop RPG in 2027.
+---------
+
+# The Dark Lord of the Rings Sequel J.R.R. Tolkien Never Wanted You to Read
+
+Movies, The Lord of the Rings, Fantasy
+
+Tue, 25 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/lord-of-the-rings-dark-sequel-tolkien-canceled/
+
+Most Lord of the Rings fans don't know about the surprisingly dark sequel that JRR Tolkien buried.
+---------
+
+# Warner Bros. & Ryan Gosling Developing Live-Action Reboot of Classic 66-Year-Old Sitcom
+
+Movies, The Flintstones, Comedy
+
+Tue, 25 Aug 2026 19:55:01 GMT
+
+https://www.cbr.com/ryan-gosling-flintstones-movie-bamm-bamm/
+
+Ryan Gosling is putting a new spin on a fan-favorite animated series.
+---------
+
+# Ryan Gosling Is Officially Rebooting 'The Flintstones'
+
+Movie News, Ryan Gosling, Flintstones, Warner Bros., Project Hail Mary
+
+Tue, 25 Aug 2026 19:57:02 GMT
+
+https://collider.com/ryan-gosling-live-action-flintstones-reboot-bamm-bamm-movie/
+
+Ahead of Ghost Rider and Star Wars: Starfighter, Ryan Gosling is now set to revive The Flintstones for a new live-action movie.
+---------
+
+# This 18-Year-Old Crime Thriller Is Secretly the Perfect 'Mindhunter' Replacement
+
+Features, The Mentalist, Mindhunter, Netflix
+
+Tue, 25 Aug 2026 20:00:14 GMT
+
+https://movieweb.com/the-mentalist-perfect-mindhunter-replacement-show/
+
+'Mindhunter' is a beloved Netflix thriller about the FBI Behavioral Science Unit, and fans will want to watch this crime thriller TV series.
+---------
+
+# Taylor Sheridan's New 10/10 Action Thriller Faces Its Toughest Battle Yet on Streaming
+
+TV News, Lioness, Reacher, Streamer Comparisons, Action, Prime Video
+
+Tue, 25 Aug 2026 20:00:14 GMT
+
+https://movieweb.com/lioness-taylor-sheridan-alan-ritchson-reacher-action-stream-prime-video/
+
+Taylor Sheridan's three-part action thriller isn't going down without a fight.
+---------
+
 # NCIS Season 24 Reveals First Look At Michael Weatherly’s Tony DiNozzo Return After Spinoff Cancellation
 
 TV, NCIS, Michael Weatherly
