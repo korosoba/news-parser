@@ -1,3 +1,201 @@
+# NCIS Season 24 Reveals First Look At Michael Weatherly’s Tony DiNozzo Return After Spinoff Cancellation
+
+TV, NCIS, Michael Weatherly
+
+Tue, 25 Aug 2026 19:47:50 GMT
+
+https://screenrant.com/ncis-season-24-michael-weatherly-tony-dinozzo-return/
+
+Michael Weatherly is reprising Tony DiNozzo in NCIS season 24, and the first official look at his return to the CBS procedural has been released.
+---------
+
+# The Best WWII Series Since Band Of Brothers Returns For Streaming Redemption
+
+TV, Masked Recs
+
+Tue, 25 Aug 2026 19:43:08 GMT
+
+https://screenrant.com/sas-rogue-heroes-show-streaming-success-prime-video-august-2026/
+
+The best World War II series since HBO's Band of Brothers has returned for streaming redemption several years after its original release.
+---------
+
+# Ryan Gosling & Warner Bros Developing New Live-Action Flintstones Reboot
+
+Movies, The Flintstones
+
+Tue, 25 Aug 2026 19:42:10 GMT
+
+https://screenrant.com/the-flintstones-bamm-bamm-movie-reboot-warner-bros-ryan-gosling/
+
+The Flintstones franchise is about to get new life as Ryan Gosling and Warner Bros. are in the early stages of developing a live-action reboot.
+---------
+
+# Philip K. Dick Meets Black Mirror In Prime Video's 10-Part Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Tue, 25 Aug 2026 19:30:14 GMT
+
+https://screenrant.com/electric-dreams-philip-k-dick-meets-black-mirror-prime-video-sci-fi/
+
+A star-studded single-season experiment reworked the stories of a foundation sci-fi author into unmissable anthology sci-fi television.
+---------
+
+# Lord Of The Rings Meets Elden Ring In New Open-World RPG From Genshin Impact Studio
+
+Gaming, RPG, Gamescom, PC
+
+Tue, 25 Aug 2026 19:25:04 GMT
+
+https://screenrant.com/lord-of-rings-elden-ring-new-open-world-rpg-genshin-impact/
+
+A brand-new open-world RPG developed by HoYoverse, the creators of Genshin Impact, is on its way, carrying elements of soulslike gameplay.
+---------
+
+# 7 Years After The Rise Of Skywalker, Star Wars Confirms Emperor Palpatine's Best Replacement
+
+Star Wars, Star Wars: Episode IX - The Rise of Skywalker, Ahsoka
+
+Tue, 25 Aug 2026 19:20:15 GMT
+
+https://screenrant.com/star-wars-confirms-thrawn-is-best-emperor-palpatine-replacement-ahsoka-season-2/
+
+Seven years after The Rise of Skywalker and Emperor Palpatine's return, Star Wars officially confirms the resurrected Sith Lord's best replacement.
+---------
+
+# Insidious Timeline Explained: What Happened In Every Movie, Including The Red Door
+
+Movies, Insidious, Insidious: The Red Door
+
+Tue, 25 Aug 2026 19:20:15 GMT
+
+https://screenrant.com/insidious-timeline-movies-recap-red-door-explained/
+
+The Red Door revives the Insidious horror series, but there is still time to make sense of the Insidious franchise's convoluted timeline so far.
+---------
+
+# Fallout 5 Be Damned, We're Officially Getting The Next Best Thing
+
+Gaming, Metro 2039, Gamescom
+
+Tue, 25 Aug 2026 19:17:33 GMT
+
+https://screenrant.com/metro-2039-gameplay-trailer-fallout-vibes/
+
+Who needs Fallout 5? A brand-new post-apocalyptic shooter is on the way, and it looks absolutely incredible.
+---------
+
+# 31-Year-Old SNES RPG Classic Officially Returns With New 2027 Release
+
+Games, Nintendo
+
+Tue, 25 Aug 2026 19:47:11 GMT
+
+https://www.cbr.com/snes-rpg-new-release-31-years-2027/
+
+One of the most beloved cult classic RPGs from the Super Nintendo era seems to be returning next year, and fans can hardly wait for it.
+---------
+
+# Stephen King-Approved Psychological Drama Finally Returns Ahead of New HBO Episodes
+
+TV, Big Little Lies
+
+Tue, 25 Aug 2026 19:42:12 GMT
+
+https://www.cbr.com/big-little-lies-book-sequel-big-little-truths/
+
+The series will officially continue with a new season.
+---------
+
+# Marvel Confirms a Fantastic Four MCU Prequel
+
+Comics, Marvel, Marvel Comics, Fantastic Four, MCU, The Fantastic Four: First Steps
+
+Tue, 25 Aug 2026 19:41:47 GMT
+
+https://www.cbr.com/marvel-confirms-fantastic-four-mcu-prequel/
+
+The First Family of Marvel is officially getting a prequel story.
+---------
+
+# Official New Berserk-Inspired Release Hits PS5 Soon
+
+Anime, Berserk, ps5
+
+Tue, 25 Aug 2026 19:20:11 GMT
+
+https://www.cbr.com/berserk-tides-of-annihilation-release/
+
+A stunning new action-adventure PS5 game inspired by the critically acclaimed dark fantasy series Berserk is coming soon.
+---------
+
+# Jake Gyllenhaal’s 25-Year-Old Cult Classic Sci-Fi Officially Returns With New Sequel
+
+Movies, Donnie Darko, Sci-Fi
+
+Tue, 25 Aug 2026 19:19:35 GMT
+
+https://www.cbr.com/donnie-darko-sequel-the-philosophy-of-time-travel/
+
+Donnie Darko is finally getting a sequel, though not how fans expected.
+---------
+
+# Marvel’s Biggest 2026 Blockbuster Officially Sets Its Sights on ‘Avatar 2’
+
+Movie News, Spider-Man: Brand New Day, Titanic, Marvel, Box Office
+
+Tue, 25 Aug 2026 19:45:11 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-titanic-fourth-highest-grossing-movie/
+
+Tom Holland’s Spider-Man: Brand New Day officially passes Titanic to become the fourth biggest movie of all time.
+---------
+
+# 7 Biggest Sleeper Hit Movies of 2026, Ranked
+
+Movie, Obsession, Backrooms, Iron Lung, The Amazing Digital Circus
+
+Tue, 25 Aug 2026 19:44:11 GMT
+
+https://collider.com/2026-movies-sleeper-hits/
+
+2026 has been a great year for sleeper hits, with films like Iron Lung, Backrooms, and Obsession among the biggest surprises in years.
+---------
+
+# 10 Essential PS5 Games Every Fan Must Play
+
+Gaming, Video Game, The Last Of Us Part II Remastered, PlayStation 5, Final Fantasy VII Remake
+
+Tue, 25 Aug 2026 19:24:11 GMT
+
+https://collider.com/essential-ps5-games-every-fan-must-play/
+
+The PS5 is among the most popular consoles in the video game industry, with many exclusive titles like Horizon Forbidden West and Marvel's Spider-Man.
+---------
+
+# Hulu's 10/10 'Handmaid's Tale' Replacement Officially Sets Up 2027 Return
+
+TV News, The Testaments, The Handmaid's Tale, Chase Infiniti, Hulu
+
+Tue, 25 Aug 2026 19:16:55 GMT
+
+https://collider.com/hulu-handmaids-tale-spin-off-the-testaments-season-2-filming-start/
+
+Hulu has officially confirmed that Season 2 of its hit Handmaid's Tale spin-off, The Testaments, has taken a massive step forward.
+---------
+
+# ‘Marvel’s Wolverine’ Officially Answers One of Fans’ Biggest Questions
+
+Gaming News, The Wolverine, Marvel, Insomniac Games, Liam McIntyre
+
+Tue, 25 Aug 2026 19:15:11 GMT
+
+https://collider.com/marvels-wolverine-total-outfit-count-32-suits/
+
+Insomniac Games has finally confirmed exactly how many outfits will be featured in the new Wolverine game coming out on September 15.
+---------
+
 # Extinct: Prime Video's 83%-Rated Sci-Fi Thriller Deserves A Binge 9 Years Later
 
 Streaming TV, Masked Recs
