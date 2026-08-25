@@ -1,3 +1,179 @@
+# 10 Greatest Fantasy Miniseries Of All Time
+
+Classic TV, Fantasy
+
+Tue, 25 Aug 2026 00:50:15 GMT
+
+https://screenrant.com/best-fantasy-miniseries-all-time/
+
+These fantasy miniseries are the best of the best, drawing the audience in and thrilling them with their tightly crafted plotlines & vivid characters.
+---------
+
+# 10 DC Comics To Read After Watching Lanterns
+
+Comics, Green Lantern, Lanterns, DC Comics
+
+Tue, 25 Aug 2026 00:30:15 GMT
+
+https://screenrant.com/best-dc-comics-read-after-watching-lanterns/
+
+In brightest day, in blackest night, don't let these comics escape your sight
+---------
+
+# Every Spider-Man Ever, Ranked: All 60 Versions From Weakest to Strongest
+
+Comics, Spider-Man
+
+Tue, 25 Aug 2026 00:00:15 GMT
+
+https://screenrant.com/spiderman-every-version-ranked-weakest-powerful/
+
+Marvel has created dozens of different versions of Spider-Man over the years, but which variant, successor, or clone is the most powerful of them all?
+---------
+
+# Stephen King Meets H.P. Lovecraft In Ridley Scott's 3-Part Supernatural Horror Series
+
+Streaming TV, Masked Recs
+
+Tue, 25 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/the-terror-ridley-scott-horror-stephen-king-meets-hp-lovecraft/
+
+A chilling AMC anthology that weaves cosmic dread and intimate psychological terror across three distinct and equally terrifying tales.
+---------
+
+# Roald Dahl Meets Tolkien In This 10-Part Fantasy Series
+
+Streaming TV, Masked Recs
+
+Mon, 24 Aug 2026 23:45:14 GMT
+
+https://screenrant.com/over-the-garden-wall-fantasy-roald-dahl-meets-tolkien/
+
+One of the best fantasy TV shows of all time is Over the Garden Wall, a perfect mix of the best elements of Roald Dahl and Tolkien's worlds.
+---------
+
+# Batman: Caped Crusader Takes on Noir Versions of Classic Villains
+
+Comics, Batman: Caped Crusader, CSBG, The Line It Is Drawn
+
+Tue, 25 Aug 2026 00:45:29 GMT
+
+https://www.cbr.com/batman-caped-crusader-noir-versions-classic-villains/
+
+In a brand-new Line it is Drawn, see our artists draw your suggestions for noir versions of classic villains in the Batman: Caped Crusader universe
+---------
+
+# 5 RPGs That Reward Players for Failing
+
+Games, Role Playing Game, Disco Elysium, Darkest Dungeon, Video Games
+
+Tue, 25 Aug 2026 00:45:11 GMT
+
+https://www.cbr.com/rpgs-that-reward-player-failure/
+
+Some RPGs reward players who learns from their mistakes with narrative content or the lessons required to progress through brutal worlds.
+---------
+
+# No Crunchyroll Required: Jujutsu Kaisen Movie Is About to Arrive on Hulu
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen 0, Hulu
+
+Tue, 25 Aug 2026 00:35:11 GMT
+
+https://www.cbr.com/jujutsu-kaisen-0-hulu-streaming-release-date/
+
+The movie comes to the streaming platform five years after its theatrical release.
+---------
+
+# David Duchovny’s 101-Minute Sci-Fi Cult Classic Is 1 of the Most-Streamed Movies in the World
+
+Movies, Evolution, Sci-Fi, HBO Max
+
+Tue, 25 Aug 2026 00:30:11 GMT
+
+https://www.cbr.com/evolution-sci-fi-success-hbo-max-august-2026/
+
+A cult classic sci-fi starring The X-Files star is exploding on streaming.
+---------
+
+# 35 Years Later, T2's Edward Furlong Has Rare Reunion With Terminator Parents
+
+Movies, Terminator 2: Judgment Day
+
+Tue, 25 Aug 2026 00:29:40 GMT
+
+https://www.cbr.com/terminator-2-reunion-edward-furlong-linda-hamilton-35-years-later/
+
+The machine that tried to terminate John Connor also appears in the new "family photo."
+---------
+
+# 10 Greatest Anime With Fewer Than 20 Episodes
+
+Anime, Death Parade, Cyberpunk: Edgerunners
+
+Tue, 25 Aug 2026 00:15:11 GMT
+
+https://www.cbr.com/greatest-anime-fewer-than-20-ep/
+
+Not every great anime needs hundreds of episodes to prove itself, and these exceptional series manage to do it in 20 episodes or less.
+---------
+
+# Insidious 6 Finally Breaks a Major Franchise Curse After 16 Years
+
+Movies, Insidious
+
+Tue, 25 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/insidious-6-best-movie-in-franchise/
+
+Horror fans were torn about Insidious: Out of the Further, but the 6th Insidious installment finally proves the series is ready to franchise.
+---------
+
+# 10 X-Men Teams That Were Better Than the Original X-Men, Ranked
+
+Comics, X-Men
+
+Tue, 25 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/x-men-teams-better-than-the-original-ranked/
+
+The X-Men might be the one time fans don't want to go back to the original team.
+---------
+
+# LEGO Gives Avengers: Doomsday Trailer a Shot-for-Shot Recreation
+
+Movies, Avengers: Doomsday
+
+Mon, 24 Aug 2026 23:50:59 GMT
+
+https://www.cbr.com/lego-avengers-doomsday-trailer-remake/
+
+The Avengers: Doomsday trailer officially gets the LEGO treatment.
+---------
+
+# Indiana Jones Replacement Franchise Is Officially Getting a Sequel
+
+Movie News, National Treasure 3, National Treasure, Nicolas Cage, Jon Turteltaub
+
+Tue, 25 Aug 2026 00:30:11 GMT
+
+https://collider.com/national-treasure-3-nicolas-cage-jon-turteltaub-confirmed/
+
+National Treasure 3 is finally moving forward, with director Jon Turteltaub confirming a new script and plans for Nicolas Cage’s return.
+---------
+
+# Vin Diesel's $7 Billion Franchise Starter Officially Topples Disney's Most Frustrating Sci-Fi Movie
+
+Movie News, Vin Diesel, The Fast and the Furious, Tomorrowland, Box Office
+
+Tue, 25 Aug 2026 00:00:11 GMT
+
+https://collider.com/the-fast-and-the-furious-25th-anniversary-box-office-vin-diesel/
+
+Vin Diesel's $7 Billion Franchise Starter Officially Topples Disney's Most Frustrating Sci-Fi Movie
+---------
+
 # DC Officially Reveals Supergirl’s New Black and Blue Costume
 
 DC Comics, Supergirl
