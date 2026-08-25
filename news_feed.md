@@ -1,3 +1,80 @@
+# Zelda: Ocarina Of Time Remake Release Date Appears Online Ahead Of Official Reveal
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Tue, 25 Aug 2026 09:44:50 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-release-date-leaks-december-2026/
+
+A shocking leak reveals the Ocarina of Time remake release date. Speculation mounts ahead of a likely September Nintendo Direct showcase.
+---------
+
+# James Bond Officially Returns This Year With Our Newest 007
+
+Gaming, James Bond, 007 First Light
+
+Tue, 25 Aug 2026 09:38:46 GMT
+
+https://screenrant.com/james-bond-first-light-new-007-adventures/
+
+Explore 007: First Light, a game delving into Bond's origins that promises new and exciting content later this year.
+---------
+
+# Skyrim: How to Complete Dreams of the Dead (Quest Guide)
+
+Gaming, PC, The Elder Scrolls V: Skyrim, The Elder Scrolls
+
+Tue, 25 Aug 2026 09:37:17 GMT
+
+https://screenrant.com/skyrim-dreams-dead-quest-walkthrough-puzzle-guide/
+
+Gallow's Hall is a new player home in Skyrim Anniversary Edition that players can have access to once they complete the quest, "Dreams of the Dead."
+---------
+
+# 5 Open World Games You Can Explore Forever
+
+Gaming, The Legend of Zelda: Breath of the Wild
+
+Tue, 25 Aug 2026 09:30:20 GMT
+
+https://screenrant.com/5-open-world-games-you-can-explore-forever/
+
+If you're looking to get truly lost in an open world game that refuses to hold your hand, you might want to check out one of these excellent titles.
+---------
+
+# 23 Years Later, This Western Thriller Is Officially Finding New Life on Streaming
+
+Movie Features, The Missing, Tommy Lee Jones, Cate Blanchett, Ron Howard
+
+Tue, 25 Aug 2026 09:42:11 GMT
+
+https://collider.com/the-missing-tommy-lee-jones-cate-blanchett-western-streaming-tubi-august-2026/
+
+2003's The Missing, which stars Tommy Lee Jones and Cate Blanchett as an estranged family who reunite to save her child, is a streaming hit on Tubi.
+---------
+
+# Jason Statham’s New Movie Leaks Online Days Before Its $7.5 Million Debut
+
+Movie News, Jason Statham, Mutiny, Box Office, Annabelle Wallis
+
+Tue, 25 Aug 2026 09:30:11 GMT
+
+https://collider.com/jason-statham-mutiny-box-office-debut-piracy-leak/
+
+Jason Statham's new movie, Mutiny, opened in theaters after being illegally leaked online, which has impacted its box office performance.
+---------
+
+# Netflix's 10/10 "John Wick Meets James Bond" Action Thriller Series Confirms 2026 Return
+
+TV News, Netflix, Black Doves, Action, Thriller
+
+Tue, 25 Aug 2026 09:47:57 GMT
+
+https://movieweb.com/netflix-black-doves-season-2-release-date/
+
+The wait is almost over.
+---------
+
 # Steam Makes Excellent Pokémon Clone 100% Free For 24 Hours
 
 Gaming, Steam, Pokemon
