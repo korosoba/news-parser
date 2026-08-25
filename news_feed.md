@@ -1,3 +1,113 @@
+# Guy Ritchie Meets Taylor Sheridan In J.K. Simmons And Titus Welliver's 8-Part Crime Drama
+
+Streaming TV, Masked Recs
+
+Tue, 25 Aug 2026 22:45:14 GMT
+
+https://screenrant.com/the-westies-guy-ritchie-meets-taylor-sheridan-family-drama/
+
+Guy Ritchie's slick gangster thriller style and Taylor Sheridan's family-oriented dramatics combine together perfectly in MGM+'s The Westies.
+---------
+
+# Major Godzilla Villain Officially Confirmed for Next Appearance
+
+Comics, Godzilla
+
+Tue, 25 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/godzilla-king-ghidorah-marvel-universe/
+
+King Ghidorah is coming...
+---------
+
+# Dr. John Carter's 10 Best ER Episodes
+
+Classic TV, ER
+
+Tue, 25 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/dr-john-carters-10-best-er-episodes-ranked/
+
+Noah Wyle appeared in more episodes of NBC's ER than any other series regular, and some of those episodes stand out among all the rest in 2026.
+---------
+
+# 5 '80s Sitcoms Better Than Cheers
+
+Classic TV, Cheers
+
+Tue, 25 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/1980s-sitcoms-better-than-cheers/
+
+There are many '80s sitcoms that deserve a place in the comedy HOF, and everyone should know the names of the comedic gems that surpassed Cheers.
+---------
+
+# Dragon Ball Officially Brings Back DBZ's Greatest Rivalry
+
+Anime, Dragon Ball, weekly shonen jump
+
+Tue, 25 Aug 2026 22:20:11 GMT
+
+https://www.cbr.com/dbz-goku-vs-vegeta-rivalry-color-draft-page-release/
+
+Dragon Ball's official site releases a rare 37-year-old color page draft by Akira Toriyama that shows the power of an elite Saiyan.
+---------
+
+# Netflix’s 8-Episode Hidden Gem Is the Perfect Binge Before Its Season 2 Return
+
+TV Features, North of North, CBC Gem, Netflix, Comedy
+
+Tue, 25 Aug 2026 22:46:11 GMT
+
+https://collider.com/north-of-north-netflix-series-worth-watching-before-season-2/
+
+North of North returns for Season 2 after its acclaimed first season, giving Netflix viewers the perfect chance to catch up on the 8-episode series.
+---------
+
+# Bob Dylan Made a Lot of Fans Angry With This Controversial Performance
+
+Movie Features, Bob Dylan, Rock, Music
+
+Tue, 25 Aug 2026 22:21:11 GMT
+
+https://collider.com/bob-dylan-newport-folk-festival-electric-controversy/
+
+Bob Dylan made a last minute switch to electric at the 1965 Newport Folk Festival, shocking fans and changing folk music forever.
+---------
+
+# 5 Thor Moments That Prove Chris Hemsworth Is the True King of the MCU
+
+Movie, Thor: Ragnarok, Avengers: Infinity War, Avengers: Doomsday, Avengers: Endgame
+
+Tue, 25 Aug 2026 22:21:11 GMT
+
+https://collider.com/5-thor-moments-that-prove-chris-hemsworth-is-king-of-mcu/
+
+Every essential Chris Hemsworth performance as Thor, ranked ahead of Avengers: Doomsday.
+---------
+
+# 'Bourne' Director's Action Epic Confirmed as Robin Hood Prequel Ahead of Release
+
+Movie News, The Uprising
+
+Tue, 25 Aug 2026 22:38:16 GMT
+
+https://movieweb.com/the-uprising-robin-hood-prequel-film/
+
+Not only is the Andrew Garfield-led 'The Uprising' a dramatization of the Peasants' Revolt, but it is also a Robin Hood origin story.
+---------
+
+# Ryan Gosling Officially Rebooting Classic '60s Fantasy Adventure Franchise for Live-Action
+
+Movie News, Ryan Gosling, The Flintstones
+
+Tue, 25 Aug 2026 22:21:29 GMT
+
+https://movieweb.com/ryan-gosling-flintstones-reboot-live-action/
+
+Ryan Gosling is officially developing a live-action reboot of the 1960s animated series 'The Flintstones.'
+---------
+
 # 43 Years Later, The Most-Viewed TV Episode Ever Is Still The Greatest Finale
 
 Network TV, Masked Recs
