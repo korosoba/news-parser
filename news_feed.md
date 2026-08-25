@@ -1,3 +1,135 @@
+# HBO's New Harry Potter Season 2 Actor Played The Same Role Only One Year Ago
+
+Streaming TV, Harry Potter
+
+Tue, 25 Aug 2026 23:15:14 GMT
+
+https://screenrant.com/harry-potter-kit-harington-gilderoy-lockhart-audiobook/
+
+Kit Harington is set to reprise his role as Gilderoy Lockhart from the Harry Potter audiobooks, but this time in the live-action HBO series.
+---------
+
+# 2 Years Later, One Of The Best Modern War Movies Is Available On YouTube For Free
+
+Movies, Masked Recs
+
+Tue, 25 Aug 2026 23:07:55 GMT
+
+https://screenrant.com/civil-war-movie-streaming-free-youtube/
+
+Saving Private Ryan, Casablanca, Schindler's List, and more are classics, but it is one of the best modern war movies that is now streaming for free.
+---------
+
+# The Pitt’s Winning Formula Changes Addressed By Star Ahead Of Season 3 Return
+
+TV, The Pitt, Shawn Hatosy, HBO Max
+
+Tue, 25 Aug 2026 23:01:23 GMT
+
+https://screenrant.com/the-pitt-season-3-winning-formula-changes-shawn-hatosy-addressed/
+
+Shawn Hatosy addresses the chances of The Pitt changing its winning formula as the HBO Max medical drama gears up for its season 3 return.
+---------
+
+# Hulu’s 6-Part Knives Out Replacement Just Got More Similar To Daniel Craig's Murder Mystery
+
+TV, Masked Recs
+
+Tue, 25 Aug 2026 23:00:15 GMT
+
+https://screenrant.com/only-murders-title-change-knives-out-problem/
+
+A major change to Hulu's Only Murders in the Building just brought it even closer to the Rian Johnson murder mystery franchise Knives Out.
+---------
+
+# Star Trek Debuts Captain Kirk's Greatest Ship Design of All Time
+
+Comics, Star Trek
+
+Tue, 25 Aug 2026 23:00:15 GMT
+
+https://screenrant.com/star-trek-captain-kirk-best-ship-design-omega/
+
+The U.S.S. Omega has a terrifying new look.
+---------
+
+# Pacific Rim Meets Battlefield In Huge New Kaiju Game
+
+Gaming, Pacific Rim, Battlefield, PC, Steam
+
+Tue, 25 Aug 2026 23:00:15 GMT
+
+https://screenrant.com/pacific-rim-meets-battlefield-new-kaiju-game/
+
+Epic kaiju battles in giant mech suits coupled with Battlefield's huge scale combine in this massive new action title.
+---------
+
+# Seven of Nine's Greatest Star Trek: Voyager Line Hits 10x Harder 28 Years Later
+
+TV, Star Trek: Voyager, Sci-Fi, Paramount
+
+Tue, 25 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/star-trek-voyager-most-important-line-seven-of-nine/
+
+Seven of Nine's iconic line exposes the complex struggle between personal freedom and societal expectations, resonating stronger than ever.
+---------
+
+# Chris Pratt’s 7-Part Action Prequel Surges on Streaming as U.S. Favorite
+
+TV, The Terminal List: Dark Wolf, The Terminal List, Prime Video
+
+Tue, 25 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/the-terminal-list-dark-wolf-chris-pratt-action-prime-video-success-august-2026/
+
+The hit spinoff is rising on the streaming charts.
+---------
+
+# The 10 Greatest Sci-Fi Action Movies of the 21st Century, Ranked
+
+Movies, Sci-Fi, Action
+
+Tue, 25 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/best-sci-fi-action-movies-of-21st-century-list/
+
+Sci-fi action movies are a fan-favorite genre mash-up, and it has produced some of the most spectacular movies of the 21st century.
+---------
+
+# PlayStation Plus Free Monthly Games for September 2026 Revealed Early
+
+Games, PlayStation 5
+
+Tue, 25 Aug 2026 23:00:10 GMT
+
+https://www.cbr.com/playstation-plus-free-monthly-games-september-2026/
+
+Three titles will be available to claim for free for PS Plus subscribers next month.
+---------
+
+# The 10 Best MCU Character Entrances of All Time, Ranked
+
+Movie, MCU, Superhero, Marvel, Thor: Ragnarok
+
+Tue, 25 Aug 2026 23:15:11 GMT
+
+https://collider.com/best-mcu-character-entrances-ranked/
+
+The best character entrances in MCU history include unforgettable scenes from movies like Thor: Ragnarok, The Avengers, and Iron Man.
+---------
+
+# Andrew Garfield's New Movie Is a "Game of Thrones Meets Jason Bourne" Historical Action Thriller
+
+Features, The Uprising, Thriller, Andrew Garfield
+
+Tue, 25 Aug 2026 23:00:14 GMT
+
+https://movieweb.com/the-uprising-andrew-garfield-historical-action-thriller/
+
+Andrew Garfield teams with 'Bourne Identity' director Paul Greengrass to tell a thrilling historical story that will appeal to 'Game of Thrones' fans.
+---------
+
 # Guy Ritchie Meets Taylor Sheridan In J.K. Simmons And Titus Welliver's 8-Part Crime Drama
 
 Streaming TV, Masked Recs
