@@ -1,3 +1,278 @@
+# Hayden Panettiere’s 10 Best Roles To Remember Her By
+
+TV, Hayden Panettiere
+
+Tue, 25 Aug 2026 15:30:14 GMT
+
+https://screenrant.com/hayden-panettiere-best-movies-tv-shows-tribute/
+
+Following Hayden Panettiere’s tragic death, here are the best movie and TV performances of her career, which help keep her legacy alive.
+---------
+
+# The Movie That Hollywood Tried To Kill Releases In Theaters This Week
+
+Movies, Masked Recs
+
+Tue, 25 Aug 2026 15:30:14 GMT
+
+https://screenrant.com/coyote-vs-acme-movie-release-august-28-2026/
+
+Against all odds, the movie that Hollywood tried to kill is finally getting a theatrical release this week. Will the troubled flick actually be a hit?
+---------
+
+# 10 Disney Movies You Need To Rewatch Before Their Upcoming Sequels
+
+Movies, Disney
+
+Tue, 25 Aug 2026 15:22:23 GMT
+
+https://screenrant.com/disney-movies-rewatch-before-sequels/
+
+From Frozen 2 to National Treasure: Book of Secrets, these Disney movies are worth revisiting before their upcoming sequels arrive
+---------
+
+# Dungeon Crawler Carl's New Release Is Here, And It's Officially A Major Hit
+
+Comics, Dungeon Crawler Carl
+
+Tue, 25 Aug 2026 15:08:56 GMT
+
+https://screenrant.com/dungeon-crawler-carl-special-edition-top-10-list/
+
+Dinniman’s Dungeon Crawler Carl has plenty more to come, but fans shouldn’t wait for the next book or TV series to discover its latest surprise hit.
+---------
+
+# Samuel L. Jackson Has The Perfect Alibi In Just Play Dead Clip
+
+Exclusive, Just Play Dead, Samuel L. Jackson, Eva Green
+
+Tue, 25 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/video/just-play-dead-samuel-l-jackson-eva-green-clip/
+
+Exclusive: ScreenRant presents a clip from Just Play Dead, an adventure film starring Samuel L. Jackson and Eva Green as an unhappily married couple.
+---------
+
+# A Classic James Bond Release Is Returning After 65 Years, And We Have The First Look (Exclusive)
+
+Comics, James Bond
+
+Tue, 25 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/classic-james-bond-ian-fleming-signature-comic-return/
+
+Revisit Casino Royale through Goldfinger and more in this stunning new James Bond release that is returning to a classic format after 65 years.
+---------
+
+# With One Line, The Walking Dead Admits The Franchise Has Changed
+
+Streaming TV, The Walking Dead
+
+Tue, 25 Aug 2026 15:00:15 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-food-line-change/
+
+The Walking Dead franchise is almost unrecognizable from the early days of the main show, and one Dead City line perfectly sums up why.
+---------
+
+# Spider-Man: Brand New Day Breaks All-Time Marvel Box Office Record In Just One Month
+
+Movies, Box Office, Spider-Man: Brand New Day
+
+Tue, 25 Aug 2026 14:43:34 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-mcu-highest-grossing-domestic-movie-record/
+
+As Spider-Man: Brand New Day draws close to the end of its first month in theaters, it breaks a huge all-time box office record for the MCU.
+---------
+
+# The Walking Dead Sets Exciting New Release With Andrew Lincoln's Rick Grimes This October
+
+TV, The Walking Dead, The Walking Dead: The Ones Who Live
+
+Tue, 25 Aug 2026 14:42:05 GMT
+
+https://screenrant.com/the-walking-dead-the-ones-who-live-bluray-release-date/
+
+Andrew Lincoln’s Rick Grimes was central to The Walking Dead for years, and the protagonist is now getting an exciting new release this fall.
+---------
+
+# Ella Purnell's 6-Part Fallout Replacement Show Quietly Delayed After 2-Year Wait
+
+TV, Sweetpea
+
+Tue, 25 Aug 2026 15:30:42 GMT
+
+https://www.cbr.com/ella-purnell-sweetpea-season-2-release-window-delayed/
+
+Fallout star Ella Purnell's twisted comedy thriller series has been quietly delayed, and fans will have to wait until 2027 to see Season 2.
+---------
+
+# The 8-Part Netflix Gothic Horror Series Stephen King Called a 10/10 Masterpiece
+
+TV, The Fall of the House of Usher, Horror, Netflix, Innovation
+
+Tue, 25 Aug 2026 15:30:11 GMT
+
+https://www.cbr.com/netflix-the-fall-of-the-house-of-usher-stephen-king-recommends/
+
+Even Stephen King thinks Netflix's adaptation of Edgar Allan Poe's classic gothic horror story is too good to miss.
+---------
+
+# 5 One Piece Arcs That Are 10/10, No Notes
+
+Anime, One Piece
+
+Tue, 25 Aug 2026 15:15:11 GMT
+
+https://www.cbr.com/one-piece-arcs-perfect-no-notes/
+
+The best One Piece arcs balance action, storytelling, and character development perfectly, and are nearly flawless.
+---------
+
+# NBC’s 7-Season Sitcom Masterpiece Announces Reunion Show After 13 Years
+
+TV, NBC, 30 Rock
+
+Tue, 25 Aug 2026 15:12:25 GMT
+
+https://www.cbr.com/nbc-30-rock-reunion-20th-anniversary/
+
+The series remains the benchmark for modern sitcoms.
+---------
+
+# James Bond Has the Best Villain as Lady Bird Star Campaigns for Role: 'I Want to Go Dark'
+
+Movies, James Bond
+
+Tue, 25 Aug 2026 15:06:45 GMT
+
+https://www.cbr.com/james-bond-26-saoirse-ronan-wants-villain-role/
+
+As casting for the next 007 remains underway, an acclaimed actor makes it known that she wants to play Bond 26's villain.
+---------
+
+# Lord of the Rings' Gandalf Has the Most Unforgettable Quote of All Time
+
+Movies, The Lord of the Rings, The Hobbit
+
+Tue, 25 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/lotr-the-hobbit-gandalf-best-quote-fantasy-history/
+
+The Lord of the Rings has a plethora of heartfelt and iconic lines with Gandalf having one of the most unforgettable quotes in fantasy cinema history
+---------
+
+# 5 Black Clover Manga Scenes Fans Can't Wait to See Animated
+
+Anime, Black Clover
+
+Tue, 25 Aug 2026 15:00:11 GMT
+
+https://www.cbr.com/black-clover-manga-scenes-fans-want-to-see-season-2/
+
+Some of the best moments from the Black Clover manga are yet to be animated, and fans can't wait to see them in Season 2.
+---------
+
+# It's Officially the End of an Era for 'Only Murders in the Building'
+
+TV News, Only Murders in the Building, Hulu, Selena Gomez, Martin Short
+
+Tue, 25 Aug 2026 15:26:16 GMT
+
+https://collider.com/only-murders-in-the-building-season-6-release-date/
+
+Only Murders in the Building Season 6 sets release date on Hulu, taking Selena Gomez, Steve Martin and Martin Short’s crime-solving trio to London.
+---------
+
+# 'The Witcher' Officially Confirms Post-Season 5 Release
+
+Gaming News, The Witcher, The Witcher 3: Wild Hunt, Netflix, CD Projekt Red
+
+Tue, 25 Aug 2026 15:25:11 GMT
+
+https://collider.com/the-witcher-season-4-release-window-2028/
+
+The Witcher officially confirms post-Season 5 release, with an epic new release coming from CD Projekt Red.
+---------
+
+# ‘Stranger Things’ Officially Returns With a New 8-Episode Season This September
+
+TV News, Stranger Things: Tales from '85, Netflix, Animation, Stranger Things
+
+Tue, 25 Aug 2026 15:23:27 GMT
+
+https://collider.com/stranger-things-tales-from-85-season-2-trailer-release-date/
+
+Watch the Stranger Things: Tales From ’85 Season 2 trailer as Netflix reveals ghosts, strange creatures and a September release date.
+---------
+
+# Forget ‘Ready or Not,’ Samara Weaving’s Best 2026 Thriller Is Officially Streaming [Exclusive]
+
+Movie News, Carolina Caroline, Samara Weaving, Kyle Gallner, Kyra Sedgwick
+
+Tue, 25 Aug 2026 15:00:12 GMT
+
+https://collider.com/carolina-caroline-sneak-peek-samara-weaving-kyle-gallner/
+
+Watch Samara Weaving learn the art of the con from Kyle Gallner in an exclusive clip from the crime romance Carolina Caroline.
+---------
+
+# 4-Time Oscar Nominee Officially Pitches James Bond Reboot Role
+
+Movie News, Saoirse Ronan, James Bond, Denis Villeneuve, Jack Lowden
+
+Tue, 25 Aug 2026 14:46:11 GMT
+
+https://collider.com/james-bond-reboot-villain-saoirse-ronan/
+
+4-time Oscar nominee Saoirse Ronan makes a bid to join the James Bond reboot as a new villain.
+---------
+
+# First James Bond Villain Candidate Emerges as Oscar Nominated Actor Is "Dead Serious" About Role
+
+Movie News, James Bond, Saoirse Ronan
+
+Tue, 25 Aug 2026 15:33:14 GMT
+
+https://movieweb.com/james-bond-villain-saoirse-ronan/
+
+Saoirse Ronan tells Empire she's 'dead serious' about playing the villain in Denis Villeneuve's 'James Bond' reboot as Jack Lowden circles 007.
+---------
+
+# 10 Actors Who Have Been in the Most Movies
+
+Movie Lists
+
+Tue, 25 Aug 2026 15:04:53 GMT
+
+https://movieweb.com/actors-with-most-movie-roles/
+
+These actors have dedicated their lives to the craft of acting, and that shows in the sheer number of films they have appeared in.
+---------
+
+# Matthew McConaughey & Woody Harrelson Are 'Brothers' in First Trailer for New Apple Series
+
+TV News, Brothers, Matthew McConaughey, Woody Harrelson, Apple TV
+
+Tue, 25 Aug 2026 14:40:08 GMT
+
+https://movieweb.com/brothers-apple-tv-trailer/
+
+The first trailer for Apple TV's 'Brothers' unites Matthew McConaughey and Woody Harrelson as themselves in a wild new comedy series.
+---------
+
+# James Gunn Sets the Record Straight on Major DCU Batman Reboot Rumor
+
+Movie News, James Gunn, DCU, Batman
+
+Tue, 25 Aug 2026 14:36:57 GMT
+
+https://movieweb.com/james-gunn-dcu-batman-reboot-rumor/
+
+James Gunn gives an official update on the major Batman rumor regarding the fate of 'The Brave and the Bold.'
+---------
+
 # Marvel Reportedly Fixing Direction For Disney's MCU Shows To Protect The Brand
 
 TV, Marvel Cinematic Universe, Disney+
