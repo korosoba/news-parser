@@ -1,3 +1,124 @@
+# 2026's New Batman Movie Is Officially Available To Watch At Home
+
+Movies, Batman: Knightfall Part 1: Knightfall, DC Universe
+
+Tue, 25 Aug 2026 10:09:50 GMT
+
+https://screenrant.com/batman-knightfall-part-1-movie-digital-home-release/
+
+DC's new adaptation of the seminal Knightfall arc finally brings Bane's terrifying plan and Batman's lowest moment to the screen. Watch it now.
+---------
+
+# New GTA 6 Gameplay Confirms Day/Night Cycle Is Shockingly Long
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Tue, 25 Aug 2026 10:05:59 GMT
+
+https://screenrant.com/gta-6-leaked-day-night-cycle-length/
+
+Discover how GTA 6's day/night cycle stretches to 144 minutes, enhancing gameplay and immersion.
+---------
+
+# The Best Dune: Part Two Line Is Already the Greatest Quote in Sci-Fi History
+
+Movies, Dune, Dune 2, Denis Villeneuve
+
+Tue, 25 Aug 2026 10:00:11 GMT
+
+https://www.cbr.com/dune-part-two-chani-line-greatest-quote-in-sci-fi-history/
+
+Denis Villeneuve's ambitious adaptation of Frank Herbert's Dune gets better with each passing film.
+---------
+
+# HBO's New Harry Potter Season 2 Cast Update Rewrites a 25-Year-Old Daniel Radcliffe Decision
+
+TV, Harry Potter, HBO Max
+
+Tue, 25 Aug 2026 10:00:11 GMT
+
+https://www.cbr.com/harry-potter-hbo-max-reboot-nicholas-hoult-casting/
+
+HBO Max's new Harry Potter reboot just cast a new character, undoing a twenty-five-year-old casting mistake.
+---------
+
+# HBO’s New Sci-Fi Series Officially Resurrects an Infamous Ryan Reynolds Flop
+
+Movie News, Green Lantern, Ryan Reynolds, DC, HBO Max
+
+Tue, 25 Aug 2026 10:30:11 GMT
+
+https://collider.com/green-lantern-ryan-reynolds-hbo-max-streaming-top-10-lanterns/
+
+Ryan Reynolds’ 25%-rated Green Lantern returns to HBO Max’s Top 10 15 years later amid the release of DC Studios’ new Lanterns series.
+---------
+
+# The 15 Most Calming Shows To Fall Asleep to, Ranked
+
+TV, New Girl, Community, Is It Cake?, Top 10
+
+Tue, 25 Aug 2026 10:27:11 GMT
+
+https://collider.com/shows-to-fall-asleep-calming-ranked/
+
+Some shows are perfect to watch when it's time to unwind or fall asleep with something on in the background, from Friends to Unsolved Mysteries.
+---------
+
+# 10 Fantasy Books Where Every Chapter Is a Masterpiece
+
+Books and Comics, Books, Fantasy, Game Of Thrones, The Hobbit
+
+Tue, 25 Aug 2026 10:23:11 GMT
+
+https://collider.com/fantasy-books-every-chapter-masterpiece/
+
+Books like The Hobbit, Prince of Thorns, and A Game of Thrones are virtually perfect, to the point where every chapter is a masterpiece on its own.
+---------
+
+# HBO’s Thriller Series That Inspired ‘Lanterns’ Is a 10/10 Crime Masterpiece
+
+TV Features, True Detective, HBO, Crime, Thriller
+
+Tue, 25 Aug 2026 10:08:11 GMT
+
+https://collider.com/lanterns-hbo-inspiration-true-detective-crime-thriller-masterpiece/
+
+HBO's Lanterns is already elevating the DCU, but it wouldn't have been possible without this 10/10 crime-thriller inspiration.
+---------
+
+# Stanley Kubrick Called This Crime Horror Movie the Most Terrifying Movie He'd Ever Seen
+
+Movie Features, The Vanishing, Stanley Kubrick, Prisoners
+
+Tue, 25 Aug 2026 10:06:11 GMT
+
+https://collider.com/the-vanishing-horror-movie-stanley-kubrick/
+
+George Sluizer's 1988 horror movie The Vanishing is so depraved and grim that Stanley Kubrick told the director how much it terrified him.
+---------
+
+# 5 Books to Read in Fall 2026 Before They Hit the Big Screen
+
+Books and Comics, The Dog Stars, The Love Hypothesis, Sense and Sensibility, Verity
+
+Tue, 25 Aug 2026 10:06:11 GMT
+
+https://collider.com/book-fall-2026-movie-adaptations/
+
+From Ali Hazelwood's romances to Colleen Hoover's psychological thrillers, read these book-to-movie adaptations before they're released as films.
+---------
+
+# ‘Grand Theft Auto VI’ Is Officially Coming to Netflix This Week, but There’s a Catch
+
+Video Games, Netflix, Grand Theft Auto, Video Game, Grand Theft Auto V
+
+Tue, 25 Aug 2026 10:00:11 GMT
+
+https://collider.com/grand-theft-auto-6-extended-look-trailer-netflix-august-27/
+
+A new era in gaming is upon us, with Rockstar Games unveiling an extended look at Grand Theft Auto VI on Netflix. Find out when.
+---------
+
 # Zelda: Ocarina Of Time Remake Release Date Appears Online Ahead Of Official Reveal
 
 Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
