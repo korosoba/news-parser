@@ -1,3 +1,58 @@
+# Steam Makes Excellent Pokémon Clone 100% Free For 24 Hours
+
+Gaming, Steam, Pokemon
+
+Tue, 25 Aug 2026 09:19:53 GMT
+
+https://screenrant.com/steam-free-pokemon-clone-24-hours/
+
+Download Dokimon Quest for free! Capture 140+ monsters in this Pokémon-inspired RPG available for 24 hours.
+---------
+
+# 10 Hard Sci-Fi Movies That Are Even Better Than Project Hail Mary
+
+Movies, Sci-Fi, Project Hail Mary
+
+Tue, 25 Aug 2026 09:12:14 GMT
+
+https://screenrant.com/hard-sci-fi-movies-better-project-hail-mary/
+
+From The Martian to 2001, these 10 hard sci-fi movies are so smart and ambitious they may even top Project Hail Mary.
+---------
+
+# Every 'Practical Magic' Book, Ranked According to Goodreads
+
+Books and Comics, Books, Practical Magic, Practical Magic 2, Sequel
+
+Tue, 25 Aug 2026 09:10:11 GMT
+
+https://collider.com/practical-magic-book-series-ranked-goodreads/
+
+From the 1600s to the 21st century, the Owens witches have quite the family history. Here’s how all four Practical Magic books stack up.
+---------
+
+# One of the Best British Crime Shows of 2025 Is Officially Returning
+
+TV News, Code of Silence, Rose Ayling-Ellis, Crime, Britbox
+
+Tue, 25 Aug 2026 09:00:11 GMT
+
+https://collider.com/code-of-silence-season-2-production-begins/
+
+Rose Ayling-Ellis returns for Code of Silence Season 2 as the 100%-rated British crime thriller officially begins production with an expanded cast.
+---------
+
+# The 15 Best High Fantasy Movies, Ranked
+
+Movie, Fantasy, The Lord of the Rings: The Fellowship of the Ring, Star Wars: Episode IV - A New Hope, The Wizard of Oz
+
+Tue, 25 Aug 2026 08:58:11 GMT
+
+https://collider.com/best-high-fantasy-movies-ranked/
+
+From iconic classics like The Lord of the Rings trilogy to modern efforts like The Green Knight, these are the best high-fantasy movies in cinema.
+---------
+
 # Marvel Just Hit Spider-Man With A Major Nerf, And It’s A Bigger Problem Than Fans Think
 
 Marvel Comics, Spider-Man, Marvel
