@@ -1,3 +1,36 @@
+# Super Mario: Galactic Adventure Arrives December 2026
+
+Gaming, Super Mario
+
+Tue, 25 Aug 2026 05:00:15 GMT
+
+https://screenrant.com/super-mario-galactic-adventure-fan-game/
+
+Super Mario fans should mark their calendars for December 2026 if they want to experience a new 3D adventure.
+---------
+
+# Game Of Thrones Meets The Witcher In New Dark Fantasy RPG You Can Play Free Now
+
+Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: Kingsroad, PC, The Witcher, The Witcher 3: Wild Hunt
+
+Tue, 25 Aug 2026 04:30:14 GMT
+
+https://screenrant.com/game-of-thrones-meets-witcher-new-dark-fantasy-rpg/
+
+Game of Thrones fans looking for a Witcher-style RPG to play for free are in luck, as there's a highly rated dark fantasy game available now.
+---------
+
+# 10 Most Perfect Anime of the Last 30 Years
+
+TV, Anime, Attack On Titan, Vinland Saga, Cowboy Bebop
+
+Tue, 25 Aug 2026 04:18:11 GMT
+
+https://collider.com/most-perfect-anime-last-30-years-ranked/
+
+Attack on Titan, Vinland Saga, One Piece, and Cowboy Bebop are among the best anime of the last 30 years, but which is considered the greatest?
+---------
+
 # Star Wars Jedi Cal Kestis Officially Returns December 2026
 
 Gaming, Star Wars Jedi: Fallen Order, Star Wars
