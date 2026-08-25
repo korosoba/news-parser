@@ -1,3 +1,113 @@
+# Andrew Garfield's New Action Movie Was Secretly A Robin Hood Film This Whole Time
+
+Movies, The Uprising, Andrew Garfield
+
+Tue, 25 Aug 2026 21:35:38 GMT
+
+https://screenrant.com/andrew-garfield-the-uprising-movie-trailer-secret-robin-hood-story/
+
+Andrew Garfield will next appear in Paul Greengrass' The Uprising, and it's been revealed that this movie is actually about Robin Hood.
+---------
+
+# Forget Westerns, Taylor Sheridan Is Returning To What First Made Him Great In 2027
+
+Movies, F.A.S.T.
+
+Tue, 25 Aug 2026 21:20:16 GMT
+
+https://screenrant.com/taylor-sheridan-fast-2027-movie-action-thriller/
+
+Taylor Sheridan is best known for his Western TV shows, but his next movie is returning him to the genre that made him great to begin with.
+---------
+
+# Marshals Gets Physical Release Today After Taylor Sheridan Changes Yellowstone's Dutton Rules
+
+TV, Marshals, Western
+
+Tue, 25 Aug 2026 21:43:06 GMT
+
+https://www.cbr.com/marshals-blu-ray-dvd-release/
+
+The Yellowstone spinoff is now on physical media.
+---------
+
+# The 6 Best R-Rated Sci-Fi Movies Released Since 2000, Ranked
+
+Movie, Sci-Fi, Blade Runner 2049, Ex Machina, District 9
+
+Tue, 25 Aug 2026 21:42:11 GMT
+
+https://collider.com/best-r-rated-sci-fi-movies-since-2000-ranked/
+
+From Blade Runner 2049 to Ex Machina, these mature sci-fi films are the best of the 21st century.
+---------
+
+# Dolly Parton Said It Herself: Everything's Gonna Be Alright
+
+Music Features, Dolly Parton, Country, Music
+
+Tue, 25 Aug 2026 21:38:21 GMT
+
+https://collider.com/dolly-parton-tribute-tennessee-when-life-is-good-again/
+
+Dolly Parton has died at 80, leaving behind a legacy of music, philanthropy, kindness and love that touched millions around the world.
+---------
+
+# The 6 Best Miniseries Released Since 1990, Ranked
+
+TV, TV Miniseries, Band of Brothers, Chernobyl, Angels in America
+
+Tue, 25 Aug 2026 21:38:11 GMT
+
+https://collider.com/best-miniseries-since-1990-ranked/
+
+From The Queen’s Gambit to Chernobyl, this ranking explores landmark miniseries whose stories, performances, and scope endure.
+---------
+
+# The 10 Worst Horror Movies in Film History
+
+Movie, Troll 2, Alone in the Dark, Jaws: The Revenge, House of the Dead
+
+Tue, 25 Aug 2026 21:23:11 GMT
+
+https://collider.com/worst-horror-movies-film-history/
+
+Critical and commercial disasters like Jaws: The Revenge, Slender Man, and House of the Dead are among the worst horror movies ever made.
+---------
+
+# ‘Ted Lasso’ Season 4 Completely Misunderstands One of Its Best Characters
+
+TV Features, Ted Lasso, Brendan Hunt, Apple TV, Jason Sudeikis
+
+Tue, 25 Aug 2026 21:22:13 GMT
+
+https://collider.com/ted-lasso-season-4-misunderstands-coach-beard-flanderization-apple-tv/
+
+Coach Beard is a shell of his former self! The character, played by Brendan Hunt, has been reduced to his friendship with Ted Lasso in Season 4.
+---------
+
+# Forget 'Saving Private Ryan,' Intense 131-Minute War Thriller Has Landed New Free Streaming Home
+
+Movie News, Enemy At The Gates, Coming/Leaving Streaming
+
+Tue, 25 Aug 2026 21:31:14 GMT
+
+https://movieweb.com/enemy-at-the-gates-streaming-free-tubi-september-2026/
+
+This WWII film is actually one of the most overlooked movies in the genre.
+---------
+
+# New 'RoboCop' Actor Reveals Fresh Look as He Confirms Casting
+
+TV News, Robocop, Dan Stevens
+
+Tue, 25 Aug 2026 21:29:56 GMT
+
+https://movieweb.com/robocop-dan-stevens-casting-confirmed/
+
+Following the news that Dan Stevens will play RoboCop in a new series for Amazon Prime Video, the actor confirmed it with a social media post.
+---------
+
 # The End Of An Era For WB's Game Of Thrones Meets Star Wars Franchise Is Officially Coming Soon
 
 Movies, Masked Recs
