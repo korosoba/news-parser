@@ -1,3 +1,102 @@
+# Russell Crowe’s New Netflix Crime Thriller Is ‘Zodiac Meets Good Will Hunting’
+
+TV, Masked Recs
+
+Tue, 25 Aug 2026 11:34:14 GMT
+
+https://screenrant.com/unabomber-russell-crowe-netflix-movie-like-zodiac-good-will-hunting/
+
+Netflix's darkest true crime thriller of 2026, Unabomber blends elements of Good Will Hunting with David Fincher's 2007 film Zodiac.
+---------
+
+# 4 Free Zombie Survival Games You Can Play On Steam Right Now
+
+Gaming, Steam
+
+Tue, 25 Aug 2026 11:30:14 GMT
+
+https://screenrant.com/steam-free-zombie-survival-games/
+
+Discover four thrilling zombie survival games you can play for free on Steam today!
+---------
+
+# New GTA 6 Leaks Reveal Even More Of Its Massive Open World
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, PC, Rockstar Games
+
+Tue, 25 Aug 2026 11:26:37 GMT
+
+https://screenrant.com/gta-6-leak-vice-city-beach-nine-one-nine-night-club/
+
+The newest leaks for Grand Theft Auto 6 just revealed two stunning new locations around Vice City, including a night club and a packed beach.
+---------
+
+# MCU Star Laments Character's Shocking Death: 'I Was So Disappointed'
+
+Movies, Doctor Strange In the Multiverse of Madness, Marvel Cinematic Universe
+
+Tue, 25 Aug 2026 11:30:11 GMT
+
+https://www.cbr.com/hayley-atwell-laments-peggy-carter-mcu-fate/
+
+It wasn't the ideal way to go out, and a "complete disservice to the character."
+---------
+
+# The 8 Most Fun Marvel Movies of All Time, Ranked
+
+Movie, Marvel, MCU, Superhero, Spider-Man Into the Spider-Verse
+
+Tue, 25 Aug 2026 11:32:11 GMT
+
+https://collider.com/most-fun-marvel-movies-of-all-time-ranked/
+
+Spider-Man: Into the Spider-Verse, Guardians of the Galaxy, and Thor: Ragnarok are among the most purely fun Marvel superhero movies ever.
+---------
+
+# Rebecca Ferguson’s 87-Year-Old Fantasy Remake Officially Bombs at the Box Office
+
+Movie News, Rebecca Ferguson, The Magic Faraway Tree, Box Office, Fantasy
+
+Tue, 25 Aug 2026 11:30:11 GMT
+
+https://collider.com/rebecca-ferguson-fantasy-film-magic-faraway-tree-box-office-debut/
+
+Rebecca Ferguson's latest film, which also features Andrew Garfield and Claire Foy, opened to dull numbers at the domestic box office.
+---------
+
+# 7 Fantasy Miniseries That Are 10/10 Masterpieces, Ranked
+
+TV, Fantasy, TV Miniseries, Merlin, Agatha All Along
+
+Tue, 25 Aug 2026 11:26:11 GMT
+
+https://collider.com/fantasy-miniseries-perfect-masterpieces-ranked/
+
+Merlin, Over the Garden Wall, Agatha All Along, and more make up our list of fantasy miniseries that are perfect masterpieces.
+---------
+
+# Ridley Scott's New Action Sci-Fi Thriller Fiercely Divides Critics in First Reactions
+
+Movie News, The Dog Stars, Ridley Scott, Action, Sci-Fi
+
+Tue, 25 Aug 2026 11:30:15 GMT
+
+https://movieweb.com/ridley-scott-dog-stars-first-reactions/
+
+The first reactions to Ridley Scott's new action sci-fi thriller 'The Dog Stars' have surfaced online following early press screenings.
+---------
+
+# Netflix Finds New Hit With Ryan Gosling's 126-Minute Action Thriller From 'John Wick' Creator
+
+Movie News, The Fall Guy, Netflix, Hot on Streaming, Ryan Gosling
+
+Tue, 25 Aug 2026 11:30:13 GMT
+
+https://movieweb.com/the-fall-guy-ryan-gosling-netflix-hit-global-august-2026/
+
+In the vast landscape of modern action thrillers, this one might be the most original of them all.
+---------
+
 # Final Fantasy 9 Officially Returns October 2026
 
 Gaming, Final Fantasy 9
