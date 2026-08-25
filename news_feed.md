@@ -1,3 +1,168 @@
+# Unless Avengers: Doomsday Does The Unthinkable, One $35 Billion MCU Record Is Guaranteed
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Tue, 25 Aug 2026 12:30:14 GMT
+
+https://screenrant.com/avenger-doomsday-box-office-35-billion-mcu-record-setup/
+
+Avengers: Doomsday's box office is borderline destined to break a major milestone for the MCU thanks to the franchise's current record.
+---------
+
+# DC Confirms Batman Villain's Greatest Redesign Of All Time
+
+DC Comics, Batman
+
+Tue, 25 Aug 2026 12:07:14 GMT
+
+https://screenrant.com/absolute-professor-pyg-design/
+
+DC has officially confirmed a radical new look for one of Batman’s most disturbing villains, making this the character’s greatest redesign yet.
+---------
+
+# Godzilla Officially Returns November 2026 In Huge New Crossover
+
+Gaming, Godzilla, PC, Steam
+
+Tue, 25 Aug 2026 12:00:37 GMT
+
+https://screenrant.com/godzilla-destroy-all-monsters-november-2026/
+
+The legendary Godzilla is making a huge return this November in a brand-new crossover game that is sure to delight fans.
+---------
+
+# Mass Effect Meets Destiny In Huge 9/10 700-Hour RPG You Can Play Completely Free
+
+Gaming, Warframe
+
+Tue, 25 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/mass-effect-destiny-700-hour-rpg-free-warframe/
+
+If you like games like Mass Effect and Destiny, you definitely shouldn't sleep on this 700-hour RPG. Especially since it's free.
+---------
+
+# 10 Funniest Jokes In Star Trek: Strange New Worlds’ Puppet Episode
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Tue, 25 Aug 2026 12:00:15 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-puppet-episode-jokes-ranked/
+
+Star Trek: Strange New Worlds' puppet episode was jam-packed with jokes ranging from clever, to meta, to just plain wacky. Here are the 10 best.
+---------
+
+# James Gunn’s DC Universe Continues A Justice League-Level Streak With HBO’s New Release
+
+Streaming TV, Masked Recs
+
+Tue, 25 Aug 2026 11:59:51 GMT
+
+https://screenrant.com/james-gunn-dc-universe-justice-league-pocket-dimension-setup-lanterns/
+
+James Gunn's DC Universe has just aired a new release that continues a major Justice League-level streak for the franchise, raising some questions.
+---------
+
+# Witch Hat Atelier Star Teases the Dark Truth Behind Qifrey
+
+CBR Exclusives, Witch Hat Atelier
+
+Tue, 25 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/witch-hat-atelier-joshua-waters-qifrey-dark-duality-anime-magic-2026/
+
+You will tell no one, not a soul.
+---------
+
+# NBC's 'Slick' 2-Season Mystery Is the Only Show to Give Tracker a Run for Its Money
+
+TV, Tracker, Found
+
+Tue, 25 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/nbc-found-cbs-tracker-comparisons/
+
+CBS' Tracker is one of the most exciting action dramas, but there was another procedural with a similar premise on NBC that could have been great.
+---------
+
+# Netflix’s 2-Season Fantasy Series Had One Major Problem It Never Fixed
+
+TV Features, The Sandman, Netflix, Dead Boy Detectives, Tom Sturridge
+
+Tue, 25 Aug 2026 12:31:11 GMT
+
+https://collider.com/netflix-the-sandman-fantasy-series-major-pacing-problem/
+
+While Netflix seemingly pulled off the impossible with The Sandman, pacing issues took a toll on its narrative.
+---------
+
+# The 10 Greatest American Movies of the '70s, Ranked
+
+Movie, The Godfather Part II, Jaws, Taxi Driver, Apocalypse Now
+
+Tue, 25 Aug 2026 12:27:11 GMT
+
+https://collider.com/best-american-movies-70s-ranked/
+
+Sci-fi classics like Star Wars and timeless neo-noirs like Taxi Driver are among the best and most influential movies released throughout the 1970s.
+---------
+
+# John Cena Reveals the Secret He Never Told Will Forte While Making ‘Coyote vs. Acme’
+
+Exclusives, Coyote Vs. Acme, John Cena, Will Forte, Lana Condor
+
+Tue, 25 Aug 2026 12:15:11 GMT
+
+https://collider.com/coyote-vs-acme-john-cena-will-forte-lana-condor-interview/
+
+Cena, Will Forte, and Lana Condor also discuss how 'Who Framed Roger Rabbit' set the bar for movies like this.
+---------
+
+# The 10 Greatest Crime Movies of the 2010s, Ranked
+
+Movie, Crime, Best of the 2010s, Knives Out, Uncut Gems
+
+Tue, 25 Aug 2026 12:14:11 GMT
+
+https://collider.com/best-crime-movies-2010s-ranked/
+
+Uncut Gems, Knives Out, and Prisoners are among the best crime movies of the 2010s.
+---------
+
+# 8 Best Aerosmith Songs in Movies, Ranked
+
+Music Features, Aerosmith, Music, Rock, Soundtracks
+
+Tue, 25 Aug 2026 12:10:11 GMT
+
+https://collider.com/best-aerosmith-movie-songs-ranked/
+
+Aerosmith's best songs from movies include "I Don't Want to Miss a Thing" from Armageddon and "Angel's Eye" from Charlie's Angels.
+---------
+
+# Ridley Scott's New Sci-Fi Thriller Is Officially Making People Read Again
+
+Books and Comics News, The Dog Stars, The Whisper Man, Ridley Scott, Netflix
+
+Tue, 25 Aug 2026 12:05:57 GMT
+
+https://collider.com/the-dog-stars-book-checkouts-surge-ridley-scott-netflix-whisper-man/
+
+The Dog Stars surges 268.5% ahead of Ridley Scott’s August 28 adaptation alongside The Whisper Man as the two blockbusters prepare to face off.
+---------
+
+# The Fate of 'Sherlock' Creator's 10/10 Detective Series Has Officially Been Decided
+
+TV News, Sherlock, Mark Gatiss, Bookish, Crime
+
+Tue, 25 Aug 2026 12:00:11 GMT
+
+https://collider.com/bookish-season-3-renewed-christmas-special-mark-gatiss/
+
+Mark Gatiss’ mystery series Bookish is getting Season 3 and a two-part Christmas special as the hit prepares to return for Season 2.
+---------
+
 # Russell Crowe’s New Netflix Crime Thriller Is ‘Zodiac Meets Good Will Hunting’
 
 TV, Masked Recs
