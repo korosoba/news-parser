@@ -1,3 +1,14 @@
+# 15 Years Later, Game Of Thrones' Ned Stark Officially Returns On September 23
+
+Gaming, Game Of Thrones, Game of Thrones, Game of Thrones: Legends, PC
+
+Tue, 25 Aug 2026 06:00:14 GMT
+
+https://screenrant.com/game-of-thrones-ned-stark-return-september-23/
+
+The one and only Ned Stark as portrayed by the legendary Sean Bean is officially back thanks to a brand-new Game of Thrones release on September 23.
+---------
+
 # 25 Years Later, This 10/10 PlayStation 2 Masterpiece Remains One Of The Highest-Rated Games Ever
 
 Gaming, PlayStation 2, Grand Theft Auto, Grand Theft Auto: The Trilogy - The Definitive Edition
