@@ -1,3 +1,25 @@
+# Hands-On: Metro 2039 Kicks Off With A Bang And Doesn't Let Up
+
+Gaming, Metro 2039, Triple-A Games, PC
+
+Wed, 26 Aug 2026 07:01:15 GMT
+
+https://screenrant.com/metro-2039-first-hands-on-pc/
+
+Metro 2039 is due out in February 2027 on PC, PS5 and Xbox Series X/S, and we got a chance to try out the haunting shooter for the first time.
+---------
+
+# ‘Trying’s Rafe Spall & Esther Smith on Why Season 5’s Perfect Ending Isn’t Really the End
+
+Interviews, Trying, Apple TV, Rafe Spall, Sitcom
+
+Wed, 26 Aug 2026 07:00:11 GMT
+
+https://collider.com/apple-tv-trying-series-season-5-finale-rafe-spall-esther-smith/
+
+Esther Smith and Rafe Spall break down Trying Season 5's ending, Nikki and Jason's future, and what the finale sets up for Season 6 on Apple TV.
+---------
+
 # John Wick Is Officially Returning With Keanu Reeves Reprising His Role
 
 Gaming, John Wick
