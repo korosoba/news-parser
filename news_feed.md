@@ -1,3 +1,223 @@
+# Batman: Knightfall Part 1 Gives One Actor Their 10th DC Role Since The Dark Knight
+
+Movies, Batman: Knightfall Part 1: Knightfall, DC Universe
+
+Wed, 26 Aug 2026 10:20:41 GMT
+
+https://screenrant.com/batman-knightfall-part-1-david-dastmalchian-tenth-dc-role/
+
+One DC actor nets a tenth role in the franchise's extensive on-screen history after their role in The Dark Knight with a new Batman film.
+---------
+
+# It’s Official: Xbox’s Latest Console Costs Over $1,000, Pre-Orders Live Now
+
+Gaming, Xbox
+
+Wed, 26 Aug 2026 10:20:17 GMT
+
+https://screenrant.com/xbox-new-console-1000-dollar-price-tag/
+
+The latest Xbox console has been unveiled, and it most certainly does not come cheap.
+---------
+
+# Cyberpunk 2077 Officially Returns October 1 2026 With New Game
+
+Gaming, Cyberpunk 2077
+
+Wed, 26 Aug 2026 10:13:58 GMT
+
+https://screenrant.com/cyberpunk-2077-new-game-october-1/
+
+Explore the launch details of Cyberpunk: The Trading Card Game, releasing October 1, 2026, featuring unique collectibles.
+---------
+
+# What's On The USB Drive In Reacher Season 4
+
+Streaming TV, Reacher, Reacher - Season 4
+
+Wed, 26 Aug 2026 10:00:14 GMT
+
+https://screenrant.com/reacher-season-4-usb-drive-explained/
+
+Reacher season 4 has finally revealed the truth about the mysterious USB drive, but there still seems more to its significance than meets the eye.
+---------
+
+# Transformers: More Than Meets The Eye Is Bringing Back The Original Optimus Prime
+
+Gaming, Transformers
+
+Wed, 26 Aug 2026 09:59:30 GMT
+
+https://screenrant.com/transformers-more-than-meets-the-eye-optimus-prime/
+
+Transformers: More Than Meets The Eye features the return of Peter Cullen, the original voice of Optimus Prime.
+---------
+
+# Fallout 5 Official Reveal Causes Stir Among Fans, And We See Why
+
+Gaming, Fallout, Fallout 5
+
+Wed, 26 Aug 2026 09:46:01 GMT
+
+https://screenrant.com/fallout-5-official-reveal-reactions-todd-howard-responds/
+
+Discover the latest on Fallout 5 and Bethesda's future plans.
+---------
+
+# 10 Best Comics That Prove Nothing Is Off Limits for The Far Side
+
+Comics, The Far Side
+
+Wed, 26 Aug 2026 10:30:11 GMT
+
+https://www.cbr.com/hilarious-comics-that-prove-nothing-is-off-limits-in-the-far-side/
+
+The Far Side has proven it's unafraid to cover any subject or theme, and thus pretty much nothing is off-limits for this sarcastic comic series.
+---------
+
+# Star Trek Gives Spock the Franchise's Most Heartbreaking Quote
+
+Movies, Star Trek
+
+Wed, 26 Aug 2026 10:00:11 GMT
+
+https://www.cbr.com/star-trek-motion-picutre-spock-most-heartbreaking-sci-fi-quote/
+
+Though the vulcan's sacrifice in Wrath of Khan is undeniably emotional, Spock's most poignant quote comes from 1979's Star Trek: The Motion Picture
+---------
+
+# Carnival Row Is Becoming Prime Video's Fantasy Cult Classic Show
+
+TV, Carnival Row, Fantasy, Prime Video, Innovation
+
+Wed, 26 Aug 2026 10:00:11 GMT
+
+https://www.cbr.com/prime-video-carnival-row-cult-classic-reappraisal/
+
+With famous names like Orlando Bloom and Cara Delevingne, Prime Video's Carnival Row is evolving from underrated to a cult classic.
+---------
+
+# Quentin Tarantino's Vision for James Bond's Future Is Exactly What the Franchise Needs
+
+Movie Features, James Bond, Quentin Tarantino, Denis Villeneuve, Casino Royale
+
+Wed, 26 Aug 2026 10:38:11 GMT
+
+https://collider.com/quentin-tarantino-james-bond-advice-denis-villeneuve/
+
+Quentin Tarantino's attempts to direct a James Bond film never worked out, but he does have some advice on where the franchise should head next.
+---------
+
+# One of Hollywood’s Most Talked-About Unreleased Movies Is Finally Escaping the Vault
+
+Exclusives, Coyote Vs. Acme, James Gunn, Dave Green, Eric Bauza
+
+Wed, 26 Aug 2026 10:35:11 GMT
+
+https://collider.com/coyote-vs-acme-director-dave-green-eric-bauza/
+
+'Coyote vs. Acme's Dave Green and Eric Bauza discuss how the movie was rescued from the vault and its miraculous release with Ketchup Entertainment.
+---------
+
+# 10 Years Later, Matt Damon’s Forgotten Fantasy Blockbuster Officially Conquers Netflix
+
+Movie News, The Great Wall, Matt Damon, Netflix, Fantasy
+
+Wed, 26 Aug 2026 10:30:11 GMT
+
+https://collider.com/matt-damon-the-great-wall-streaming-success-netflix-august-2026/
+
+A forgotten Matt Damon blockbuster is climbing the streaming charts again, years after its release and amid renewed attention around the actor.
+---------
+
+# ‘Garfield’ Found Its Perfect Formula Before the Second Strip Even Arrived Almost 50 Years Later
+
+Books and Comics, Garfield: The Movie, The Garfield Movie, Garfield and Friends, The Garfield Show
+
+Wed, 26 Aug 2026 10:07:11 GMT
+
+https://collider.com/garfield-jim-davis-debut-comic-strip-perfect-formula/
+
+When Jim Davis launched the first Garfield strip in 1978, he set the tone for the caustic cat's future outings.
+---------
+
+# 7 Must-Watch Movies Leaving Netflix in September
+
+Movie, Netflix, Rocky, Matilda, Scooby-Doo
+
+Wed, 26 Aug 2026 10:05:11 GMT
+
+https://collider.com/movies-leaving-netflix-september-2026/
+
+Say goodbye to sports masterpieces like Rocky and beloved fantasy films like Matilda, as these movies are set to leave Netflix in September.
+---------
+
+# Ridley Scott’s 10/10 Sci-Fi Series Is Officially One of the Most Popular Shows on Earth
+
+TV News, Alien: Earth, Ridley Scott, Hulu, Noah Hawley
+
+Wed, 26 Aug 2026 10:00:11 GMT
+
+https://collider.com/ridley-scott-alien-earth-streaming-success-hulu-august-2026/
+
+Ridley Scott's near-perfect sci-fi series has become the perfect weekend binge as fans anxiously await news about Season 2.
+---------
+
+# The Chilling Thriller Stephen King Called Better Than Hitchcock Is Streaming on HBO Max
+
+Movie Features, Diabolique, Suspense, Film Noir, Stephen King
+
+Wed, 26 Aug 2026 09:39:11 GMT
+
+https://collider.com/stephen-king-les-diaboliques-streaming-hbo-max-august-2026/
+
+The 1955 film noir Les Diaboliques, which Stephen King said "out Hitchcocked Hitchcock," is streaming on HBO Max.
+---------
+
+# 7 Apple TV Shows That Are Perfect Masterpieces
+
+TV, Apple TV, Severance, Shrinking, Bad Sisters
+
+Wed, 26 Aug 2026 09:34:11 GMT
+
+https://collider.com/apple-tv-shows-perfect-masterpieces/
+
+Severance, Shrinking, Bad Sisters, Mythic Quest, Ted Lasso, and more make up our list of Apple TV shows that are perfect masterpieces.
+---------
+
+# Forget Liam Neeson, Netflix Unleashes Your New Favorite Action Hero in Upcoming Thriller Series
+
+TV News, Netflix, Action, Thriller
+
+Wed, 26 Aug 2026 10:44:08 GMT
+
+https://movieweb.com/netflix-the-shooter-new-action-thriller-series/
+
+The series comes courtesy of the director behind the 100%-rated action thriller series 'A Shop for Killers.'
+---------
+
+# Robert De Niro Officially Addresses Major Recast in Long-Awaited Action Thriller Sequel
+
+Movie News, Heat 2, Heat, Robert De Niro, Action, Crime
+
+Wed, 26 Aug 2026 10:30:21 GMT
+
+https://movieweb.com/heat-2-robert-de-niro-recast-response/
+
+Robert De Niro has addressed reports that Stephen Graham is in talks to be recast as his iconic character, Neil McCauley, in Michael Mann's 'Heat 2.'
+---------
+
+# Jackie Chan Is Officially Returning for Sequel to Last Year's Action Thriller "Masterpiece"
+
+Movie News, Jackie Chan, Action, Thriller, Martial Arts
+
+Wed, 26 Aug 2026 09:42:07 GMT
+
+https://movieweb.com/jackie-chan-shadows-edge-2-filming/
+
+The action thriller follow-up now has a filming date and release window.
+---------
+
 # The Legend Of Zelda Officially Returns With Two New Games
 
 Gaming, The Legend of Zelda
