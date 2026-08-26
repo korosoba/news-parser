@@ -1,3 +1,212 @@
+# James Wan’s 102-Minute Sci-Fi Horror Movie That Became A Modern Classic Resurfaces As A Netflix Hit
+
+Movies, Masked Recs
+
+Wed, 26 Aug 2026 13:45:42 GMT
+
+https://screenrant.com/james-wan-m3gan-netflix-streaming-success-august-2026/
+
+James Wan's sci-fi horror movie that quickly became a modern classic resurfaces as a Netflix hit, just weeks after a major new release.
+---------
+
+# 10 Greatest Stephen King Movies That Aren't The Shawshank Redemption
+
+Movies, Stephen King
+
+Wed, 26 Aug 2026 13:30:15 GMT
+
+https://screenrant.com/best-stephen-king-movies-not-shawshank-redemption/
+
+The Shawshank Redemption is considered the greatest Stephen King movie ever made, but these other King gems are just as good as the 1994 classic.
+---------
+
+# The Witcher 3: Wild Hunt Free Download Officially Available Until August 27
+
+Gaming, The Witcher 3: Wild Hunt
+
+Wed, 26 Aug 2026 13:29:57 GMT
+
+https://screenrant.com/witcher-3-wild-hunt-free-download-august-27/
+
+The Witcher 3 fans can grab three free downloads right now, but one is only available for 24 hours.
+---------
+
+# It's Official: This Fantastic Four Hero Is Stronger Than Silver Surfer
+
+Marvel Comics, Fantastic Four
+
+Wed, 26 Aug 2026 13:06:15 GMT
+
+https://screenrant.com/fantastic-four-invisible-woman-stronger-silver-surfer/
+
+One of Marvel's most powerful cosmic entities settles the debate of which Fantastic Four character is strong enough to defeat the Silver Surfer.
+---------
+
+# Cult Classic Bomb Is Officially Releasing On Streaming For The First Time Ever After New Bob Odenkirk Remake
+
+Movies, Masked Recs
+
+Wed, 26 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/the-room-tommy-wiseau-first-ever-streaming-release-tubi-september-2026/
+
+One of the most notable cult classic bombs of all-time is finally getting its first-ever streaming debut as its new remake awaits a release.
+---------
+
+# New House Of The Dragon Survey Reveals How Fans Really Feel About Major Changes To Fire & Blood
+
+Gaming, House of the Dragon, George R.R. Martin, Game of Thrones, A Song of Ice and Fire
+
+Wed, 26 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/house-of-the-dragon-fan-survey-fire-blood-changes/
+
+House of the Dragon has introduced several controversial changes to George R.R. Martin's source material, but fans don't think they're all bad.
+---------
+
+# Star Trek’s Puppet Episode Made 1 Big Mistake That Strange New Worlds’ Musical Didn’t
+
+TV, Star Trek, Op-Ed, Star Trek: Strange New Worlds
+
+Wed, 26 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-puppet-episode-ending-mistake-musical-comparison/
+
+Star Trek: Strange New Worlds' musical and puppet episodes are two of the prequel's biggest swings, but, unfortunately, only one of them 'happened.'
+---------
+
+# Star Wars Zero Company Review: A Tactics Game Of Galactic Proportions
+
+Gaming, Star Wars Zero Company, Star Wars, Triple-A Games, PC
+
+Wed, 26 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/star-wars-zero-company-review/
+
+Bit Reactor's first game stumbles in some areas, but delivers a new, ambitiously high bar for the turn-based tactics genre, and nails Star Wars' vibe.
+---------
+
+# The End Of Oak Street Officially Breaks Sci-Fi's Biggest Time Travel Rule To Set Up A Sequel
+
+Movies, The End of Oak Street
+
+Wed, 26 Aug 2026 13:00:15 GMT
+
+https://screenrant.com/the-end-of-oak-street-time-travel-paradox-rule-sequel-setup/
+
+The End of Oak Street's finale plot hole is simultaneously its best story setup for a sequel movie that could follow on from the 2026 film.
+---------
+
+# It's Officially The Dawn Of A New Era For Star Wars Gaming
+
+Games, Star Wars, Video Games
+
+Wed, 26 Aug 2026 13:45:11 GMT
+
+https://www.cbr.com/star-wars-zero-company-video-game-review/
+
+Star Wars: Zero Company combines XCOM with the Clone Wars that'll enthrall players with a thrilling gameplay loop and enjoyable characters.
+---------
+
+# 5 Classic Hard Sci-Fi Anime Series That Are 10/10
+
+Anime, Planetes, Astra: Lost in Space, Sci-Fi
+
+Wed, 26 Aug 2026 13:15:11 GMT
+
+https://www.cbr.com/classic-hard-sci-fi-anime-flawless-start-to-finish/
+
+Meticulous worldbuilding anchors stories of political power plays, realistic tech and messy human fallout in these classic hard sci-fi anime.
+---------
+
+# 3 Steam Free-to-Keep Games for October 2026 Revealed Ahead of Time
+
+Games, Steam
+
+Wed, 26 Aug 2026 13:05:11 GMT
+
+https://www.cbr.com/steam-new-free-to-keep-games-october-2026-reveal/
+
+Steam just unveiled three more games that will be free-to-keep for select gamers on the platform, and they're coming in just a matter of weeks.
+---------
+
+# 10 Mister Sinister Stories X-Men Star Adam Driver Should Read as Preparation
+
+Comics, X-Men, mister sinister, Innovation
+
+Wed, 26 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/mcu-xmen-adam-driver-mr-sinister-comic-reading-guide/
+
+Mr. Sinister makes his long-awaited cinematic debut in the MCU's X-Men reboot as portrayed by Adam Driver, and these comics are must-read prep.
+---------
+
+# Daniel Craig's Narnia Reboot Is Changing Netflix's Streaming Formula Forever
+
+Movies, Netflix, Narnia: The Magician's Nephew, IMAX
+
+Wed, 26 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/netflix-2027-narnia-theatrical-release-changing-streaming-strategy/
+
+2027 will see Netflix change its approach to streaming for Greta Gerwig's epic fantasy reboot
+---------
+
+# Taylor Sheridan’s ‘Landman’ Is Officially Not Returning in 2026
+
+TV News, Landman, Taylor Sheridan, Billy Bob Thornton, Paramount Plus
+
+Wed, 26 Aug 2026 13:45:11 GMT
+
+https://collider.com/landman-season-3-release-window-2027/
+
+Taylor Sheridan's Landman will not return before the end of this year, meaning 2026 will be the first year since 2023 to not feature a new season.
+---------
+
+# Scarlet Witch Officially Reunites With Agatha Harkness to Lead Marvel’s New Team-Up
+
+Books and Comics News, Scarlet Witch, Marvel Comics, Superhero, WandaVision
+
+Wed, 26 Aug 2026 13:15:11 GMT
+
+https://collider.com/scarlet-witch-new-team-nexus-nine-sorcerer-supreme-issue-9-marvel-comics/
+
+The latest issue of Marvel's Sorcerer Supreme comics assembles a brand new team of powerful magicians around the Scarlet Witch.
+---------
+
+# Marvel Officially Reveals Spider-Man’s Most Devastating Story Yet
+
+Books and Comics News, Marvel Comics, The Amazing Spider-Man, Spider-Man, Superhero
+
+Wed, 26 Aug 2026 13:00:11 GMT
+
+https://collider.com/the-amazing-spider-man-volume-7-issue-35-devastating-aunt-may-marvel-comics/
+
+The latest issue of The Amazing Spider-Man just teased one of the greatest tragedies possible for Peter Parker. Here's what we know.
+---------
+
+# Netflix's New 91-Minute Action Thriller Is Officially Crowned One of the Biggest Movies on Streaming
+
+Movie News, Facing El Chapo, Netflix, Hot on Streaming, Action
+
+Wed, 26 Aug 2026 13:00:14 GMT
+
+https://movieweb.com/facing-el-chapo-action-thriller-stream-netflix-tudum/
+
+The hit action thriller is based on a violent true story.
+---------
+
+# 10 Hilarious 'The Simpsons' Visual Gags You Probably Missed the First Time Around
+
+TV Lists, The Simpsons, Comedy
+
+Wed, 26 Aug 2026 13:00:14 GMT
+
+https://movieweb.com/the-simpsons-visual-gags-missed/
+
+'The Simpsons' loves to layer hilarious jokes into the background, with some of the funniest writing hidden in plain sight.
+---------
+
 # New GTA 6 Gameplay Leak Gives Us First Glimpse Of Lucia
 
 Gaming, Grand Theft Auto 6, Grand Theft Auto
