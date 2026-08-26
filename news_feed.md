@@ -1,3 +1,421 @@
+# Tom Hanks' New Drama Movie Casts Emmy-Nominated Actor Ahead Of His 34-Year Return To Genre
+
+Movies, The Comebacker, Tom Hanks
+
+Wed, 26 Aug 2026 18:02:09 GMT
+
+https://screenrant.com/tom-hanks-the-comebacker-movie-patricia-clarkson-casting-report/
+
+Emmy-winning and Oscar-nominated actor joins Tom Hanks in The Comebacker, a baseball drama directed by Marielle Heller.
+---------
+
+# Game of Thrones: War for Westeros Is Bringing Full-Scale Chaos To The Realm
+
+Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: War for Westeros, PC
+
+Wed, 26 Aug 2026 18:00:14 GMT
+
+https://screenrant.com/game-of-thrones-war-for-westeros-hands-on-preview/
+
+Game of Thrones: War for Westeros is real-time strategy at its finest, and offers players a promising and refreshing take on the genre.
+---------
+
+# Mark Wahlberg's New Action Thriller Hires Netflix Director Behind Record-Breaking Crime Movie On Streaming
+
+Movies, Mark Wahlberg
+
+Wed, 26 Aug 2026 18:00:12 GMT
+
+https://screenrant.com/netflix-the-operator-movie-mark-wahlberg-development/
+
+After starring in films like Flight Risk and The Family Plan 2, Mark Wahlberg has a new project that will be directed by a record-breaking filmmaker.
+---------
+
+# GTA 6 Official Gameplay Deep Dive Released In Response To Leaks
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Wed, 26 Aug 2026 17:58:30 GMT
+
+https://screenrant.com/gta-6-gameplay-jason-lucia-together/
+
+Grand Theft Auto 6 leaks have been rampant, but Rockstar has finally crawled out of the woodwork to address more official gameplay details.
+---------
+
+# Reacher: Prime Video's #1 Series Deserves A Full Binge Before Its New Spinoff Arrives
+
+Streaming TV, Masked Recs
+
+Wed, 26 Aug 2026 17:54:14 GMT
+
+https://screenrant.com/reacher-prime-video-neagley-spinoff-binge/
+
+Reacher, Prime Video's #1 worldwide hit series, deserves a full 4-season binge ahead of its upcoming spinoff set to arrive in just a few weeks.
+---------
+
+# James Gunn's Superman Sequel Man Of Tomorrow Officially Hits Major Filming Milestone
+
+Movies, Superman, DC Universe
+
+Wed, 26 Aug 2026 17:51:30 GMT
+
+https://screenrant.com/james-gunn-superman-man-of-tomorrow-filming-wrapped/
+
+James Gunn just shared a major update for the Superman movie sequel Man of Tomorrow, as the David Corenswet DC Universe project hits a milestone.
+---------
+
+# Casting Gilmore Girls If It Were Made Today: All 11 Main Roles
+
+Classic TV, Gilmore Girls
+
+Wed, 26 Aug 2026 17:45:15 GMT
+
+https://screenrant.com/casting-gilmore-girls-today/
+
+Gilmore Girls had a distinctly early-2000s feel, but these actors could make a modern-day remake of the beloved drama feel just as cozy.
+---------
+
+# 10 Movies To Watch In August If You're Already Craving Fall
+
+Movies, Recommendation
+
+Wed, 26 Aug 2026 17:45:15 GMT
+
+https://screenrant.com/movies-watch-august-fall-vibes/
+
+These movies aren’t all set in fall, but they each capture something about the season that makes you want to reach for a blanket and settle in.
+---------
+
+# Netflix's 4-Season Dark Fantasy Series Deserves Praise For Successfully Rebooting Its Cast
+
+Classic TV, Masked Recs
+
+Wed, 26 Aug 2026 17:32:14 GMT
+
+https://screenrant.com/the-umbrella-academy-netflix-reboot-cast-success/
+
+Not many TV series can get away with a successful cast reboot, but Netflix's The Umbrella Academy adaptation is a rare exception to that rule.
+---------
+
+# Avengers: Endgame's Re-Release Has Already Improved The Movie & Confirmed Iron Man's Most Important Quote
+
+New Movies, Avengers: Endgame, Marvel Cinematic Universe
+
+Wed, 26 Aug 2026 17:20:14 GMT
+
+https://screenrant.com/avengers-endgame-encore-trailer-color-grading-iron-man-quote-doomsday/
+
+Marvel has changed Avengers: Endgame for the better ahead of its upcoming re-release and revealed the Iron Man quote that leads to Avengers: Doomsday.
+---------
+
+# One of the World's Biggest Sci-Fi RPGs Gives Firefly the Ultimate PC Gaming Upgrade
+
+Anime, Genshin Impact, RPG, JRPG
+
+Wed, 26 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/honkai-star-rail-firefly-hyte-y70-gaming-pc/
+
+Firefly, one of Honkai: Star Rail's brightest stars, gets the ultimate gaming tribute with HYTE's stunning Y70 PC case and powerful prebuilt PC.
+---------
+
+# 5 Greatest Dolly Parton Movies, Ranked
+
+Movies, 9 to 5, Steel Magnolias, Music
+
+Wed, 26 Aug 2026 17:45:11 GMT
+
+https://www.cbr.com/greatest-dolly-parton-movies-ranked/
+
+The country music star left behind a filmography full of comfort films accompanied by some of her greatest hits.
+---------
+
+# Dungeons & Dragons Arcana Unleashed's New Subclasses, Ranked
+
+Games, Dungeons and Dragons, Tabletop
+
+Wed, 26 Aug 2026 17:30:11 GMT
+
+https://www.cbr.com/dnd-arcana-unleashed-best-subclasses-ranked/
+
+Arcana Unleashed features eight new and revamped subclasses for Dungeons & Dragons 5e 2024, some of which are far more useful than others.
+---------
+
+# The 10 Most Fun Movies of the 21st Century, Ranked
+
+Movies, Shrek, Mad Max, Everything Everywhere All at Once
+
+Wed, 26 Aug 2026 17:30:11 GMT
+
+https://www.cbr.com/most-fun-movies-of-the-21st-century-list/
+
+It's time to have fun at the cinema again and these pictures definitely tick that box.
+---------
+
+# New Naruto Show Reveals Official First Look at Naruto, Sasuke, Sakura & Kakashi Ahead of 2027 Debut
+
+Anime, Naruto
+
+Wed, 26 Aug 2026 17:20:11 GMT
+
+https://www.cbr.com/ninja-show-naruto-character-visuals-release/
+
+Naruto has released character visuals for its Team 7 members as it gears up for its most unique upcoming production.
+---------
+
+# Classic 5-Season Fantasy Show Returns as a Surprise Streaming Hit After 61 Years
+
+TV, I Dream of Jeannie, NBC, Fantasy
+
+Wed, 26 Aug 2026 17:16:19 GMT
+
+https://www.cbr.com/i-dream-of-genie-classic-fantasy-apple-tv-store-streaming-success-august-2026/
+
+I Dream of Jeannie is suddenly soaring in the streaming charts, landing at No. 2 on the Apple TV Store decades after it aired.
+---------
+
+# Netflix’s Sequel to Quentin Tarantino’s $393.9M Hit Reveals New Title and Trailer
+
+Movies, The Adventures of Cliff Booth, Netflix, Drama
+
+Wed, 26 Aug 2026 17:07:16 GMT
+
+https://www.cbr.com/the-further-mis-adventures-of-cliff-booth-trailer/
+
+The unusual Quentin Tarantino sequel has a new name.
+---------
+
+# Agatha Christie’s New 6-Part Series Confirms New Poirot's First Case
+
+TV, Mystery, Britbox UK, Poirot
+
+Wed, 26 Aug 2026 17:00:16 GMT
+
+https://www.cbr.com/bbc-britbox-agatha-christies-hercule-first-poirot-case-confirmed/
+
+The BritBox and BBC's new Poirot series, Hercule, revealed one of the Agatha Christie stories featured in the upcoming series.
+---------
+
+# HBO Max's New 10-Episode Sci-Fi Show Is Running Out of Steam on Streaming
+
+TV, Stuart Fails to Save the Universe, The Big Bang Theory, HBO Max
+
+Wed, 26 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/stuart-fails-to-save-the-universe-hbo-max-drop-august-2026/
+
+The new sci-fi show has already scored a renewal, though.
+---------
+
+# Everything to Know About Dark Matter Season 2
+
+TV, Dark Matter, Apple TV
+
+Wed, 26 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/dark-matter-season-2-release-date-cast-plot/
+
+The hit multiverse show from Apple TV, Dark Matter, will soon return for Season 2 and here's what viewers need to know.
+---------
+
+# 'Reacher' Officially Abandons Its Most Formulaic Trope With Season 4's Biggest Twist Yet
+
+TV Features, Reacher, Alan Ritchson, Prime Video, Action
+
+Wed, 26 Aug 2026 18:11:11 GMT
+
+https://collider.com/reacher-season-4-love-interest-trope-lila-hoth-villain-twist/
+
+Reacher Season 4 completely upends the Prime Video show's longest-running formula with a game-changing twist.
+---------
+
+# HBO's Harry Potter Officially Returns to Hogwarts 2 Weeks Early
+
+TV News, Harry Potter, HBO Max, Hogwarts
+
+Wed, 26 Aug 2026 18:00:11 GMT
+
+https://collider.com/harry-potter-season-2-filming-update-return-to-hogwarts/
+
+HBO's Harry Potter series officially returns to Hogwarts 2 weeks early in a magical new update.
+---------
+
+# Every Stanley Kubrick Movie of the '60s, Ranked
+
+Movie, Spartacus, 2001: A Space Odyssey, Dr. Strangelove Or: How I Learned To Stop Worrying And Love The Bomb, Stanley Kubrick
+
+Wed, 26 Aug 2026 17:41:11 GMT
+
+https://collider.com/stanley-kubrick-movies-60s-ranked/
+
+Stanley Kubrick made four of his most acclaimed and influential movies throughout the 1960s, from Spartacus to Dr. Strangelove, but which is the best?
+---------
+
+# HBO Max Officially Revives Cancelled 10-Part 'Game of Thrones' Replacement on Streaming
+
+TV News, The Winter King, HBO Max, Game Of Thrones, Fantasy
+
+Wed, 26 Aug 2026 17:39:59 GMT
+
+https://collider.com/hbo-max-game-of-thrones-replacement-the-winter-king-streaming-success-august-2026/
+
+MGM+'s cancelled fantasy series, The Winter King, has found new life on HBO Max, which was one of its biggest competitors with Game of Thrones.
+---------
+
+# Quentin Tarantino's First Film in 7 Years Officially Named With New Netflix Trailer
+
+Movie News, The Adventures of Cliff Booth, Once Upon a Time in Hollywood, Quentin Tarantino, Brad Pitt
+
+Wed, 26 Aug 2026 17:29:22 GMT
+
+https://collider.com/quentin-tarantino-brad-pitt-cliff-booth-movie-title-trailer/
+
+Brad Pitt and Quentin Tarantino officially reunite in a new teaser for The Further Mis-Adventures of Cliff Booth. See it here!
+---------
+
+# Resident Evil Is Officially Taking Over Netflix
+
+Movie News, Resident Evil, Paul W.S. Anderson, Milla Jovovich, Netflix
+
+Wed, 26 Aug 2026 17:17:05 GMT
+
+https://collider.com/resident-evil-franchise-streaming-netflix-september-2026/
+
+A huge collection of Resident Evil movies has officially found a new home at Netflix ahead of Zach Cregger's reboot. Read on for more.
+---------
+
+# The 6 Best Sci-Fi Shows Released Since 1990, Ranked
+
+TV, Sci-Fi, Battlestar Galactica, The Expanse, Black Mirror
+
+Wed, 26 Aug 2026 17:11:11 GMT
+
+https://collider.com/best-sci-fi-tv-shows-since-1990-ranked/
+
+From Cowboy Bebop to The Expanse, these landmark sci-fi shows blend big ideas, unforgettable characters, and timeless storytelling.
+---------
+
+# 'The Rookie's Fate Beyond Season 9 Officially Confirmed by ABC
+
+TV News, The Rookie, ABC, Alexi Hawley, Nathan Fillion
+
+Wed, 26 Aug 2026 17:09:54 GMT
+
+https://collider.com/the-rookie-creator-alexi-hawley-abc-deal-extended/
+
+Lionsgate has extended its deal with The Rookie creator Alexi Hawley, signaling a continuation for the ABC procedural after Season 9.
+---------
+
+# ‘Ted Lasso’ Season 4 Just Put a Brilliant New Spin on a Beloved Season 3 Story
+
+Collider Signature, Ted Lasso, Jeremy Swift, Apple TV, Sitcom
+
+Wed, 26 Aug 2026 17:00:11 GMT
+
+https://collider.com/ted-lasso-jeremy-swift-season-4-interview/
+
+Ted Lasso star Jeremy Swift discusses Season 4, working with Hannah Waddingham and Jason Sudeikis, and how the Apple TV series changed his career.
+---------
+
+# Alan Ritchson’s ‘Reacher’ Officially Gets New Release
+
+TV News, Alan Ritchson, War Machine, Reacher, Prime Video
+
+Wed, 26 Aug 2026 16:59:53 GMT
+
+https://collider.com/reacher-season-3-blu-ray-release-date-august-2026/
+
+Following the successful debut of Season 4, Alan Ritchson's Reacher is officially celebrating a brand-new release. Read on for more.
+---------
+
+# Orlando Bloom Abruptly Leaves Star-Studded Movie Production at "11th Hour"
+
+Movie News, Orlando Bloom
+
+Wed, 26 Aug 2026 18:09:04 GMT
+
+https://movieweb.com/orlando-bloom-departs-reset-priyanka-chopra-jonas/
+
+The former 'Pirates of the Caribbean' star dropped out of the upcoming thriller co-starring Priyanka Chopra Jonas just before filming began.
+---------
+
+# James Cameron's First Sci-Fi Space Opera Movie Was a Stealth Remake of a Samurai Masterpiece
+
+Features, James Cameron, Sci-Fi, Battle Beyond the Stars
+
+Wed, 26 Aug 2026 18:00:13 GMT
+
+https://movieweb.com/battle-beyond-the-stars-james-cameron-remake/
+
+James Cameron may be well-known for movies ranging from 'Titanic' to the 'Avatar' franchise, but his first sci-fi space opera movie was a remake.
+---------
+
+# James Gunn's 'Man of Tomorrow' Officially Reaches Major Milestone Ahead of 2027 Release
+
+Movie News, Man of Tomorrow, James Gunn, Sci-Fi, Adventure, Action, Superhero
+
+Wed, 26 Aug 2026 17:48:53 GMT
+
+https://movieweb.com/man-of-tomorrow-filming-complete/
+
+DC Studios is pushing ahead on 'Man of Tomorrow' after an exciting update from studio CEO and director James Gunn.
+---------
+
+# 'Severance' Set Photos Confirm the Return of Apple TV's Near-Perfect Sci-Fi Series
+
+TV News, Severance
+
+Wed, 26 Aug 2026 17:36:19 GMT
+
+https://movieweb.com/severance-season-3-set-photos/
+
+'Severance' fans are in for a treat with a very promising Season 3 update.
+---------
+
+# Netflix's New 114-Episode Action Thriller Series Is Officially One of the Biggest Shows on Streaming
+
+TV News, SEAL Team, Hot on Streaming, Action, Netflix
+
+Wed, 26 Aug 2026 17:30:14 GMT
+
+https://movieweb.com/netflix-seal-team-military-action-thriller-streaming-hit-august-2026/
+
+Netflix has found its newest global streaming hit with an action thriller that a lot of people believe is better than Taylor Sheridan's 'Lioness.'
+---------
+
+# Mark Wahlberg Leads Gritty New Netflix Action Thriller From 'The Rip' Director
+
+Movie News, Mark Wahlberg, Joe Carnahan
+
+Wed, 26 Aug 2026 17:24:28 GMT
+
+https://movieweb.com/mark-wahlberg-the-operator-netflix-joe-carnahan/
+
+Mark Wahlberg plays a CIA cleaner in the gritty action thriller from the director of 'The Rip.'
+---------
+
+# Ridley Scott's Michael Fassbender 'Alien' Sequel Is Finally Happening
+
+Movie News, Alien: Covenant, Alien, Ridley Scott, Sci-Fi
+
+Wed, 26 Aug 2026 16:20:45 GMT
+
+https://movieweb.com/alien-covenant-sequel-ridley-scott-michael-fassbender/
+
+Ridley Scott just revealed a major update on the long-awaited 'Alien sequel.
+---------
+
+# Netflix's Near-Perfect Crime Thriller Officially Returns 3 Years Later in New Spin-Off
+
+TV News, Top Boy, Barry Keoghan, Netflix
+
+Wed, 26 Aug 2026 16:19:30 GMT
+
+https://movieweb.com/netflix-barry-keoghan-top-boy-jonny-boy/
+
+Netflix has greenlit two new 'Top Boy' series, including a five-part prequel with Barry Keoghan back as Jonny McGee. Ronan Bennett writes.
+---------
+
 # Agatha Christie's New Mystery Series Introduces Underrated Detective Duo In First Trailer For Tommy & Tuppence
 
 TV, Britbox
