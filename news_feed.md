@@ -1,3 +1,36 @@
+# Slay The Spire Meets Pacific Rim In New Sci-Fi Deckbuilder
+
+Gaming, Slay the Spire, Pacific Rim, Steam, PC
+
+Wed, 26 Aug 2026 05:00:15 GMT
+
+https://screenrant.com/slay-the-spire-meets-pacific-rim-new-deckbuilder/
+
+Deckbuilder fans will want to check out this brand-new sci-fi game that combines Pacific Rim with the legendary Slay the Spire.
+---------
+
+# Marvel Assigns MCU Fans Their Official Homework For Avengers: Doomsday
+
+Marvel Comics, Avengers: Doomsday
+
+Wed, 26 Aug 2026 04:43:29 GMT
+
+https://screenrant.com/avengers-doomsday-inspiration-comic-rerelease/
+
+Marvel is releasing Avengers: Doomsday's perfect comic companion one month before the MCU movie releases, with potential clues about its plot.
+---------
+
+# One of the Decade's Best Time-Travel Sci-Fi Shows Is Still Making Waves on Disney+
+
+TV Features, Loki, Tom Hiddleston, Disney+, Sci-Fi
+
+Wed, 26 Aug 2026 04:45:11 GMT
+
+https://collider.com/disney-plus-time-travel-sci-fi-loki-streaming-success/
+
+Loki remains one of the best time-travel sci-fi shows on Disney+, redefining Marvel's storytelling and character arcs.
+---------
+
 # Zelda Meets Studio Ghibli In Huge Free 300-Hour Open-World RPG
 
 Gaming, The Legend of Zelda, Genshin Impact, RPG, Studio Ghibli
