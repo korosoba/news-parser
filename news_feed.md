@@ -1,3 +1,300 @@
+# It's Officially The End Of An Era For Only Murders In The Building
+
+Streaming TV, Only Murders in the Building
+
+Wed, 26 Aug 2026 14:30:14 GMT
+
+https://screenrant.com/only-murders-in-the-building-season-6-london-release-date-end-era/
+
+Hulu's Only Murders in the Building is changing things up with a new location away from the Arconia and an unprecedented winter release date.
+---------
+
+# New R-Rated Batman Movie Instantly Surges As Streaming Hit Just 1 Day After Release
+
+Movies, Masked Recs
+
+Wed, 26 Aug 2026 14:24:25 GMT
+
+https://screenrant.com/batman-knightfall-part-1-streaming-success-august-2026/
+
+A new, R-rated Batman movie instantly surges on streaming, becoming a major hit just one day after its initial release.
+---------
+
+# Rupert Grint Officially Returning As Ron Weasley In Harry Potter Adaptation
+
+Movies, Harry Potter, Harry Potter and the Cursed Child
+
+Wed, 26 Aug 2026 14:23:35 GMT
+
+https://screenrant.com/harry-potter-cursed-child-broadway-rupert-grint-ron-weasley-casting/
+
+Rupert Grint is officially set to return as Ron Weasley in 2027, as he is coming back to the Harry Potter franchise after nearly two decades.
+---------
+
+# Four Dolly Parton Classics Dominate Major Movie Chart Just 1 Day After Icon's Death
+
+Movies, Masked Recs, Streaming Charts, Dolly Parton
+
+Wed, 26 Aug 2026 14:20:26 GMT
+
+https://screenrant.com/dolly-parton-multiple-movies-apple-tv-streaming-success-august-2026/
+
+Tribute watches in the wake of the death of entertainment icon Dolly Parton have sent four of her classic movies sailing up a major streaming chart.
+---------
+
+# Netflix Is Reviving Long-Dormant Crime Series 13-Years After Original Cancellation
+
+TV, Top Boy
+
+Wed, 26 Aug 2026 14:18:00 GMT
+
+https://screenrant.com/top-boy-netflix-revival-prequel-series-barry-keoghan/
+
+Over a decade ago, the British series Top Boy debuted, but was cancelled in 2013. Now, Netflix will revive it in the form of a prequel show.
+---------
+
+# Amazon's R-Rated Romance Adaptation Gets New Look In The Love Hypothesis Trailer
+
+Movies, The Love Hypothesis
+
+Wed, 26 Aug 2026 14:14:20 GMT
+
+https://screenrant.com/the-love-hypothesis-trailer-amazon-adaptation/
+
+The Love Hypothesis is getting fans hot under the collar, as Amazon MGM Studios' latest R-rated adaptation is unveiled in a new trailer.
+---------
+
+# New 9-1-1: Nashville Season 2 Trailer Reveals ’90s Icon’s Key New Character
+
+TV, 9-1-1: Nashville, 9-1-1: Nashville - Season 2, 9-1-1, Ryan Phillippe
+
+Wed, 26 Aug 2026 14:12:40 GMT
+
+https://screenrant.com/911-nashville-season-2-trailer-ryan-phillippe-character/
+
+When 9-1-1: Nashville returns this fall for season 2, there’ll be a new official in town, as a ‘90s icon plays a detective from New York.
+---------
+
+# Mighty Morphin Power Rangers Has a New Freakiest Monster of All Time
+
+Comics, Mighty Morphin Power Rangers
+
+Wed, 26 Aug 2026 14:11:29 GMT
+
+https://screenrant.com/mighty-morphin-power-rangers-new-monster/
+
+The Power Rangers have a wild new foe.
+---------
+
+# Tom Hanks' 20-Part WWII Series Remains One Of The Biggest Shows On Streaming
+
+TV, Masked Recs
+
+Wed, 26 Aug 2026 14:05:37 GMT
+
+https://screenrant.com/world-war-2-with-tom-hanks-streaming-success-august-2026/
+
+Tom Hanks is one of the most beloved actors living today, and one of his recent WWII based television series is now succeeding on streaming.
+---------
+
+# Superman Permanently Loses an Eye in DC's Main Continuity (Yes, Really)
+
+Comics, Superman
+
+Wed, 26 Aug 2026 14:04:35 GMT
+
+https://screenrant.com/superman-injury-redesign-zod-lost-eye/
+
+Here's why this injury is going to last.
+---------
+
+# The Only TV Show Peter Jackson Wants to Direct Is an 892-Episode Sci-Fi Classic
+
+TV, Doctor Who, Sci-Fi, peter jackson
+
+Wed, 26 Aug 2026 14:26:45 GMT
+
+https://www.cbr.com/peter-jackson-direct-doctor-who-sci-fi-series/
+
+Peter Jackson is still coasting on the success of The Lord of the Rings, but he's expressed interest in directing an episode of Doctor Who.
+---------
+
+# Avatar: The Last Airbender Officially Returns to the Roku Era With a New Adventure Across the Four Nations
+
+Anime, Avatar: The Last Airbender, Avatar Legends (RPG)
+
+Wed, 26 Aug 2026 14:20:11 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-voyage-of-the-unity-release-date/
+
+One of the biggest names in gaming is about to unleash a brand-new addition to a fan-favorite Avatar: The Last Airbender titles.
+---------
+
+# 10 Perfect Supernatural Anime No One Remembers
+
+Anime
+
+Wed, 26 Aug 2026 14:15:11 GMT
+
+https://www.cbr.com/perfect-supernatural-anime-no-one-remembers/
+
+Some of the best supernatural anime of all time are also among the most obscure series ever made.
+---------
+
+# Prime Video's Adaptation of Star Wars-Inspired Fan Fiction Finally Premieres Next Month
+
+Movies, The Love Hypothesis, Star Wars
+
+Wed, 26 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/prime-video-the-love-hypothesis-trailer/
+
+Prime Video's successful adaptations continue with a much-anticipated title.
+---------
+
+# New Disney+ Show Confirms Major Format Change for Marvel Trilogy
+
+TV, VisionQuest, Marvel Cinematic Universe, Disney+
+
+Wed, 26 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/visionquest-marvel-trilogy/
+
+Marvel is changing things up for the conclusion to its Disney+ trilogy.
+---------
+
+# Transformers, Power Rangers, and More Are Getting New Trading Cards From Upper Deck And Hasbro
+
+Comics, Transformers, Power Rangers, hasbro
+
+Wed, 26 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/transformers-power-rangers-trading-cards-upper-deck-hasbro/
+
+Collectors should prepare for new trading card releases featuring Hasbro heavies.
+---------
+
+# The Legend of Vox Machina's Masterpiece Prequels Officially Return With A Twist
+
+Comics, The Legend of Vox Machina
+
+Wed, 26 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/legend-of-vox-machina-whitestone-chronicles-library-edition/
+
+Rediscover the origins of the hit fantasy series.
+---------
+
+# 5 Nickelodeon Shows Nobody Remembers
+
+TV, Nickelodeon, KaBlam!, Aaahh!!! Real Monsters
+
+Wed, 26 Aug 2026 14:00:11 GMT
+
+https://www.cbr.com/forgotten-nickelodeon-shows-list/
+
+From Gullah Gullah Island to KaBlam!, these Nickelodeon shows were amazing, but got forgotten too soon.
+---------
+
+# CBCS Customers Face More Bad News After Service Shutdown
+
+Comics, comic books
+
+Wed, 26 Aug 2026 13:47:28 GMT
+
+https://www.cbr.com/cbcs-ending-comic-book-grading/
+
+Comic book collectors and CBCS customers just got another heartbreaking update, and it comes months after losing the grading service entirely.
+---------
+
+# Alan Ritchson’s Forgotten 146-Minute Sci-Fi Action Epic Officially Hits Netflix
+
+Movie News, The Hunger Games: Catching Fire, Alan Ritchson, Netflix, The Hunger Games: Sunrise on the Reaping
+
+Wed, 26 Aug 2026 14:35:11 GMT
+
+https://collider.com/alan-ritchson-the-hunger-games-catching-fire-streaming-netflix-august-2026/
+
+Alan Ritchson's sci-fi epic that grossed over $800 million at the box office is officially available to stream on Netflix.
+---------
+
+# Harry Potter Star Officially Returning for New Project
+
+Movie News, Harry Potter, Rupert Grint, Harry Potter and the Cursed Child
+
+Wed, 26 Aug 2026 14:23:49 GMT
+
+https://collider.com/rupert-grint-ron-weasley-return-harry-potter-cursed-child-broadway/
+
+Harry Potter star Rupert Grint is officially returning as Ron Weasley for a limited run in Broadway’s Harry Potter and the Cursed Child.
+---------
+
+# Ridley Scott Officially Confirms New ‘Alien’ Project With Michael Fassbender
+
+Movie News, Alien: Covenant, Alien: Covenant 2, Michael Fassbender, Ridley Scott
+
+Wed, 26 Aug 2026 14:20:04 GMT
+
+https://collider.com/ridley-scott-alien-covenant-sequel-michael-fassbender/
+
+Ridley Scott confirms a new Alien prequel is in the works, continuing Michael Fassbender’s David story after 2017’s Alien: Covenant.
+---------
+
+# Apple TV’s ‘Grand Theft Auto’ Meets ‘Heat’ Action Thriller Officially Drops First Trailer
+
+TV News, Grand Theft Auto, Heat, Jamie Dornan, Anthony Mackie
+
+Wed, 26 Aug 2026 14:00:11 GMT
+
+https://collider.com/12-12-12-trailer-anthony-mackie-jamie-dornan/
+
+Anthony Mackie and Jamie Dornan face off in the first look at Apple TV’s new eight-episode heist thriller 12 12 12.
+---------
+
+# Matt Damon's 103-Minute Action Fantasy Flop Officially Finds Redemption on Netflix
+
+Movie News, Matt Damon, The Great Wall, Hot on Streaming
+
+Wed, 26 Aug 2026 14:30:13 GMT
+
+https://movieweb.com/the-great-wall-matt-damon-netflix-hit-august-2026/
+
+Though considered one highly questionable production, this one might deserve a revisit.
+---------
+
+# Original 'Harry Potter' Actor Officially Returning as Iconic Character in Sequel
+
+Movie News, Harry Potter, Harry Potter and the Cursed Child, Rupert Grint
+
+Wed, 26 Aug 2026 14:24:56 GMT
+
+https://movieweb.com/harry-potter-cursed-child-rupert-grint-return/
+
+An upcoming 'Harry Potter' sequel is now set to feature one of the original stars from the first eight movies in the same role as before.
+---------
+
+# Jessica Chastain Is Locked & Loaded in New "Taylor Sheridan Meets Taken" Netflix Series
+
+TV News, Jessica Chastain, Netflix
+
+Wed, 26 Aug 2026 14:16:19 GMT
+
+https://movieweb.com/jessica-chastain-heartland-netflix-series/
+
+Nothing will stop Jessica Chastain in the new must-watch Netflix thriller 'Heartland.'
+---------
+
+# 'Ted Lasso' Season 4 Finally Pays Off Its Cryptic Returning Character Tease
+
+Features, Ted Lasso, Apple TV, Jason Sudeikis, Comedy
+
+Wed, 26 Aug 2026 14:00:14 GMT
+
+https://movieweb.com/ted-lasso-season-4-sharon-return-panic-attack/
+
+'Ted Lasso's Season 4 debut quickly reminded us about Ted's panic attacks, but it also gave us a heads-up on the return of Dr. Sharon Fieldstone.
+---------
+
 # James Wan’s 102-Minute Sci-Fi Horror Movie That Became A Modern Classic Resurfaces As A Netflix Hit
 
 Movies, Masked Recs
