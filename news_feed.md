@@ -1,3 +1,234 @@
+# DC Unveils Long-Awaited Redesign Of God-Tier Villain, And It’s Beyond Horrific
+
+DC Comics, Wonder Woman, DC
+
+Wed, 26 Aug 2026 02:17:35 GMT
+
+https://screenrant.com/dc-absolute-wonder-woman-zeus-redesign-villain-god-tier/
+
+DC is finally ready to unveil the design for a long-awaited villain in an acclaimed series, and what little of them has been shown is horrifying.
+---------
+
+# The New Marvel Universe Is Here, And It’s About To Be Massive
+
+Marvel Comics, Marvel
+
+Wed, 26 Aug 2026 02:09:41 GMT
+
+https://screenrant.com/marvel-midnight-universe-massive-grow/
+
+Marvel is launching a brand-new publishing line, and while its first three courses are exciting, there are apparently plenty more soon to come.
+---------
+
+# Fantastic Four Goes Hard Sci-Fi With New Matching Costumes
+
+Comics, Fantastic Four
+
+Wed, 26 Aug 2026 02:00:25 GMT
+
+https://screenrant.com/fantastic-four-new-costumes-space-suits/
+
+Marvel's First Family is joined by their next generation with new matching costumes on a brand-new adventure hitting later in Fall 2026.
+---------
+
+# 60 Years Later, Strange New Worlds Embraces Enterprise’s Legacy Better Than Other Star Trek Shows
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Wed, 26 Aug 2026 02:00:25 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-captain-april-enterprise-legacy/
+
+Even as a prequel, Star Trek: Strange New Worlds embraces the USS Enterprise's status as a legacy ship in a way later Star Trek shows don't.
+---------
+
+# Classic Fantasy Movie That Steven Spielberg Doesn't Like Is Now Free To Stream
+
+Movies, Masked Recs
+
+Wed, 26 Aug 2026 02:00:25 GMT
+
+https://screenrant.com/hook-movie-streaming-free-tubi-august-2026/
+
+This 1991 fantasy movie was openly disliked by Steven Spielberg, but it's so much better than it often gets credit for, 35 years later.
+---------
+
+# Ridley Scott's New Sci-Fi Thriller The Dog Stars Officially Breaks A Rotten Tomatoes Record In The Last 6 Years
+
+Movies, The Dog Stars, Ridley Scott
+
+Wed, 26 Aug 2026 01:41:16 GMT
+
+https://screenrant.com/ridley-scott-the-dog-stars-rotten-tomatoes-score-movie-record/
+
+Ridley Scott sets out with his next sci-fi thriller, The Dog Stars, which has set a Rotten Tomatoes record in the last six years as reviews are in.
+---------
+
+# NCIS: Origins Season 3 Confirms Return Of Longtime Franchise Favorite
+
+TV, NCIS: Origins, NCIS
+
+Wed, 26 Aug 2026 01:25:19 GMT
+
+https://screenrant.com/ncis-origins-season-3-ducky-adam-campbell-return-confirmed/
+
+When NCIS: Origins season 3 kicks off this fall on CBS, one of the procedural franchise's most beloved characters will appear again in the prequel.
+---------
+
+# Dragon Ball Releases New Artwork For Super Saiyan 3 Goku, And It's Instantly Iconic
+
+Anime, Dragon Ball, Goku
+
+Wed, 26 Aug 2026 01:00:15 GMT
+
+https://screenrant.com/dragon-ball-new-goku-super-saiyan-3-art/
+
+Veteran animator Katsuyoshi Nakatsuru’s stunning new character sheets finally bring the iconic Super Saiyan 3 Goku to the spotlight.
+---------
+
+# Sam & Dean Winchester's Supernatural Return Is Doing What The TV Series Never Could
+
+Classic TV, Supernatural
+
+Wed, 26 Aug 2026 01:00:15 GMT
+
+https://screenrant.com/supernatural-sam-and-dean-comic-tv-show-not-do/
+
+The Supernatural comics are taking a big risk with Sam and Dean's dynamic, and while the TV show pushed boundaries, it never took things this far.
+---------
+
+# 3 Strongest Dinosaurs In The End Of Oak Street, Ranked By Threat Level
+
+Movies, The End of Oak Street, Jurassic Park, Jurassic Park 3, The Land Before Time
+
+Wed, 26 Aug 2026 01:00:15 GMT
+
+https://screenrant.com/the-end-of-oak-street-movie-most-powerful-dinosaurs-ranked/
+
+One of the best parts about The End of Oak Street is its stellar selection of dinosaurs, and these are the most dangerous to our heroes.
+---------
+
+# D&D Arcana Unleashed Lets Characters Become Pokémon Trainers
+
+Games, Dungeons and Dragons, Tabletop, Pokemon
+
+Wed, 26 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/dnd-arcana-unleashed-pokemon-trainers/
+
+Arcana Unleashed has added a ton of options for Familiars in Dungeons & Dragons, turning every character into a potential Pokémon trainer.
+---------
+
+# 8 Most Important Harry Potter Book Moments That The Movies Didn’t Include
+
+Movies, Harry Potter
+
+Wed, 26 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/important-harry-potter-book-moments-not-in-movies-list/
+
+Every book-to-movie adaptation is bound to leave out a few scenes, but fans wish these eight Harry Potter book moments had made it to the screen.
+---------
+
+# 5 Tactical RPGs That Are 10/10 Masterpieces
+
+Games, Lists, Video Games, Fire Emblem, Final Fantasy
+
+Wed, 26 Aug 2026 01:45:11 GMT
+
+https://www.cbr.com/tactical-rpgs-flawles-masterpieces/
+
+Fire Emblem and Final Fantasy have provided some of the greatest tactical RPGs ever.
+---------
+
+# 5 Classic PS2 RPGs That Are Unplayable Today
+
+Games, PlayStation 2
+
+Wed, 26 Aug 2026 01:25:11 GMT
+
+https://www.cbr.com/classic-ps2-rpgs-unplayable-today/
+
+Many of the best RPGs from the PS2 era are unfortunately unplayable in the modern era.
+---------
+
+# Stephen King's 8-Episode Sleeper Sci-Fi Show Returns as a Streaming Sensation
+
+TV, The Institute, MGM+, Stephen King
+
+Wed, 26 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/the-institute-stephen-kings-sci-fi-show-mgm-plus-streaming-success/
+
+Stephen King's overlooked sci-fi horror is dominating the streaming charts.
+---------
+
+# James Gunn's DCU Strategy Makes Even Less Sense After 2 Major Cancellations
+
+TV, Waller (DCU), DCU, The People v. Gorilla Grodd
+
+Wed, 26 Aug 2026 01:00:11 GMT
+
+https://www.cbr.com/the-people-v-gorilla-grodd-dcu-strategy-confusion/
+
+Following the cancellation of Paradise Lost and Waller, the DC Universe's upcoming The People v. Gorilla Grodd feels stranger than ever.
+---------
+
+# 10 Books That Are a Masterclass in Prose
+
+Books and Comics, Books, Cormac McCarthy, Jonathan Franzen, The Haunting of Hill House
+
+Wed, 26 Aug 2026 01:43:11 GMT
+
+https://collider.com/books-masterclass-in-prose/
+
+Great, expertly written books like Blood Meridian by Cormac McCarthy and The Corrections by Jonathan Franzen offer a masterclass in prose.
+---------
+
+# The X-Men Are Officially Taking Over Disney+ Ahead of ‘Doomsday’ Return
+
+Movie News, X-Men, MCU, Avengers: Doomsday
+
+Wed, 26 Aug 2026 01:00:11 GMT
+
+https://collider.com/marvel-x-men-streaming-success-disney-plus-august-2026/
+
+A 26-year-old Marvel superhero classic is climbing the streaming charts as fans prepare for Avengers: Doomsday this December.
+---------
+
+# 7 Sitcoms More Universally Loved Than 'Friends'
+
+TV, Friends, Sitcom, The Simpsons, The Big Bang Theory
+
+Wed, 26 Aug 2026 00:55:11 GMT
+
+https://collider.com/sitcoms-more-universally-loved-than-friends/
+
+The Office, Parks and Recreation, The Simpsons, and more make up our list of sitcoms more universally loved than Friends.
+---------
+
+# Ridley Scott's 'The Dog Stars' Debuts Official Rotten Tomatoes Score
+
+Movie News, The Dog Stars, Ridley Scott, Sci-Fi, Drama
+
+Wed, 26 Aug 2026 01:06:03 GMT
+
+https://movieweb.com/the-dog-stars-rotten-tomatoes-score/
+
+Rotten Tomatoes has revealed its initial average positive critics' score for Ridley Scott's new movie, 'The Dog Stars.'
+---------
+
+# Action Blockbuster That Sparked $7B Franchise Officially Scores New Release
+
+Movie News, The Fast and the Furious, Fast and Furious, Vin Diesel, Blu-ray, Action
+
+Wed, 26 Aug 2026 00:54:06 GMT
+
+https://movieweb.com/the-fast-and-the-furious-4k-blu-ray-release/
+
+'The Fast and the Furious' scored a new 4K Ultra HD Blu-ray, on shelves now.
+---------
+
 # Is HBO's Lanterns Hiding A Founding Member Of The Justice League In Plain Sight?
 
 Streaming TV, Lanterns, DC Universe
