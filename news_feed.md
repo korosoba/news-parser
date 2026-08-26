@@ -1,3 +1,245 @@
+# Is HBO's Lanterns Hiding A Founding Member Of The Justice League In Plain Sight?
+
+Streaming TV, Lanterns, DC Universe
+
+Wed, 26 Aug 2026 00:40:20 GMT
+
+https://screenrant.com/lanterns-martian-manhunter-james-gunn-dc-universe-setup/
+
+The latest episode of HBO's Lanterns contains a major reveal that could be teasing the DC Universe debut of a beloved Justice League hero.
+---------
+
+# 10 Far Side Comics That Are Still The Strangest Larson Ever Drew
+
+Comics
+
+Wed, 26 Aug 2026 00:30:15 GMT
+
+https://screenrant.com/far-side-comics-that-are-still-the-strangest-larson-ever-drew/
+
+The Far Side never shied away from weird humor, but these bizarre panels fully capture Gary Larson’s imagination at its most unhinged.
+---------
+
+# 59 Years Later, McCoy's Best Star Trek Line Is Still One Of The Greatest Quotes In Sci-Fi History
+
+TV, Star Trek, Star Trek: The Original Series
+
+Wed, 26 Aug 2026 00:30:15 GMT
+
+https://screenrant.com/star-trek-doctor-mccoy-best-line/
+
+McCoy's gruff retorts and weary humanity ground the Star Trek franchise's utopian vision of the future with sharp humor and a lived-in realism.
+---------
+
+# Forget Marshals, Jared Padalecki's 4-Season Western Reboot Is Officially Back As A Streaming Hit
+
+TV, Masked Recs
+
+Wed, 26 Aug 2026 00:13:16 GMT
+
+https://screenrant.com/jared-padalecki-walker-reboot-marshals-comparison-hbo-max-streaming-success-august-2026/
+
+Forget Marshals, Jared Padalecki's four-season Western reboot is officially back as a streaming hit several years after it was canceled.
+---------
+
+# The Last Of Us Season 3 Needs One Change To Fix Ellie
+
+Streaming TV, The Last of Us
+
+Wed, 26 Aug 2026 00:02:15 GMT
+
+https://screenrant.com/the-last-of-us-tommy-change-fix-ellie/
+
+HBO's The Last of Us made one small change from Naughty Dog's famous video games, and it completely changed the nature of Ellie's character.
+---------
+
+# The Dog Stars Review: Ridley Scott's Sci-Fi Thriller Entertainingly Breaks From Modern Post-Apocalyptic Tradition
+
+New Movies, The Dog Stars
+
+Wed, 26 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/the-dog-stars-movie-review/
+
+Jacob Elordi compellingly leads Ridley Scott's visually stunning plea for optimism in his entertaining post-apocalyptic thriller The Dog Stars.
+---------
+
+# Disney's New Epic Fantasy Series Based On Popular 8-Year-Old Comics Franchise Will Officially Release In Three Months
+
+TV, Disney+, Disney, The Remarried Empress (2020)
+
+Wed, 26 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/disney-the-remarried-empress-trailer-release-date-episode-schedule/
+
+Disney's new and expensive fantasy TV show based on a popular comic franchise of eight years will be released in just three months.
+---------
+
+# After Spielberg's 2026 Comeback, The Other King Of Sci-Fi Officially Returns This Week
+
+Movies, Steven Spielberg, Ridley Scott, The Dog Stars, Disclosure Day, Dune: Part Three, The Hunger Games: Sunrise on the Reaping, The End of Oak Street, Avengers: Doomsday
+
+Wed, 26 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/ridley-scott-sci-fi-genre-return-the-dog-stars-august-2026/
+
+Disclosure Day marked Spielberg's anticipated return to sci-fi, and another legendary director in the genre is about to do the same.
+---------
+
+# 10 Best Gangster TV Show Villains of All Time
+
+TV
+
+Wed, 26 Aug 2026 00:00:14 GMT
+
+https://screenrant.com/best-gangster-tv-crime-villains/
+
+With the history of television has come all kinds of antagonists. However, these gangsters surely take the cake.
+---------
+
+# Mass Effect's Best Line Is Still the Greatest Quote in RPG History
+
+Games, Mass Effect, Video Games
+
+Wed, 26 Aug 2026 00:45:11 GMT
+
+https://www.cbr.com/mass-effect-greatest-rpg-quote/
+
+One line in the first Mass Effect game still hits hard to this day.
+---------
+
+# Kaiju No. 8 Officially Returns September 5
+
+Anime, Kaiju No. 8, Crunchyroll
+
+Wed, 26 Aug 2026 00:35:11 GMT
+
+https://www.cbr.com/kaiju-no-8-narumis-week-at-work-crunchyroll-release-date/
+
+Kaiju No. 8 returns with a new original anime this September, putting fan-favorite Gen Narumi in the spotlight for a chaotic week at work.
+---------
+
+# Ridley Scott’s $403 Million Sci-Fi Masterpiece Is Headed to Peacock
+
+Movies, Prometheus, ridley scott, Peacock
+
+Wed, 26 Aug 2026 00:30:11 GMT
+
+https://www.cbr.com/ridley-scott-prometheus-peacock-release-date-september-2026/
+
+One of Scott's most recent movies has officially set a release date on Peacock.
+---------
+
+# 10 Movies to Watch If You Love Howl's Moving Castle
+
+Anime, Howl's Moving Castle, Studio Ghibli, Spirited Away
+
+Wed, 26 Aug 2026 00:15:11 GMT
+
+https://www.cbr.com/movies-to-watch-if-you-love-howls-moving-castle/
+
+Studio Ghibli's Howl's Moving Castle is a timeless classic, but there are other anime movies that tap into the same magic, emotion, and wonder.
+---------
+
+# Keanu Reeves' $26M Flop Finds Redemption as 1 of the Biggest Movies on Streaming
+
+Movies, Keanu Reeves, Good Fortune
+
+Wed, 26 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/keanu-reeves-good-fortune-streaming-success-prime-video/
+
+One of Keanu Reeves' biggest box office flops is getting the last laugh on streaming.
+---------
+
+# Back to the Future Gives Doc Brown the Best Quote in Sci-Fi History
+
+Movies, Back to the Future
+
+Wed, 26 Aug 2026 00:00:11 GMT
+
+https://www.cbr.com/back-to-the-future-doc-brown-best-quote-sci-fi-history/
+
+Back to the Future's most memorable line is also one of the most quoted sci-fi lines ever written.
+---------
+
+# The 8 Most Fun Nintendo Games of All Time, Ranked
+
+Gaming, Video Game, Nintendo, Super Smash Bros., Mario Kart
+
+Wed, 26 Aug 2026 00:51:11 GMT
+
+https://collider.com/most-fun-nintendo-games-all-time-ranked/
+
+The Legend of Zelda: The Wind Waker, Mario Kart 8, and Wii Sports are among the best, most purely fun Nintendo games ever made.
+---------
+
+# Ridley Scott's New "Mediocre" Sci-Fi Action Thriller Is Officially His Most Controversial
+
+Movie News, The Dog Stars, Ridley Scott, Rotten Tomatoes, Josh Brolin
+
+Wed, 26 Aug 2026 00:13:07 GMT
+
+https://collider.com/ridley-scott-the-dog-stars-rotten-tomatoes-score-is-it-good/
+
+Ridley Scott's new sci-fi movie, The Dog Stars, has debuted on Rotten Tomatoes as one of the most controversial movies of his career.
+---------
+
+# 7 Essential Agatha Christie Books You Must Read at Least Once
+
+Books and Comics, Agatha Christie, Mystery, Murder on the Orient Express, And Then There Were None
+
+Wed, 26 Aug 2026 00:11:11 GMT
+
+https://collider.com/agatha-christie-essential-books/
+
+From Murder on the Orient Express to And Then There Were None, these Agatha Christie books are essential and are worth reading at least once.
+---------
+
+# 'The Dog Stars' Review: Ridley Scott Gets Lost at the End of the World
+
+Movie Reviews, Ridley Scott, The Dog Stars, Jacob Elordi, Margaret Qualley
+
+Wed, 26 Aug 2026 00:00:11 GMT
+
+https://collider.com/the-dog-stars-review-jacob-elordi-ridley-scott/
+
+Ridley Scott's new post-apocalyptic drama The Dog Stars is fun but muddled, and never sure what to do with stars Jacob Elordi and Margaret Qualley.
+---------
+
+# Prime Video's New Reboot of an '80s Sci-Fi Action Thriller Is Officially Must-Watch TV
+
+Features, RoboCop, Robocop, Sci-Fi, Action, Thriller, Prime Video
+
+Wed, 26 Aug 2026 00:00:13 GMT
+
+https://movieweb.com/prime-video-robocop-reboot-must-watch/
+
+With a focused tone and impressive casting announcement, Prime Video's sci-fi action reboot is shaping up to be the best franchise entry in 39 years.
+---------
+
+# Apple TV's Upcoming Movie Is a Long-Awaited Fantasy Heist Thriller Everyone Should Be Excited For
+
+Features, Mistborn, Apple TV, Fantasy
+
+Wed, 26 Aug 2026 00:00:13 GMT
+
+https://movieweb.com/mistborn-apple-tv-fantasy-heist-thriller/
+
+Apple TV's long-awaited movie will combine fantasy storytelling with the elements of a heist thriller, setting it apart from the competition.
+---------
+
+# Ridley Scott's Return to Sci-Fi Is a Hopeful, Post-Apocalyptic Western | Review
+
+Movie Reviews, The Dog Stars, Ridley Scott, Margaret Qualley
+
+Wed, 26 Aug 2026 00:00:13 GMT
+
+https://movieweb.com/the-dog-stars-review/
+
+'The Dog Stars' isn't quite as dour or downtrodden as other stories exploring similar scenarios.
+---------
+
 # Prime Video's 15-Episode Sci-Fi Western Is Yellowstone Meets Dark
 
 TV, Masked Recs
