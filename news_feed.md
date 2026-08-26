@@ -1,3 +1,399 @@
+# Agatha Christie's New Mystery Series Introduces Underrated Detective Duo In First Trailer For Tommy & Tuppence
+
+TV, Britbox
+
+Wed, 26 Aug 2026 16:07:17 GMT
+
+https://screenrant.com/agatha-christie-tommy-and-tuppence-trailer-britbox/
+
+One of Agatha Christie's most underrated detective duos return in the first trailer for BritBox's new mystery series, Tommy & Tuppence.
+---------
+
+# GTA 6 Lucia Prologue Shows Us How The Game Starts
+
+Gaming, Grand Theft Auto 6, PC, Grand Theft Auto
+
+Wed, 26 Aug 2026 16:04:31 GMT
+
+https://screenrant.com/gta-6-leaked-lucia-prologue/
+
+Spoiler alert! Grand Theft Auto 6's Lucia prologue has officially leaked, and reveals how the highly anticipated game will kick things off.
+---------
+
+# Buffy the Vampire Slayer and Gargoyles Fans, Dragonproof is Your New Obsession (Exclusive)
+
+Comics, Buffy The Vampire Slayer, Gargoyles
+
+Wed, 26 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/dragonproof-ahoy-buffy-gargoyles-kickstarter/
+
+Breathing pure fire.
+---------
+
+# Lost's All-Time Worst Episode Quietly Saved The Show
+
+Classic TV, Lost
+
+Wed, 26 Aug 2026 16:00:15 GMT
+
+https://screenrant.com/lost-worst-episode-saved-show/
+
+Even one of Lost's showrunners agrees that this is the worst episode, but it also went on to quietly save the show in an unexpected way.
+---------
+
+# James Bond Casting Report Reveals Unknown Favorite Among 6 Shortlisted
+
+Movies, James Bond, Bond 26
+
+Wed, 26 Aug 2026 15:44:25 GMT
+
+https://screenrant.com/james-bond-casting-shortlist-jack-barton-favorite-report/
+
+A new report has arrived revealing who may be in contention to be the new James Bond, and an unknown actor is surprisingly among some familiar names.
+---------
+
+# HBO Max's Hacks Returns With Exciting New Release This Fall
+
+TV, Hacks
+
+Wed, 26 Aug 2026 15:36:22 GMT
+
+https://screenrant.com/hacks-complete-series-bluray-set-fall-2026/
+
+HBO Max's Hacks is returning with an exciting new release this fall, several months after airing its emotional series finale this past spring.
+---------
+
+# Xbox Officially Reveals Disc To Digital Program
+
+Gaming, Xbox
+
+Wed, 26 Aug 2026 15:34:59 GMT
+
+https://screenrant.com/xbox-disc-digital-program-reveal/
+
+Xbox has been quiet while PlayStation has shared its plans to eradicate discs in the near future, but finally announced a feature that fans may like.
+---------
+
+# Tim Curry, Rocky Horror Icon & Pennywise Star, Dead At 80
+
+Movies, Tim Curry
+
+Wed, 26 Aug 2026 15:34:25 GMT
+
+https://screenrant.com/tim-curry-death-obituary/
+
+Tim Curry, the iconic star of everything from The Rocky Horror Picture Show to IT as Pennywise the Clown, has tragically died at the age of 80.
+---------
+
+# PlayStation Plus Reveals New Free Games For September 2026
+
+Gaming, PlayStation Plus, PlayStation
+
+Wed, 26 Aug 2026 15:32:50 GMT
+
+https://screenrant.com/playstation-plus-free-games-september-2026-essential-tier/
+
+PlayStation Plus has officially revealed its Essential games for the month of September 2026, free to anyone with a PS Plus subscription.
+---------
+
+# Tulsa King Is Sylvester Stallone's Best Performance Since Rocky
+
+TV, Tulsa King, Paramount Pictures
+
+Wed, 26 Aug 2026 15:30:14 GMT
+
+https://screenrant.com/tulsa-king-paramount-sylvester-stallone-best-role-since-rocky/
+
+Paramount's three-season crime series starring Sylvester Stallone features his best performance since Rocky, and it's far from over.
+---------
+
+# DC's New R-Rated Batman Movie Is 1 of the Most-Streamed Films in the World
+
+Movies, DCU, DC Comics, Batman, Batman: Knightfall Part 1: Knightfall
+
+Wed, 26 Aug 2026 16:02:44 GMT
+
+https://www.cbr.com/dc-batman-knightfall-streaming-sensation-hbo-max/
+
+The instant Batman classic only needed one day to take over the streaming world.
+---------
+
+# Project Hail Mary's Best Scene Is Already the 1 of the Greatest in Sci-Fi History
+
+Movies, Project Hail Mary, ryan gosling
+
+Wed, 26 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/project-hail-mary-best-scene-greatest-sci-fi-history/
+
+Project Hail Mary has been the definitive sci-fi film of the decade but one scene makes it the greatest in history.
+---------
+
+# Witch Hat Atelier Star Knows Exactly When Qifrey’s Darker Side Reveals Itself
+
+CBR Exclusives, Witch Hat Atelier
+
+Wed, 26 Aug 2026 15:51:01 GMT
+
+https://www.cbr.com/witch-hat-atelier-qifrey-darker-side-episode-5-anime-magic-2026/
+
+It'll be getting dark soon. Please, everyone, be safe.
+---------
+
+# Apple TV's Slow Horses Gets Fantastic Season 7 Update Ahead of Season 6 Debut
+
+TV, Slow Horses
+
+Wed, 26 Aug 2026 15:48:31 GMT
+
+https://www.cbr.com/apple-tv-slow-horses-season-7-update-gary-oldman/
+
+Slow Horses lead star Gary Oldman offers a fantastic update on the seventh season of the hit Apple TV spy drama series.
+---------
+
+# The 'Superb' Prime Video Crime Hit Stephen King Called '1 of the Best Shows on TV'
+
+TV, Bosch, Prime Video, Stephen King, Innovation
+
+Wed, 26 Aug 2026 15:42:24 GMT
+
+https://www.cbr.com/prime-video-bosch-stephen-king-recommends/
+
+Stephen King praised the cast and engrossing story of this Prime Video crime show, calling it one of the best on television.
+---------
+
+# Charlie Hunnam's New Sons of Anarchy Show Changes FX's Winning Blueprint in the Wrong Way
+
+TV, Sons of Anarchy, charlie hunnam
+
+Wed, 26 Aug 2026 15:41:27 GMT
+
+https://www.cbr.com/charlie-hunnam-sons-of-anarchy-legends-mistake/
+
+FX's Sons of Anarchy remains a cult classic, but Charlie Hunnam's new SOA show isn't exactly what fans were expecting.
+---------
+
+# Tim Curry, Rocky Horror Picture Show and It Star, Dead at 80
+
+Movies, The Rocky Horror Picture Show, It
+
+Wed, 26 Aug 2026 15:40:37 GMT
+
+https://www.cbr.com/tim-curry-dead-80/
+
+Hollywood icon Tim Curry has died at 80 years old.
+---------
+
+# Every Straw Hat Pirate in One Piece, Ranked
+
+Anime, One Piece, Innovation
+
+Wed, 26 Aug 2026 15:30:11 GMT
+
+https://www.cbr.com/one-piece-straw-hat-pirates-ranked-strength/
+
+Every Yonko crew member in One Piece is strong, but some are far more powerful than others.
+---------
+
+# 6 Fantasy Books Better Than The Witcher
+
+TV, The Witcher, Netflix, Fantasy, Innovation
+
+Wed, 26 Aug 2026 15:30:11 GMT
+
+https://www.cbr.com/fantasy-novels-better-than-the-witcher-list/
+
+The novel behind Netflix's The Witcher might have a cult following, but other fantasy books, such as The Way of Kings, are an even better read.
+---------
+
+# Bleach TYBW Season 4, Episode 6 Release Date & Time
+
+Anime, Bleach: Thousand Year Blood War
+
+Wed, 26 Aug 2026 15:15:11 GMT
+
+https://www.cbr.com/bleach-tybw-season-4-episode-6-release-date-time/
+
+Another episode of Bleach's final arc is almost here. Here's everything to know about Episode 6's release date and time.
+---------
+
+# James Bond Actor Shortlist Officially Revealed
+
+Movie News, James Bond, Denis Villeneuve, Paul Mescal, Jacob Elordi
+
+Wed, 26 Aug 2026 16:03:00 GMT
+
+https://collider.com/james-bond-actor-shortlist/
+
+Jacob Elordi, Paul Mescal, Callum Turner, and more are officially in the running to play the next James Bond according to the official shortlist.
+---------
+
+# From 'Ransom Canyon' to 'Little House on the Prairie,' Netflix Is Officially Riding a Wave of Comfort Entertainment [Exclusive]
+
+Exclusives, Netflix, Ransom Canyon, Little House on the Prairie, Remarkably Bright Creatures
+
+Wed, 26 Aug 2026 16:00:11 GMT
+
+https://collider.com/netflix-comfort-television-destination-ransom-canyon-little-house-on-the-prairie/
+
+Netflix has been finding consistent success by leaning into the confines of comfort television, from Ransom Canyon to the upcoming Crew Girl.
+---------
+
+# ‘The Office’ Drew 22.9 Million Viewers With Its Most Unhinged Cold Open
+
+TV Features, The Office, Sitcom, NBC, Comedy
+
+Wed, 26 Aug 2026 15:52:11 GMT
+
+https://collider.com/the-office-stress-relief-episode-fire-drill-cold-open-23m-viewers/
+
+The Office fire drill cold open kicked off its most-watched episode ever, drawing nearly 23 million viewers after the Super Bowl.
+---------
+
+# 'Rocky Horror Picture Show' Icon Tim Curry Dead at 80
+
+Movie News, Tim Curry, The Rocky Horror Picture Show, Clue, Muppet Treasure Island
+
+Wed, 26 Aug 2026 15:41:38 GMT
+
+https://collider.com/tim-curry-dead-at-80/
+
+Tim Curry, the cult-favorite star of Rocky Horror Picture Show, Clue, and more, has died at the age of 80. Read on for more details.
+---------
+
+# Matt Damon’s $115 Million Cyberpunk Sci-Fi Thriller Officially Lands on Netflix
+
+Movie News, Matt Damon, Elysium, Netflix, The Odyssey
+
+Wed, 26 Aug 2026 15:26:11 GMT
+
+https://collider.com/matt-damon-sci-fi-thriller-elysium-streaming-netflix-august-2026/
+
+Matt Damon's $115 million cyberpunk sci-fi thriller is winning over fans of The Odyssey on Netflix. Find out more information here.
+---------
+
+# ‘Conan the Barbarian’ Meets ‘The Muppets’ in First Official Look at Wild New Fantasy Horror Movie [Exclusive]
+
+Exclusives, Fantastic Fest, Collider Exclusive Preview, Fantasy, Horror
+
+Wed, 26 Aug 2026 15:00:11 GMT
+
+https://collider.com/kylgor-in-the-grisly-abyss-first-look-fantastic-fest/
+
+Get a first look at Kylgor in the Grisly Abyss, a bloody puppet fantasy horror starring Timothy Paul McCarthy and Ry Barrett ahead of Fantastic Fest.
+---------
+
+# 37 Years Later, Robin Williams' Oscar-Winning Masterpiece Sets New Release
+
+Movie News, Dead Poets Society, Robin Williams, Drama, Blu-ray
+
+Wed, 26 Aug 2026 16:05:29 GMT
+
+https://movieweb.com/dead-poets-society-4k-blu-ray-robin-williams/
+
+Peter Weir and Robin Williams' Oscar-winning drama 'Dead Poets Society' is officially coming to 4K Ultra HD Blu-ray for the first time this September.
+---------
+
+# HBO’s 10/10 War Masterpiece Is Praised by Historians & Only Takes 10 Hours to Binge
+
+Features, War, Band of Brothers
+
+Wed, 26 Aug 2026 16:00:14 GMT
+
+https://movieweb.com/band-of-brothers-hbo-historical-accuracy/
+
+HBO has one memorable war series that is considered historically accurate and is also a quick binge-watch.
+---------
+
+# The 10 Best Jack Reacher Books of All Time, Ranked
+
+TV Lists, Reacher, Action, Jack Reacher
+
+Wed, 26 Aug 2026 16:00:14 GMT
+
+https://movieweb.com/jack-reacher-best-books-ranked/
+
+Lee Child wrote 30 Jack Reacher novels, with his 31st book being published in October 2026, and these are the ones that are absolute must-reads.
+---------
+
+# Netflix's 10/10 'John Wick With a Twist' Action Thriller Is Officially One of the Biggest Shows on Streaming
+
+TV News, Teach You A Lesson, Netflix, Hot on Streaming, Action
+
+Wed, 26 Aug 2026 16:00:14 GMT
+
+https://movieweb.com/teach-you-a-lesson-action-stream-netflix-tudum/
+
+Netflix's new action series is the streamer's unusual answer to John Wick.
+---------
+
+# Marvel Studios Officially Changes 'Avengers: Endgame' Footage for Pre-'Doomsday' Release
+
+Movie News, Avengers: Endgame, Avengers: Doomsday
+
+Wed, 26 Aug 2026 15:52:27 GMT
+
+https://movieweb.com/avengers-endgame-encore-trailer-color-saturated/
+
+The official trailer for the 'Avengers: Endgame' re-release is drastically different from the original cut.
+---------
+
+# Amazon Debuts Trailer for Steamy 'Off Campus' Replacement Inspired by 'Star Wars'
+
+Movie News, The Love Hypothesis, Off Campus, Star Wars
+
+Wed, 26 Aug 2026 15:51:28 GMT
+
+https://movieweb.com/the-love-hypothesis-trailer-prime-video/
+
+'The Love Hypothesis ', starring Lili Reinhart and Tom Bateman, debuts on Prime Video on Sept. 24, 2026.
+---------
+
+# Tim Curry, Star of 'It' & 'Rocky Horror Picture Show,' Dies Aged 80
+
+Movie News, Tim Curry, It, The Rocky Horror Picture Show
+
+Wed, 26 Aug 2026 15:42:48 GMT
+
+https://movieweb.com/tim-curry-dies-aged-80/
+
+After more than half a century of incredible work in show business, Tim Curry tragically passed away at the age of 80.
+---------
+
+# '30 Rock' Confirms New 20th Anniversary Show With Original Cast
+
+TV News, 30 Rock, Comedy, Tina Fey, Alec Baldwin, Tracy Morgan
+
+Wed, 26 Aug 2026 15:16:54 GMT
+
+https://movieweb.com/30-rock-20th-anniversary-show-original-cast/
+
+Tina Fey, Alec Baldwin, Tracy Morgan, Jane Krakowski, and Jack McBrayer will all be part of the reunion.
+---------
+
+# 'The Last Thing He Told Me' Ending, Explained: The Real Reason Owen Left
+
+Features, Apple TV, The Last Thing He Told Me
+
+Wed, 26 Aug 2026 15:01:14 GMT
+
+https://movieweb.com/the-last-thing-he-told-me-ending-explained/
+
+Apple TV's 'The Last Thing He Told Me' has been a hit despite its heartbreaking ending.
+---------
+
+# Dolly Parton Cause of Death Officially Confirmed
+
+Movie News, Dolly Parton
+
+Wed, 26 Aug 2026 14:48:53 GMT
+
+https://movieweb.com/dolly-parton-cause-of-death-cancer/
+
+Tributes for Dolly Parton continue as the cause of death is revealed.
+---------
+
 # It's Officially The End Of An Era For Only Murders In The Building
 
 Streaming TV, Only Murders in the Building
