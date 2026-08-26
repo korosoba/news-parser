@@ -1,3 +1,14 @@
+# John Wick Is Officially Returning With Keanu Reeves Reprising His Role
+
+Gaming, John Wick
+
+Wed, 26 Aug 2026 05:30:15 GMT
+
+https://screenrant.com/john-wick-keanu-reeves-return/
+
+Discover details about the upcoming John Wick video game, including gameplay and story insights.
+---------
+
 # Slay The Spire Meets Pacific Rim In New Sci-Fi Deckbuilder
 
 Gaming, Slay the Spire, Pacific Rim, Steam, PC
