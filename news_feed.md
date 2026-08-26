@@ -1,3 +1,443 @@
+# Next Week, Tom Hardy's Must-Watch Gritty Western Thriller Officially Releases On HBO Max
+
+Movies, Masked Recs
+
+Wed, 26 Aug 2026 23:39:36 GMT
+
+https://screenrant.com/tom-hardy-the-revenant-hbo-max-streaming-release-september-2026/
+
+Tom Hardy's must-watch gritty Western thriller is officially releasing on HBO Max early next week, over a decade after its original debut.
+---------
+
+# Tim Curry's 2-Part Miniseries Launched An Entire Horror Franchise
+
+Classic TV, Tim Curry
+
+Wed, 26 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/tim-curry-it-miniseries-franchise-adaptations/
+
+Tim Curry starred in the iconic It miniseries, and his performance was so good that it launched an entire horror franchise that's still active.
+---------
+
+# James Gunn's DCU Has Bad News For Barry Allen Fans
+
+Streaming TV, DC, Lanterns, DC Universe
+
+Wed, 26 Aug 2026 23:15:15 GMT
+
+https://screenrant.com/james-gunn-dcu-barry-allen-hal-jordan-timeline/
+
+The DCU has started to create a pattern around more senior superheroes, and it could spell disaster for characters like Barry Allen, aka The Flash.
+---------
+
+# Slow Horses Season 6's Release Avoiding Major Streaming TV Complaint Explained By Gary Oldman
+
+TV, Slow Horses
+
+Wed, 26 Aug 2026 23:12:34 GMT
+
+https://screenrant.com/slow-horses-seasons-gaps-complaint-avoid-gary-oldman/
+
+Gary Oldman addresses his fight to keep his crime thriller series Slow Horses consistent in a way that several Apple TV shows are not.
+---------
+
+# Last Year's Most Overlooked Supernatural Drama Is Now Streaming On Netflix
+
+TV, Masked Recs
+
+Wed, 26 Aug 2026 23:02:14 GMT
+
+https://screenrant.com/supernatural-drama-netflix-revival-now-streaming-august-2026/
+
+A 10 episode mystery thriller blends resurrected residents, tense small town politics, and creeping supernatural unease into a slow burn horror drama.
+---------
+
+# 7 Batman: The Animated Series Games, From Worst To Best
+
+Gaming, Batman: The Animated Series
+
+Wed, 26 Aug 2026 23:00:15 GMT
+
+https://screenrant.com/batman-animated-series-games-ranked/
+
+Batman: The Animated series ran for a long time and had a bunch of video game adaptations, but which is the best of the bunch?
+---------
+
+# It’s Officially The End Of An Era For Harley Quinn
+
+DC Comics, Harley Quinn, DC
+
+Wed, 26 Aug 2026 22:56:23 GMT
+
+https://screenrant.com/harley-quinn-end-era-merge-halves/
+
+Harley Quinn has been on an incredibly wild ride lately, and just as it's beginning to slow its roll, she may be headed toward more heartache.
+---------
+
+# Netflix's Upcoming $280 Million High Fantasy Movie That Is One Of Its Most Expensive Of All Time Starts A New Era
+
+Movies, Masked Recs
+
+Wed, 26 Aug 2026 22:47:02 GMT
+
+https://screenrant.com/greta-gerwig-chronicles-of-narnia-the-magician-nephew-netflix-fantasy-new-era/
+
+Netflix's new fantasy movie is one of the most expensive of all time, it will have a hard time starting a new era for the streaming service.
+---------
+
+# After 43 Years, DC Finally Turns A Major Batman Villain Into A Hero
+
+DC Comics, Batman, DC
+
+Wed, 26 Aug 2026 22:46:04 GMT
+
+https://screenrant.com/killer-croc-finally-becomes-batman-hero-dc/
+
+Many Batman villains have become antiheroes or turned a new leaf in some way, but the latest antagonist to do so is maybe the most endearing.
+---------
+
+# 74 Years Ago, I Love Lucy Changed Sitcoms Forever By Breaking A TV Rule
+
+Classic TV, I Love Lucy
+
+Wed, 26 Aug 2026 22:45:15 GMT
+
+https://screenrant.com/i-love-lucy-break-pregnancy-tv-rule/
+
+I Love Lucy blazed the trail for women in comedy, and it broke the taboo around pregnancy on-screen with the classic episode "Lucy is Enceinte."
+---------
+
+# Netflix's Hit 5-Season Adventure Series Is the Most-Watched Show on Streaming
+
+TV, Outer Banks, Netflix, Adventure
+
+Wed, 26 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/outer-banks-netflix-adventure-series-most-watched-show-on-streaming/
+
+This teen adventure show is topping the charts.
+---------
+
+# 20 Dungeons & Dragons Monsters Perfect For A Horror Campaign
+
+Games, Dungeons and Dragons
+
+Wed, 26 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/dungeons-dragons-horror-campaign-monsters/
+
+D&amp;D is full of monsters perfectly suited for more terrifying stories of adventure.
+---------
+
+# 5 Greatest Tim Curry Movies Worth Watching Again and Again, Ranked
+
+Movies, The Rocky Horror Picture Show, Clue, Scooby-Doo
+
+Wed, 26 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/greatest-rewatchable-tim-curry-list/
+
+The death of Tim Curry marks the end of an era for Hollywood culture, leaving behind a legacy of beloved movies worth watching again and again.
+---------
+
+# The Only Show to Perfectly Blend Sci-Fi & Spy Action Suddenly Explodes on PVOD After 19 Years
+
+TV, Chuck, NBC, Action
+
+Wed, 26 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/chuck-sci-fi-spy-action-streaming-success-august-2026/
+
+This action-spy-dramedy from the 2000s is suddenly regaining popularity.
+---------
+
+# Legend of Zelda Officially Returns With New Puzzle Game Available Now
+
+Games, The Legend of Zelda
+
+Wed, 26 Aug 2026 22:20:11 GMT
+
+https://www.cbr.com/legend-of-zelda-officially-returns-new-game-available-now/
+
+An official new Legend of Zelda game is available now.
+---------
+
+# New 8-Episode Star Wars Series Officially Returns to Luke Skywalker's Original Trilogy
+
+Anime, Star Wars: Visions Presents - The Ninth Jedi, Star Wars, Star Wars: Visions
+
+Wed, 26 Aug 2026 22:20:11 GMT
+
+https://www.cbr.com/star-wars-visions-ninth-jedi-original-trilogy-preservation/
+
+The director of the latest hit Star Wars anime series opens up about how he grounded the show in the franchise's original trilogy roots.
+---------
+
+# 5 Forgotten Toonami Anime That Are Unwatchable Today
+
+Anime, toonami, D.I.C.E., Housing Complex C
+
+Wed, 26 Aug 2026 22:15:11 GMT
+
+https://www.cbr.com/forgotten-toonami-anime-unwatchable-today/
+
+Toonami is a formative programming block that's helped many anime find audiences, but it also has its share of forgotten misfires.
+---------
+
+# A24's Death Stranding Combines The Last of Us and Blade Runner
+
+Movies, Death Stranding
+
+Wed, 26 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/a24-death-stranding-combines-the-last-of-us-and-blade-runner/
+
+While it may take its inspiration from a video game, the sci-fi influences on this property are clear to see.
+---------
+
+# Zelda Fans Hoping for a 1:1 Ocarina of Time Remake Just Got Bad News
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Wed, 26 Aug 2026 21:25:11 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-remake-not-1-to-1/
+
+A prominent Nintendo insider just shut down rumors that their recent Zelda leak implies the Switch 2’s Ocarina of Time will be a 1:1 remake.
+---------
+
+# Mega Man: Dual Override Is a Future Classic in the Making
+
+Games, Mega Man, Video Games
+
+Wed, 26 Aug 2026 21:15:11 GMT
+
+https://www.cbr.com/mega-man-dual-override-preview/
+
+The Blue Bomber is back with Mega Man: Dual Override that feels on point with the other Mega Man games while adding some improvements for new players.
+---------
+
+# Jimmy Kimmel’s Latest Retirement Comments Say More About Late Night Than His Future
+
+TV Features, Jimmy Kimmel, Jimmy Kimmel Live!, Series, ABC
+
+Wed, 26 Aug 2026 23:52:11 GMT
+
+https://collider.com/jimmy-kimmel-retirement-comments-late-night-future/
+
+Jimmy Kimmel’s latest retirement comments reveal why he still feels responsible for keeping Jimmy Kimmel Live! on the air.
+---------
+
+# John Krasinski Officially Returns to Horror in 2027 as New Movie Wraps Filming
+
+Movie News, A Quiet Place Part III, Horror, Noah Jupe, John Krasinski
+
+Wed, 26 Aug 2026 23:45:11 GMT
+
+https://collider.com/john-krasinski-a-quiet-place-part-3-filming-wrap-noah-jupe/
+
+John Krasinski's hit horror franchise A Quiet Place has wrapped filming on Part III, with Noah Jupe hyping up the trilogy-ending chapter.
+---------
+
+# ‘The Simpsons’ Officially Takes on ‘Black Mirror’ in First Trailer for New Disney+ Special
+
+TV News, The Simpsons, Black Mirror, Disney+, Animation
+
+Wed, 26 Aug 2026 23:30:11 GMT
+
+https://collider.com/the-simpsons-black-mirror-parody-trailer/
+
+The Simpsons take aim at Netflix's sci-fi masterpiece Black Mirror in a brand-new trailer for the now-available Disney+ special. See it here!
+---------
+
+# 34 Years Later, Dolly Parton Helped Create One of the Best Vampire Shows Ever Made
+
+TV Features, Dolly Parton, Buffy The Vampire Slayer, Angel, Sarah Michelle Gellar
+
+Wed, 26 Aug 2026 23:24:11 GMT
+
+https://collider.com/dolly-parton-helped-create-buffy-the-vampire-slayer-angel-series/
+
+How Dolly Parton's influence helped create Buffy the Vampire Slayer, Angel, and her uncredited role in its success.
+---------
+
+# Apple TV Officially Brings Ridley Scott’s 2-Part Sci-Fi Masterpiece Back to Life
+
+TV News, Raised by Wolves, Ridley Scott, Apple TV, HBO Max
+
+Wed, 26 Aug 2026 23:15:11 GMT
+
+https://collider.com/ridley-scott-raised-by-wolves-streaming-success-apple-tv-august-2026/
+
+Ridley Scott's 2-part sci-fi masterpiece series is trending online, 4 years after HBO Max cancelled it. Read on for more.
+---------
+
+# 6 Greatest Dark Fantasy Series Made for Adults
+
+TV, Fantasy, Lovecraft Country, American Gods, The Sandman
+
+Wed, 26 Aug 2026 23:11:11 GMT
+
+https://collider.com/best-dark-fantasy-shows-for-adults/
+
+From Penny Dreadful to The Witcher, these dark fantasy shows blend magic, horror, and human struggle into unforgettable adult storytelling.
+---------
+
+# 23 Years Later, Matthew McConaughey's Iconic Rom-Com Is Officially Getting a Sequel
+
+Movie News, Matthew McConaughey, How to Lose A Guy In 10 Days, Paramount, Romance
+
+Wed, 26 Aug 2026 23:00:11 GMT
+
+https://collider.com/matthew-mcconaughey-how-to-lose-a-guy-in-10-days-sequel-confirmed/
+
+Matthew McConaughey's How to Lose a Guy in 10 Days is officially getting a sequel, with Kate Hudson returning to produce the project.
+---------
+
+# The 10 Greatest Side-Scrolling Games of All Time, Ranked
+
+Gaming, Video Game, Metroid, Cuphead, Sonic the Hedgehog
+
+Wed, 26 Aug 2026 22:22:11 GMT
+
+https://collider.com/best-side-scrolling-games-all-time-ranked/
+
+Outright classics like Super Mario World and modern fan favorites like Hollow Knight are among the all-time best side-scrolling video games ever made.
+---------
+
+# 8 Sci-Fi Shows Without a Single Flaw
+
+TV, Sci-Fi, Science Fiction, Severance, Andor
+
+Wed, 26 Aug 2026 22:03:11 GMT
+
+https://collider.com/sci-fi-shows-without-flaws/
+
+There are only a handful of sci-fi shows that we can confidently say have absolutely no flaws, from Severance to Fullmetal Alchemist: Brotherhood.
+---------
+
+# Every Best Director Oscar Winner of the 2020s So Far, Ranked
+
+Movie, Academy Awards, Directors, Christopher Nolan, Paul Thomas Anderson
+
+Wed, 26 Aug 2026 21:51:11 GMT
+
+https://collider.com/best-director-oscar-winners-2020s-ranked/
+
+From Christopher Nolan, to Sean Baker, to Jane Campion, we've ranked every Best Director Oscar winner of the 2020s.
+---------
+
+# Netflix's Latest 8-Part Harlan Coben Thriller Is Still One of the Biggest Shows in the World
+
+TV News, I Will Find You, Hot on Streaming, Netflix
+
+Wed, 26 Aug 2026 23:00:14 GMT
+
+https://movieweb.com/i-will-find-you-netflix-thriller-streaming-success-august-2026/
+
+Harlan Coben's latest Netflix series keeps proving why he's the streamer's most important asset at the moment.
+---------
+
+# The 10 Best Calvin and Hobbes Strips of the 1990s, Ranked
+
+Movie Lists, comics
+
+Wed, 26 Aug 2026 23:00:14 GMT
+
+https://movieweb.com/best-calvin-and-hobbes-strips-1990s/
+
+Bill Watterson's beloved series continues to endure after all these years. Here are the 10 best Calvin and Hobbes strips of the 1990s, ranked.
+---------
+
+# James Bond Reboot Casting Takes Major Step Forward as New Frontrunner Revealed
+
+Movie News, James Bond
+
+Wed, 26 Aug 2026 22:33:32 GMT
+
+https://movieweb.com/james-bond-jack-barton-frontrunner/
+
+Despite big names like Jacob Elordi and Paul Mescal, 'Heartstoppers' star Jack Barton is rumored to be the top choice for the role of 007.
+---------
+
+# Ridley Scott Is Finally Fixing 'Prometheus' After 14 Years
+
+Features, Ridley Scott, Alien, Prometheus, Sci-Fi, Alien: Covenant
+
+Wed, 26 Aug 2026 22:00:14 GMT
+
+https://movieweb.com/ridley-scott-fixing-prometheus-sequel/
+
+The 'Alien' storyline started in 'Prometheus' might not be finished yet, with director Ridley Scott planning a return to the sci-fi franchise.
+---------
+
+# Netflix Lands New Global Hit With 88-Minute Action Thriller Officially Crowned a Streaming Smash
+
+Movie News, Breaking In, Hot on Streaming, Action, Netflix
+
+Wed, 26 Aug 2026 22:00:14 GMT
+
+https://movieweb.com/breaking-in-action-thriller-netflix-streaming-hit-august-2026/
+
+Netflix has found a new streaming hit thanks to 'V for Vendetta' director James McTeigue's 2018 home-Invasion action thriller.
+---------
+
+# LEGO Reveals One of the Biggest 'Star Wars' Sets of All Time With $800 Star Destroyer
+
+Movie News, LEGO, Star Wars
+
+Wed, 26 Aug 2026 21:43:43 GMT
+
+https://movieweb.com/lego-star-wars-darth-vader-destroyer/
+
+LEGO just set a new record with its latest 'Star Wars' brick set.
+---------
+
+# 'The Social Reckoning' Trailer Releases the "Facebook Detective" Against Mark Zuckerberg In Thriller Sequel
+
+Movie News, The Social Reckoning, Biography, Drama, Thriller, Mark Zuckerberg
+
+Wed, 26 Aug 2026 21:24:49 GMT
+
+https://movieweb.com/the-social-reckoning-new-trailer/
+
+Sony Pictures shared a new trailer for 'The Social Reckoning,' teasing more of Jeremy Strong's performance as Mark Zuckerberg.
+---------
+
+# HBO’s Gritty 7-Part Thriller Masterpiece Started a Debate Viewers Still Won’t Drop 5 Years Later
+
+Features, Mare of Easttown, Thriller, Crime
+
+Wed, 26 Aug 2026 21:00:14 GMT
+
+https://movieweb.com/mare-of-easttown-hbo-thriller-accent-debate/
+
+HBO's critically acclaimed thriller TV series with seven episodes has an all-star cast and also one particularly memorable element.
+---------
+
+# Kate Winslet's New Netflix Series Is a 'Thelma & Louise'-Style Revenge Thriller From 'Adolescence' Writer
+
+TV News, Kate Winslet, Netflix, Thriller
+
+Wed, 26 Aug 2026 20:31:55 GMT
+
+https://movieweb.com/kate-winslets-the-unheard-netflix-adolescence/
+
+Kate Winslet and Maxine Peake will play sisters on the run after "an act of vengeance goes wrong" in 'The Unheard.'
+---------
+
+# Prime Video Scores Big With 10-Episode Sci-Fi Action Thriller From 'Ender's Game' Creator
+
+TV News, Extinct, Sci-Fi, Action, Hot on Streaming
+
+Wed, 26 Aug 2026 20:31:13 GMT
+
+https://movieweb.com/extinct-sci-fi-action-prime-video-streaming-hit-august-2026/
+
+A forgotten post-apocalyptic sci-fi action thriller co-created by Orson Scott Card has reemerged to take Prime Video by storm.
+---------
+
 # Jacob Elordi & Josh Brolin standing in The Dog Stars
 
 Interviews, The Dog Stars, Josh Brolin, Ridley Scott
