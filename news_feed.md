@@ -1,3 +1,366 @@
+# Jacob Elordi & Josh Brolin standing in The Dog Stars
+
+Interviews, The Dog Stars, Josh Brolin, Ridley Scott
+
+Wed, 26 Aug 2026 20:20:21 GMT
+
+https://screenrant.com/video/the-dog-stars-jacob-elordi-josh-brolin-interview/
+
+The Dog Stars actor Josh Brolin discusses how he avoids repeating himself even when roles are similar to himself, while director Ridley Scott reveals his intention to avoid apocalypse genre cliches in his new movie.
+---------
+
+# Sony’s New Resident Evil Reboot Officially Continues 24-Year Franchise Rating Streak (With A Twist)
+
+Movies, Resident Evil, Horror
+
+Wed, 26 Aug 2026 20:18:29 GMT
+
+https://screenrant.com/resident-evil-2026-reboot-movie-rating-franchise-streak/
+
+Sony's latest Resident Evil reboot movie has gotten its official rating, which looks to continue the survival horror franchise's 24-year streak.
+---------
+
+# 23 Years Later, Xander's Best Line Proves He Was Buffy's Secret Weapon
+
+Classic TV, Buffy The Vampire Slayer, Buffy The Vampire Slayer - Season 7
+
+Wed, 26 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/buffy-the-vampire-slayer-xander-best-line-secret-weapon/
+
+While he is usually not the most beloved Buffy the Vampire Slayer character, the best Xander Harris line proves he was the show's secret weapon.
+---------
+
+# Yellowstone Meets Justified In CBS's 13-Part Neo-Western Thriller
+
+Streaming TV, Marshals, Yellowstone
+
+Wed, 26 Aug 2026 19:45:15 GMT
+
+https://screenrant.com/marshals-yellowstone-meets-justified-neo-western-series/
+
+The Yellowstone spinoff show Marshals has a lot of similarities to Taylor Sheridan's show and Timothy Olyphant's Justified, but it's also unique.
+---------
+
+# 2026's New Batman Movie Was Just Released & It's Exactly What DC Fans Were Asking For
+
+Movies, Batman, Batman: Knightfall Part 1: Knightfall, DC Universe
+
+Wed, 26 Aug 2026 19:43:26 GMT
+
+https://screenrant.com/batman-knightfall-part-1-movie-r-rated-dc-release/
+
+2026's new Batman movie has finally been released, and this DC project happens to be exactly what Bruce Wayne fans had been asking to see for years.
+---------
+
+# Firefly's Comic Return Hits New Obstacle, But 2026 Rebirth Still Likely
+
+Comics, Firefly
+
+Wed, 26 Aug 2026 19:30:14 GMT
+
+https://screenrant.com/new-firefly-series-comics-cancelled-explained/
+
+Boost the signal!
+---------
+
+# Hal Jordan & Kilowog Solve Mysteries Together In DC's Best Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Wed, 26 Aug 2026 19:30:14 GMT
+
+https://screenrant.com/green-lantern-the-animated-series-hal-jordan-kilowog/
+
+Green Lantern: The Animated Series was a classic "buddy cop" show, just like HBO's Lanterns, but it put a lot more focus on the cosmic side.
+---------
+
+# Tim Curry's 12 Best Movies And TV Shows
+
+Movies, Tim Curry
+
+Wed, 26 Aug 2026 19:21:14 GMT
+
+https://screenrant.com/tim-curry-best-movies-tv-shows-ranked/
+
+From Clue to The Rocky Horror Picture Show to It, Tim Curry's best movies and TV shows prove why he's the king of cult classics.
+---------
+
+# Prime Video's Captive's War Adaptation Will Make The Expanse's Villains Look Small
+
+Streaming TV, Prime Video
+
+Wed, 26 Aug 2026 19:15:14 GMT
+
+https://screenrant.com/captives-war-prime-video-expanse-villains-look-small/
+
+James S.A. Corey has another space opera adaptation coming to Prime Video called Captive's War, and it has some pretty epic antagonists.
+---------
+
+# 10 Most Rewatchable Anime Series From 2001 to 2010, Ranked
+
+Anime, Shonen, Fullmetal Alchemist, Gintama, Naruto
+
+Wed, 26 Aug 2026 20:15:11 GMT
+
+https://www.cbr.com/most-rewatchable-anime-2001-to-2010/
+
+There's nothing like going back and rewatching some of the greatest series from every year of the 2000s.
+---------
+
+# James Gunn’s Superman Sequel Officially Hits Major Milestone 1 Year Before Release
+
+Movies, Man of Tomorrow, DCU, Superman
+
+Wed, 26 Aug 2026 20:11:48 GMT
+
+https://www.cbr.com/superman-2-man-of-tomorrow-wraps-filming-james-gunn/
+
+Man of Tomorrow, James Gunn's upcoming sequel to Superman, just achieved a significant milestone on its way to release.
+---------
+
+# Netflix's 'Slick' 2-Part Guy Ritchie Hit Is Officially 1 of the Most Popular Shows in the World
+
+TV, The Gentlemen
+
+Wed, 26 Aug 2026 20:04:43 GMT
+
+https://www.cbr.com/the-gentlemen-netflix-success-imdb-most-popular-shows/
+
+Netflix users have declared the series to be among the most popular TV shows in the world.
+---------
+
+# Marvel Sets Up a Major Spider-Man Death Ahead of Amazing Spider-Man #1000
+
+Comics, Spider-Man
+
+Wed, 26 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/amazing-spider-man-35-aunt-may-death-tease/
+
+Could this be the end for one of Spider-Man's closest loved ones?
+---------
+
+# Guy Ritchie's 8-Episode Crime Show Is the Next Big Netflix Classic
+
+TV, The Gentlemen, Netflix, guy ritchie
+
+Wed, 26 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/guy-ritchie-the-gentlemen-next-big-netflix-classic/
+
+It's hard to ignore the immediate success of this Netflix show and its bold plans for the future, as the streaming service secures the series' fate.
+---------
+
+# James Bond Reboot’s New Saoirse Ronan Villain Would Break A Franchise Trend
+
+Movies, James Bond
+
+Wed, 26 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/james-bond-reboot-saoirse-ronan-villain-breaks-franchise-trend/
+
+A surprising actor has shown interest in being the new Bond villain, and it would shatter a long-running franchise trend.
+---------
+
+# One Piece Cast and Character Guide
+
+Anime, One Piece
+
+Wed, 26 Aug 2026 19:52:37 GMT
+
+https://www.cbr.com/one-piece-every-important-character/
+
+One Piece has a huge cast of characters across its 1000+ episodes, but characters like the Straw Hat Pirates and the World Government matter most.
+---------
+
+# 5 Stephen King Books Better Than Carrie
+
+TV, Stephen King, Carrie, Horror, Innovation
+
+Wed, 26 Aug 2026 19:25:12 GMT
+
+https://www.cbr.com/stephen-king-novels-better-than-carrie-list/
+
+Even though Carrie was Stephen King's first novel and definitely put him on the map as a horror author, it isn't among his best works.
+---------
+
+# 92% RT Sci-Fi Hailed as 1 of the Greatest Shows Ever Made Conquers Streaming 67 Years Later
+
+TV, Twilight Zone, Twilight Zone: The Movie, The Twilight Zone, Apple TV
+
+Wed, 26 Aug 2026 19:23:11 GMT
+
+https://www.cbr.com/twilight-zone-sci-fi-apple-tv-store-success-august-2026/
+
+Nearly seven decades later, the show that defined sci-fi horror is back on top.
+---------
+
+# Ichigo Kurosaki Gets Stunning Tribute in New Limited Edition U.S. Release
+
+Anime, Bleach, Bleach: Thousand-Year Blood War, Shonen Jump
+
+Wed, 26 Aug 2026 19:20:11 GMT
+
+https://www.cbr.com/bleach-ichigo-kurosaki-limited-edition-gaming-pc/
+
+Fresh off his 10/10 anime episode, Ichigo Kurosaki is officially getting the ultimate gaming PC tribute from Starforge Systems.
+---------
+
+# Johnny Ringo Actor Reveals How Kurt Russell Officially Saved 'Tombstone' After On-Set Disaster [Exclusive]
+
+Exclusives, Tombstone, Michael Biehn, Kurt Russell, Western
+
+Wed, 26 Aug 2026 19:30:11 GMT
+
+https://collider.com/how-kurt-russell-saved-tombstone/
+
+Michael Biehn explains how Kurt Russell helped save Tombstone after director Kevin Jarre was fired during production.
+---------
+
+# The 10 Most Entertaining Stephen King Books, Ranked
+
+Books and Comics, It, Misery, The Dark Tower, Carrie
+
+Wed, 26 Aug 2026 19:19:11 GMT
+
+https://collider.com/most-entertaining-stephen-king-books-ranked/
+
+The most entertaining Stephen King books include classic pieces of horror like IT and Carrie alongside works of science fiction like 11/22/63.
+---------
+
+# DC's 'Superman' Sequel Officially Set for 2027 Release
+
+Movie News, Man of Tomorrow, James Gunn, David Corenswet, Nicholas Hoult
+
+Wed, 26 Aug 2026 18:29:17 GMT
+
+https://collider.com/dc-superman-sequel-man-of-tomorrow-filming-wrap/
+
+DC and James Gunn's Superman follow-up, Man of Tomorrow, is officially set for a 2027 release as filming has now wrapped. Read on for more.
+---------
+
+# BEEF S2: Why Dr. Kim’s Golf Scene Was So Hard to Edit | Collider BTS
+
+Interviews, Beef
+
+Wed, 26 Aug 2026 18:15:11 GMT
+
+https://collider.com/video/beef-s2-why-dr-kim-s-golf-scene-was-so-hard-to-edit-collider-bts/
+
+Editor Lauren Connelly joins Collider to unpack the craft behind Beef Season 2 and the subtle decisions that help viewers empathize with characters making terrible choices. She explains why some of the season’s most important storytelling happens in silence—in a glance, a reaction, or what a character’s eyes reveal beneath the dialogue.
+---------
+
+# 'The Rookie' Creator's New High-Stakes Hostage Series Confirms HBO Max Streaming Release
+
+TV News, HBO Max, Thriller, The Rookie
+
+Wed, 26 Aug 2026 20:12:27 GMT
+
+https://movieweb.com/the-rookie-creator-the-envoy-hbo-max/
+
+'Zero Dark Thirty' meets 'The West Wing' in HBO Max's upcoming high-stakes drama series 'The Envoy.'
+---------
+
+# 45 Years Ago, Sean Connery Made a Sci-Fi Cult Classic Remake of an All-Time Great Western
+
+Features, Outland, Sean Connery, Sci-Fi, High Noon, Western
+
+Wed, 26 Aug 2026 20:00:14 GMT
+
+https://movieweb.com/outland-sean-connery-high-noon-remake/
+
+Director Peter Hyams and Sean Connery's unique sci-fi Western is an underrated cult classic that still deserves better after 45 years.
+---------
+
+# Apple Unveils Tense First Trailer for Star-Studded 'Heat'-Esque Heist Thriller
+
+TV News, 12 12 12, Anthony Mackie, Jamie Dornan, Apple TV, Thriller, Crime
+
+Wed, 26 Aug 2026 19:46:11 GMT
+
+https://movieweb.com/12-12-12-teaser-crime-thriller-anthony-mackie/
+
+Much like 'Heat,' the new series '12 12 12' pits law enforcement against a master thief in a battle of wits.
+---------
+
+# 12 Bollywood Movies for Beginners
+
+Movie Lists, International
+
+Wed, 26 Aug 2026 19:21:50 GMT
+
+https://movieweb.com/bollywood-movies-for-beginners-where-to-start/
+
+New to Bollywood? These movies are an excellent crash course on Hindi cinema.
+---------
+
+# 30 Years Later, the Cyberpunk Masterpiece That Inspired 'The Matrix' Is Getting a New Release
+
+Movie News, Ghost in the Shell, Sci-Fi, Anime
+
+Wed, 26 Aug 2026 19:14:22 GMT
+
+https://movieweb.com/ghost-in-the-shell-30th-anniversary-re-release/
+
+The new 4K restoration for 'Ghost in the Shell' should be experienced in theaters.
+---------
+
+# 'Reacher' Season 4 Finally Admits a Harsh Truth About Alan Ritchson's Action Hero
+
+Features, Reacher, Thriller, Prime Video
+
+Wed, 26 Aug 2026 19:00:14 GMT
+
+https://movieweb.com/reacher-season-4-tired-harsh-truth/
+
+After a breathless chase sequence and epic fight in 'Reacher' Season 4, Jack Reacher endears viewers by admitting a harsh truth about the show.
+---------
+
+# Netflix's Brutal New 7-Part Crime Thriller Scores Big on Streaming
+
+TV News, Umthetho, Netflix, Hot on Streaming, Action
+
+Wed, 26 Aug 2026 19:00:14 GMT
+
+https://movieweb.com/umthetho-action-stream-netflix-tudum/
+
+Netflix's new Harlan Coben replacement is one of the biggest shows in the world.
+---------
+
+# Barney the Purple Dinosaur as a Horror Movie Is as Unsettling as It Sounds | Review
+
+Movie Reviews, Buddy
+
+Wed, 26 Aug 2026 19:00:14 GMT
+
+https://movieweb.com/buddy-review/
+
+'Buddy' subverts children's programming with chilling horror and striking visuals.
+---------
+
+# The 10 Best Tim Curry Movies & TV Shows
+
+Movie Lists, Tim Curry
+
+Wed, 26 Aug 2026 18:35:25 GMT
+
+https://movieweb.com/tim-curry-best-movies-tv-shows/
+
+Tim Curry passed away on August 26, 2026, and his movie and TV career deserves to be celebrated.
+---------
+
+# Brad Pitt's 'Once Upon a Time in Hollywood' Netflix Sequel Teaser Unveils Perfect New Title
+
+Movie News, Brad Pitt, David Fincher, Quentin Tarantino, Once Upon a Time in Hollywood, The Adventures of Cliff Booth
+
+Wed, 26 Aug 2026 18:28:01 GMT
+
+https://movieweb.com/brad-pitt-cliff-booth-netflix-teaser-new-title/
+
+Perfect title unveiled for the next chapter of Cliff Booth's adventures.
+---------
+
 # Tom Hanks' New Drama Movie Casts Emmy-Nominated Actor Ahead Of His 34-Year Return To Genre
 
 Movies, The Comebacker, Tom Hanks
