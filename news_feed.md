@@ -1,3 +1,124 @@
+# Avatar: Journey Of Aang Officially Releases September 2026
+
+Gaming, Avatar: The Last Airbender
+
+Wed, 26 Aug 2026 11:30:14 GMT
+
+https://screenrant.com/avatar-last-airbender-journey-of-aang-september-2026/
+
+Pre-order Avatar: Journey of Aang, a co-op board game inspired by the beloved series, launching soon.
+---------
+
+# After Next James Bond Frontrunner Drops Out, We Know These 8 Favorites Won't Be 007
+
+New Movies, James Bond, Bond 26
+
+Wed, 26 Aug 2026 11:15:24 GMT
+
+https://screenrant.com/james-bond-26-next-actor-favorites-ruled-out/
+
+Several fan-favorite contenders to be James Bond in Denis Villeneuve's reboot can be ruled out, with some dropping out of the race themselves.
+---------
+
+# Halo Officially Returns September 2026 With Zeta Halo
+
+Gaming, Halo, PC
+
+Wed, 26 Aug 2026 11:06:23 GMT
+
+https://screenrant.com/halo-september-2026-zeta-halo-release/
+
+Halo fans can rejoice, as yet another brand-new project, this time titled Zeta Halo, is set to launch in September 2026.
+---------
+
+# Discworld Is Officially Returning With Two New Adventures
+
+Gaming, Discworld
+
+Wed, 26 Aug 2026 11:00:15 GMT
+
+https://screenrant.com/discworld-two-new-board-games-officially-confirmed/
+
+Explore new adventures in Discworld with 'Kill Sam Vimes' and 'Readers Digested' board games, available for pre-order.
+---------
+
+# Amazing Spider-Man 2's Mary Jane Actress Was Shocked to Learn She'd Been Cut From the Sequel
+
+Movies, The Amazing Spider-Man 2
+
+Wed, 26 Aug 2026 11:00:12 GMT
+
+https://www.cbr.com/shailene-woodley-laments-amazing-spiderman-2-cut-scenes/
+
+Mary Jane's scenes with Andrew Garfield's Peter Parker were left on the cutting room floor.
+---------
+
+# 20 Years Later, Pixar's $461M Classic Is Officially Racing Back to the Big Screen
+
+Movie News, Pixar, Cars, Disney, Owen Wilson
+
+Wed, 26 Aug 2026 11:30:11 GMT
+
+https://collider.com/pixar-cars-20th-anniversary-theater-return-september-2026/
+
+To celebrate the film's 20th anniversary, Pixar is officially bringing Owen Wilson's Cars back to the big screen. Read on for more details.
+---------
+
+# Netflix Just Added One of 2025's Biggest Hidden-Gem Spy Thrillers
+
+TV Features, Talamasca: The Secret Order, Anne Rice, AMC+
+
+Wed, 26 Aug 2026 11:27:11 GMT
+
+https://collider.com/talamasca-the-secret-order-netflix-spy-thriller/
+
+Talamasca: The Secret Order is a forgotten addition to AMC's Anne Rice Immortal Universe, but it's one of Netflix's newest hidden gems.
+---------
+
+# 10 Classic Comedy Movies That Get Better With Age
+
+Movie, Comedy, Some Like It Hot, When Harry Met Sally, Step Brothers
+
+Wed, 26 Aug 2026 11:17:11 GMT
+
+https://collider.com/classic-comedy-movies-aged-well/
+
+Classic comedies like When Harry Met Sally, Some Like It Hot, and The Big Lebowski have only gotten better (and funnier) over time.
+---------
+
+# The Greatest Sports Movie of the 2010s Has Barely Any Sports in it At All
+
+Movie Features, draft day, Sports, Football, Kevin Costner
+
+Wed, 26 Aug 2026 11:08:11 GMT
+
+https://collider.com/draft-day-nfl-football-movie/
+
+The annual NFL Draft was dramatized perfectly in this compelling sports film.
+---------
+
+# Netflix Officially Loses Hayden Panettiere's 6-Part Near-Perfect Hidden Gem
+
+TV News, ABC, Drama, Music, Nashville
+
+Wed, 26 Aug 2026 11:00:11 GMT
+
+https://collider.com/abc-nashville-leaving-netflix-august-2026/
+
+A beloved six-season music drama is leaving Netflix, bringing one last chance to revisit its songs, stars, scandals, and unforgettable storylines.
+---------
+
+# Forget 'Lanterns,' HBO's Essential 10/10 Sci-Fi Thriller Series Is Officially a Streaming Smash Hit
+
+TV News, Watchmen, Hot on Streaming, HBO Max, Sci-Fi, Thriller, Superhero
+
+Wed, 26 Aug 2026 11:30:13 GMT
+
+https://movieweb.com/watchmen-streaming-hbo-max-hit-august-2026/
+
+Doing everything it needed to in just one season, there’s no better superhero TV show.
+---------
+
 # Batman: Knightfall Part 1 Gives One Actor Their 10th DC Role Since The Dark Knight
 
 Movies, Batman: Knightfall Part 1: Knightfall, DC Universe
