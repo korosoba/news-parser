@@ -1,3 +1,245 @@
+# New GTA 6 Gameplay Leak Gives Us First Glimpse Of Lucia
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto
+
+Wed, 26 Aug 2026 12:33:57 GMT
+
+https://screenrant.com/gta-6-gameplay-leak-lucia-cutscene/
+
+A new GTA 6 gameplay leak has offered up a new glimpse of Lucia at the very end, ahead of Netflix's official stream tomorrow.
+---------
+
+# The Wheel Of Time Officially Returns To Huge Success That Secures The Series' Future
+
+Gaming, The Wheel of Time, PC
+
+Wed, 26 Aug 2026 12:33:28 GMT
+
+https://screenrant.com/wheel-of-time-war-of-dragon-kickstarter-goals-smashed/
+
+The Wheel of Time television show may have ended early, but this new adaptation has already secured the series' future.
+---------
+
+# Will Trent’s Cast Exodus Brings Back Its Original Premise
+
+Network TV, Will Trent
+
+Wed, 26 Aug 2026 12:30:15 GMT
+
+https://screenrant.com/will-trent-season-5-angie-wilbur-romance-work/
+
+Season 4 marked the unexpected departure of a couple of big characters in Will Trent, paving the way for its original premise's return for good.
+---------
+
+# Marvel “Begged” To Reverse A Fan-Favorite Villain’s Death
+
+TV, Luke Cage, luke cage - Season 1, Marvel Cinematic Universe, Marvel
+
+Wed, 26 Aug 2026 12:10:21 GMT
+
+https://screenrant.com/luke-cage-cottonmouth-death-marvel-beg-change/
+
+The planned death of a fan-favorite villain led to Marvel trying to change his fate, but the showrunner insisted on sticking to the plan.
+---------
+
+# 5 NES Games On Nintendo Switch Online That Are 10/10 Masterpieces
+
+Gaming, nes, Nintendo
+
+Wed, 26 Aug 2026 12:01:15 GMT
+
+https://screenrant.com/nes-games-nintendo-switch-online-masterpieces/
+
+If you're looking to play a NES game that still holds up today as a 10/10 masterpiece, you might wanna consider checking out one of these classics.
+---------
+
+# Alan Ritchson’s Reacher Will Never Be The Same After Season 4
+
+Streaming TV, Reacher, Reacher - Season 4
+
+Wed, 26 Aug 2026 12:01:15 GMT
+
+https://screenrant.com/alan-ritchson-jack-reacher-never-the-same-season-4/
+
+After Reacher season 4’s new episode, it’s hard not to see how the Alan Ritchson character will never be the same in the show’s upcoming installments.
+---------
+
+# It's The End Of An Era For Jurassic Park Movies (& It's Long Overdue)
+
+Movies, Jurassic Park
+
+Wed, 26 Aug 2026 12:01:15 GMT
+
+https://screenrant.com/jurassic-park-world-dinosaur-movies-end-era/
+
+The Jurassic Park franchise has entered a strange new era after more than 30 years, and this massive shift is crucial for the franchise's survival.
+---------
+
+# Rockstar Issues Official Statement On "Heartbreaking" GTA 6 Leaks
+
+Gaming, Rockstar Games, Grand Theft Auto 6, PC
+
+Wed, 26 Aug 2026 11:37:27 GMT
+
+https://screenrant.com/rockstar-games-gta-6-leak-update-august/
+
+Rockstar Games has issued a formal statement on the recent wave of leaks revealing gameplay footage and open world details.
+---------
+
+# Henry Cavill's 98-Minute Guy Ritchie Action Thriller Officially Crowned a Global Streaming Hit
+
+Movies, In the Grey
+
+Wed, 26 Aug 2026 12:00:12 GMT
+
+https://www.cbr.com/in-the-grey-thriller-prime-video-streaming-success-august-2026/
+
+An underrated Guy Ritchie film starring Henry Cavill deserves to be a cult classic--and its streaming performance proves it.
+---------
+
+# 51% of Console Gamers Prefer Physical Games, New Study Finds
+
+Games, Video Games
+
+Wed, 26 Aug 2026 12:00:12 GMT
+
+https://www.cbr.com/51-of-console-gamers-prefer-physical-games-new-study-finds/
+
+The gaming industry is quickly moving toward all-digital distribution, but most prefer to buy games the old-fashioned way, on a disc or cartridge.
+---------
+
+# Apple TV’s 5-Season Sci-Fi Epic Is the Best Space Drama Since The Expanse
+
+TV, For All Mankind, The Expanse, Sci-Fi
+
+Wed, 26 Aug 2026 12:00:12 GMT
+
+https://www.cbr.com/apple-tv-for-all-mankind-sci-fi-best-space-drama-since-the-expanse/
+
+The Expanse isn't alone in exploring humanity's colonization of the cosmos, as Apple TV's For All Mankind has given the former some competition.
+---------
+
+# Transformers Lore Just Changed Forever—and a Brutal New War Is to Blame
+
+Comics, Transformers, image comics, autobots
+
+Wed, 26 Aug 2026 12:00:12 GMT
+
+https://www.cbr.com/transformers-vol-6-decepticons-attack/
+
+An escalation was inevitable as the Autobots and Decepticons entered a new phase in the Transformers' battle for supremacy in the Enegon Universe.
+---------
+
+# The BBC’s 97% Detective Hit Found a Genius Twist on the Classic Mystery Formula
+
+TV Features, BBC, Ludwig, Britbox, Crime
+
+Wed, 26 Aug 2026 12:24:11 GMT
+
+https://collider.com/bbc-detective-series-ludwig-mystery-twist/
+
+In 2024, the BBC released its latest detective series Ludwig, a crime procedural with a twin-swapping twist.
+---------
+
+# The 10 Most Intense Superhero Movies of All Time, Ranked
+
+Movie, Avengers: Infinity War, The Dark Knight, Logan, Watchmen
+
+Wed, 26 Aug 2026 12:21:11 GMT
+
+https://collider.com/most-intense-superhero-movies-all-time-ranked/
+
+Superhero movies like The Dark Knight, Watchmen, and Avengers: Infinity War can all be counted among the darkest and most intense ever released.
+---------
+
+# Josh Brolin Officially Won't Rule Out a Thanos Return to the MCU
+
+Exclusives, The Dog Stars, Josh Brolin, Ridley Scott, Avengers: Doomsday
+
+Wed, 26 Aug 2026 12:00:14 GMT
+
+https://collider.com/josh-brolin-thanos-mcu-return-rumors-the-dog-stars-interview/
+
+Josh Brolin discusses reuniting with Ridley Scott, readjusting to his unique filmmaking, and whether Thanos is actually gone from the MCU.
+---------
+
+# Mike Flanagan's Next Stephen King Remake Officially Confirms Release Date
+
+TV News, Carrie, Stephen King, Mike Flanagan, Prime Video
+
+Wed, 26 Aug 2026 12:00:14 GMT
+
+https://collider.com/stephen-king-mike-flanagan-carrie-release-date-prime-video-october-2026/
+
+Horror legends Stephen King and Mike Flanagan are teaming up for a new horror series coming to Prime Video this Fall. Get all the details here.
+---------
+
+# The 8 Most Fun Fantasy Books of All Time, Ranked
+
+Books and Comics, Books, Fantasy, Harry Potter, J.R.R. Tolkien
+
+Wed, 26 Aug 2026 11:51:11 GMT
+
+https://collider.com/most-fun-fantasy-books-all-time-ranked/
+
+Fantasy book classics like The Princess Bride, The Hobbit, and Harry Potter and the Goblet of Fire are among the most purely fun in the genre.
+---------
+
+# 10 Perfect Thrillers With the Best Plots, Ranked
+
+Movie, Die Hard, Thriller, The Matrix, The Silence of the Lambs
+
+Wed, 26 Aug 2026 11:51:11 GMT
+
+https://collider.com/perfect-thriller-movies-best-plots-ranked/
+
+Classic thriller movies like Die Hard, The Matrix, and The Silence of the Lambs have perfect, airtight plotting.
+---------
+
+# What To Remember From 'Dark Matter' Season 1 Before Season 2
+
+TV Features, Dark Matter, Apple TV, Joel Edgerton, Jennifer Connelly
+
+Wed, 26 Aug 2026 11:49:11 GMT
+
+https://collider.com/dark-matter-season-1-recap/
+
+Catch up on Dark Matter Season 1's twists before Season 2 premieres on August 28.
+---------
+
+# The 10 Greatest Manga Masterpieces of All Time, Ranked
+
+Books and Comics, Manga, Dorohedoro, Berserk, One Piece
+
+Wed, 26 Aug 2026 11:36:11 GMT
+
+https://collider.com/best-manga-masterpieces-all-time-ranked/
+
+From recent juggernauts like Vinland Saga to outright classics of the medium like Berserk, these are the 10 greatest manga masterpieces ever written.
+---------
+
+# Ryan Reynolds' New Action Film Hailed as "One of the Year's Best" Ahead of Streaming Release
+
+Movie News, Mayday, Apple TV, Ryan Reynolds, Action
+
+Wed, 26 Aug 2026 12:30:32 GMT
+
+https://movieweb.com/ryan-reynolds-mayday-first-reactions/
+
+The first reactions to Ryan Reynolds' new action spy thriller 'Mayday' have surfaced following early press screenings ahead of its Apple TV release.
+---------
+
+# 'NCIS' Favorite Officially Returns to Franchise After Canceled Spin-Off in First Look
+
+TV News, Michael Weatherly, NCIS, NCIS: Tony & Ziva
+
+Wed, 26 Aug 2026 12:23:48 GMT
+
+https://movieweb.com/ncis-season-24-michael-weatherly-first-look/
+
+CBS has revealed the first look at Michael Weatherly's return as Tony DiNozzo in 'NCIS' Season 24, eight months after his spin-off was canceled.
+---------
+
 # Avatar: Journey Of Aang Officially Releases September 2026
 
 Gaming, Avatar: The Last Airbender
