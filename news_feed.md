@@ -1,3 +1,80 @@
+# The Legend Of Zelda Officially Returns With Two New Games
+
+Gaming, The Legend of Zelda
+
+Wed, 26 Aug 2026 09:27:24 GMT
+
+https://screenrant.com/legend-of-zelda-2-new-brain-teaser-games/
+
+Explore two new challenging puzzles inspired by The Legend of Zelda franchise's 40th anniversary.
+---------
+
+# 10 Adventure Movies That Are Even Better Than National Treasure
+
+Movies, Adventure, National Treasure
+
+Wed, 26 Aug 2026 09:14:15 GMT
+
+https://screenrant.com/adventure-movies-better-national-treasure/
+
+From Raiders of the Lost Ark to The Mummy, these 10 adventure movies are even better than National Treasure.
+---------
+
+# Taylor Sheridan’s 2-Part ‘Yellowstone’ Replacement Is Officially One of Streaming's Biggest Hits
+
+TV News, Dutton Ranch, Taylor Sheridan, Yellowstone, Paramount Plus
+
+Wed, 26 Aug 2026 09:30:11 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-dutton-ranch-streaming-success-paramount-plus-august-2026/
+
+Taylor Sheridan's most-watched Yellowstone spin-off is dominating the streaming charts on Paramount+ ahead of its new season.
+---------
+
+# 20 Thriller Movies With the Best Plot Twists
+
+Movie, Thriller, Fight Club, Se7en, Parasite
+
+Wed, 26 Aug 2026 09:24:11 GMT
+
+https://collider.com/best-thriller-movie-plot-twists/
+
+The best plot twist movies are unsurprisingly often thrillers, including beloved classics like Fight Club and Memento.
+---------
+
+# Say Goodbye to the Most Unforgettable Sports Movies of All Time Before They Leave Netflix
+
+Movie Features, Rocky, Sylvester Stallone, Creed, Michael B. Jordan
+
+Wed, 26 Aug 2026 09:08:11 GMT
+
+https://collider.com/rocky-series-sylvester-stallone-leaving-netflix-september-1-2026/
+
+All nine movies in the Rocky franchise, including the 1976 original, 2006's Rocky Balboa, and the Creed films, leave Netflix September 1.
+---------
+
+# 5 Ambitious Gothic Stories That Robert Eggers Should Adapt
+
+Books and Comics, Robert Eggers, Books, The Strange Case of Dr. Jekyll and Mr. Hyde, Horror
+
+Wed, 26 Aug 2026 09:08:11 GMT
+
+https://collider.com/ambitious-gothic-stories-robert-eggers-should-adapt/
+
+Robert Eggers has an eye for the macabre. These five Gothic tales would be perfect for the Nosferatu director's next adaptation.
+---------
+
+# Prime Video's 117-Minute Sci-Fi Reboot Is Officially One of the Biggest Hits on Streaming
+
+Movie News, RoboCop, Joel Kinnaman, Prime Video, Sci-Fi
+
+Wed, 26 Aug 2026 09:00:11 GMT
+
+https://collider.com/joel-kinnaman-sci-fi-movie-robocop-streaming-success-prime-video-august-2026/
+
+Joel Kinnaman's failed sci-fi reboot, clocking in at less than two hours, has become a massive success on streaming.
+---------
+
 # Hands-On: Metro 2039 Kicks Off With A Bang And Doesn't Let Up
 
 Gaming, Metro 2039, Triple-A Games, PC
