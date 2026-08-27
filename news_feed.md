@@ -1,3 +1,388 @@
+# Game Of Thrones: The Lady Of Bear Island Officially Releases September 9
+
+Gaming, Game of Thrones, Game of Thrones: Legends, Game Of Thrones, PC
+
+Thu, 27 Aug 2026 06:00:15 GMT
+
+https://screenrant.com/game-of-thrones-legends-lady-of-bear-island-september-9/
+
+Game of Thrones officially brings a fan-favorite character back from the dead on September 9 in Lady of Bear Island.
+---------
+
+# Halo Official 25th Anniversary Free Download Available Now For Limited Time
+
+Gaming, Halo Infinite, Halo
+
+Thu, 27 Aug 2026 05:00:15 GMT
+
+https://screenrant.com/halo-25th-anniversary-infinite-free-download/
+
+Halo Infinite players can now log in anytime through 2026 to grab a free 25th anniversary bundle, no purchase or grind required.
+---------
+
+# The Legend Of Zelda Returns To Oracles Era For A New Adventure
+
+Gaming, The Legend of Zelda
+
+Thu, 27 Aug 2026 04:30:14 GMT
+
+https://screenrant.com/legend-of-zelda-moonrise-regalia-download-now/
+
+Moonrise Regalia gives Zelda: Oracle of Ages a fresh makeover with new dungeons, puzzles, content, and a soundtrack.
+---------
+
+# GTA 6 Romance Choices Will “Cut Much Deeper” Than In Previous Rockstar Games
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Thu, 27 Aug 2026 04:15:14 GMT
+
+https://screenrant.com/gta-6-romance-choices-matter-lucia-jason/
+
+Grand Theft Auto 6 is making romance a focal point of its story, and how Lucia and Jason evolve as a couple may be left up to the player's choices.
+---------
+
+# Fallout 4: Call Of The Republic Is Available To Download Now
+
+Gaming, Fallout 4, PC, Fallout
+
+Thu, 27 Aug 2026 04:00:20 GMT
+
+https://screenrant.com/fallout-4-call-of-republic-creation-club/
+
+A brand-new Fallout 4 expansion titled Call of the Republic is officially available to download right now for all fans.
+---------
+
+# DC Unveils Lex Luthor God-Tier Redesign For Superman's New Appearance
+
+Comics, Superman
+
+Thu, 27 Aug 2026 03:45:15 GMT
+
+https://screenrant.com/superman-lex-luthor-new-design-magic/
+
+Superman's most iconic ideological nemesis just donned a brand-new look in the DC mythos that's going to be hard to top.
+---------
+
+# Netflix’s Retelling Of Hunchback Of Notre Dame Gets Official Title & Release Window
+
+Movies, Netflix
+
+Thu, 27 Aug 2026 03:03:39 GMT
+
+https://screenrant.com/the-hunchback-soul-of-paris-netflix-release-window/
+
+The long anticipated retelling of the iconic Hunchback of Notre Dame finally has an official title, and a release window that is coming soon.
+---------
+
+# What's Coming To Prime Video In September 2026: Full List Of TV Shows & Movies
+
+Streaming TV, Prime Video
+
+Thu, 27 Aug 2026 03:00:15 GMT
+
+https://screenrant.com/everything-coming-to-prime-video-september-2026/
+
+Explore September 2026's exciting new releases on Prime Video, including shows, movies, and exclusive sports events.
+---------
+
+# Skyrim: The 17 Best Followers, Ranked
+
+Gaming, PC, The Elder Scrolls V: Skyrim
+
+Thu, 27 Aug 2026 02:32:34 GMT
+
+https://screenrant.com/skyrim-every-follower-companion-ranked-worst-best/
+
+The followers of Skyrim are as diverse as the game world itself, offering variety in NPC companionship, but some are the best of the absolute best.
+---------
+
+# Netflix’s New 12-Part K-Drama Is Officially The End Of An Era
+
+Streaming TV, Our Sticky Love, K-Drama
+
+Thu, 27 Aug 2026 02:30:14 GMT
+
+https://screenrant.com/our-sticky-love-netflix-k-drama-ha-young-new-era/
+
+As always, Netflix is dominating the K-drama game in 2026, but its newest hit rom-com is changing the trajectory of one actor's entire career.
+---------
+
+# 10 Greatest GameCube Games of All Time, Ranked
+
+Games, Nintendo, Innovation
+
+Thu, 27 Aug 2026 03:45:11 GMT
+
+https://www.cbr.com/greatest-gamecube-games-all-time-ranked-list/
+
+Classic titles like Resident Evil 4 and Super Smash Bros. Melee rank as the best GameCube games ever.
+---------
+
+# Game of Thrones' Brienne of Tarth Officially Returns Today in Legends
+
+TV, Game Of Thrones
+
+Thu, 27 Aug 2026 03:42:20 GMT
+
+https://www.cbr.com/game-of-thrones-brienne-of-tarth-legends/
+
+Brienne of Tarth makes her triumphant return.
+---------
+
+# Scott Bakula's Best Enterprise Episode Is Still Star Trek's Most Flawless 2-Parter
+
+TV, Star Trek: Enterprise, Paramount, Sci-Fi
+
+Thu, 27 Aug 2026 03:30:11 GMT
+
+https://www.cbr.com/star-trek-enterprise-in-a-mirror-darkly-best-episode/
+
+The two-part Mirror Universe episode of Star Trek: Enterprise is a flawless celebration of The Original Series with an evil twist.
+---------
+
+# 5 Game Boy Advance RPGs That Are 10/10 Masterpieces
+
+Games, JRPG, Pokemon
+
+Thu, 27 Aug 2026 03:15:11 GMT
+
+https://www.cbr.com/game-boy-advance-rpgs-flawless-masterpieces/
+
+These GBA RPGs offer unforgettable adventures with intricate systems, heartfelt narratives, and addictive senses progress.
+---------
+
+# Stephen King's The Dark Tower Has the Best First Line in Fantasy History
+
+Movies, Fantasy
+
+Thu, 27 Aug 2026 03:15:11 GMT
+
+https://www.cbr.com/stephen-king-dark-tower-best-fantasty-book-opening/
+
+The first sentence in Stephen King's The Dark Tower I: The Gunslinger is one of the most famous opening lines of any fantasy novel.
+---------
+
+# Netflix's Rescued Crime Drama With 100% RT Score Is Getting Two Spinoffs
+
+TV, Top Boy
+
+Thu, 27 Aug 2026 03:10:40 GMT
+
+https://www.cbr.com/netflix-orders-jonny-boy-top-boy-prequel/
+
+Netflix is giving the acclaimed series multiple spinoffs.
+---------
+
+# Dragon Ball Super Officially Brings Back the Weakest Super Saiyan
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Thu, 27 Aug 2026 03:05:11 GMT
+
+https://www.cbr.com/dragon-ball-super-saiyan-hercule-toyotarou-new-design/
+
+Dragon Ball Super creator Toyotarou returns amid the manga's ongoing hiatus with a new design depicting the weakest Super Saiyan ever: Hercule.
+---------
+
+# 10 Most Memorable Aerial Accidents In The Far Side Comics, Ranked
+
+Comics, The Far Side
+
+Thu, 27 Aug 2026 03:00:11 GMT
+
+https://www.cbr.com/funniest-aerial-accidents-in-the-far-side-comics-ranked/
+
+Aerial accidents abound in the dangerous world of The Far Side. The best of which bring readers incredibly hilarious and memorable comics.
+---------
+
+# 10 Anime to Watch If You Love Sailor Moon
+
+Anime, Sailor Moon, Puella Magi Madoka Magica
+
+Thu, 27 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-love-sailor-moon/
+
+Sailor Moon is one of the most iconic and influential anime of all time, and these magical girl series wouldn't exist without it.
+---------
+
+# The Expanse: Osiris Reborn Unveils New Look At Ganymede & Terrifying Protomolecule Hybrids
+
+Games, The Expanse
+
+Thu, 27 Aug 2026 02:40:11 GMT
+
+https://www.cbr.com/the-expanse-osiris-reborn-ganymede-trailer-protomolecule-hybrid/
+
+Owlcat Games debuted a new trailer for The Expanse: Osiris Reborn at Gamescom, and Protomolecule Hybrids take center stage on a Ganymede mission.
+---------
+
+# 23 Years Later, James Mangold's Psychological Thriller Still Delivers One of the Unforgettable Twists in Movie History
+
+Movie Features, Identity, James Mangold, John Cusack, Amanda Peet
+
+Thu, 27 Aug 2026 04:34:11 GMT
+
+https://collider.com/identity-movie-twist-ending-unforgettable-james-mangold-thriller/
+
+James Mangold's Identity completely flips the thriller script upside-down and delivers a twist that fans in 2003 never would have imagined.
+---------
+
+# Fleetwood Mac May Not Have Succeeded Without This Cult’s Intervention
+
+Music Features, Fleetwood Mac, Rock, Music
+
+Thu, 27 Aug 2026 04:21:11 GMT
+
+https://collider.com/fleetwood-mac-jeremy-spencer-children-of-god-cult/
+
+Jeremy Spencer, guitarist, pianist, and one of the original members of Fleetwood Mac, left the band in 1971 to join a cult called Children of God.
+---------
+
+# NBC’s Best Sitcom of All Time Deserves a Revival 44 Years Later
+
+TV Features, Cheers, Sitcom, Ted Danson, Frasier, NBC
+
+Thu, 27 Aug 2026 04:06:11 GMT
+
+https://collider.com/cheers-nbc-best-sitcom-revival/
+
+Cheers is one of NBC's best sitcoms of all time, and its timeless appeal in today's TV landscape makes it ideal for a revival.
+---------
+
+# ‘Silo’ Season 3’s Biggest Book Change Fixes a Problem the Novel Couldn’t
+
+TV Features, Silo, Apple TV, Ashley Zukerman, Apple
+
+Thu, 27 Aug 2026 03:52:11 GMT
+
+https://collider.com/silo-season-3-book-problem-novel-keene-thurman/
+
+Silo Season 3's changes seem to treat Rep. Keene (Ashley Zukerman) more favorably than Hugh Howey's novel Shift, but the story has better pacing.
+---------
+
+# The Walking Dead Officially Brings Back Its Scariest Villain After Years Away
+
+TV Features, The Walking Dead: Dead City, Jeffrey Dean Morgan, Lauren Cohan, The Walking Dead
+
+Thu, 27 Aug 2026 03:15:11 GMT
+
+https://collider.com/the-walking-dead-dead-city-season-3-episode-5-negan-comeback/
+
+The Walking Dead: Dead City Season 3 has officially brought back the most terrifying version of Negan as the character grapples with his dark side.
+---------
+
+# Tim Curry’s Perfect 'Rocky Horror Picture Show' Performance Gave Cinema’s Outsiders a Voice
+
+Movie Features, LGBTQ, Tim Curry, The Rocky Horror Picture Show, Home Alone 2: Lost in New York
+
+Thu, 27 Aug 2026 03:03:11 GMT
+
+https://collider.com/tim-curry-rocky-horror-picture-show-frank-n-furter-tribute-outsiders/
+
+Tim Curry's career-launching role as Dr. Frank-N-Furter in The Rocky Horror Picture Show encouraged countless viewers to embrace their true selves.
+---------
+
+# The 12 Greatest Jack Reacher Books, Ranked
+
+Books and Comics, Reacher, Books, Lee Child, Action
+
+Thu, 27 Aug 2026 03:01:11 GMT
+
+https://collider.com/greatest-jack-reacher-books-ranked/
+
+Gone Tomorrow, The Visitor, Tripwire, and Worth Dying For are among the best Jack Reacher books written by Lee Child, but which novel is superior?
+---------
+
+# Netflix’s 10/10 Superhero Series Is Finally Returning After a 2-Year Wait
+
+TV News, Netflix, Superhero, Supacell, Eddie Marsan
+
+Thu, 27 Aug 2026 02:00:21 GMT
+
+https://collider.com/netflix-supacell-season-2-filming-wrap/
+
+Netflix's criminally underrated superhero series, Supacell, has officially taken a major step toward Season 2. Read on for more details.
+---------
+
+# 22 Years Later, Fans Officially Can't Get Over This 10/10 Military Space Opera
+
+TV News, Battlestar Galactica, Ronald D. Moore, Sci-Fi, Apple TV
+
+Thu, 27 Aug 2026 01:30:11 GMT
+
+https://collider.com/battlestar-galactica-streaming-success-apple-tv-august-2026/
+
+Following Battlestar Galactica's highly anticipated return to Blu-ray, the sci-fi hit is trending on streaming charts in the U.S. Here's all to know.
+---------
+
+# Tim Curry's Greatest Film Performance Is Streaming Free on YouTube
+
+Movie Features, Tim Curry, Clue, Pennywise, John Landis
+
+Thu, 27 Aug 2026 01:03:11 GMT
+
+https://collider.com/clue-movie-tim-curry-streaming-free-youtube-august-2026/
+
+1985's Clue, a comedic masterpiece with a stacked cast including Tim Curry, Madeline Kahn and Christopher Lloyd, is streaming free on YouTube.
+---------
+
+# James Bond Star's New 5-Part Spy Thriller Series Finds New Streaming Home
+
+TV News, Gemma Arterton, Secret Service, Thriller
+
+Thu, 27 Aug 2026 01:39:45 GMT
+
+https://movieweb.com/gemma-arterton-secret-service-mgm/
+
+Gemma Arterton returns to her roots in the spy drama 'Secret Service.'
+---------
+
+# New 'Paranormal Activity' Release Already Scores Big in First Reactions
+
+Movie News, Paranormal Activity, Horror
+
+Thu, 27 Aug 2026 00:57:48 GMT
+
+https://movieweb.com/paranormal-activity-theatrical-release-broadway-reactions/
+
+The beloved found-footage film franchise made its Broadway debut with a theatrical production and the first reviews landed online.
+---------
+
+# New Look at Sequel to Best 'Godzilla' Movie of All Time Officially Debuts
+
+Movie News, Godzilla Minus Zero
+
+Thu, 27 Aug 2026 00:43:42 GMT
+
+https://movieweb.com/godzilla-minus-zero-imax-release-behind-scenes/
+
+A new behind-the-scenes video for 'Godzilla Minus Zero' confirms the movie will screen in IMAX theaters.
+---------
+
+# Taylor Sheridan's Hit Action Thriller Spin-Off Officially Scores New Release
+
+TV News, Marshals, Taylor Sheridan, Yellowstone, Blu-ray, Action, Thriller
+
+Thu, 27 Aug 2026 00:43:13 GMT
+
+https://movieweb.com/marshals-season-one-blu-ray-taylor-sheridan/
+
+Season 1 of 'Marshals' just landed on Blu-ray.
+---------
+
+# Daniel Craig’s 2027 Fantasy Remake Can Finally Redeem a 19-Year-Old Adaptation Fail
+
+Features, Daniel Craig, Narnia: The Magician's Nephew, Fantasy
+
+Thu, 27 Aug 2026 00:00:13 GMT
+
+https://movieweb.com/daniel-craig-narnia-remake-redeem-golden-compass/
+
+Daniel Craig's upcoming Netflix remake can finally redeem a 19-year-old adaptation fail that nixed his chances at a larger franchise in the genre.
+---------
+
 # Next Week, Tom Hardy's Must-Watch Gritty Western Thriller Officially Releases On HBO Max
 
 Movies, Masked Recs
