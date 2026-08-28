@@ -1,3 +1,443 @@
+# HBO Reveals First Magical Artifact From Harry Potter Season 1
+
+TV, Harry Potter
+
+Fri, 28 Aug 2026 13:30:23 GMT
+
+https://screenrant.com/harry-potter-season-1-hbo-hogwarts-letter/
+
+HBO is bringing the magic back for Harry Potter season 1, as the first magical artifact for the upcoming series has officially been revealed.
+---------
+
+# Why Star Trek: Strange New Worlds’ Doctor Replacement Guest Star Looks So Familiar
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Fri, 28 Aug 2026 13:30:14 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-brian-markinson-doctor-phillip-boyce/
+
+Star Trek: Strange New Worlds brings back Dr. Phil Boyce from "The Cage" and he's played by familiar face who is a veteran Rick Berman era guest star.
+---------
+
+# Netflix's John Wick Meets The Raid Action Franchise Is Going To Get Even Bigger
+
+Movies, Masked Recs
+
+Fri, 28 Aug 2026 13:30:14 GMT
+
+https://screenrant.com/netflix-extraction-movies-franchise-john-wick-meets-raid-future/
+
+One of Netflix's rare major movie franchises has been described as John Wick meets The Raid, and it's set to expand in some major ways.
+---------
+
+# Robert De Niro's New Netflix Crime Thriller Polarizes Critics With Rotten Tomatoes Score Debut
+
+Movies, Masked Recs, Robert De Niro, Netflix
+
+Fri, 28 Aug 2026 13:10:46 GMT
+
+https://screenrant.com/the-whisper-man-netflix-rotten-tomatoes-score/
+
+Robert De Niro's new Netflix crime drama is set to arrive this week, as the Rotten Tomatoes score for his latest project has officially debuted.
+---------
+
+# Apple TV Raises US Streaming Prices Effective Immediately
+
+TV, Apple TV
+
+Fri, 28 Aug 2026 13:09:04 GMT
+
+https://screenrant.com/apple-tv-raises-us-streaming-prices-effective-immediately/
+
+Apple TV, the home of Ted Lasso and Severance, implements a price hike, which goes into effect the same day that the announcement is made.
+---------
+
+# 58 Years Later, The Greatest Opening Line In Fantasy Still Has No Equal
+
+Gaming, The Last Unicorn, Fantasy
+
+Fri, 28 Aug 2026 13:00:14 GMT
+
+https://screenrant.com/best-opening-line-fantasy-peter-beagle/
+
+This essential fantasy novel's opening line is still unmatched 58 years later and remains one of the most iconic sentences ever written.
+---------
+
+# Nathan Fillion's New 8-Part HBO Sci-Fi Show Is Officially A Full-Circle Moment
+
+Streaming TV, Masked Recs
+
+Fri, 28 Aug 2026 13:00:14 GMT
+
+https://screenrant.com/lanterns-nathan-fillion-career-full-circle/
+
+Nathan Fillion is one of the stars of HBO's new detective sci-fi series, and the project marks a full-circle moment for the popular actor in one way.
+---------
+
+# Game Of Thrones' Finale Would Have Been Less Controversial If It Aired A Decade Earlier
+
+Classic TV, Game Of Thrones
+
+Fri, 28 Aug 2026 13:00:14 GMT
+
+https://screenrant.com/game-of-thrones-finale-less-controversial/
+
+If Game of Thrones had aired in the 2000s, before Lost ended, then there wouldn't have been nearly as much pressure on the series finale.
+---------
+
+# Halo's New Cortana Replacement Officially Unveiled
+
+Gaming, Halo, Halo: Campaign Evolved, Halo: Combat Evolved, Halo Infinite, Halo 2, Halo 3, Halo: Reach, PC
+
+Fri, 28 Aug 2026 12:45:40 GMT
+
+https://screenrant.com/halo-new-cortana-clone-replacement/
+
+Halo has officially revealed Cortana's new replacement after the final events on Zeta Halo, ushering in a new era for the franchise.
+---------
+
+# James Bond's Future Now Rests On Two Of The Best World War 2 Shows Since Band Of Brothers
+
+Movies, James Bond
+
+Fri, 28 Aug 2026 12:38:09 GMT
+
+https://screenrant.com/james-bond-future-actor-callum-turner-jack-o-connell-jack-barton-ww2-shows/
+
+The James Bond casting is getting close to a reveal and the rumored shortlist includes stars from two great World War II television shows.
+---------
+
+# Say Goodbye to Apple's Prices as Tech Giant Announces New Price Changes
+
+TV, Apple TV
+
+Fri, 28 Aug 2026 13:24:40 GMT
+
+https://www.cbr.com/apple-tv-price-increase-2026/
+
+Shortly after Peacock, Apple TV is replicating a frustrating streaming trend.
+---------
+
+# Discworld Officially Returns in New Release Coming November 2026
+
+Games
+
+Fri, 28 Aug 2026 13:15:11 GMT
+
+https://www.cbr.com/discworld-officially-returns-new-release-november-2026/
+
+Discworld fans will finally get a chance to assassinate one of the series' most beloved characters in November 2026, though the odds are against them.
+---------
+
+# 10 Isekai Anime With the Greatest Power Systems
+
+Anime, Isekai, Overlord
+
+Fri, 28 Aug 2026 13:15:11 GMT
+
+https://www.cbr.com/isekai-anime-greatest-power-systems/
+
+Isekai series have a unique opportunity to create some of the most interesting power systems in anime, and these 10 series do it better than the rest.
+---------
+
+# Eva Longoria’s Steamy 107-Minute Drama Is Officially a Streaming Hit After Just 1 Day
+
+Movies, The Last Sunrise
+
+Fri, 28 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/eva-longoria-romance-the-last-sunrise-prime-video-success-august-2026/
+
+In no time at all, the Desperate Housewives star's new sizzling romance project dominates the streaming charts.
+---------
+
+# The 5 Highest-Selling Fantasy Books, Ranked
+
+Movies, Fantasy, books, The Hobbit
+
+Fri, 28 Aug 2026 13:00:11 GMT
+
+https://www.cbr.com/highest-selling-fantasy-books-list/
+
+From classic pillars of the genre to generation-defining young adult literature, these fantasy novels and novellas have sold more than any others.
+---------
+
+# DC Has Officially Replaced Superman Once and For All
+
+Comics, Superman, Deadshot, DC Comics
+
+Fri, 28 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/dc-next-level-one-shot-superman-replacement-confirmed/
+
+As part of its Next Level initiative, DC introduces a new Superman, but does this mean the one-time Man of Steel has met his match?
+---------
+
+# 11 Years Ago, Netflix Dropped 1 of the Greatest Scenes in Sci-Fi History & It Still Hits Hard
+
+TV, Sense8, Netflix, Sci-Fi
+
+Fri, 28 Aug 2026 12:00:11 GMT
+
+https://www.cbr.com/netflix-sense8-best-scene-whats-up/
+
+One of the greatest scenes in sci-fi history landed on Netflix back in 2015, and it is still just as powerful and moving 11 years later.
+---------
+
+# 10 Best Far Side Comics From 1993 That Prove Gary Larson is a Genius
+
+Comics, The Far Side
+
+Fri, 28 Aug 2026 11:00:11 GMT
+
+https://www.cbr.com/the-far-side-comics-from-1993-gary-larson-genuis/
+
+Being at the height of its popularity, The Far Side in 1993 saw Gary Larson produce some of his weirdest and darkest cartoons of The Far Side.
+---------
+
+# Dark Matter Season 2 Review: Apple TV’s Massive Risk Pays Off in a Sci-Fi Triumph
+
+TV, Dark Matter, Apple TV, Sci-Fi
+
+Fri, 28 Aug 2026 07:00:11 GMT
+
+https://www.cbr.com/dark-matter-season-2-review/
+
+Apple TV's cerebral sci-fi hit, Dark Matter, is back with Season 2, and it is a fundamentally different show, which is why it works so well.
+---------
+
+# Gal Gadot Finished as Wonder Woman as Rumored Replacement Wraps Filming on Man of Tomorrow
+
+Movies, Wonder Woman, Man of Tomorrow
+
+Fri, 28 Aug 2026 05:05:30 GMT
+
+https://www.cbr.com/gal-gadot-finished-wonder-woman-adria-arjona/
+
+Gal Gadot offers a message to the next Wonder Woman amid rumors her replacement will appear in Man of Tomorrow.
+---------
+
+# 3 Near-Perfect Series to Binge on Netflix Before the End of August
+
+TV, Talamasca: The Secret Order, My Brilliant Career, Leanne, Netflix
+
+Fri, 28 Aug 2026 12:41:11 GMT
+
+https://collider.com/netflix-shows-binge-weekend-august-29-2026/
+
+Leanne, My Brilliant Career, and Talamasca: The Secret Order make up our list of the best series to binge on Netflix the weekend of August 29.
+---------
+
+# ‘The X-Files’ Favorite’s Forgotten Sci-Fi Movie Is Officially Taking Over HBO Max
+
+Movie News, Evolution, The X-Files, HBO Max, David Duchovny
+
+Fri, 28 Aug 2026 12:30:11 GMT
+
+https://collider.com/david-duchovny-sci-fi-evolution-streaming-success-hbo-max-august-2026/
+
+David Duchovny's alien-invasion film Evolution quietly tops streaming charts globally as The X-Files returns to the spotlight. Here's all to know.
+---------
+
+# The 6 Best Sci-Fi Shows Released Since 2000, Ranked
+
+TV, Sci-Fi, Battlestar Galactica, The Orville, The Expanse
+
+Fri, 28 Aug 2026 12:24:11 GMT
+
+https://collider.com/best-sci-fi-tv-shows-since-2000-ranked/
+
+From Dark to The Expanse, these modern sci-fi masterpieces blend bold ideas, rich characters, and unforgettable storytelling.
+---------
+
+# 10 Forgotten Thriller Books That Have Aged Like Fine Wine
+
+Books and Comics, Books, Thriller, Crime, Mystery
+
+Fri, 28 Aug 2026 12:23:11 GMT
+
+https://collider.com/forgotten-thriller-books-aged-like-fine-wine/
+
+Despite being largely forgotten by most mainstream readers, great thriller books like Cat of Many Tails and The Last Good Kiss have aged beautifully.
+---------
+
+# New 'Dungeons & Dragons' Release Officially Reveals 8 Minutes of Footage
+
+Gaming News, Dungeons & Dragons, Fantasy, Video Game, Hasbro
+
+Fri, 28 Aug 2026 12:00:11 GMT
+
+https://collider.com/warlock-dungeons-and-dragons-gameplay-trailer/
+
+Dungeons & Dragons unveils new gameplay for its upcoming dark fantasy adventure, revealing its world, characters, combat, and magic.
+---------
+
+# ‘Adults’ Creators Break Down Season 2’s Most Shocking Moments and Tease a Potential Season 3
+
+TV, Adults, Comedy, FX, Hulu
+
+Fri, 28 Aug 2026 12:00:11 GMT
+
+https://collider.com/adults-season-2-explained-creators-ben-kronengold-rebecca-shaw/
+
+Adults creators Ben Kronengold and Rebecca Shaw break down Season 2's shocking moments, talk writing a K-Pop song, and tease a potential Season 3.
+---------
+
+# Every Ridley Scott Sci-Fi Movie, Ranked
+
+Movie, The Dog Stars, Ridley Scott, Blade Runner, Alien
+
+Fri, 28 Aug 2026 11:57:11 GMT
+
+https://collider.com/ridley-scott-sci-fi-movies-ranked/
+
+Ridley Scott has directed six sci-fi movies to date, including classics like Alien and Blade Runner, but which of them stands as the best overall?
+---------
+
+# The 10 Best Drama Movies in Film History
+
+Movie, Drama, The Godfather, Cinema Paradiso, The Shawshank Redemption
+
+Fri, 28 Aug 2026 11:45:11 GMT
+
+https://collider.com/best-drama-movies-film-history/
+
+The Godfather, The Shawshank Redemption, and Citizen Kane are all among the very best drama movies ever made.
+---------
+
+# 10 Classic Rock Songs With the Greatest Opening Lines, Ranked
+
+Music Features, Rock, Music, Queen, The Beatles
+
+Fri, 28 Aug 2026 11:43:11 GMT
+
+https://collider.com/classic-rock-songs-greatest-opening-lines-ranked/
+
+From The Beatles’ biggest hits to Led Zeppelin and The Rolling Stones, these classic rock songs have unforgettable opening lines.
+---------
+
+# The 10 Greatest Action Heroines of All Time
+
+Movie, Action, Sigourney Weaver, Carrie Fisher, Buffy The Vampire Slayer
+
+Fri, 28 Aug 2026 11:36:11 GMT
+
+https://collider.com/best-action-heroines-all-time-ranked/
+
+Sarah Connor, Ellen Ripley, and Imperator Furiosa are among the absolute greatest action heroines from movies and TV.
+---------
+
+# Apple TV's Underrated Sci-Fi Adaptation Officially Undoes the Book's Original Ending
+
+Features, Dark Matter, Apple TV
+
+Fri, 28 Aug 2026 13:00:14 GMT
+
+https://movieweb.com/dark-matter-season-2-book-ending-undone/
+
+2016's 'Dark Matter' gave the Dessens an ending that Season 1 mirrored, but Season 2 has decided to undo it. Read on for more.
+---------
+
+# 'The Big Bang Theory' Painfully Revisits Its Most Heartbreaking Moment After 12 Years
+
+Features, Big Bang Theory, Stuart Fails to Save the Universe, HBO Max, Comedy, Sci-Fi, Kevin Sussman, Jim Parsons
+
+Fri, 28 Aug 2026 12:00:14 GMT
+
+https://movieweb.com/tbbt-stuart-spinoff-comic-book-store-fire/
+
+Stuart Bloom may be the hero now, but his spin-off hasn't forgotten about his tragedy in 'The Big Bang Theory' Season 7: the comic book store fire.
+---------
+
+# After 13 Shows, Netflix Still Needs to Adapt Harlan Coben’s Overlooked First Thriller
+
+Features, Harlan Coben, Netflix, Thriller
+
+Fri, 28 Aug 2026 12:00:14 GMT
+
+https://movieweb.com/harlan-coben-play-dead-thriller-netflix-adaptation/
+
+Harlan Coben has 13 Netflix thriller TV shows based on his bestselling novels, including his latest, 'I Will Find You,' which stars Sam Worthington.
+---------
+
+# Forget 'The Dog Stars,' Ridley Scott's Essential 10/10 Sci-Fi Masterpiece Is Finally Streaming on Netflix
+
+Movie News, Alien, Netflix, Coming/Leaving Streaming, Ridley Scott
+
+Fri, 28 Aug 2026 12:00:14 GMT
+
+https://movieweb.com/alien-ridley-scott-netflix-streaming-september-2026/
+
+Few movies can truly be referred to as game-changers. This new Netflix arrival is one of them.
+---------
+
+# 'Reacher' Star Alan Ritchson's Rumored DCU Role Revealed
+
+Movie News, Alan Ritchson, DCU
+
+Fri, 28 Aug 2026 11:33:48 GMT
+
+https://movieweb.com/alan-ritchson-dcu-deathstroke-bane-rumor/
+
+Alan Ritchson's mystery DCU role was reportedly Deathstroke in DC Studios' Bane and Deathstroke movie, but talks have since ended, per a new rumor.
+---------
+
+# It's Officially the End of an Era For 'Silo'
+
+Features, Silo, Sci-Fi
+
+Fri, 28 Aug 2026 11:00:14 GMT
+
+https://movieweb.com/silo-season-3-bernard-goodbye/
+
+'Silo' Season 3 is currently streaming on Apple TV, and the sci-fi TV show stars Rebecca Ferguson, Colin Hanks, and Tim Robbins.
+---------
+
+# Adria Arjona Confirms There’s More to Her ‘Man of Tomorrow’ DCU Debut Than We Think
+
+Movie News, Adria Arjona, Man of Tomorrow
+
+Fri, 28 Aug 2026 10:54:24 GMT
+
+https://movieweb.com/superman-man-of-tomorrow-adria-arjona-role-tease/
+
+Adria Arjona has finally spoken about her mystery 'Man of Tomorrow' role, revealing when she shot it and how she trained for James Gunn's DCU sequel.
+---------
+
+# 'Avengers' Directors Confirm the One MCU Movie You Need to Watch Before 'Doomsday'
+
+Movie News, Avengers: Endgame, Avengers: Doomsday
+
+Fri, 28 Aug 2026 10:23:00 GMT
+
+https://movieweb.com/avengers-endgame-encore-required-viewing-doomsday/
+
+Joe Russo says 'Avengers: Endgame Encore' is 'required viewing' before 'Avengers: Doomsday,' with four minutes of new footage bridging the two films.
+---------
+
+# Taylor Sheridan's 9-Part 'Yellowstone' Spin-Off Officially Passes Major Milestone Before New Season
+
+TV News, Dutton Ranch, Paramount Plus, Hot on Streaming, Taylor Sheridan
+
+Fri, 28 Aug 2026 10:00:13 GMT
+
+https://movieweb.com/dutton-ranch-taylor-sheridan-yellowstone-streaming-hit-paramount-august-2026/
+
+Before Season 2, Taylor Sheridan's hit neo-western is riding up the streaming charts once again.
+---------
+
+# Apple TV's Underrated Sci-Fi Series Effectively Switches Genre in Season 2 | Review
+
+TV Reviews, Dark Matter
+
+Fri, 28 Aug 2026 07:00:14 GMT
+
+https://movieweb.com/dark-matter-season-2-review/
+
+'Dark Matter' Season 2 is more of the same, but that's not a bad thing.
+---------
+
 # Jeremy Renner Teases Hawkeye’s Avengers Return In Cryptic Image
 
 Movies, Avengers: Doomsday, Avengers: Secret Wars
