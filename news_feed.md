@@ -1,3 +1,432 @@
+# DC Unveils Depressing New Origin Story For Superman, And It's 10/10 Perfect
+
+Comics, Superman
+
+Sat, 29 Aug 2026 19:00:16 GMT
+
+https://screenrant.com/superman-clark-kent-origin-new-job-depression-layoffs/
+
+Fans get to step back in time to see Superman in his earliest days in 1938 with a story that would impressively be as relevant then as it is today.
+---------
+
+# The Simpsons: Is It Finally Time to Plan the Ending?
+
+TV, The Simpsons
+
+Sat, 29 Aug 2026 19:00:16 GMT
+
+https://screenrant.com/video/the-simpsons-is-it-finally-time-to-plan-the-ending/
+
+Designed with impeccable detail, this new Secretlab partnership is a loving homage to Spider-Man and Spider-Man: Brand New Day. The Secretlab TITAN Evo Marvel Spider-Man Edition is a must-have centerpiece for every Spider-Man fan's setup. Check it out: https://secretlab.co/products/titan-evo-2022-series?sku=M07-E24SW-SPDMN1R/?rfsn=6939278.d2b0a4&amp;utm_source=refersion&amp;utm_medium=affiliate&amp;utm_campaign=6939278.d2b0a4&amp;subid=sr-082626The Simpsons Movie 2: Springfield's Final Chapter? Almost two decades after the original movie became a massive theatrical hit, Homer, Marge, Bart, Lisa, and Maggie are finally returning to theaters. This time, however, the circumstances surrounding Springfield couldn't be more different.
+---------
+
+# Stardew Valley Meets Valheim In 9/10 Steam Game You Can Play Totally Free
+
+Gaming, Stardew Valley, Valheim
+
+Sat, 29 Aug 2026 19:00:16 GMT
+
+https://screenrant.com/steam-free-games-stardew-meets-valheim/
+
+Discover Skillwood, the free woodcutter simulator combining Stardew Valley's charm with Valheim's survival elements.
+---------
+
+# HBO's Supernatural Movie With A Sequel On The Way Puts A Hex On Streaming For Impressive Streak
+
+Movies, Masked Recs
+
+Sat, 29 Aug 2026 18:57:03 GMT
+
+https://screenrant.com/practical-magic-hbo-max-streaming-streak-august-2026/
+
+Ahead of the upcoming sequel releasing in theaters, a supernatural movie on HBO Max has managed to achieve an impressive streaming streak.
+---------
+
+# Casting Mighty Morphin Power Rangers In 2026: All 10 Main Roles
+
+Classic TV, Mighty Morphin Power Rangers, Power Rangers
+
+Sat, 29 Aug 2026 18:30:15 GMT
+
+https://screenrant.com/mighty-morphin-power-rangers-2026-recast-actors/
+
+The original Mighty Morphin Power Rangers cast helped the show become iconic and spawn a franchise, and replacing them in 2026 is no easy task.
+---------
+
+# Ridley Scott's 7 Sci-Fi & Fantasy Movies, Ranked From Worst To Best
+
+Classic Movies, Sci-Fi, Fantasy
+
+Sat, 29 Aug 2026 18:30:15 GMT
+
+https://screenrant.com/ridley-scott-sci-fi-fantasy-movies-ranked-worst-best/
+
+Ridley Scott released his latest sci-fi movie in 2026 with The Dog Stars, so here is a look at his best sci-fi and fantasy movie releases.
+---------
+
+# Dexter Morgan Changes Professions In New Resurrection Season 2 Set Photos
+
+TV, Dexter: Resurrection
+
+Sat, 29 Aug 2026 18:27:17 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-set-photos-dexter-morgan-paramedic/
+
+Dexter Morgan is adding more to his resume in Dexter: Resurrection, as new set photos show an entirely different career for the beloved serial killer.
+---------
+
+# Heated Rivalry Season 2 Brings Back Iconic Set As Filming Continues
+
+TV, Heated Rivalry
+
+Sat, 29 Aug 2026 18:16:39 GMT
+
+https://screenrant.com/heated-rivalry-season-2-cottage-set-return/
+
+Filming on Heated Rivalry 2 is underway, and it has now been revealed that the show’s sophomore outing will feature the return of a major location.
+---------
+
+# 20 Things Wrong With Suits We All Choose To Ignore
+
+Classic TV, Suits
+
+Sat, 29 Aug 2026 18:03:38 GMT
+
+https://screenrant.com/suits-biggest-problems-wrong-fans-ignore/
+
+The legal eagles in Suits may fight for what’s right in the courtroom, but that doesn’t mean the show itself is beyond reproach.
+---------
+
+# The Big Bang Theory Unlocks Major Streaming Milestone For First Time In Series History
+
+TV, The Big Bang Theory, Streaming Charts
+
+Sat, 29 Aug 2026 18:02:12 GMT
+
+https://screenrant.com/big-bang-theory-nielsen-ratings-number-one-first-time-ever/
+
+The smash hit sitcom The Big Bang Theory hits a huge streaming milestone for this first time in history, seven years after going off the air.
+---------
+
+# Cate Blanchett's 101-Minute Dystopian Sci-Fi Flop Finds Redemption on Streaming
+
+Movies, cate blanchett, Borderlands, Peacock
+
+Sat, 29 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/cate-blanchett-borderlands-peacock-success-august-2026/
+
+One of Blanchett's bigger box-office flops is finding new life on streaming.
+---------
+
+# Netflix's Gears of War is Aliens Meets Saving Private Ryan
+
+Movies, Gears of War, Netflix, Alien
+
+Sat, 29 Aug 2026 19:00:11 GMT
+
+https://www.cbr.com/gears-of-war-combines-aliens-and-saving-private-ryan/
+
+Netflix's forthcoming adaptation of the Epic Games series combines Alien-esque gritty sci-fi with Saving Private Ryan-type all-out war imagery.
+---------
+
+# Game of Thrones' Divisive Prequel Is 1 of the Most-Watched Shows on Streaming
+
+TV, House of the Dragon, Innovation
+
+Sat, 29 Aug 2026 18:39:11 GMT
+
+https://www.cbr.com/house-of-the-dragon-nielsen-charts-july-2026/
+
+The series has attracted criticism, but it didn't stop it from becoming a true force to be reckoned with.
+---------
+
+# 10 Greatest Anime Series of the Last 10 Years, Ranked
+
+Anime, Jujutsu Kaisen, The Apothecary Diaries, Frieren: Beyond Journey's End
+
+Sat, 29 Aug 2026 18:15:11 GMT
+
+https://www.cbr.com/greatest-anime-series-last-10-years-ranked/
+
+Since 2016, some of the greatest anime series of all time have been released, including Jujutsu Kaisen and The Apothecary Diaries.
+---------
+
+# Batman: Hush 2 Proves Batman’s Best Stories Can Deserve a Sequel
+
+Comics, Batman, Hush, detective comics
+
+Sat, 29 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/hush-2-officially-proves-some-batman-stories-deserve-a-sequel/
+
+The Batman's most diabolical adversary has plans to destroy him in the sequel to one of DC's greatest stories, proving the HUSH sequel is worthy.
+---------
+
+# Evangelion Brings Back Shinji, Rei, Asuka, Mari & Kaworu for New 30th Anniversary Designs
+
+Anime, Neon Genesis Evangelion
+
+Sat, 29 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/evangelion-30th-anniversary-new-character-designs/
+
+Evangelion celebrates 30 years with new formal designs for Shinji, Rei, Asuka, Mari and Kaworu, giving all five pilots anniversary makeovers.
+---------
+
+# Tom Cruise Confirms Release Window for Sequel to 1990 Cult Classic
+
+Movies, Days of Thunder, tom cruise
+
+Sat, 29 Aug 2026 17:34:14 GMT
+
+https://www.cbr.com/tom-cruise-days-of-thunder-sequel-release-window/
+
+Tom Cruise will team up with Anne Hathaway for the sequel to the hit sports action film.
+---------
+
+# September 29 Is Officially the End of an Era for Mario Kart
+
+Games, Mario Kart, Mario Kart Tour, Nintendo
+
+Sat, 29 Aug 2026 17:15:11 GMT
+
+https://www.cbr.com/mario-kart-end-of-an-era-september-2026/
+
+Mario Kart Tour, the first Mario Kart game to hit iOS and Android devices, will see a major change come its way on September 29th.
+---------
+
+# Star Trek 60th Anniversary Delayed: Here’s Why Fans Shouldn’t Panic Yet
+
+Comics, Star Trek
+
+Sat, 29 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/idw-publishing-star-trek-60th-anniversary-delayed/
+
+Fear not, Star Trek won't give up on its 60th anniversary just yet.
+---------
+
+# Gerard Butler's 129-Minute Based on a True Story Action Epic Is Soaring on Streaming
+
+Movies, Gerard Butler, Machine Gun Preacher, Paramount+ with Showtime
+
+Sat, 29 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/gerard-butler-machine-gun-preacher-action-paramount-plus-success-august-2026/
+
+One of Butler's most emotional action epics is gaining new fans on streaming.
+---------
+
+# 'Fallout' Meets 'Mad Max' in Denzel Washington's Cult Classic Thriller Streaming on Netflix
+
+Movie News, Sci-Fi, Denzel Washington, The Book of Eli, Gary Oldman
+
+Sat, 29 Aug 2026 19:00:12 GMT
+
+https://collider.com/denzel-washington-post-apocalyptic-thriller-the-book-of-eli-streaming-netflix-august-2026/
+
+Denzel Washington’s $157 million post-apocalyptic action thriller The Book of Eli is streaming now.
+---------
+
+# Guy Ritchie Meets 'The Sopranos' in Paramount+'s 10-Episode Gangster Series
+
+TV Features, MobLand, Paramount Plus, Guy Ritchie, The Sopranos
+
+Sat, 29 Aug 2026 18:38:11 GMT
+
+https://collider.com/guy-ritchie-sopranos-replacement-series-mobland-paramount-plus/
+
+MobLand takes the best of Guy Ritchie's vision of London and mixes it with the complicated family dynamics of a show like The Sopranos.
+---------
+
+# Only 10 Movies From the 2010s Will Stand the Test of Time as Masterpieces
+
+Movie, Parasite, The Wolf of Wall Street, Carol, Moonlight
+
+Sat, 29 Aug 2026 18:28:11 GMT
+
+https://collider.com/movies-2010s-stand-test-of-time-masterpieces/
+
+Oscar winners like Parasite and unsung triumphs like It's Such a Beautiful Day are among the few 2010s movies that will endure as true masterpieces.
+---------
+
+# Prime Video's New #1 Hit Show Is Renewed, but Season 2 Has a Big Problem To Solve
+
+TV Features, Sterling Point, Ella Rubin, Prime Video, Jeffrey Dean Morgan
+
+Sat, 29 Aug 2026 18:27:11 GMT
+
+https://collider.com/sterling-point-season-2-prime-video-biggest-storyline-problem/
+
+Sterling Point has been renewed for Season 2, but the Prime Video show needs to expand its drama to include a very specific set of characters.
+---------
+
+# 12 Years Later, Ridley Scott’s $200M Historical Flop Is Officially Leaving Streaming
+
+Movie News, Exodus: Gods and Kings, Ridley Scott, Christian Bale, Peacock
+
+Sat, 29 Aug 2026 18:00:11 GMT
+
+https://collider.com/ridley-scott-exodus-gods-and-kings-leaving-peacock-september-2026/
+
+Ridley Scott's costly mythological misfire, starring Christian Bale, is about to be removed from Peacock. Find out more.
+---------
+
+# 8 Netflix Miniseries That Are Perfect From Beginning to End
+
+TV, TV Miniseries, Adolescence, The Fall of the House of Usher, Ripley
+
+Sat, 29 Aug 2026 17:57:11 GMT
+
+https://collider.com/netflix-miniseries-perfect-beginning-to-end/
+
+Adolescence, Bodies, The Fall of the House of Usher, Ripley, and more make up our list of Netflix miniseries that are perfect from beginning to end.
+---------
+
+# The 10 Best-Looking Movies of the 20th Century, Ranked
+
+Movie, Blade Runner, Days of Heaven, Lawrence of Arabia, Barry Lyndon
+
+Sat, 29 Aug 2026 17:52:11 GMT
+
+https://collider.com/best-looking-movies-20th-century-ranked/
+
+The best-looking movies of the 20th century include classics like Blade Runner, Lawrence of Arabia, and Mishima: A Life in Four Chapters.
+---------
+
+# 'Andor' Star's Gritty Sci-Fi Thriller Officially Arrives This Week
+
+Movie News, Adria Arjona, Onslaught, Action, Adam Wingard
+
+Sat, 29 Aug 2026 17:46:36 GMT
+
+https://collider.com/adria-arjona-dan-stevens-onslaught-release-date-september-4-2026/
+
+Adria Arjona takes on Dan Stevens’ mad scientist in the new action thriller Onslaught this week. Read on for more details.
+---------
+
+# 'Reacher's Alan Ritchson Officially Returns With New Release in 2 Weeks
+
+Movie News, Alan Ritchson, Owen Wilson, Runner, Action
+
+Sat, 29 Aug 2026 17:43:41 GMT
+
+https://collider.com/alan-ritchson-runner-release-date-september-2026/
+
+Alan Ritchson is officially returning to the big screen alongside Owen Wilson in the new action thriller Runner. Find out when here.
+---------
+
+# 10 Gangster Movies That Are Perfect From the First Scene to the Last
+
+Movie, The Godfather, Goodfellas, Once Upon a Time in America, The Long Good Friday
+
+Sat, 29 Aug 2026 17:28:11 GMT
+
+https://collider.com/gangster-movies-perfect-first-scene-to-last/
+
+From the original Scarface to the seminal Goodfellas, these gangster movies are virtually perfect from the moment they start to their very last scene.
+---------
+
+# 8 Great TV Shows With Satisfying Endings After Just 2 Seasons
+
+TV Lists, Fleabag, Andor, Loki
+
+Sat, 29 Aug 2026 19:00:15 GMT
+
+https://movieweb.com/tv-shows-satisfying-endings-2-seasons/
+
+From a critically acclaimed animated series to a beloved 'Star Wars' prequel, these shows only needed two seasons to tell their stories.
+---------
+
+# Matt Damon's Forgotten 118-Minute Action Fantasy Makes Official Streaming Return
+
+Movie News, The Brothers Grimm, Paramount Plus, Coming/Leaving Streaming, Fantasy, Action
+
+Sat, 29 Aug 2026 18:30:14 GMT
+
+https://movieweb.com/brothers-grimm-action-stream-paramount-september-2026/
+
+Who needs 'The Odyssey' when you have Matt Damon's other action fantasy film on streaming?
+---------
+
+# Tom Cruise Recruits Anne Hathaway For Long-Awaited Action Legacy Sequel, Sets 2028 Release
+
+Movie News, Days of Thunder, Tom Cruise, Anne Hathaway, Action, Comedy, Drama
+
+Sat, 29 Aug 2026 17:38:28 GMT
+
+https://movieweb.com/days-of-thunder-2-tom-cruise-anne-hathaway/
+
+A massive legacy sequel to one of Tom Cruise's biggest hits will now bring Oscar-winner Anne Hathaway in next to him.
+---------
+
+# Sydney Sweeney's 'Handmaid's Tale' Role, Explained
+
+Features, The Handmaid's Tale, Sydney Sweeney
+
+Sat, 29 Aug 2026 17:00:14 GMT
+
+https://movieweb.com/sydney-sweeney-handmaids-tale-character-eden-explained/
+
+Rediscover Sydney Sweeney's overlooked performance in the dystopian series 'The Handmaid's Tale.'
+---------
+
+# Guy Ritchie's Best Crime Thriller in Years Officially Returns This Week
+
+TV News, The Gentlemen, Netflix, Coming/Leaving Streaming, Guy Ritchie
+
+Sat, 29 Aug 2026 17:00:13 GMT
+
+https://movieweb.com/the-gentlemen-season-2-guy-ritchie-netflix-return/
+
+Forget 'MobLand,' Guy Ritchie's best crime thriller series officially returns to streaming in less than seven days.
+---------
+
+# 6-Season Supernatural Fantasy Remake Streaming on Netflix Is Still Binge-Worthy After 15 Years
+
+Features, Teen Wolf, Dylan O'Brien
+
+Sat, 29 Aug 2026 17:00:13 GMT
+
+https://movieweb.com/teen-wolf-streaming-netflix-binge-worthy/
+
+'Teen Wolf' is one of the most memorable supernatural dramas of all time, and the fantasy show is still worth streaming on Netflix 15 years later.
+---------
+
+# Russell Crowe's R-Rated 103-Minute Supernatural Thriller Getting New Release
+
+Movie News, The Pope's Exorcist, Blu-ray, Horror, Russell Crowe
+
+Sat, 29 Aug 2026 16:30:13 GMT
+
+https://movieweb.com/the-popes-exorcist-russell-crowe-4k-blu-ray-release/
+
+Crowe's horror hit gets a new release just in time for Halloween.
+---------
+
+# 'Ted Lasso's Roy Kent Replacement Confirms Its Biggest Season 4 Problem
+
+Features, Ted Lasso
+
+Sat, 29 Aug 2026 16:30:13 GMT
+
+https://movieweb.com/ted-lasso-season-4-biggest-problem/
+
+The conversations surrounding 'Ted Lasso's Roy Kent replacement highlight the real problem with Season 4 — and it's not on the series itself.
+---------
+
+# The Greatest Mystery Thriller of the 21st Century is Streaming Free on YouTube
+
+Features, Zodiac, David Fincher, Thriller
+
+Sat, 29 Aug 2026 16:01:13 GMT
+
+https://movieweb.com/zodiac-thriller-free-youtube/
+
+The best mystery thriller movie of the past few decades, made by an acclaimed director, is available to stream for free on YouTube.
+---------
+
 # Ridley Scott Backtracks Alien: Romulus Review Ahead Of Proposed Sci-Fi Follow-Up
 
 Movies, Alien: Romulus, Alien
