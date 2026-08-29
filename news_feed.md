@@ -1,3 +1,432 @@
+# 42 Years Later, Marvel Reinvents Venom Lore With One Tragic Twist
+
+Marvel Comics, Venom, Marvel
+
+Sat, 29 Aug 2026 21:45:35 GMT
+
+https://screenrant.com/marvel-venom-lore-reinvent-tragic-twist/
+
+Venom lore is much different today than it was when readers first learned that Spider-Man's black suit was an alien, and that history has sad context.
+---------
+
+# 57 Years Later, Star Trek: The Original Series' Best Episode Has Aged Like Fine Wine
+
+Classic TV, Star Trek: The Original Series, Star Trek
+
+Sat, 29 Aug 2026 21:45:14 GMT
+
+https://screenrant.com/star-trek-original-series-best-episode-city-on-the-edge-of-forever/
+
+57 years later, Star Trek: The Original Series' best episode is not only its most emotionally resonant but also one of its most timeless stories.
+---------
+
+# The Lord Of The Rings Officially Makes Its Biggest Dwarf Lore Change Since The Hobbit
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, The Lord of the Rings: The Rings of Power - Season 3
+
+Sat, 29 Aug 2026 21:45:14 GMT
+
+https://screenrant.com/rings-of-power-season-3-teenage-dwarves-change-problems/
+
+The Hobbit's love triangle got the ball rolling. Now, Rings of Power is preparing to throw a wrench in the way Tolkien decided Dwarves grow up.
+---------
+
+# Avengers: Endgame Encore Is Officially "Required" Before Doomsday
+
+Movies, Avengers: Endgame, Avengers: Doomsday
+
+Sat, 29 Aug 2026 21:40:09 GMT
+
+https://screenrant.com/avengers-endgame-encore-required-before-doomsday-joe-russo/
+
+According to Doomsday directors Joe and Anthony Russo, Avengers: Endgame Encore is "required" for anyone planning to watch the newest chapter.
+---------
+
+# 10 Far Side Comics Where Animals Expose Humanity’s Weirdest Habits
+
+Comics
+
+Sat, 29 Aug 2026 21:35:25 GMT
+
+https://screenrant.com/far-side-comics-animals-expose-humanity/
+
+Gary Larson's Far Side comics epitomize humor in all of its forms. However, the wit does not undersell its realism.
+---------
+
+# Prime Video’s 10/10 Crime-Procedural Masterpiece Shows The Lincoln Lawyer How It’s Done
+
+TV, Ballard
+
+Sat, 29 Aug 2026 21:30:14 GMT
+
+https://screenrant.com/ballard-shows-the-lincoln-lawyer-how-franchise-expansion/
+
+The Lincoln Lawyer is coming to an end on Netflix, but Prime Video has a solution for fans who want more of Mickey Haller and his legal team.
+---------
+
+# 2026's New Batman Movie Finally Kills a Weird Dark Knight Trend That's Defined the Last Decade
+
+Movies, Batman: Knightfall Part 1: Knightfall, DC Universe, DC
+
+Sat, 29 Aug 2026 21:15:14 GMT
+
+https://screenrant.com/batman-knightfall-dc-elseworlds-trend-explained/
+
+Since 2016's adaptation of a classic Batman story, DC has quietly built a strange Dark Knight trend that's finally, thankfully over.
+---------
+
+# 4 Calvin And Hobbes Strips That Hit Way Harder When You're An Adult
+
+Comics, Calvin and Hobbes
+
+Sat, 29 Aug 2026 21:00:15 GMT
+
+https://screenrant.com/calvin-hobbes-strips-hit-harder-adult/
+
+Some Calvin and Hobbes comics develop two very different meanings when read through the eyes of a child and when interpreted by an adult.
+---------
+
+# 10 Greatest Sword & Sorcery Fantasy Movies Of All Time, Ranked
+
+Classic Movies, Fantasy
+
+Sat, 29 Aug 2026 21:00:15 GMT
+
+https://screenrant.com/best-sword-sorcery-fantasy-movies/
+
+There are several sword and sorcery fantasy movies as they have existed since the start of cinema, but these are the best of the best for fans.
+---------
+
+# 27 Years Later, The Mummy Still Has the Best Opening Scene in Action History
+
+Movies, The Mummy
+
+Sat, 29 Aug 2026 21:30:11 GMT
+
+https://www.cbr.com/the-mummy-best-opening-scene-in-action-history/
+
+The Mummy immersed viewers in a fascinating world of Ancient Egypt, immediately starting from the first scene.
+---------
+
+# It's Official, Shonen Anime Is Over As We Know It
+
+Anime, Bleach, Bleach: Thousand Year Blood War, shonen anime, Shonen
+
+Sat, 29 Aug 2026 21:15:11 GMT
+
+https://www.cbr.com/its-official-shonen-anime-is-over-bleach-tybw-final-cour/
+
+The conclusion of Bleach: The Thousand-Year Blood War marks the end of an era
+---------
+
+# Prime Video’s New Stephen King Adaptation Breaks a Mike Flanagan Casting Streak
+
+TV, Mike Flanagan, Carrie
+
+Sat, 29 Aug 2026 21:11:19 GMT
+
+https://www.cbr.com/zach-gilford-clarifies-carrie-casting/
+
+Mike Flanagan is returning to TV, but there will be some big changes.
+---------
+
+# Dragon Ball Z's Best Goku Fight Gets a 10/10 Modern Remake
+
+Anime, Dragon Ball Z, Dragon Ball
+
+Sat, 29 Aug 2026 21:05:11 GMT
+
+https://www.cbr.com/dragon-ball-z-dokkan-battle-super-saiyan-goku-animation-remake/
+
+Goku's initial transformation into a Super Saiyan on Namek just got a modernized reboot that's arguably even better than the OG DBZ anime's version.
+---------
+
+# 5 Greatest Fantasy Adaptations That Are Better Than The Book
+
+Movies, Fantasy
+
+Sat, 29 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/best-fantasy-adaptations-better-than-book-list/
+
+The fantasy genre has countless adaptations, but some of these surpass even the books they are based on.
+---------
+
+# Harrison Ford's 130-Minute Action Thriller Masterpiece Is a Free Streaming Hit
+
+Movies, The Fugitive, harrison ford, Pluto
+
+Sat, 29 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/harrison-ford-the-fugitive-action-pluto-tv-success-august-2026/
+
+One of Ford's most iconic movies of the 1990s is a hit on streaming.
+---------
+
+# Pokémon Wants Worlds to Feel “Like the NFL"
+
+Games, Pokemon
+
+Sat, 29 Aug 2026 20:45:11 GMT
+
+https://www.cbr.com/pokemon-worlds-gen-1-nfl-aj-sealy/
+
+We chatted with AJ Sealy, the composer for the 2026 official theme for Pokémon World Championships talked about his surprising source and inspiration
+---------
+
+# Prime Video’s Reboot of ’80s Sci-Fi Classic Confirms Filming Window
+
+TV, Robocop
+
+Sat, 29 Aug 2026 20:31:54 GMT
+
+https://www.cbr.com/prime-video-robocop-reboot-filming-window/
+
+Fans just got a major update on the production of Prime Video's upcoming reboot of one of the biggest sci-fi franchises of an entire generation.
+---------
+
+# What's Coming to Disney+ in September 2026? Everything Arriving Next Month
+
+TV, Disney+, Hulu
+
+Sat, 29 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/what-coming-disney-in-september-2026-full-list/
+
+Disney+ and Hulu will share some titles, but there are some differences.
+---------
+
+# 5 Greatest Psychological Thrillers Of The 2020s, Ranked
+
+Movies, Thriller, Invisible Man, Eddington
+
+Sat, 29 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/greatest-psychological-thrillers-2020s-ranked-list/
+
+The 2020s have given psychological thriller fans some of the best gems of the 21st century, and five stand out from the rest as near-perfect.
+---------
+
+# 'Avatar: The Last Airbender' Meets 'Rings of Power' in Netflix's 7-Season Fantasy Masterpiece
+
+TV Features, The Dragon Prince, Netflix, Fantasy, Jack De Sena
+
+Sat, 29 Aug 2026 21:47:11 GMT
+
+https://collider.com/dragon-prince-netflix-fantasy-masterpiece/
+
+Netflix's The Dragon Prince is a sprawling fantasy saga that balances intricate lore and heartfelt character growth.
+---------
+
+# The 10 Best Movie Trilogies in Film History
+
+Movie, Rise of the Planet of the Apes, Spider-Man, The Lord of the Rings, Guardians of the Galaxy
+
+Sat, 29 Aug 2026 21:42:11 GMT
+
+https://collider.com/best-movie-trilogies-film-history/
+
+From Indiana Jones to Toy Story, these movie trilogies deliver unforgettable characters, bigger stories, and finales that stick the landing.
+---------
+
+# The 10 Best Bethesda Video Games of All Time, Ranked
+
+TV, Video Game, Bethesda, The Elder Scrolls V: Skyrim, Fallout
+
+Sat, 29 Aug 2026 21:41:11 GMT
+
+https://collider.com/best-bethesda-games-all-time-ranked/
+
+Explore the best Bethesda video games, ranked by design, gameplay, and fan opinion, from The Elder Scrolls V: Skyrim to Fallout 3.
+---------
+
+# M. Night Shyamalan’s Biggest Box Office Misfire in 2 Decades Is Officially Leaving Streaming
+
+Movie News, M. Night Shyamalan, Knock at the Cabin, Dave Bautista, Peacock
+
+Sat, 29 Aug 2026 21:30:11 GMT
+
+https://collider.com/m-night-shyamalan-knock-at-the-cabin-leaving-peacock-september-2026/
+
+M. Night Shyamalan's apocalyptic thriller, starring Dave Bautista and Jonathan Groff, is leaving Peacock soon. Find out more.
+---------
+
+# The 6 Best Movie Performances Since 1990, Ranked
+
+Movie, Daniel Day-Lewis, Anthony Hopkins, Heath Ledger, Denzel Washington
+
+Sat, 29 Aug 2026 21:30:11 GMT
+
+https://collider.com/best-movie-performances-since-1990-ranked/
+
+From Fargo to Monster, these six extraordinary performances showcase the craft, transformation, and screen presence that define great acting.
+---------
+
+# Jason Momoa's Underrated Western Is Officially the Perfect Watch for Taylor Sheridan Fans
+
+Movie News, Jason Momoa, Taylor Sheridan, Braven, Plex
+
+Sat, 29 Aug 2026 21:15:11 GMT
+
+https://collider.com/jason-momoa-braven-streaming-plex-september-2026/
+
+Taylor Sheridan fans can't miss Jason Momoa's forgotten Western, Braven, when it lands on streaming next month. Read on for more.
+---------
+
+# Every Stephen King Book With Randall Flagg, Ranked
+
+Books and Comics, The Stand, Stephen King, The Dark Tower, Horror
+
+Sat, 29 Aug 2026 21:14:11 GMT
+
+https://collider.com/stephen-king-randall-flagg-books-ranked/
+
+Randall Flagg has shown up in many Stephen King books, including various ones in The Dark Tower series and The Stand... but which is the best?
+---------
+
+# Before Ryan Murphy’s Netflix Show, Christina Ricci’s 8-Part Lizzie Borden Series Is a Perfect Binge
+
+TV Features, The Lizzie Borden Chronicles, Christina Ricci, Monster: The Lizzie Borden Story, Ryan Murphy
+
+Sat, 29 Aug 2026 21:10:11 GMT
+
+https://collider.com/lizzie-borden-chronicles-christina-ricci-docudrama/
+
+Christina Ricci's captivating take on Lizzie Borden in this binge-worthy series is the perfect watch before Ryan Murphy's adaptation.
+---------
+
+# 'Saving Private Ryan' Meets 'Resident Evil' in the WWII Thriller Streaming Now
+
+Movie News, Overlord, World War II, Wyatt Russell, Horror
+
+Sat, 29 Aug 2026 21:00:11 GMT
+
+https://collider.com/wyatt-russell-overlord-ww2-horror-movie-global-streaming-success-august-2026/
+
+WW2 meets gruesome sci-fi horror in the acclaimed action thriller Overlord, which is streaming now.
+---------
+
+# The 8 Most Fun Disaster Movies of All Time, Ranked
+
+Movie, Moonfall, Twister, Armageddon, Geostorm
+
+Sat, 29 Aug 2026 20:53:11 GMT
+
+https://collider.com/the-most-fun-disaster-movies-all-time-ranked/
+
+Armageddon, Twister, and Moonfall are all among the most purely fun disaster movies ever made.
+---------
+
+# Prime Video's Perfect Summer Hit Series Is Officially One of the Biggest Shows in the World
+
+TV News, The Summer I Turned Pretty, Hot on Streaming, Prime Video, Romance
+
+Sat, 29 Aug 2026 21:30:13 GMT
+
+https://movieweb.com/summer-i-turned-pretty-streaming-success-prime-video-august-2026/
+
+It's like 'The O.C.' meets Gen Z.
+---------
+
+# The 9 Most Exciting War Thriller Series Like 'Lioness', Ranked
+
+TV Lists, Thriller, War, Lioness, Tom Clancy's Jack Ryan, The Terminal List
+
+Sat, 29 Aug 2026 21:30:13 GMT
+
+https://movieweb.com/war-thriller-series-like-lioness/
+
+If you want more spies, more conspiracies, and more explosions, these war thrillers offer that and are similar enough to 'Lioness' to make solid recs.
+---------
+
+# Henry Cavill's "Game of Thrones Meets Star Wars" Space Opera Epic Will Change Sci-Fi Forever
+
+Features, Henry Cavill, Warhammer 40k, Star Wars, Game Of Thrones, Sci-Fi, Prime Video
+
+Sat, 29 Aug 2026 21:00:14 GMT
+
+https://movieweb.com/henry-cavill-game-of-thrones-star-wars-epic-sci-fi/
+
+Henry Cavill’s upcoming passion project has a chance to steal the spotlight from Star Wars and Game of Thrones.
+---------
+
+# 'MobLand' Star Helen Mirren Leads First Trailer for Mystery Thriller 12 Years in the Making
+
+Movie News, A Talent for Murder, Helen Mirren, Mystery
+
+Sat, 29 Aug 2026 20:30:13 GMT
+
+https://movieweb.com/a-talent-for-murder-trailer/
+
+Olivia Cooke and Alden Ehrenreich star alongside Helen Mirren in 'A Talent For Murder.'
+---------
+
+# 9 Movies That Hid Their Big Franchise Connection Until The Last Minute
+
+Movie Lists, Blade Runner, Kingsman: The Secret Service, Predator, Alien, The Uprising, Split, Cloverfield, Sci-Fi, Thriller
+
+Sat, 29 Aug 2026 20:30:13 GMT
+
+https://movieweb.com/movies-hid-big-franchise-connection/
+
+From sci‑fi to horror to thrillers, these are 9 movies that hid their big franchise connections until the last minute.
+---------
+
+# Netflix’s Steamy New 3-Part Series Quickly Finds Streaming Success After Being Uncanceled
+
+TV News, Hot on Streaming, Drama, Tyler Perry’s Beauty in Black
+
+Sat, 29 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/beauty-in-black-netflix-ratings-cancellation-reversal/
+
+'Beauty in Black' soars to the top of Netflix's charts after its revival for Season 4.
+---------
+
+# ‘The Pitt’ Season 3 Already Confirms a Harsh Reality for the HBO Masterpiece
+
+Features, The Pitt, Drama
+
+Sat, 29 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/the-pitt-season-3-robby-langdon-story/
+
+'The Pitt' Season 3 will air on HBO Max in January 2027 and will star Noah Wyle, Katherine LaNasa, and Shawn Hatosy.
+---------
+
+# James Cameron's Greatest Sci-Fi Action Sequel Officially Returns With New Netflix Release
+
+Movie News, James Cameron, Aliens, Coming/Leaving Streaming, Sci-Fi
+
+Sat, 29 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/james-cameron-aliens-netflix-september-2026/
+
+Can a sequel top the original? Not often, but there are exceptions — like this stone cold classic.
+---------
+
+# Jean-Claude Van Damme's Cult Classic Sci-Fi Action Thriller Getting New Release
+
+Movie News, Action, Sci-Fi, Blu-ray, Jean-Claude Van Damme, Timecop
+
+Sat, 29 Aug 2026 19:30:13 GMT
+
+https://movieweb.com/timecop-jean-claude-van-damme-4k-blu-ray/
+
+One of the most enduring sci-fi thrillers of the '90s is about to get a premium release.
+---------
+
+# How Taylor Sheridan Repeated A Christopher Nolan Trick To Build His TV Empire
+
+Features, Thriller, Lioness, Taylor Sheridan, 1883, Christopher Nolan
+
+Sat, 29 Aug 2026 19:30:13 GMT
+
+https://movieweb.com/taylor-sheridan-lamonica-garrett-casting-trick/
+
+Taylor Sheridan uses an old Hollywood trick Christopher Nolan fans will recognize in his TV empire, and a 'Lioness' star is sharing insight.
+---------
+
 # DC Unveils Depressing New Origin Story For Superman, And It's 10/10 Perfect
 
 Comics, Superman
