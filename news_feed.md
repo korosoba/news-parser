@@ -1,3 +1,377 @@
+# What's Coming To Tubi In September 2026: Full List Of TV Shows & Movies
+
+Streaming TV, Tubi TV
+
+Sat, 29 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/everything-coming-to-tubi-september-2026/
+
+Explore September's new movies and shows on Tubi, which include several original titles and a huge selection of classics for the month.
+---------
+
+# Hulu Just Unveiled The Best Fantasy Series Of The Year, And It's 10 Weeks Away
+
+Anime, Hulu, Masked Recs
+
+Sat, 29 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/hulu-fantasy-drama-the-remarried-empress-release-date-trailer/
+
+Hulu already has the best fantasy series of the year releasing on November 4, and its newest trailer just proved why it's already considered as such.
+---------
+
+# Prime Video's Fourth Wing Series Can Learn 3 Lessons From The Wheel Of Time
+
+Streaming TV, Fourth Wing, The Wheel of Time
+
+Sat, 29 Aug 2026 23:25:15 GMT
+
+https://screenrant.com/fourth-wing-show-learn-from-the-wheel-of-time-adaptation/
+
+Prime Video's Fourth Wing TV show feels like a big risk after the cancellation of The Wheel of Time, but it can learn from its predecessor's mistakes.
+---------
+
+# Rooster: 5 Months Later, HBO’s 88%-Rated Steve Carell Series Is Still A Perfect Weekend Binge
+
+Streaming TV, Masked Recs
+
+Sat, 29 Aug 2026 23:15:14 GMT
+
+https://screenrant.com/rooster-hbo-steve-carell-series-binge/
+
+Five months after its series premiere, HBO Max's original dramedy series Rooster starring Steve Carell remains a perfect 10-part weekend binge.
+---------
+
+# Star Wars Confirms Han Solo's Perfect Replacement After 12 Years Of Disney Trying
+
+Movies, Star Wars, Star Wars: Starfighter
+
+Sat, 29 Aug 2026 23:02:34 GMT
+
+https://screenrant.com/star-wars-starfighter-ryan-gosling-kade-auberon-han-solo-replacement/
+
+Star Wars' Han Solo replacement is here, and it only took Disney over a decade to find the perfect candidate to take Harrison Ford's franchise spot.
+---------
+
+# Indiana Jones Is Officially Reversing Its Most Iconic Death of All Time
+
+Comics, Indiana Jones
+
+Sat, 29 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/indiana-jones-reverse-raiders-lost-ark-retcon/
+
+A major Raiders of the Lost Ark villain resurrected!
+---------
+
+# Westworld Got Canceled, But Don't Blame The Final Season
+
+Classic TV, Westworld
+
+Sat, 29 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/westworld-final-season-is-not-bad-cancel/
+
+Westworld might have ended after a fourth season that failed to reclaim the show's former glories, but that final run is better than you think.
+---------
+
+# Game Of Thrones Meets Valheim In New Free Open-World RPG
+
+Gaming, Game of Thrones, Valheim, RPG, PC
+
+Sat, 29 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/game-of-thrones-meets-valheim-winds-of-valen/
+
+Game of Thrones fans should check out this brand-new free open-world RPG that blends the iconic fantasy series with Valheim's amazing gameplay.
+---------
+
+# 10 Greatest Opening Lines In Literary History, Ranked
+
+Books
+
+Sat, 29 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/greatest-book-opening-lines-literary-history/
+
+Explore the most memorable opening lines in literary history and discover how they captivate readers instantly, each taking a different approach.
+---------
+
+# Merlin Meets The Tudors In Prime Video's Steamy 8-Part Fantasy Series
+
+Classic TV, Masked Recs
+
+Sat, 29 Aug 2026 22:30:14 GMT
+
+https://screenrant.com/my-lady-jane-prime-video-merlin-meets-tudors-fantasy/
+
+Prime Video's steamy historical fantasy series, My Lady Jane, is 'Merlin meets The Tudors' and one of the streamer's best original shows.
+---------
+
+# Strongest Hashira in Demon Slayer's Infinity Castle Arc, Ranked
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Kimetsu no Yaiba Infinity Castle, shonen anime
+
+Sat, 29 Aug 2026 23:45:11 GMT
+
+https://www.cbr.com/strongest-hashira-demon-slayer-infinity-castle-ranked/
+
+Among Demon Slayer's elite Hashira shown in the Infinity Castle, these five stand out for their overwhelming strength.
+---------
+
+# Leonardo DiCaprio's $294M Neo-Noir Thriller Quietly Moves to a New Streaming Platform in 3 Days
+
+Movies, Shutter Island
+
+Sat, 29 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/leonardo-dicaprio-shutter-island-paramount-plus-september-2026/
+
+One of the biggest mind-bending thrillers of the past two decades is about to have a new streaming home on a fan-favorite platform.
+---------
+
+# 10 Anime to Watch If You Love Steins; Gate
+
+Anime, Steins;Gate, Sci-Fi
+
+Sat, 29 Aug 2026 23:15:11 GMT
+
+https://www.cbr.com/anime-for-steins-gate-fans/
+
+Steins;Gate's time-travel mechanics give the series genuine personal stakes, and these anime manage to achieve the same emotional heights.
+---------
+
+# Jim Carrey's $351M Cult Superhero Movie Sets Peacock Release Date
+
+Movies, The Mask, Jim Carrey, Peacock
+
+Sat, 29 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/jim-carrey-the-mask-peacock-release-date-september-2026/
+
+One of Carrey's most memorable movies is set to arrive on Peacock soon.
+---------
+
+# 10 Most Suspenseful Stephen King Movies of the 21st Century
+
+Movies, Stephen King
+
+Sat, 29 Aug 2026 22:30:11 GMT
+
+https://www.cbr.com/most-suspenseful-stephen-king-movies-list/
+
+Stephen King's most horrifying adaptations would be nothing without suspense to back it up.
+---------
+
+# 5 Sega Genesis Games On Nintendo Switch Online That Are 10/10 Masterpieces
+
+Games, Sega Genesis, Sonic the Hedgehog 2, Streets of Rage, Video Games
+
+Sat, 29 Aug 2026 22:15:11 GMT
+
+https://www.cbr.com/masterpiece-sega-genesis-games-on-nintendo-switch-online/
+
+The Nintendo Switch Online's growing library of classic Sega Gensis title continues to grow, and features these five must-play 10/10 masterpieces.
+---------
+
+# Prime Video's 8-Part Steamy Series With 91% RT Jumps on the Charts Again 3 Months After Debut
+
+TV, Off Campus, Prime Video
+
+Sat, 29 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/off-campus-steamy-prime-video-success-august-2026/
+
+Three months after making its debut, Prime Video's Off Campus adaptation is jumping up the charts ahead of the second season.
+---------
+
+# Batman: Knightfall Is an Instant Superhero Classic
+
+Movies, Batman: Knightfall Part 1: Knightfall, Knightfall, Batman
+
+Sat, 29 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/dc-batman-knightfall-best-superhero-movie-2026/
+
+The first installment of the animated Batman: Knightfall trilogy is one of its best adaptations and is an instant classic superhero movie.
+---------
+
+# 5 Multiverse Saga Loose Ends the MCU Will Probably Never Solve
+
+TV, Marvel Cinematic Universe, Disney+, Innovation
+
+Sat, 29 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/mcu-multiverse-saga-unresolved-stories-list/
+
+The Multiverse Saga is leaving plenty of loose ends behind that might not be addressed as the MCU moves on.
+---------
+
+# 94 Years Later, Dick Tracy Returns For A Thrilling Holiday Special
+
+Comics, Dick Tracy
+
+Sat, 29 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/dick-tracy-veterans-day-special-release-date-confirmed/
+
+The upcoming holiday special promises to reveal more about what made the iconic detective, Dick Tracy, who he is.
+---------
+
+# Mark Wahlberg’s Brutal 94-Minute Action Thriller Is Officially Streaming on Netflix
+
+Movie News, Mark Wahlberg, Mile 22, Netflix, John Malkovich
+
+Sat, 29 Aug 2026 23:45:11 GMT
+
+https://collider.com/mark-wahlberg-mile-22-global-streaming-netflix-august-2026/
+
+Mark Wahlberg’s brutal 94-minute action thriller Mile 22 is streaming on Netflix. Here's everything you should know.
+---------
+
+# Star Wars Meets ‘Shadow and Bone’ in Disney+’s Best Dark Fantasy Series
+
+TV Features, The Acolyte, Star Wars, Shadow and Bone, Disney+
+
+Sat, 29 Aug 2026 23:36:11 GMT
+
+https://collider.com/the-acolyte-star-wars-shadow-and-bone-disney-dark-fantasy/
+
+Star Wars took on dark fantasy with The Acolyte, a short-lived, one-season series available to stream on Disney+
+---------
+
+# Quentin Tarantino “Irritated” the Star of This Neo-Western Cult Classic Leaving Paramount+
+
+Movie News, Quentin Tarantino, George Clooney, From Dusk Till Dawn, Paramount Plus
+
+Sat, 29 Aug 2026 23:30:11 GMT
+
+https://collider.com/quentin-tarantino-neo-western-from-dusk-till-dawn-leaving-paramount-plus-september-2026/
+
+Quentin Tarantino played a lead role in this neo-Western cult classic leaving Paramount+. Find out more.
+---------
+
+# Forget ‘Tomb Raider,’ Sophie Turner's Forgotten 98-Minute Actioner Is Officially Free to Stream
+
+Movie News, Sophie Turner, Tomb Raider, Barely Lethal, Plex
+
+Sat, 29 Aug 2026 23:15:11 GMT
+
+https://collider.com/sophie-turner-barely-lethal-streaming-plex-september-2026/
+
+Before the Tomb Raider reboot, catch Sophie Turner's 98-minute actioner for free. Here's everything you should know about Barely Lethal.
+---------
+
+# Tom Hanks' Beloved 189-Minute Stephen King Classic Climbs to #1 on Streaming
+
+Movie News, The Green Mile, Tom Hanks, Stephen King, Michael Clarke Duncan
+
+Sat, 29 Aug 2026 23:00:11 GMT
+
+https://collider.com/tom-hanks-stephen-king-the-green-mile-streaming-success-prime-video-apple-tv-august-2026/
+
+Tom Hanks' beloved Stephen King adaptation that's over three hours long has surged to the #1 spot on streaming charts.
+---------
+
+# 6 Fantasy Books That Rival The Lord of the Rings
+
+Books and Comics, Fantasy, Books, The Lord of the Rings, Philip Pullman
+
+Sat, 29 Aug 2026 22:51:11 GMT
+
+https://collider.com/fantasy-books-rival-the-lord-of-the-rings/
+
+From Memory, Sorrow, and Thorn to His Dark Materials, these epic fantasy series rival Tolkien in scale, depth, and ambition.
+---------
+
+# Peter Cullen’s Legendary Sci-Fi Monster Is Officially Hunting Its Way Off Streaming
+
+Movie News, Predator, Arnold Schwarzenegger, Peacock, Sci-Fi
+
+Sat, 29 Aug 2026 22:45:11 GMT
+
+https://collider.com/arnold-schwarzenegger-sci-fi-predator-leaving-peacock-september-2026/
+
+The cult classic that launched one of the longest-running sci-fi franchises of all time is about to be removed from Peacock. Find out more.
+---------
+
+# Quentin Tarantino’s Favorite Christopher Nolan Movie Is Officially Taking Over Streaming
+
+Movie News, Dunkirk, Quentin Tarantino, Christopher Nolan, Tom Hardy
+
+Sat, 29 Aug 2026 22:30:11 GMT
+
+https://collider.com/quentin-tarantino-favorite-ww2-movie-dunkirk-streaming-success-prime-video-apple-tv-august-2026/
+
+Quentin Tarantino's favorite WW2 movie picks up steam on streaming charts before The Adventures of Cliff Booth hits IMAX.
+---------
+
+# 4 Years Later, Liam Neeson’s Failed Spy Thriller Is Officially Back From the Dead
+
+Movie News, Liam Neeson, Blacklight, Action, Plex
+
+Sat, 29 Aug 2026 22:15:11 GMT
+
+https://collider.com/liam-neeson-blacklight-streaming-plex-september-2026/
+
+An underrated Liam Neeson spy effort is getting a second chance on streaming. Read on to get all the details.
+---------
+
+# The 10 Funniest Movies in Film History
+
+Movie, Comedy, Borat, Airplane!, Tropic Thunder
+
+Sat, 29 Aug 2026 22:05:11 GMT
+
+https://collider.com/funniest-movies-in-film-history/
+
+Airplane!, Monty Python and the Holy Grail, and Tropic Thunder are all among the absolute funniest comedy movies in cinema history.
+---------
+
+# Ridley Scott's 'Alien: Covenant' Sequel Could Connect Two Franchise Chapters
+
+Movie News, Alien, Alien: Romulus, Alien: Covenant, Ridley Scott
+
+Sat, 29 Aug 2026 23:08:05 GMT
+
+https://movieweb.com/ridley-scott-alien-covenant-romulus-sequel/
+
+Ridley Scott seemingly is not a fan of 'Alien: Romulus' and is making the third film in the 'Prometheus' trilogy.
+---------
+
+# Every Ridley Scott Sci-Fi Movie, Ranked
+
+Movie Lists, Ridley Scott, Sci-Fi
+
+Sat, 29 Aug 2026 23:00:14 GMT
+
+https://movieweb.com/ridley-scott-sci-fi-movie-ranked/
+
+From his latest dystopian sci-fi thriller to acclaimed classics like 'Blade Runner', how do Ridley Scott's sci-fi films stack up?
+---------
+
+# 'Power Rangers' Star David Yost Has Epic Plans for His New "X-Files Meets Lost" Sci-Fi Series
+
+TV News, Action, Mighty Morphin Power Rangers
+
+Sat, 29 Aug 2026 22:00:13 GMT
+
+https://movieweb.com/common-terry-david-yost-future-plans/
+
+David Yost teases long-term plans for his new science fiction project.
+---------
+
+# 8 Completed Netflix Shows Perfect for Binge-Watching
+
+TV Lists, BoJack Horseman, Squid Game, Stranger Things, Netflix
+
+Sat, 29 Aug 2026 22:00:13 GMT
+
+https://movieweb.com/completed-netflix-shows-to-binge-watch/
+
+Netflix has so many entertaining TV shows to choose from, and these eight series can be binge-watched in one weekend.
+---------
+
 # 42 Years Later, Marvel Reinvents Venom Lore With One Tragic Twist
 
 Marvel Comics, Venom, Marvel
