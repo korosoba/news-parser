@@ -1,3 +1,366 @@
+# The Legend Of Zelda: Sands Of Time Is A Near-Perfect Adventure
+
+Gaming, The Legend of Zelda
+
+Sat, 29 Aug 2026 04:00:20 GMT
+
+https://screenrant.com/legend-of-zelda-sands-of-time-unofficial-sequel/
+
+Discover the fan-made game continuing Ocarina of Time's legacy.
+---------
+
+# 4 Months Later, Oliver Queen's Green Arrow Clone Is DC's Biggest Summer Mystery
+
+Comics, Green Arrow
+
+Sat, 29 Aug 2026 03:31:15 GMT
+
+https://screenrant.com/new-green-arrow-clone-replacement/
+
+One of the most incredible comics runs of 2026 is thriving thanks in part to its central mystery.
+---------
+
+# The MCU's New Space Opera Can Bring Back The Guardians Of The Galaxy & Reverse A James Gunn Decision
+
+Superheroes, Nova, Marvel Cinematic Universe, Guardians of the Galaxy
+
+Sat, 29 Aug 2026 03:10:14 GMT
+
+https://screenrant.com/mcu-guardians-of-the-galaxy-nova-movie-return/
+
+The MCU's next space opera can do wonders for the franchise, like bringing back the Guardians of the Galaxy and reversing an early James Gunn decision
+---------
+
+# Netflix’s 4-Part Sci-Fi Masterpiece Quietly Delivers The Best Lovecraftian Horror
+
+Classic TV, Masked Recs
+
+Sat, 29 Aug 2026 03:00:15 GMT
+
+https://screenrant.com/love-death-robots-lovecraftian-netflix-sci-fi-masterpiece/
+
+Netflix is the streaming home of a 4-season sci-fi masterpiece that has one of the greatest portrayals of Lovecraftian horror on the small screen.
+---------
+
+# Star Trek Prequel Series Gets a Major Update as the Franchise’s Future Remains Uncertain
+
+TV, Star Trek
+
+Sat, 29 Aug 2026 02:31:40 GMT
+
+https://screenrant.com/star-trek-year-one-prequel-henry-alonso-myers-update/
+
+With the Star Trek franchise entering a new era following the Paramount/Skydance merger, there's a new update about the proposed Star Trek: Year One.
+---------
+
+# Doctor Who Meets Sliders In The Hit 10-Part Time Travel Series That's Already Renewed For Season 2
+
+Streaming TV, Masked Recs
+
+Sat, 29 Aug 2026 02:30:15 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-time-travel-series-already-renewed/
+
+Stuart Fails to Save the Universe proves to be an incredible new science fiction adventure story revolving around a mild-mannered comic shop owner.
+---------
+
+# 6 Greatest Peanuts Comics From 1950 That Prove Charles M. Schulz Has Always Been The Best Cartoonist
+
+Comics, Peanuts
+
+Sat, 29 Aug 2026 02:00:25 GMT
+
+https://screenrant.com/greatest-peanuts-comic-strips-1950-schulz-best-creator/
+
+Peanuts may have taken years to reach its peak era, but its humble 1950 debut still had plenty of underrated gems by Charles M. Schulz.
+---------
+
+# Hayden Panettiere Is Responsible For An Iconic TV Quote Still Being Used Today
+
+Classic TV, Masked Recs, Hayden Panettiere
+
+Sat, 29 Aug 2026 02:00:25 GMT
+
+https://screenrant.com/hayden-panettiere-heroes-cheerleader-quote-iconic/
+
+Hayden Panettiere will be fondly remembered for her outstanding contributions in TV and film, after giving one of the best quotes in Heroes purpose.
+---------
+
+# The Legend Of Zelda Meets Hollow Knight In 10/10 Free Steam Game
+
+Gaming, The Legend of Zelda, Hollow Knight
+
+Sat, 29 Aug 2026 02:00:25 GMT
+
+https://screenrant.com/deepest-sword-free-steam-game-like-zelda-hollow-knight/
+
+A Steam game is blending The Legend of Zelda-style fantasy adventure with Hollow Knight-inspired platforming, and you can play it for free today.
+---------
+
+# Daredevil: Born Again Season 3's Major Spider-Man Connection Revealed
+
+Streaming TV, Daredevil: Born Again
+
+Sat, 29 Aug 2026 01:38:38 GMT
+
+https://screenrant.com/daredevil-born-again-season-3-elektra-hand-spider-man-connection/
+
+The street-level heroes of the MCU continue to define pivotal moments in the wider universe, with Daredevil: Born Again season 3 getting a subtle nod.
+---------
+
+# Gandalf's 5 Strongest Spells in The Lord of the Rings, Ranked
+
+Movies, The Lord of the Rings, The Hobbit, Fantasy
+
+Sat, 29 Aug 2026 03:45:11 GMT
+
+https://www.cbr.com/lord-of-the-rings-strongest-gandalf-spells-list/
+
+Throughout the events of The Hobbit and The Lord of the Rings, Gandalf displayed some magical feats that proved his might as a Wizard.
+---------
+
+# 5 Strongest Anime Villains in History, Ranked
+
+Anime, Bleach: Thousand Year Blood War, Dragon Ball Super
+
+Sat, 29 Aug 2026 03:45:11 GMT
+
+https://www.cbr.com/strongest-anime-villains-in-history-ranked/
+
+These anime villains have reached incredible levels of power, making them some of the strongest characters in history.
+---------
+
+# 10 Best Far Side Comics Featuring Tarzan, Ranked
+
+Comics, The Far Side
+
+Sat, 29 Aug 2026 03:30:11 GMT
+
+https://www.cbr.com/funniest-the-far-side-comics-featuring-tarzan-ranked/
+
+Despite not usually having recurring characters in his iconic and beloved comic strip, Tarzan appears many times in Gary Larson's The Far Side.
+---------
+
+# 6 Best Gothic Horror TV Shows of All Time
+
+TV, Horror, Midnight Mass, Penny Dreadful
+
+Sat, 29 Aug 2026 03:30:11 GMT
+
+https://www.cbr.com/best-gothic-horror-tv-series-list/
+
+With a resurgence in the Gothic horror subgenre in both film and TV, there are many modern series and shows that shouldn't be missed.
+---------
+
+# Every Cameo In Star Wars Zero Company
+
+Games, Star Wars
+
+Sat, 29 Aug 2026 03:15:11 GMT
+
+https://www.cbr.com/star-wars-zero-company-cameos-returning-characters/
+
+Star Wars Zero Company focuses on a new ragtag group of mercenaries, but some very notable characters from the franchise also make an appearance.
+---------
+
+# This Is Why Your Anime Stream Isn't Working Today
+
+Anime, piracy
+
+Sat, 29 Aug 2026 03:05:11 GMT
+
+https://www.cbr.com/cineby-anime-new-shutdown-schedule/
+
+A major streaming platform and its sister sites have begun shutting down in stages, leaving millions of users in the dark as of this week.
+---------
+
+# From Fans Flock to Forgotten 77-Episode Sci-Fi Series as the Next Streaming Hit
+
+TV, Eureka
+
+Sat, 29 Aug 2026 03:00:12 GMT
+
+https://www.cbr.com/eureka-scifi-streaming-success-august-2026/
+
+The sci-fi series returns as a streaming success two decades after its debut.
+---------
+
+# Demon Slayer Isn't the Best Dark Fantasy Anime of All Time
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer
+
+Sat, 29 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/demon-slayer-attack-on-titan-best-dark-fantasy-anime/
+
+Demon Slayer is a weak dark fantasy anime with several others of the genre taking the lead.
+---------
+
+# 5 Masterpiece PS2 RPGs You've Never Heard Of
+
+Games, RPG, PlayStation 2, Dungeons and Dragons, Gaming
+
+Sat, 29 Aug 2026 02:15:11 GMT
+
+https://www.cbr.com/masterpiece-ps2-rpgs-flew-under-radar/
+
+Though the PS2 is a beloved system, not everyone remembers some of their best games.
+---------
+
+# CBS' Classic '80s Crime Drama With 96% RT Audience Explodes on Streaming
+
+TV, Magnum P.I., CBS, Apple TV
+
+Sat, 29 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/magnum-pi-crime-success-pvod-apple-tv-store-august-2026/
+
+Almost 40 years after Magnum P.I. ended, the classic '80s crime drama has shot up the Apple TV Store charts in the U.S. and Canada.
+---------
+
+# The 6 Best Movie Trilogies Released Since 2010, Ranked
+
+Movie, Rise of the Planet of the Apes, Paddington, How to Train Your Dragon, Guardians of the Galaxy
+
+Sat, 29 Aug 2026 04:08:11 GMT
+
+https://collider.com/best-movie-trilogies-released-since-2010/
+
+From Paddington to Guardians of the Galaxy, these modern trilogies prove three films can build unforgettable journeys.
+---------
+
+# 'Tombstone' Changed Doc Holliday’s Actual Quote and Made Val Kilmer’s Scene Even Better
+
+Movie Features, Tombstone, Val Kilmer, Kurt Russell, Western
+
+Sat, 29 Aug 2026 03:59:46 GMT
+
+https://collider.com/tombstone-real-life-doc-holliday-quote/
+
+The iconic 1993 Western movie Tombstone starring Kurt Russell and Val Kilmer altered history for the better.
+---------
+
+# The 6 Best Thriller Shows Released Since 2000, Ranked
+
+TV, Thriller, Breaking Bad, Severance, Dark
+
+Sat, 29 Aug 2026 03:55:11 GMT
+
+https://collider.com/the-6-best-thriller-tv-shows-released-since-2000/
+
+From Mindhunter to Dark, these elite thriller series master suspense, psychology, and tension that lingers long after.
+---------
+
+# The 8 Most Fun MCU Movies of All Time, Ranked
+
+Movie, MCU, Thor: Ragnarok, Guardians of the Galaxy, Marvel
+
+Sat, 29 Aug 2026 03:09:12 GMT
+
+https://collider.com/most-fun-mcu-movies-all-time-ranked/
+
+Guardians of the Galaxy, Iron Man, and Thor: Ragnarok are among the best, most purely fun MCU superhero movies of all time.
+---------
+
+# ‘Saturday Night Live UK’ Just Pulled Off Something Few Remakes Ever Do
+
+TV Features, Saturday Night Live UK, Saturday Night Live, Peacock, Comedy
+
+Sat, 29 Aug 2026 03:00:12 GMT
+
+https://collider.com/snl-uk-saturday-night-live-season-2-success-cast/
+
+Saturday Night Live UK heads into Season 2 with major awards, a growing young audience and proof that the British spin-off has found its own voice.
+---------
+
+# Sam Neill’s 56-Minute Apple TV Sci-Fi Episode Is Quietly Among Streaming’s Best
+
+TV Features, Invasion, Apple TV, Sam Neill, Sci-Fi
+
+Sat, 29 Aug 2026 02:44:11 GMT
+
+https://collider.com/sam-neill-invasion-apple-tv-sci-fi-episode/
+
+Sam Neill delivers an acting masterclass in Invasion’s 55-minute premiere, one of the best episodes of Apple TV’s sci-fi series.
+---------
+
+# The Best Video Game TV Adaptation That Doesn't Exist Is 'The Mandalorian' Meets 'The Terminator'
+
+TV Features, Television, Gaming, Doom
+
+Sat, 29 Aug 2026 02:02:11 GMT
+
+https://collider.com/doom-video-game-tv-show-adaptation/
+
+One of the best video games that desperately needs a live-action TV adaptation is id Software's DOOM.
+---------
+
+# Harrison Ford’s Timeless Fantasy Romance Officially Gets a New Streaming Home
+
+Movie News, Blake Lively, Harrison Ford, Fantasy, The Age of Adaline
+
+Sat, 29 Aug 2026 02:00:21 GMT
+
+https://collider.com/harrison-ford-age-of-adaline-streaming-hbo-max-september-2026/
+
+Blake Lively and Harrison Ford’s unusual fantasy romance finds a new home, giving fans another chance to revisit its bittersweet love story.
+---------
+
+# The Only Agatha Christie Detective Thriller That Changed the Formula Is Officially Streaming
+
+Movie Features, A Haunting in Venice, Kenneth Branagh, Agatha Christie, Horror
+
+Sat, 29 Aug 2026 01:41:11 GMT
+
+https://collider.com/agatha-christie-a-haunting-in-venice-kenneth-branaugh-series-change/
+
+A Haunting in Venice, a Hercule Poirot story that breaks away from Agatha Christie's usual formula, is streaming on Disney+ and Hulu.
+---------
+
+# Tom Cruise’s 10/10 Spy Thriller Officially Moves to HBO Max
+
+Movie News, Tom Cruise, HBO Max, Mission Impossibl, Action
+
+Sat, 29 Aug 2026 01:30:11 GMT
+
+https://collider.com/tom-cruise-mission-impossible-streaming-hbo-max-september-2026/
+
+A $457 million action classic joins HBO Max this September as the streamer expands its lineup with major films and original premieres.
+---------
+
+# 7 Sci-Fi Franchise Revivals That Felt More Like Hard Reboots
+
+TV Lists, Sci-Fi
+
+Sat, 29 Aug 2026 02:00:23 GMT
+
+https://movieweb.com/sci-fi-revivals-felt-like-reboots/
+
+Reboots are risky because they can wipe decades of canon away. So, sometimes revivals are preferable. Read on for more.
+---------
+
+# 10 Greatest Sci-Fi TV Shows With Perfect Time Travel
+
+TV Lists, Sci-Fi
+
+Sat, 29 Aug 2026 00:00:13 GMT
+
+https://movieweb.com/sci-fi-tv-shows-perfect-time-travel/
+
+For when you want to visit another era without leaving the comfort of your own couch.
+---------
+
+# Paramount's New Taylor Sheridan Replacement Is a 7-Part Action Thriller Sensation
+
+TV News, SEAL Team, Paramount Plus, Hot on Streaming, Action, Taylor Sheridan
+
+Fri, 28 Aug 2026 23:30:13 GMT
+
+https://movieweb.com/seal-team-taylor-sheridan-stream-paramount-august-2026/
+
+Forget 'Lioness,' Paramount+ has found its Taylor Sheridan killer in a seven season action epic.
+---------
+
 # Why Annette O'Toole Left Smallville After 6 Seasons As Martha Kent
 
 Classic TV, DC Universe, Smallville
