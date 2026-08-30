@@ -1,3 +1,443 @@
+# The Best Scene In Each Quentin Tarantino Movie
+
+Classic Movies, Quentin Tarantino
+
+Sun, 30 Aug 2026 18:05:15 GMT
+
+https://screenrant.com/quentin-tarantino-movies-best-scenes/
+
+Quentin Tarantino has built a career with consistent masterpieces, and here are the best scenes from each of his different movie releases.
+---------
+
+# NYT Connections Solution And Hints For August 30, 2026
+
+Gaming, Connections, Mobile
+
+Sun, 30 Aug 2026 18:04:03 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-august-30-2026/
+
+The puzzle for today's Connections has plenty to do with presentation, meaning that surface level associations could discover the right answers.
+---------
+
+# New Zombie Survival Game Is Stardew Valley Blended With Factorio
+
+Gaming
+
+Sun, 30 Aug 2026 18:00:14 GMT
+
+https://screenrant.com/stardew-valley-meets-factorio-zombie-crafting-game/
+
+Explore, farm, and fight zombies in the upcoming game Zombie Craft blending Stardew Valley and Factorio elements.
+---------
+
+# Prime Video's 10-Part Period Drama About Zelda & F. Scott Fitzgerald Deserved Another Season
+
+Classic TV, Masked Recs
+
+Sun, 30 Aug 2026 18:00:14 GMT
+
+https://screenrant.com/z-the-beginning-of-everything-zelda-f-scott-fitzgerald-deserved-another-season/
+
+Z: The Beginning of Everything is a great Prime Video drama about Zelda and F. Scott Fitzgerald's romance that ended just as it was getting started.
+---------
+
+# Josh Hutcherson Addresses Jennifer Lawrence Reunion In Hunger Games: Sunrise On The Reaping
+
+Movies, The Hunger Games: Sunrise on the Reaping, The Hunger Games
+
+Sun, 30 Aug 2026 17:59:04 GMT
+
+https://screenrant.com/josh-hutcherson-jennifer-lawrence-reunion-hunger-games-sunrise-on-the-reaping-response/
+
+Ahead of The Hunger Games: Sunrise on the Reaping's theatrical release, Josh Hutcherson addresses "allegedly" reuniting with Jennifer Lawrence.
+---------
+
+# 10 '80s Sitcoms That Are Still Perfect From Start To Finish
+
+Classic TV
+
+Sun, 30 Aug 2026 17:30:14 GMT
+
+https://screenrant.com/80s-sitcoms-perfect-from-start-to-finish/
+
+From The Golden Girls to Cheers and more, the '80s had many long-running sitcoms that remained consistently high quality across every season.
+---------
+
+# Kevin Costner's Forgotten $68M Hit Still Has One Of The Best Shootouts In Western History
+
+Movies, Open Range, Kevin Costner
+
+Sun, 30 Aug 2026 17:15:14 GMT
+
+https://screenrant.com/kevin-costner-open-range-movie-best-westernn-gunfight-shootout/
+
+Kevin Costner's Open Range is an underrated Western, but its nearly 20 minute shootout is the real reason it deserves another look.
+---------
+
+# The Highest-Rated Disaster Movie Of The 21st Century Sweeps Away Streaming Competition
+
+Movies, Masked Recs
+
+Sun, 30 Aug 2026 17:07:49 GMT
+
+https://screenrant.com/the-wave-disaster-movie-rotten-tomatoes-milestone-netflix-global-streaming-success-august-2026/
+
+There is tough competition for the highest-rated disaster movie of the 21st century, but this title has truly swept away the competition.
+---------
+
+# Why Star Trek: Strange New Worlds' Chapel Would Do Anything To Save M'Benga Explained By Jess Bush (Exclusive)
+
+Exclusive, Star Trek, Star Trek: Strange New Worlds
+
+Sun, 30 Aug 2026 17:01:11 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-jess-bush-interview/
+
+ScreenRant interviews Jess Bush about Nurse Chapel's finest hour, and why she risked her life to save Dr. M'Benga on Star Trek: Strange New Worlds.
+---------
+
+# The Pitt Meets Pokémon In New RPG You Can Play Free Now
+
+Gaming, The Pitt, Pokemon, Pokémon, Steam, PC
+
+Sun, 30 Aug 2026 17:00:14 GMT
+
+https://screenrant.com/the-pitt-meets-pokemon-medimon-steam-release/
+
+Two unlikely bedfellows, The Pitt and Pokémon, collide in this unique new RPG that's available to try absolutely free on Steam right now.
+---------
+
+# Naruto Officially Returns With a New Sage Mode Design
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations
+
+Sun, 30 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/naruto-sage-mode-new-design/
+
+Naruto Uzumaki is finally back with a new Sage Mode design ahead of his major 2027 revival.
+---------
+
+# FX's 2-Season Drama Series Explodes on Streaming After 100% RT Score
+
+TV, Adults
+
+Sun, 30 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/fx-adults-disney-plus-hulu-success-august-2026/
+
+FX's most hotly-anticipated returning comedy of the year is lighting up the streaming charts just days after its Season 2 premiere.
+---------
+
+# 10 Peanuts Comic Strips That Perfectly Capture Human Anxiety, Ranked
+
+Comics, Peanuts
+
+Sun, 30 Aug 2026 18:00:11 GMT
+
+https://www.cbr.com/top-peanuts-comic-strips-that-explore-human-anxiety/
+
+Peanuts was more than a fun comic about Charlie Brown and the gang, it was also Charles Schulz's exploration of the human condition.
+---------
+
+# Jason Bateman Called This 2-Season Sitcom 'a Thousand Times Funnier' Than Arrested Development
+
+TV, The Office, Comedy
+
+Sun, 30 Aug 2026 17:30:11 GMT
+
+https://www.cbr.com/the-office-uk-funniest-sitcom-jason-bateman/
+
+Arrested Development star Jason Bateman knows comedy, and there's one show he considers one of the funniest sitcoms in TV history.
+---------
+
+# 10 RPGs Where the Main Character Dies
+
+Games, Final Fantasy, Red Dead Redemption, Persona
+
+Sun, 30 Aug 2026 17:15:11 GMT
+
+https://www.cbr.com/rpgs-where-the-main-character-dies/
+
+Not all RPGs can end on a satisfying note, and these games offered conclusions that saw the deaths of their main heroes.
+---------
+
+# Anya Taylor-Joy's $1B Adventure Sequel Debuts as the No. 2 Most-Watched Movie on Streaming
+
+Movies, The Super Mario Galaxy Movie
+
+Sun, 30 Aug 2026 17:00:11 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-super-mario-galaxy-movie-nielsen-july-2026/
+
+The biggest sequel of the year is officially taking over the streaming charts just four months after lighting up the box office.
+---------
+
+# 25 Greatest Reincarnation Isekai Anime Of All Time
+
+Anime, Isekai, Mushoku Tensei, konosuba, that time I got reincarnated as a slime, I've Been Killing Slimes, Ascendance of a Bookworm, Reincarnated as a Sword, My Next Life as a Villainess: All Routes Lead to Doom!, The Eminence in Shadow
+
+Sun, 30 Aug 2026 16:45:11 GMT
+
+https://www.cbr.com/greatest-isekai-about-reincarnation/
+
+Reincarnation is often a major part of an Isekai story, and Reincarnated as a Sword and The Saga of Tanya the Evil execute that aspect perfectly.
+---------
+
+# 12 Best Live-Action DC TV Shows Since 2015, Ranked
+
+TV, Superman & Lois, The Sandman, Lanterns, DCU
+
+Sun, 30 Aug 2026 16:30:11 GMT
+
+https://www.cbr.com/best-dc-tv-shows-since-2015/
+
+The 2010s and 2020s have been great decades for superhero television adaptations, and DCTV produced plenty of fan-favorite shows in that timeframe.
+---------
+
+# 10 Anime to Watch If You Miss JJK
+
+Anime, Lists, Jujutsu Kaisen
+
+Sun, 30 Aug 2026 16:15:11 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-miss-jujutsu-kaisen/
+
+Jujutsu Kaisen might be the single greatest shōnen series of the current generation, and there are a handful of replacements to watch before season 4.
+---------
+
+# Peacock’s 10-Episode Hit Spinoff Finally Returns With New Episodes in Just 10 Days
+
+TV, The Paper
+
+Sun, 30 Aug 2026 16:00:11 GMT
+
+https://www.cbr.com/the-paper-season-2-return-date-peacock/
+
+The hit follow-up to The Office is just days away from its Season 2 debut on Peacock, and fans can't wait to get back to The Paper.
+---------
+
+# 'Transformers' Meets 'Edge of Tomorrow' in Liam Neeson's Sci-Fi Flop Leaving Peacock
+
+Movie News, Battleship, Alexander Skarsgard, Peacock, Liam Neeson
+
+Sun, 30 Aug 2026 18:00:11 GMT
+
+https://collider.com/liam-neeson-sci-fi-flop-battleship-leaving-peacock-september-2026/
+
+A big-budget sci-fi flop starring Taylor Kitsch and Liam Neeson is about to be removed from Peacock. Find out more.
+---------
+
+# Guy Ritchie’s 8-Episode Crime Drama Is Still the Perfect Weekend Binge Before It Returns
+
+TV Features, Young Sherlock, Prime Video, Guy Ritchie, Mystery
+
+Sun, 30 Aug 2026 17:58:11 GMT
+
+https://collider.com/young-sherlock-prime-video-guy-ritchie-crime-drama-perfect-binge/
+
+Prime Video's Young Sherlock is an exciting crime drama about the iconic detective's early adventures, perfect for binging before its Season 2 return.
+---------
+
+# Ridley Scott’s New Sci-Fi Epic Is Officially a Box Office Disaster
+
+Movie News, Ridley Scott, The Dog Stars, Sci-Fi, Box Office
+
+Sun, 30 Aug 2026 17:15:11 GMT
+
+https://collider.com/ridley-scott-sci-fi-the-dog-stars-box-office-debut-8-million/
+
+Following poor reviews, Ridley Scott’s new sci-fi epic is struggling in its first weekend at the box office. Read on for more.
+---------
+
+# The 10 Most Universally Loved Action Movies of the Last 30 Years, Ranked
+
+Movie, Action, Avengers: Infinity War, The Matrix, The Dark Knight
+
+Sun, 30 Aug 2026 17:03:11 GMT
+
+https://collider.com/most-universally-loved-action-movies-last-30-years-ranked/
+
+Inception, The Matrix, and The Lord of the Rings: The Return of the King are all among the most universally loved action movies of the last 30 years.
+---------
+
+# ‘Spider-Man: Brand New Day’ Is Just $50 Million Shy of Making Box Office History
+
+Movie News, Spider-Man: Brand New Day, Star Wars: The Force Awakens, Box Office, Tom Holland
+
+Sun, 30 Aug 2026 16:30:11 GMT
+
+https://collider.com/spider-man-brand-new-day-box-office-890-million/
+
+Spider-Man: Brand New Day is officially the second-highest grossing movie of all time at the domestic box office and is closing in on Star Wars’ curre
+---------
+
+# Lost ‘Tombstone’ Extended Cut Will Never Be Officially Released [Exclusive]
+
+Exclusives, Tombstone, Kurt Russell, Michael Biehn, Western
+
+Sun, 30 Aug 2026 16:07:11 GMT
+
+https://collider.com/tombstone-extended-cut-lost-scenes-michael-biehn/
+
+Michael Biehn explains why the long-rumoured missing Tombstone material can never be restored into an extended cut.
+---------
+
+# Every Ridley Scott Movie, Ranked
+
+Movie, Ridley Scott, Blade Runner, Alien, Gladiator
+
+Sun, 30 Aug 2026 16:06:11 GMT
+
+https://collider.com/ridley-scott-movies-ranked/
+
+Ridley Scott has directed 30 movies to date, from misfires like Exodus: Gods and Kings to absolute classics like Gladiator and the first Alien.
+---------
+
+# 34 Years Later, 'Star Trek: The Next Generation's Perfect Quote Defines the Sci-Fi Franchise
+
+TV Features, Star Trek: The Next Generation, Patrick Stewart, Wil Wheaton, Paramount+ with Showtime
+
+Sun, 30 Aug 2026 15:54:11 GMT
+
+https://collider.com/star-trek-the-next-generation-perfect-quote-the-first-duty/
+
+Wesley Crusher's character development in Star Trek: The Next Generation's "The First Duty" has a major impact on Starfleet's ideals.
+---------
+
+# Apple TV Just Picked Up a “Masterpiece” Fantasy With a Perfect Rotten Tomatoes Score
+
+TV Features, Apple TV, Small Prophets, Fantasy, BBC
+
+Sun, 30 Aug 2026 15:53:11 GMT
+
+https://collider.com/apple-tv-fantasy-series-small-prophets/
+
+Starting October 7, 2026, Apple TV will be home to Small Prophets a BBC fantasy series with a stellar 100% RT score.
+---------
+
+# Jason Statham’s ‘Die Hard’ on a Boat Sinks After 10 Days at the Box Office
+
+Movie News, Jason Statham, Mutiny, Action, Box Office
+
+Sun, 30 Aug 2026 15:45:11 GMT
+
+https://collider.com/jason-statham-mutiny-box-office-13-million/
+
+Ahead of The Beekeeper 2, Jason Statham’s newest action extravaganza is continuing a sub-par box office run. Read on for more.
+---------
+
+# 30 Years Later, This Underrated Crime Thriller Is Getting a New Release
+
+Movie News, Thriller, Blu-ray, Hard Eight
+
+Sun, 30 Aug 2026 18:00:13 GMT
+
+https://movieweb.com/hard-eight-paul-thomas-anderson-blu-ray/
+
+Nearly 30 years after its debut, 'Hard Eight' is headed back to store shelves.
+---------
+
+# Ridley Scott's New Sci-Fi Epic Tanks at the Box Office
+
+Movie News, Ridley Scott, The Dog Stars, Sci-Fi
+
+Sun, 30 Aug 2026 17:53:14 GMT
+
+https://movieweb.com/the-dog-stars-ridley-scott-bomb/
+
+The legendary director's return to the sci-fi genre is a bust at the box office.
+---------
+
+# Amazon's "Bourne Meets Statham" Action Thriller Is One of the Biggest Streaming Hits in the World
+
+Movie News, Agent Zeta, Hot on Streaming
+
+Sun, 30 Aug 2026 17:30:13 GMT
+
+https://movieweb.com/agent-zeta-streaming-success-prime-video-august-2026/
+
+There's also a little bit of James Bond in the superb action thriller starring Spain's very own Mario Casas.
+---------
+
+# All 6 Pierce Brosnan Movies on Netflix, Ranked According to Rotten Tomatoes
+
+Movie Lists, Pierce Brosnan, Netflix
+
+Sun, 30 Aug 2026 17:00:14 GMT
+
+https://movieweb.com/best-pierce-brosnan-movie-on-netflix-rotten-tomatoes/
+
+From cruise ship capers to brooding crime dramas, Pierce Brosnan has great films for Netflix subscribers to watch.
+---------
+
+# 'Spider-Man: Brand New Day' Pushes Tom Holland Past Historic Box Office Milestone
+
+Movie News, Tom Holland, Spider-Man: Brand New Day, Superhero
+
+Sun, 30 Aug 2026 16:22:45 GMT
+
+https://movieweb.com/spider-man-tom-holland-highest-grossing-actor/
+
+Tom Holland has bested Chris Pratt to take this honor.
+---------
+
+# Amazon's New 10/10 Action Series Dethrones Taylor Sheridan’s Spy Thriller Hit on Streaming
+
+TV News, Streamer Comparisons, Lioness, Ride or Die, Action
+
+Sun, 30 Aug 2026 16:00:13 GMT
+
+https://movieweb.com/ride-or-die-beats-lioness-prime-video-chart/
+
+Taylor Sheridan's 'Lioness' still commands attention on its home platform while facing paywall friction on Prime Video.
+---------
+
+# 8 Near-Perfect Netflix Shows From the 2020s You Can Binge in a Weekend
+
+TV Lists, Netflix, Maid, The Midnight Club, Ripley
+
+Sun, 30 Aug 2026 16:00:13 GMT
+
+https://movieweb.com/netflix-2020s-tv-shows-binge/
+
+Netflix has many binge-worthy TV shows, and these series that were released during the 2020s are great to watch in one weekend.
+---------
+
+# 'Power Rangers' Star's Final Film Makes Long-Awaited Theatrical Debut
+
+Movie News, Legend of the White Dragon, Action, Mighty Morphin Power Rangers, Jason David Frank
+
+Sun, 30 Aug 2026 15:30:13 GMT
+
+https://movieweb.com/jason-david-frank-final-film/
+
+Jason David Frank's final screen role has finally reached theaters.
+---------
+
+# Years After Cancelation, Microsoft Tries Again to Adapt Iconic Video Game Series
+
+TV News, The Elder Scrolls, Warcraft, Halo, Action
+
+Sun, 30 Aug 2026 15:17:56 GMT
+
+https://movieweb.com/halo-warcraft-elder-scrolls-diablo-shows/
+
+Microsoft is shopping several Xbox franchises around to studios and streamers.
+---------
+
+# 'Power Rangers' Star Reveals the Perfect Disney+ Legacy Sequel for the Action Sci-Fi Franchise
+
+TV News, Power Rangers, Action
+
+Sun, 30 Aug 2026 15:00:13 GMT
+
+https://movieweb.com/power-rangers-quantum-continuum-sequel-david-yost/
+
+David Yost shares his pitch for a sequel series that would mark a first for the 'Power Rangers' franchise.
+---------
+
 # The Mandalorian & Grogu’s Empire Strikes Back Theory Confirmed By Star Wars Legend
 
 Movies, The Mandalorian and Grogu, Star Wars: Episode V - The Empire Strikes Back, The Mandalorian, Grogu, Star Wars
