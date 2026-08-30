@@ -1,3 +1,333 @@
+# Silo Season 3’s Massive Rewrite Gives Tim Robbins’ Character A Better Arc
+
+Streaming TV, Silo, Silo - Season 3
+
+Sun, 30 Aug 2026 02:45:14 GMT
+
+https://screenrant.com/tim-robbins-bernard-silo-season-3-redemption-book-change/
+
+Silo season 3 has completely changed Bernard’s arc from the original books, which seems to give the Tim Robbins character a significantly better arc.
+---------
+
+# Corey Feldman Was In Cheers? How Old He Was & Who He Played
+
+Classic TV, Cheers, Corey Feldman
+
+Sun, 30 Aug 2026 02:45:14 GMT
+
+https://screenrant.com/cheers-corey-feldman-character-explained-age/
+
+Corey Feldman made an early appearance on Cheers before his career began to take off, charting a course for a spectacular trajectory in Hollywood.
+---------
+
+# 10 Most Impressive Batgirl Victories in DC Comics
+
+Comics, Batgirl, DC Comics
+
+Sun, 30 Aug 2026 02:30:14 GMT
+
+https://screenrant.com/most-impressive-batgirl-victories-dc-comics/
+
+Though she is often overshadowed by her legendary mentor, Batgirl has secured some incredible wins of her own throughout her superhero career.
+---------
+
+# The Pitt Season 3 Quietly Confirmed The Return Of An Underserved Character
+
+Streaming TV, The Pitt
+
+Sun, 30 Aug 2026 02:30:14 GMT
+
+https://screenrant.com/the-pitt-season-3-park-the-shark-lou-ferrigno-jr-return/
+
+The trailer for The Pitt season 3 confirms that Lou Ferrigno Jr.'s character, Dr. Brendon Park (or "Park the Shark"), will be back next shift.
+---------
+
+# Stranger Things Meets Lovecraftian Horror In HBO Max's 8-Part Horror Thriller
+
+Streaming TV, Masked Recs
+
+Sun, 30 Aug 2026 02:07:14 GMT
+
+https://screenrant.com/it-welcome-to-derry-stranger-things-meets-lovecraftian-horror-hbo/
+
+Stranger Things borrowed a lot from It, but It's own TV spinoff — Welcome to Derry on HBO Max — feels like early, horror-focused Stranger Things.
+---------
+
+# Every Character Confirmed For GTA 6
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, PC
+
+Sun, 30 Aug 2026 02:00:25 GMT
+
+https://screenrant.com/grand-theft-auto-6-every-character-confirmed/
+
+Grand Theft Auto 6 brings a new cast of characters to the table, and Rockstar has already provided details on a lot of the core figures.
+---------
+
+# Marvel's Original Guardians Of The Galaxy Makes the Movie Team Look Like A Joke
+
+Movies, Marvel, Guardians of the Galaxy
+
+Sun, 30 Aug 2026 02:00:24 GMT
+
+https://screenrant.com/marvel-original-guardians-galaxy-team-better-movie/
+
+The original Guardians of the Galaxy had more going for them in terms of raw power.
+---------
+
+# The MCU Wasted Its Last Opportunity To Bring Robert Downey Jr. Back Before Avengers: Doomsday
+
+Movies, Spider-Man: Brand New Day, Avengers: Doomsday
+
+Sun, 30 Aug 2026 01:45:15 GMT
+
+https://screenrant.com/mcu-spider-man-brand-new-day-wasted-robert-downey-jr-return-avengers-doomsday/
+
+Spider-Man: Brand New Day had the perfect opportunity to bring Tony Stark back to the big screen, but for unclear reasons, the movie passed on it.
+---------
+
+# DC Reveals Red Hood’s New Job Before Taking Over The Teen Titans
+
+Comics, Red Hood, Teen Titans, DC Comics
+
+Sun, 30 Aug 2026 01:30:15 GMT
+
+https://screenrant.com/red-hood-dc-new-job-teen-titans/
+
+Before he becomes the new leader of the Teen Titans, Jason Todd, a.k.a. Red Hood, is keeping busy in the DC Comics universe with a new job.
+---------
+
+# 9 War Miniseries That Are Perfect From Start To Finish
+
+Classic TV, War
+
+Sun, 30 Aug 2026 01:30:15 GMT
+
+https://screenrant.com/war-miniseries-perfect-start-to-finish/
+
+These war miniseries prove that an emotive and compelling story can be told in a short amount of time providing the writing and visuals are perfect.
+---------
+
+# 5 Near-Perfect Sega Genesis Games That Are Forgotten Masterpieces
+
+Games, Video Games, Sega Genesis
+
+Sun, 30 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/sega-genesis-near-perfect-forgotten-masterpieces-list/
+
+Everyone may have forgotten these Sega Genesis games, but overlooked classics like Shadowrun and Mystic Defender still pack a punch!
+---------
+
+# Fox's Gritty 2-Season Sci-Fi Classic Returns as 1 of the Most Popular Shows on Digital
+
+TV, Terminator: The Sarah Connor Chronicles
+
+Sun, 30 Aug 2026 02:40:51 GMT
+
+https://www.cbr.com/terminator-the-sarah-connor-chronicles-action-august-2026/
+
+The underrated series finds new audiences after almost two decades.
+---------
+
+# LOTR Meets Percy Jackson in Upcoming Ranger's Apprentice Film
+
+Movies, Fantasy, The Lord of the Rings, Percy Jackson & The Olympians
+
+Sun, 30 Aug 2026 02:40:11 GMT
+
+https://www.cbr.com/rangers-apprentice-fantasy-movie-combines-lotr-and-percy-jackson/
+
+The upcoming film adaptation of an underrated young adult fantasy series will blend The Lord of the Rings' lore with Percy Jackson's tone.
+---------
+
+# 10 Greatest Shonen Anime Series Since 2021
+
+Anime, Frieren: Beyond Journey's End, Jujutsu Kaisen
+
+Sun, 30 Aug 2026 02:30:11 GMT
+
+https://www.cbr.com/best-shonen-anime-since-2021-list/
+
+Some exceptional shonen anime have come out in the past five years, with titles like Tokyo Revengers and Spy x Family being some of the top titles.
+---------
+
+# 2 Years Later, Apple TV's Slept-On Sci-Fi Gem Returns With a Stellar Rotten Tomatoes Score
+
+TV, Dark Matter
+
+Sun, 30 Aug 2026 02:02:49 GMT
+
+https://www.cbr.com/dark-matter-rotten-tomatoes-score/
+
+The sci-fi series returns after a years-long wait to nearly universal acclaim.
+---------
+
+# 10 Open-World Games You Can Play for Months
+
+Games, open world, Elden Ring, Red Dead Redemption 2, Minecraft
+
+Sun, 30 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/open-world-video-games-play-for-months-list/
+
+The best open-world games, such as Red Dead Redemption 2 and Elden Ring, offer months of immersive gameplay and exploration.
+---------
+
+# Netflix’s 6-Part Body-Swap Thriller Is Still Perfect for Black Mirror Fans
+
+TV, Netflix, Behind Her Eyes, Thriller
+
+Sun, 30 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/netflix-behind-her-eyes-black-mirror-thriller/
+
+An imaginative mystery that explores the darkest side of human nature, Netflix's Behind Her Eyes watches like a five-hour-long Black Mirror episode.
+---------
+
+# Cardcaptor Sakura Returns for 30th Anniversary With Brand-New CLAMP Design
+
+Anime, Cardcaptor Sakura, Good Smile Company, merchandise, collectibles
+
+Sun, 30 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/cardcaptor-sakura-30th-anniversary-clamp-good-smile-company-figure/
+
+Cardcaptor Sakura fans can celebrate the 30th anniversary of their favorite franchise with one of the most stunning CLAMP designs of the year.
+---------
+
+# 10 Anime to Watch If You Love Inuyasha
+
+Anime, Inuyasha, Ranma 1/2
+
+Sun, 30 Aug 2026 01:45:11 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-love-inuyasha/
+
+Anime series like Ranma 1/2 and Yona of the Dawn are just as charming and exciting as Inuyasha.
+---------
+
+# 10 Sci-Fi Thrillers To Watch If You Love The Alien Franchise
+
+Movies, Alien
+
+Sun, 30 Aug 2026 01:30:11 GMT
+
+https://www.cbr.com/sci-fi-thrillers-like-alien-franchise/
+
+Alien was the first big foray into sci-fi horror, inspiring an entire genre to walk in its footsteps.
+---------
+
+# 7 Most-Watched TV Episodes in NBC History, Ranked
+
+TV, NBC, Friends, Cheers, The Office
+
+Sun, 30 Aug 2026 01:33:11 GMT
+
+https://collider.com/most-watched-nbc-episodes-viewership-ranked/
+
+The finales of Friends, Cheers, Seinfeld, and more make our list of most-watched episodes in NBC history. But which is the highest-viewed of all time?
+---------
+
+# 6 Long-Running Sitcoms That Never Run Out of Great Ideas
+
+TV, Sitcom, The Simpsons, Abbott Elementary, South Park
+
+Sun, 30 Aug 2026 01:01:11 GMT
+
+https://collider.com/long-running-sitcoms-dont-run-out-of-ideas/
+
+Explore long-running sitcoms that continue to entertain with fresh humor and relatable stories, from It's Always Sunny in Philadelphia to South Park.
+---------
+
+# Agatha Christie's Unknown Murder Mystery Deserves an Adaptation 82 Years Later
+
+TV Features, Agatha Christie, BBC, Mystery, Crime
+
+Sun, 30 Aug 2026 01:01:11 GMT
+
+https://collider.com/agatha-christie-death-comes-as-the-end-murder-mystery/
+
+Agatha Christie's lesser-known novel Death Comes as the End deserves a modern adaptation after 82 years.
+---------
+
+# 5 Low Fantasy TV Shows Where Every Episode Is a Masterpiece
+
+TV, Fantasy, Percy Jackson & the Olympians, What We Do in the Shadows, The Magicians
+
+Sun, 30 Aug 2026 00:34:11 GMT
+
+https://collider.com/low-fantasy-shows-every-episode-masterpiece/
+
+From Disney+'s Percy Jackson and the Olympians to FX's What We Do in the Shadows, every episode of these low fantasy series is a genuine masterpiece.
+---------
+
+# James Bond Star’s ‘Schindler’s List’ Replacement Is Officially Being Removed From Paramount+
+
+Movie News, Daniel Craig, Defiance, Paramount Plus, World War II
+
+Sun, 30 Aug 2026 00:30:11 GMT
+
+https://collider.com/daniel-craig-ww2-defiance-leaving-paramount-plus-september-2026/
+
+A WW2 action movie based on real events is about to be removed from Paramount+. Find out how long you have left to watch it.
+---------
+
+# Forget ‘Widow’s Bay,' Kate O’Flynn’s 8-Episode Fantasy Series Is Her Most Rewatchable
+
+TV Features, Prime Video, Widow's Bay, Kate O'Flynn, My Lady Jane
+
+Sun, 30 Aug 2026 00:19:11 GMT
+
+https://collider.com/widows-bay-kate-oflynn-mary-my-lady-jane-amazon-prime/
+
+Before she was Patricia in Widow’s Bay, Kate O’Flynn starred as the ruthless Mary in Prime Video’s short-lived fantasy romance My Lady Jane.
+---------
+
+# Kevin Costner's Forgotten 105-Minute Spy Thriller Officially Explodes on Free Streaming
+
+Movie News, Jack Ryan: Shadow Recruit, Kevin Costner, Chris Pine, Keira Knightley
+
+Sun, 30 Aug 2026 00:15:11 GMT
+
+https://collider.com/kevin-costner-jack-ryan-shadow-recruit-streaming-free-pluto-tv-august-2026/
+
+Kevin Costner's 105-minute spy thriller with shades of Reacher and Jason Bourne is officially free to stream. Find out how to watch it here.
+---------
+
+# Mel Gibson’s Brutal Box Office Bomb Is Officially Finding New Life on Streaming
+
+Movie News, Mel Gibson, Force of Nature, Thriller, Plex
+
+Sun, 30 Aug 2026 00:00:11 GMT
+
+https://collider.com/mel-gibson-force-of-nature-streaming-plex-september-2026/
+
+Mel Gibson's forgotten thriller that made less than $500,000 is back on streaming. Here's everything you should know.
+---------
+
+# Paramount+'s Best Romance Series Deserves Your Attention Before Its Season 3 Return
+
+TV Features, Colin from Accounts, Harriet Dyer, Patrick Brammall, Paramount Plus
+
+Sat, 29 Aug 2026 23:52:11 GMT
+
+https://collider.com/colin-from-accounts-romance-streaming-paramount-plus/
+
+For viewers who need more romance in their lives, Colin From Accounts is the perfect rom-com series to fill the void.
+---------
+
+# Amazon's New ‘Treasure Island’ Remake Officially Sets Release Date Just 2 Months Away
+
+TV News, Treasure Island
+
+Sun, 30 Aug 2026 00:13:27 GMT
+
+https://movieweb.com/treasure-island-mgm-remake-release-date/
+
+Robert Louis Stevenson's iconic pirate book will be adapted into a six-episode miniseries and will debut on October 11, 2026.
+---------
+
 # What's Coming To Tubi In September 2026: Full List Of TV Shows & Movies
 
 Streaming TV, Tubi TV
