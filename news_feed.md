@@ -1,3 +1,366 @@
+# Harry Potter Casting Dreams Are Officially Squashed With Game Of Thrones Star’s New Role
+
+Streaming TV, Harry Potter
+
+Sun, 30 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/harry-potter-kit-harington-casting-lockhart-not-sirius-black/
+
+We must officially accept that our casting dreams for HBO's Harry Potter TV show won't come true, as the perfect actor is playing a different role.
+---------
+
+# Ghosts Officially Returns In 2 Months (But There's A Catch)
+
+Network TV, Ghosts
+
+Sun, 30 Aug 2026 23:30:14 GMT
+
+https://screenrant.com/ghosts-cbs-sitcom-return-october-2026-halloween-special-return/
+
+CBS' Ghosts may not be on the network's fall schedule, but returns with Halloween and Christmas specials in 2026 before season 6 in early 2027.
+---------
+
+# Mousetrap: Netflix's New 10-Part Money Heist Meets Ripley Thriller Officially Deserves A Binge
+
+Streaming TV, Masked Recs
+
+Sun, 30 Aug 2026 23:20:14 GMT
+
+https://screenrant.com/mousetrap-netflix-korean-thriller-watch/
+
+Mousetrap, Netflix's new 10-part crime thriller, is a perfect combination of Money Heist & Ripley, making it one of the best new shows to binge now.
+---------
+
+# 12 Other Mutants We Want To See In Marvel’s New X-Men Movie
+
+Superheroes, X-Men, Marvel Cinematic Universe
+
+Sun, 30 Aug 2026 23:15:15 GMT
+
+https://screenrant.com/other-mutants-who-could-be-in-mcu-x-men-movie/
+
+While we now know a handful of characters confirmed for Marvel Studios' upcoming X-Men movie, there are so many more mutants we'd love to see.
+---------
+
+# Hugo Weaving’s Sequel To 32-Year-Old Cult Classic Gets Major Filming & Release Update
+
+Movies, The Adventures of Priscilla, Queen of the Desert
+
+Sun, 30 Aug 2026 23:15:05 GMT
+
+https://screenrant.com/priscilla-queen-of-the-desert-2-filming-release-update-guy-pearce/
+
+The long-awaited follow up to Hugo Weaving's 1994 heartfelt cult classic comedy is set to start filming with the original cast 32 years later.
+---------
+
+# How DC Comics Finally Gave Its Golden Age Heroes The Victory They Waited 48 Years For
+
+Comics, DC Comics
+
+Sun, 30 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/dc-golden-age-heroes-victory/
+
+A four issue series let DC's original heroes let out decades of frustrations.
+---------
+
+# 67 Years Later, The Twilight Zone’s Greatest Life Lesson Is More Important Than Ever
+
+TV, The Twilight Zone
+
+Sun, 30 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/the-twilight-zone-best-quote-life-lesson-relevant-today/
+
+When The Twilight Zone started in 1959, Rod Serling could never have expected his show's greatest life lesson to take on new meaning in the 2020s.
+---------
+
+# Harry Potter: All Is Fair In Love & Chess Officially Announced
+
+Gaming, Harry Potter, Hogwarts Legacy, Hogwarts Legacy 2, PC
+
+Sun, 30 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/harry-potter-hogwarts-mystery-love-chess-announcement/
+
+Harry Potter: All Is Fair In Love and Chess is a brand-new release that fans of the franchise can check out now.
+---------
+
+# Disney Legend Addresses Being Recast For Reboot: “I Hope They Get Everything They Deserve”
+
+TV, Darkwing Duck, Jim Cummings
+
+Sun, 30 Aug 2026 22:48:32 GMT
+
+https://screenrant.com/darkwing-duck-reboot-recast-jim-cummings-response/
+
+Longtime Disney actor Jim Cummings shared his thoughts on being recast in the upcoming Disney+ reboot of Darkwing Duck, which was announced in 2020.
+---------
+
+# Tom Hardy's Tense 106-Minute World War II Movie Drops on a New Streaming Home in Just 2 Days
+
+Movies, Dunkirk
+
+Sun, 30 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/tom-hardy-dunkirk-war-film-paramount-plus-september-2026/
+
+One of the biggest World War II features of the past decade is about to have a new streaming home on a fan-favorite platform.
+---------
+
+# 5 Forgotten Time Loop Movies That Are Still Perfect Today
+
+Movies, Sci-Fi
+
+Sun, 30 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/forgotten-time-loop-movies-that-are-perfect-list/
+
+These are five time-loop movies that slipped under the radar but have lost none of their charm.
+---------
+
+# 5 Black Clover Characters Stronger Than Yami
+
+Anime, Black Clover
+
+Sun, 30 Aug 2026 23:15:11 GMT
+
+https://www.cbr.com/black-clover-characters-stronger-than-yami/
+
+Yami's Dimension Slash pales in comparison to the strongest attacks in Black Clover.
+---------
+
+# Star Wars Officially Returns in 2027 With Galaxy At War
+
+Games, Star Wars
+
+Sun, 30 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/star-wars-officially-returns-galaxy-at-war-2027/
+
+A new battle is about to be waged in the Star Wars Universe, as Galaxy At War is slated for a 2027 release.
+---------
+
+# Sam Neill’s 29-Year-Old Sci-Fi Classic Shoots to New Streaming Home in Just 2 Days
+
+Movies, Event Horizon
+
+Sun, 30 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/sam-neill-event-horizon-paramount-plus-september-2026/
+
+One of the most beloved sci-fi horror classics of an entire generation is about to have a new streaming home in just a matter of days.
+---------
+
+# 10 Greatest Sci-Fi Movies From the Last 10 Years, Ranked
+
+Movies, Sci-Fi, Blade Runner 2049, Project Hail Mary, Spider-Man: Into The Spider-Verse, Annihilation, Alien: Romulus, Godzilla Minus One, Arrival, Dune, Avengers: Endgame, Everything Everywhere All at Once
+
+Sun, 30 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/best-sci-fi-movies-last-10-years-list/
+
+Over the last decade, we've watched some of the most visually beautiful, narratively complex, and thought-provoking sci-fi movies in cinema history.
+---------
+
+# School Spirits Season 4 Gets Major Update as Key Star Confirms Return Amid Uncertain Fate
+
+TV, School Spirits
+
+Sun, 30 Aug 2026 22:54:52 GMT
+
+https://www.cbr.com/school-spirits-season-4-starts-filming-jennifer-tilly-return/
+
+A big update is shared for the next season of Paramount+'s hit supernatural drama.
+---------
+
+# Prime Video’s New 8-Part ’90s Show Surges Back Onto Streaming
+
+TV, Elle
+
+Sun, 30 Aug 2026 22:30:11 GMT
+
+https://www.cbr.com/elle-comedy-prime-video-success-august-2026/
+
+The show turned into a streaming smash hit.
+---------
+
+# 10 New RPGs Officially Confirmed for 2027
+
+Games, Persona, Final Fantasy, Kingdom Hearts, RPG, Video Games
+
+Sun, 30 Aug 2026 22:15:11 GMT
+
+https://www.cbr.com/officially-confirmed-2027-rpgs/
+
+The 2027 schedule of releases holds some promising titles for the RPG genre, including these ten titles that are sure to garner the most interest.
+---------
+
+# CBS' 279-Episode Sitcom Masterpiece Keeps Dominating Streaming Charts With 1.1B Minutes Viewed
+
+TV, The Big Bang Theory
+
+Sun, 30 Aug 2026 22:00:11 GMT
+
+https://www.cbr.com/the-big-bang-theory-sitcom-nielsen-success-july-2026/
+
+The show that kicked off one of CBS' biggest modern television franchises continues to beat out the streaming competition by a massive margin.
+---------
+
+# The Batmobile Officially Has a New Passenger in 'The Batman: Part II' Set Pictures
+
+Movie News, The Batman Part II, Scarlett Johansson, Matt Reeves, Robert Pattinson
+
+Sun, 30 Aug 2026 23:30:11 GMT
+
+https://collider.com/the-batman-ii-set-photos-images/
+
+Someone unexpected is in the Batmobile in new The Batman: Part II set photos. Read on for more.
+---------
+
+# HBO Only Agreed To Make 'The Sopranos' After Its Creator Made This Shocking Change
+
+TV Features, The Sopranos, Wise Guy: David Chase and the Sopranos, David Chase, HBO
+
+Sun, 30 Aug 2026 23:27:11 GMT
+
+https://collider.com/the-sopranos-pilot-hbo-change-deaths/
+
+Originally, no one died in The Sopranos' pilot script, but once creator David Chase added some actual murders, HBO was all in.
+---------
+
+# 11 Years Ago, One of the Greatest Sci-Fi Movies of All Time Was Released
+
+Movie Features, Ex Machina, Alicia Vikander, Oscar Isaac, Domhnall Gleeson
+
+Sun, 30 Aug 2026 22:52:40 GMT
+
+https://collider.com/ex-machina-best-sci-fi-movie-streaming-hulu/
+
+In the not-too-distant future, a humble programmer and eccentric inventor test the limits of a robot only to learn they are in way over their heads.
+---------
+
+# 16 Years Later, ‘Fullmetal Alchemist’s Best Quote Still Defines the Series
+
+TV Features, Anime, Fullmetal Alchemist: Brotherhood, Fullmetal Alchemist
+
+Sun, 30 Aug 2026 22:49:11 GMT
+
+https://collider.com/best-fullmetal-alchemist-brotherhood-quote/
+
+Fullmetal Alchemist: Brotherhood is a philosophical anime about two brothers who use alchemy for the government while trying to get their bodies back.
+---------
+
+# CBS' 256-Episode Classic War Drama Broke the Mold of the Award-Winning Series
+
+TV Features, M*A*S*H, CBS, War, Comedy
+
+Sun, 30 Aug 2026 22:46:11 GMT
+
+https://collider.com/mash-cbs-war-drama-hawkeye-bottle-episode/
+
+M*A*S*H's Season 4 bottle episode highlights Alan Alda's Hawkeye, as he is the only lead character to appear.
+---------
+
+# Stephen King Movie Whose Director Was Called a "Worthy Pretender to Hitchcock's Throne" Officially Finds New Streaming Home
+
+Movie News, Stephen King, Carrie, HBO Max, Horror
+
+Sun, 30 Aug 2026 22:45:11 GMT
+
+https://collider.com/stephen-king-carrie-1976-hbo-max-streaming-september-2026/
+
+Ahead of a new release of Stephen King's most important work, a cult classic is officially coming to a new streamer. Get all the details here.
+---------
+
+# ‘Bosch’ Star Titus Welliver Officially Returns to DC This Fall
+
+TV News, Titus Welliver, Justin Kirk, Warner Bros., Anthony Bourdain
+
+Sun, 30 Aug 2026 22:30:11 GMT
+
+https://collider.com/titus-welliver-anthony-bourdain-dc-get-jiro-fall-release-date/
+
+Get Jiro, an animated series featuring Titus Welliver and based on graphic novels by Anthony Bourdain, will premiere October 3, 2026, on Adult Swim.
+---------
+
+# 10 Essential Green Lantern Comics for Beginners
+
+Books and Comics, Lanterns, DC Comics, HBO, Superhero
+
+Sun, 30 Aug 2026 22:21:11 GMT
+
+https://collider.com/essential-green-lantern-comics-beginners/
+
+If HBO's Lanterns has you wanting to explore more Green Lantern lore, then comic book arcs and novels like Secret Origin are a great place to start.
+---------
+
+# 'Jack Ryan' Star's Michael Bay Thriller Is Officially One of Netflix's Best
+
+Movie News, War, John Krasinski, Michael Bay, 13 Hours: The Secret Soldiers of Benghazi
+
+Sun, 30 Aug 2026 22:15:11 GMT
+
+https://collider.com/michael-bay-war-13-hours-the-secret-soldiers-of-benghazi-global-streaming-success-hbo-max-august-2026/
+
+John Krasinski leads Michael Bay’s 144-minute war thriller 13 Hours: The Secret Soldiers of Benghazi, which is streaming now.
+---------
+
+# Pokémon Fans Rally Around Young Fan Scammed at Pokémon XP
+
+Gaming News, Pokémon, Pokémon Detective Pikachu, Pikachu, Gaming
+
+Sun, 30 Aug 2026 22:08:22 GMT
+
+https://collider.com/pokemon-xp-young-fan-scammed-card-trade/
+
+Pokémon fans are rallying around a young collector who was scammed out of his most valuable card during a trade at Pokémon XP.
+---------
+
+# 6 Years Later, This “Harry Potter Meets Skins” Fantasy Series Remains a Perfect Binge
+
+Features, The Magicians, Harry Potter, Fantasy
+
+Sun, 30 Aug 2026 23:00:14 GMT
+
+https://movieweb.com/the-magicians-harry-potter-skins-comparison/
+
+Even six years after its ending, one "Harry Potter meets Skins" fantasy series remains essential viewing for its mature and realistic storytelling.
+---------
+
+# The Very R-Rated 2-Part Sensation That's Currently Taking Over on Streaming
+
+TV News, Adults, Hulu, Hot on Streaming
+
+Sun, 30 Aug 2026 22:00:13 GMT
+
+https://movieweb.com/adults-season-2-rrated-stream-hulu-august-2026/
+
+Season 2 just dropped, and it's 100% rated on Rotten Tomatoes.
+---------
+
+# The "Yellowstone Meets Law & Order" Western Reboot You'll Spend the Whole Weekend Watching
+
+Features, Walker, Yellowstone, Law & Order, Western
+
+Sun, 30 Aug 2026 22:00:13 GMT
+
+https://movieweb.com/walker-reboot-yellowstone-law-order-comparison/
+
+This modern Western reboot blends the best parts of 'Yellowstone' and 'Law & Order,' and it'll eat your entire weekend. It deserves a second chance.
+---------
+
+# ‘Mistborn’: 8 Most Exciting Things Brandon Sanderson Has Said About the Movie So Far
+
+Movie Lists, Mistborn, Brandon Sanderson, Fantasy
+
+Sun, 30 Aug 2026 21:30:13 GMT
+
+https://movieweb.com/mistborn-movie-brandon-sanderson-best-reveals/
+
+The long-awaited 'Mistborn' movie is finally making progress, and Brandon Sanderson has said things that make the adaptation even more promising.
+---------
+
 # 10 Greatest Vietnam War Movies of All Time, Ranked
 
 Classic Movies, War
