@@ -1,3 +1,443 @@
+# 10 Greatest Vietnam War Movies of All Time, Ranked
+
+Classic Movies, War
+
+Sun, 30 Aug 2026 21:00:14 GMT
+
+https://screenrant.com/the-best-vietnam-war-movies/
+
+There have been some incredible war movies released over the years, and these are the best that focuses on the conflict in the Vietnam War.
+---------
+
+# Fallout 4 Extreme Graphics Upgrade Makes The RPG Look More Like Fallout 5
+
+Gaming, Fallout 5, Fallout 4, Triple-A Games, PC
+
+Sun, 30 Aug 2026 21:00:14 GMT
+
+https://screenrant.com/fallout-4-graphics-upgrade-fallout-5/
+
+A video reveals a version of Fallout 4 that's been upgraded through so many mods that it might as well be footage from the upcoming Fallout 5.
+---------
+
+# 8 Most Glaring Continuity Errors Between Young Sheldon & The Big Bang Theory
+
+Network TV, The Big Bang Theory, Young Sheldon
+
+Sun, 30 Aug 2026 20:45:14 GMT
+
+https://screenrant.com/young-sheldon-continuity-errors-the-big-bang-theory/
+
+As much as fans of The Big Bang Theory may enjoy Young Sheldon as a prequel series, the show also contains many glaring mistakes that contradict TBBT.
+---------
+
+# Netflix's 7-Part Thriller Is The Perfect Binge Ahead Of American Horror Story's Return
+
+Streaming TV, Masked Recs
+
+Sun, 30 Aug 2026 20:30:14 GMT
+
+https://screenrant.com/netflix-the-watcher-watch-american-horror-story-season-13/
+
+Netflix has a seven-episode thriller series that's perfect for American Horror Story fans to binge-watch before the debut of season 13.
+---------
+
+# Netflix's Adaptation Of 91-Year-Old Franchise Gets Exciting Production Update
+
+TV, Little House on the Prairie
+
+Sun, 30 Aug 2026 20:18:38 GMT
+
+https://screenrant.com/netflix-little-house-on-the-prairie-season-2-production-update/
+
+Netflix offers its viewers some very good news regarding the second season of its adaptation of one of the most iconic franchises in the world.
+---------
+
+# 2027 Is Going To Be The Biggest Year In Anime Movie History With These 5 Massive Releases
+
+Anime, One Piece, Solo Leveling
+
+Sun, 30 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/2027-biggest-year-anime-movie-history/
+
+Between cinematic events like One Piece Film: God Valley and Demon Slayer, 2027 is poised to be a historic year for theatrical anime releases.
+---------
+
+# Squid Game & The Glory Stars Officially Return To Netflix In New K-Drama
+
+Streaming TV, Squid Game, The Glory, K-Drama
+
+Sun, 30 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/tantara-netflix-k-drama-gong-yoo-song-hye-kyo/
+
+Two stars from Squid Game and The Glory— both acclaimed series— are joining forces for Tantara, Netflix's highly anticipated upcoming K-drama.
+---------
+
+# The Walking Dead Meets Minecraft In Open-World Survival Game You Can Play Free
+
+Gaming, The Walking Dead, Minecraft
+
+Sun, 30 Aug 2026 20:00:14 GMT
+
+https://screenrant.com/walking-dead-meets-minecraft-free-zombie-survival-game/
+
+Discover Unturned, a free zombie survival game blending Minecraft mechanics with intense PvP action on Steam.
+---------
+
+# 10 Kids Shows From The '90s That Sound Completely Made Up
+
+Classic TV
+
+Sun, 30 Aug 2026 19:45:14 GMT
+
+https://screenrant.com/90s-kids-shows-sound-made-up/
+
+The 1990s was essentially the wild west of kids' TV shows, with some of the most outrageous, terrifying, and truly baffling shows ever made.
+---------
+
+# Marvel’s 8 Deadliest God-Killer Weapons, Ranked By Actual Body Count
+
+Comics, Marvel
+
+Sun, 30 Aug 2026 19:33:45 GMT
+
+https://screenrant.com/marvel-deadliest-god-killer-weapons/
+
+The Marvel multiverse has no shortage of potential universe-ending weapons; however, these have often left devastation in their wake.
+---------
+
+# August 31 Is Officially the End of an Era for Gundam Fans
+
+Anime, Gundam
+
+Sun, 30 Aug 2026 21:15:11 GMT
+
+https://www.cbr.com/august-31-end-of-an-era-for-gundam-fans/
+
+One of Gundam's most iconic real-life mechs will be coming down on August 31st in Japan, marking the end of a legendary exhibition.
+---------
+
+# Theo James' Non-Stop Action Thriller Debuts on HBO Max 1 Day After The Gentlemen Return
+
+Movies, The Gentlemen, Fuze, Theo James
+
+Sun, 30 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/theo-james-fuze-action-hbo-max-release-date/
+
+September will be a great month for Theo James' fans.
+---------
+
+# Peacock's 2-Season Cyber Thriller Is an Instant Streaming Hit
+
+TV, The Undeclared War, Peacock
+
+Sun, 30 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/the-undeclared-war-cyber-thriller-peacock-success-august-2026/
+
+The show is doing wonders after its Season 2 return.
+---------
+
+# 5 Greatest H.P. Lovecraft-Inspired Movies of All Time, Ranked
+
+Movies, Horror
+
+Sun, 30 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/best-hp-lovecraft-inspired-movies-list/
+
+A frightful list of five incredible horror movies that are heavily influenced by the creative works of H.P. Lovecraft.
+---------
+
+# 9 Years Later, the Smartest Crime Show in TV History Remains 100% Untouchable
+
+TV, Bones, Crime, fox
+
+Sun, 30 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/bones-smartest-crime-show-ever/
+
+Nine years after its finale, the series remains the gold standard for crime TV and helped establish the blueprint for modern police procedural series.
+---------
+
+# 8 Action Anime That Rival Solo Leveling
+
+Anime, Solo Leveling, Isekai, Sailor Moon
+
+Sun, 30 Aug 2026 20:15:11 GMT
+
+https://www.cbr.com/best-action-anime-rival-solo-leveling/
+
+Not many anime series are as remarkable as Solo Leveling, but these eight gems are all arguably just as spectacular.
+---------
+
+# What's Coming to Netflix in September 2026? Everything Arriving Next Month
+
+Movies, Netflix
+
+Sun, 30 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/what-coming-netflix-september-2026-full-list/
+
+One of Netflix's biggest true crime series is coming back, as well as a highly anticipated reboot.
+---------
+
+# Jujutsu Kaisen Officially Reveals New Look at Season 4
+
+Anime, Jujutsu Kaisen, Crunchyroll, Shonen Jump
+
+Sun, 30 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/jujutsu-kaisen-season-4-new-key-visual/
+
+Jujutsu Kaisen Season 4 has revealed a brand-new look at the anime’s highly anticipated return.
+---------
+
+# Fan-Favorite Disney Series Officially Arrives on a Free Platform
+
+Comics, webtoon, Disney
+
+Sun, 30 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/disney-villians-webtoon-release-confirmed/
+
+Disney is bringing a whole lineup of fan-favorite comic book titles to WEBTOON, and readers won't have to wait long to dive in for themselves.
+---------
+
+# The 10 Greatest Non-English Language Horror Movies Of All Time, Ranked
+
+Movies, Horror
+
+Sun, 30 Aug 2026 20:00:11 GMT
+
+https://www.cbr.com/best-non-english-language-horror-movies-list/
+
+Horror films have been a fan favorite for over a century, with 'Nosferatu' paving the way.
+---------
+
+# 11 Years Later, Anya Taylor-Joy’s Horror Masterpiece Is Officially Streaming for Free
+
+Movie News, Anya Taylor-Joy, The Witch, Horror, Plex
+
+Sun, 30 Aug 2026 21:15:11 GMT
+
+https://collider.com/anya-taylor-joy-the-witch-streaming-plex-september-2026/
+
+Anya Taylor-Joy's decade-defining horror breakout directed by Robert Eggers is streaming for free. Here's where you can watch The Witch.
+---------
+
+# 'House of the Dragon' Has Already Changed Rhaenyra's Fate
+
+TV Features, House of the Dragon, HBO, Emma D'Arcy, Tom Glynn-Carney
+
+Sun, 30 Aug 2026 21:14:11 GMT
+
+https://collider.com/house-of-the-dragon-rhaenyra-death-aegon-sunfyre/
+
+House of the Dragon's ending could be significantly altered by the end of the Dance of the Dragons because of Rhaenyra's fate.
+---------
+
+# Before ‘Peaky Blinders,’ Steven Knight Teamed With Jason Statham for This Action Gem Coming to Free Streaming
+
+Movie News, Jason Statham, Redemption, Steven Knight, Plex
+
+Sun, 30 Aug 2026 21:00:11 GMT
+
+https://collider.com/jason-statham-redemption-streaming-plex-september-2026/
+
+Jason Statham teamed up with new James Bond writer Steven Knight in this action movie streaming free next month. Read on for more.
+---------
+
+# Aardman’s New Pokémon Series Officially Confirms Project Size
+
+TV News, Pokémon, Aardman, Aardman Animations, Animation
+
+Sun, 30 Aug 2026 20:53:03 GMT
+
+https://collider.com/pokemon-tales-misadventures-of-sirfetchd-pichu-aardman-disney-episode-count/
+
+Aardman has revealed the episode count for its upcoming stop-motion Pokémon series.
+---------
+
+# ‘The Simpsons’ Best Homer and Marge Episode Is Still Untouchable 35 Years Later
+
+TV Features, The Simpsons, Fox, Sitcom, Disney+
+
+Sun, 30 Aug 2026 20:43:11 GMT
+
+https://collider.com/the-simpsons-best-homer-marge-episode-the-way-we-was-meaning/
+
+The Simpsons Season 2 episode “The Way We Was” remains one of the show’s best flashbacks and the defining story of Homer and Marge’s romance.
+---------
+
+# ‘Edge of Tomorrow’ Fans Shouldn’t Miss This 93-Minute Sci-Fi Thriller Before It Leaves Streaming
+
+Movie News, Jake Gyllenhaal, Source Code, Sci-Fi, Peacock
+
+Sun, 30 Aug 2026 20:30:11 GMT
+
+https://collider.com/jake-gyllenhaal-sci-fi-source-code-leaving-peacock-september-2026/
+
+A 93-minute time-travel thriller in the vein of Edge of Tomorrow is about to be removed from its streaming home. Find out when.
+---------
+
+# The 6 Best TV Shows Released Since 2010, Ranked
+
+TV, Succession, Better Call Saul, The Leftovers, The Americans
+
+Sun, 30 Aug 2026 20:14:11 GMT
+
+https://collider.com/best-tv-shows-since-2010-ranked/
+
+From Fleabag to Better Call Saul, these modern TV masterpieces show how prestige television can thrive across every genre and style.
+---------
+
+# Roger Ebert Said “Homer’s Estate Should Sue” Over This ‘Odyssey’ Replacement Officially Leaving Streaming
+
+Movie News, Troy, The Odyssey, Peacock, Brad Pitt
+
+Sun, 30 Aug 2026 20:00:11 GMT
+
+https://collider.com/brad-pitt-epic-troy-leaving-peacock-september-2026/
+
+An sword-and-sandals epic is about to be removed from Peacock, after enjoying a tremendous resurgence thanks to The Odyssey.
+---------
+
+# Apple TV’s Newest 8-Episode Crime Thriller Is Putting a Twist on the Heist Formula
+
+TV Features, 12 12 12, Anthony Mackie, Jamie Dornan, Apple TV
+
+Sun, 30 Aug 2026 19:55:11 GMT
+
+https://collider.com/12-12-12-apple-tv-heist-thriller-anthony-mackie-jamie-dornan/
+
+Apple TV’s 12 12 12 stars Anthony Mackie and Jamie Dornan in an eight-episode heist thriller spanning three timelines.
+---------
+
+# Pokémon Worlds Abruplty Shuts Down Its Most Popular Pin Rally Event
+
+Gaming News, Pokémon, Pokemon GO, Gaming, Merchandise
+
+Sun, 30 Aug 2026 19:50:28 GMT
+
+https://collider.com/pokemon-worlds-pin-rally-shut-down-safety-concerns/
+
+Pokémon Worlds abruptly ended its popular Pin Rally one day early after organizers acknowledged massive lines and demand for the free pins.
+---------
+
+# 'Landman' Gets New Cast Candidate With 'Lioness' and '1883' Star Officially Confirming Interest
+
+TV News, Landman, Western, LaMonica Garrett
+
+Sun, 30 Aug 2026 21:00:14 GMT
+
+https://movieweb.com/landman-lamonica-garrett-cast-interest/
+
+'Landman' could soon add another familiar face from the Sheridan-verse.
+---------
+
+# 10 Best 'Far Side' Comics About TV: From Failed TV Pitches to Cringe Talk Shows
+
+Movie Lists, The Far Side, Comedy
+
+Sun, 30 Aug 2026 21:00:14 GMT
+
+https://movieweb.com/far-side-best-tv-comics/
+
+Gary Larson understood how integral TV was to Americans, which made it ideal fodder for his absurd humor in 'The Far Side.'
+---------
+
+# Gal Gadot Goes Full Liam Neeson in New 84-Minute Action Thriller That Hits Netflix in September
+
+Movie News, Coming/Leaving Streaming, The Runner, Action, Gal Gadot
+
+Sun, 30 Aug 2026 20:30:13 GMT
+
+https://movieweb.com/gal-gadot-the-runner-prime-video-september-release/
+
+Gadot goes back to her butt-kicking roots in a lean new action thriller.
+---------
+
+# Netflix's New 117-Minute 'Bad Boys'-Esque Addition Is a Streaming Hit
+
+Movie News, Hot on Streaming, The Heat, Action, Comedy
+
+Sun, 30 Aug 2026 20:30:13 GMT
+
+https://movieweb.com/netflix-the-heat-global-streaming-hit/
+
+Netflix viewers around the world are giving 'The Heat' a second life.
+---------
+
+# The Scrapped 'Harry Potter' Spin-Off We Desperately Want Has an Impossible Challenge
+
+Features, Harry Potter, Fantasy
+
+Sun, 30 Aug 2026 20:30:13 GMT
+
+https://movieweb.com/harry-potter-marauders-spin-off-biggest-challenge/
+
+Warner Bros. reportedly scrapped the most coveted 'Harry Potter' spin-off, but its biggest challenge almost makes that a relief.
+---------
+
+# Walton Goggins’s Greatest Series in 16 Years Is an HBO Thriller Masterpiece
+
+Features, The White Lotus, Walton Goggins, HBO Max, Thriller
+
+Sun, 30 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/the-white-lotus-season-3-walton-goggins-hbo/
+
+Walton Goggins is known for his memorable TV roles, including The Ghoul on 'Fallout' and Boyd Crowder on 'Justified.'
+---------
+
+# 'Insidious:' Every Type of Demon in the Movies, Explained
+
+Movie Lists, Insidious, Horror
+
+Sun, 30 Aug 2026 20:00:13 GMT
+
+https://movieweb.com/insidious-every-demon-explained/
+
+Inisdious has introduced many Demons; here is everything you need to know about the sinister inhabitant of the Further.
+---------
+
+# Taylor Sheridan Is Officially Fixing 'Dutton Ranch'
+
+Features, Dutton Ranch, Taylor Sheridan
+
+Sun, 30 Aug 2026 19:33:26 GMT
+
+https://movieweb.com/taylor-sheridan-fixing-dutton-ranch/
+
+Taylor Sheridan will change his approach to 'Dutton Ranch' Season 2, and doing so could impact his projects beyond the 'Yellowstone' spin-off.
+---------
+
+# Acclaimed 5-Part HBO Series With Near-Perfect Rotten Tomatoes Score Gets New Release
+
+TV News, Hacks, Blu-ray, Comedy
+
+Sun, 30 Aug 2026 19:30:13 GMT
+
+https://movieweb.com/hacks-complete-series-hbo-blu-ray/
+
+Gone but not forgotten, 'Hacks' is getting some extra love.
+---------
+
+# Scott Eastwood's 105-Minute Action Thriller Scores Big on New Streaming Home
+
+Movie News, Scott Eastwood, Prime Video, Hot on Streaming, Action
+
+Sun, 30 Aug 2026 19:00:13 GMT
+
+https://movieweb.com/stolen-girl-action-stream-prime-video-august-2026/
+
+Clint Eastwood, who? Scott Eastwood's 2025 action thriller is slowly taking over on streaming.
+---------
+
 # The Best Scene In Each Quentin Tarantino Movie
 
 Classic Movies, Quentin Tarantino
