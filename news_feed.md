@@ -1,3 +1,366 @@
+# Every K-Drama Coming To Netflix, Hulu, Prime Video & More In September 2026
+
+TV, K-Drama
+
+Mon, 31 Aug 2026 02:30:14 GMT
+
+https://screenrant.com/every-k-drama-netflix-hulu-prime-video-streaming-september-2026/
+
+Much of the major K-drama streaming scene in the US has something exciting to offer as Fall 2026 looms.
+---------
+
+# The Reviews For Disney's Beloved Animated Movie Series Prove It's Officially Their Best
+
+Movies, Disney, Masked Recs
+
+Mon, 31 Aug 2026 02:30:14 GMT
+
+https://screenrant.com/disney-toy-story-reviews-best-movie-series/
+
+One Disney property has a staggering record when it comes to ratings and reviews, suggesting it is the best series of movies in the franchise.
+---------
+
+# Lanterns Interview with J. Alphonse Nicholson, Vanessa Baden Kelly & Jasmine Cephas Jones
+
+TV, Lanterns, Lanterns - Season 1
+
+Mon, 31 Aug 2026 02:30:14 GMT
+
+https://screenrant.com/video/lanterns-j-alphonse-nicholson-vanessa-baden-kelly-jasmine-cephas-jones-interview/
+
+Lanterns stars J. Alphonse Nicholson, Jasmine Cephas Jones, and writer Vanessa Baden Kelly discuss key moments of John Stewart's backstory.
+---------
+
+# The Walking Dead Just Changed Forever: Alternate Future & Canon Status Fully Explained
+
+Streaming TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 31 Aug 2026 02:30:14 GMT
+
+https://screenrant.com/walking-dead-alternate-timeline-change-forever/
+
+For over 15 years, The Walking Dead has been about killing zombies and fighting for survival, but Dead City's new timeline just changed everything.
+---------
+
+# Avengers: Doomsday's New X-Men Poster Revealed Setting Up The Team's Biggest MCU Role
+
+Movies, Avengers: Doomsday
+
+Mon, 31 Aug 2026 02:27:52 GMT
+
+https://screenrant.com/avengers-doomsday-x-men-new-poster-mcu/
+
+Avengers: Doomsday's international poster has just been spotted in Japan, teasing the exciting return of Marvel's iconic mutant team, the X-Men.
+---------
+
+# The Walking Dead: Dead City Season 3, Episode 7 Trailer: Negan Holds Maggie At Gunpoint As Season Finale Looms
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 31 Aug 2026 02:11:14 GMT
+
+https://screenrant.com/the-walking-dead-dead-city-season-3-episode-7-trailer/
+
+The Walking Dead: Dead City season 3, episode 7 trailer has been released, showing Negan holding Maggie at gunpoint as the season finale approaches.
+---------
+
+# David Corenswet's Superman Replacement Officially Revealed
+
+Streaming TV, Masked Recs
+
+Mon, 31 Aug 2026 02:05:14 GMT
+
+https://screenrant.com/new-superman-replacement-dc-universe-hbo-lanterns/
+
+David Corenswet's Superman is no longer the new DC Universe's biggest hero, as the James Gunn franchise has just replaced him with the perfect star.
+---------
+
+# Is Jack Reacher Autistic In Prime Video's TV Series
+
+Streaming TV, Reacher, Reacher - Season 4
+
+Mon, 31 Aug 2026 02:00:24 GMT
+
+https://screenrant.com/is-reacher-autistic/
+
+Many of Jack Reacher’s traits and mannerisms, especially in recent seasons, have prompted viewers to wonder if the Alan Ritchson character is autistic
+---------
+
+# DC Officially Rewrites Green Lantern Lore With New Origin Story
+
+Streaming TV, Lanterns, DC Universe
+
+Mon, 31 Aug 2026 02:00:24 GMT
+
+https://screenrant.com/lanterns-episode-3-ending-explained/
+
+HBO's Lanterns episode 3 is all about rewriting a Green Lantern's origin, and it also reveals how the Guardians had it out for Hal Jordan.
+---------
+
+# 9 Greatest Garfield Comics From The 1990s That Are Pure Nostalgia
+
+Comics, Garfield
+
+Mon, 31 Aug 2026 02:00:24 GMT
+
+https://screenrant.com/greatest-garfield-comics-1990s/
+
+Some Garfield comics have aged so much in the past three decades that they've earned a new humorous meaning, as though they were time capsules.
+---------
+
+# Emily Kinney Calls Out the Dead City Scene That Felt Like Walking Dead Season 3
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 31 Aug 2026 02:38:15 GMT
+
+https://www.cbr.com/walking-dead-dead-city-emily-kinney-beth-season-3-callback-scene/
+
+Emily Kinney reveals how Beth’s Dead City return recreated the feeling of a memorable Maggie and Beth scene from The Walking Dead Season 3.
+---------
+
+# Adam Scott's 3-Season Masterpiece With 93% RT Is Finally Coming to Netflix
+
+TV, Party Down, Netflix, Comedy
+
+Mon, 31 Aug 2026 02:30:11 GMT
+
+https://www.cbr.com/adam-scott-party-down-cult-classic-comedy-netflix-september-2026/
+
+Adam Scott's cult classic series, Party Down, finally joins the Netflix catalog.
+---------
+
+# 10 Strongest Assassins in Anime History, Ranked
+
+Anime, Darker Than Black, Naruto
+
+Mon, 31 Aug 2026 02:30:11 GMT
+
+https://www.cbr.com/most-powerful-anime-assassins-ever-ranked-list/
+
+The top assassins in anime, like Darker than Black's Hei and Naruto's Itachi Uchiha, earned their rep with their lethal skills and unique abilities.
+---------
+
+# Harry Potter: Defenders of Hogwarts Officially Launches October 2026
+
+Games, Harry Potter
+
+Mon, 31 Aug 2026 02:15:11 GMT
+
+https://www.cbr.com/harry-potter-official-new-game-october-2026/
+
+Harry Potter officially returns this October with new board game Defenders of Hogwarts.
+---------
+
+# Emily Kinney Shares the Personal Reason for Beth’s Song in The Walking Dead: Dead City
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 31 Aug 2026 02:11:25 GMT
+
+https://www.cbr.com/walking-dead-dead-city-beth-song-emily-kinney/
+
+Emily Kinney explains why she chose “Reasons to Stay Alive” for Beth Greene’s return in The Walking Dead: Dead City Season 3.
+---------
+
+# The Walking Dead’s Emily Kinney Talks The ‘Surprise’ Decision That Led To Her Dead City Cameo
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 31 Aug 2026 02:01:17 GMT
+
+https://www.cbr.com/walking-dead-dead-city-emily-kinney-beth-return/
+
+Emily Kinney explains how Seth Hoffman’s idea led to Beth Greene’s surprise return in The Walking Dead: Dead City Season 3.
+---------
+
+# God of Wars' Best Line Is Still the Greatest Quote in Gaming History
+
+Games, God of War, God of War Ragnarok
+
+Mon, 31 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/god-of-war-best-line-greatest-quote-gaming-history/
+
+God of War has become one of the most impressive franchises in gaming history, and one quote perfectly encapsulates everything that makes it great.
+---------
+
+# 30 Years Ago, Star Trek’s Darkest Two-Parter Exposed the Federation’s Greatest Weakness
+
+TV, Star Trek: Deep Space Nine, Star Trek, Sci-Fi
+
+Mon, 31 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/star-trek-deep-space-nine-darkest-episodes/
+
+Deep Space Nine has a reputation for telling darker stories than Star Trek typically tackles, and one revealed the Federation's greatest flaw
+---------
+
+# Gundam's Most Colorful Mecha Crossover Series Returns With New First Look
+
+Anime, Mobile Suit Gundam, merchandise, toys, action figures, bandai
+
+Mon, 31 Aug 2026 02:00:21 GMT
+
+https://www.cbr.com/gundam-chars-counterattack-hololive-figures/
+
+The first action figures for the Gundam x Hololive collaborative initiative have been revealed, with these remixing mechs from the first Gundam movie.
+---------
+
+# 10 Dark Fantasy Anime Series With Zero Filler and No Bad Arcs
+
+Anime, Dorohedoro, Devilman Crybaby
+
+Mon, 31 Aug 2026 01:45:11 GMT
+
+https://www.cbr.com/flawless-dark-fantasy-anime-series-no-bad-arcs-list/
+
+Dark fantasy series like Dorohedoro and Devilman Crybaby deliver relentless thrills with no detours or dull arcs in sight.
+---------
+
+# 'The Walking Dead's Emily Kinney Speaks Out About Finally Returning as Beth in ‘Dead City’ Season 3
+
+Interviews, The Walking Dead: Dead City, Emily Kinney, Lauren Cohan, The Walking Dead
+
+Mon, 31 Aug 2026 02:15:25 GMT
+
+https://collider.com/the-walking-dead-dead-city-season-3-episode-6-beth-return-emily-kinney/
+
+Emily Kinney discusses The Walking Dead: Dead City Season 3, reprising her role as Beth, and getting to sing in the alternate reality episode.
+---------
+
+# ‘The Walking Dead: Dead City’s Alternate Reality Episode Officially Breaks the Mold for the Franchise
+
+Interviews, The Walking Dead: Dead City, Lauren Cohan, Jeffrey Dean Morgan, Emily Kinney
+
+Mon, 31 Aug 2026 02:11:24 GMT
+
+https://collider.com/the-walking-dead-dead-city-season-3-episode-6-maggie-negan-lauren-cohan/
+
+Lauren Cohan discusses The Walking Dead: Dead City Season 3, getting to explore Maggie and Negan in an alternate reality, and the return of Beth.
+---------
+
+# 'Lanterns' Kyle Chandler and Aaron Pierre Break Down Episode 3 and the DC Show's Major Timelines
+
+Exclusives, Lanterns, Aaron Pierre, Kyle Chandler, HBO
+
+Mon, 31 Aug 2026 02:01:11 GMT
+
+https://collider.com/lanterns-episode-3-kyle-chandler-aaron-pierre-interview/
+
+Lanterns' Kyle Chandler and Aaron Pierre break down Episode 3's reveals about John Stewart and the DC show's two major timelines.
+---------
+
+# 'Lanterns' Officially Reveals the Guardians' Greater Plan for John Stewart | Review
+
+TV Reviews, Lanterns, Kyle Chandler, Aaron Pierre, Laura Linney
+
+Mon, 31 Aug 2026 02:00:21 GMT
+
+https://collider.com/lanterns-episode-3-recap/
+
+Lanterns Episode 3 explores John Stewart's complicated past and the real reason behind his friction with Hal Jordan.
+---------
+
+# 10 Forgotten Thrillers That Are Amazing From Start to Finish
+
+Movie, Thriller, Milk & Serial, Blue Ruin, Hell or High Water
+
+Mon, 31 Aug 2026 00:41:11 GMT
+
+https://collider.com/forgotten-thrillers-amazing-start-to-finish/
+
+From Coherence to Hell or High Water, these overlooked thrillers deliver suspense, tension, and unforgettable payoffs throughout.
+---------
+
+# Steven Spielberg Sci-Fi Epic Publicly Defended by James Cameron Officially Finds New Streaming Home
+
+Movie News, Steven Spielberg, War of The Worlds, HBO Max, Tom Cruise
+
+Mon, 31 Aug 2026 00:30:11 GMT
+
+https://collider.com/tom-cruise-war-of-the-worlds-streaming-hbo-max-september-2026/
+
+Steven Spielberg's controversial sci-fi epic with Tom Cruise and Tim Robbins is back on streaming next month. Here's everything you should know.
+---------
+
+# 'Abbott Elementary's Heaviest Episode Shows an Entirely New Side to the ABC Sitcom
+
+TV Features, Abbott Elementary, ABC, Sitcom, Tyler James Williams
+
+Mon, 31 Aug 2026 00:20:11 GMT
+
+https://collider.com/abbott-elementary-season-4-gregory-darnell-fight-argument/
+
+Abbott Elementary has never shied away from taking on real-world issues, but this Season 4 episode features a whole new side of the series.
+---------
+
+# ‘The Walking Dead’ Officially Returns Next Month
+
+Gaming News, The Walking Dead, AMC, Jeffrey Dean Morgan, Norman Reedus
+
+Mon, 31 Aug 2026 00:15:11 GMT
+
+https://collider.com/the-walking-dead-streets-of-survival-release-date-confirmed-september-2026/
+
+The Walking Dead will revisit one of its most famous storylines next month with the release of the video game Streets of Survival.
+---------
+
+# 10 Thriller Books That Everyone Should Read at Least Once
+
+TV, Thriller, The Girl With the Dragon Tattoo, Gone Girl, The Sympathizer
+
+Mon, 31 Aug 2026 00:02:11 GMT
+
+https://collider.com/thriller-books-essential-read-once/
+
+Explore essential thriller novels that will keep you on edge and are a must-read for any book lover, from Gone Girl to The Silence of the Lambs.
+---------
+
+# Stephen King Movie Whose Director Did "Best Movie Adaptation" of His Work Officially Finds New Streaming Home
+
+Movie News, Stephen King, Misery, HBO Max, Horror
+
+Mon, 31 Aug 2026 00:00:11 GMT
+
+https://collider.com/stephen-king-misery-streaming-hbo-max-september-2026/
+
+After being commended by Stephen King, a celebrated director's psychological thriller is coming to a new streaming service. Get all the details here.
+---------
+
+# 'The Walking Dead' Finally Reveals How It Can Bring Back Glenn After 10 Years
+
+Features, The Walking Dead: Dead City
+
+Mon, 31 Aug 2026 02:15:14 GMT
+
+https://movieweb.com/the-walking-dead-how-glenn-can-return/
+
+The Walking Dead: Dead City just brought back a beloved character, and the storyline is ripe for bringing back another one for proper closure.
+---------
+
+# 44 Years Later, the Best Quote From Ridley Scott's Sci-Fi Masterpiece Keeps Getting Better
+
+Features, Sci-Fi, Ridley Scott, Blade Runner, Quote
+
+Mon, 31 Aug 2026 01:00:14 GMT
+
+https://movieweb.com/blade-runner-best-quote-ridley-scott/
+
+One of Ridley Scott's greatest sci-fi movie quotes challenges audiences, offering a thought-provoking statement we still talk about today.
+---------
+
+# Taylor Sheridan's "King of TV" Action Thriller Series Gets More Intense With Each Episode
+
+Features, Lioness, Action, Thriller, Taylor Sheridan
+
+Mon, 31 Aug 2026 00:00:13 GMT
+
+https://movieweb.com/lioness-taylor-sheridan-thriller-better-every-episode/
+
+The latest season of Taylor Sheridan's action thriller is using a deeper emotional story to make every episode more intense than the last.
+---------
+
 # Harry Potter Casting Dreams Are Officially Squashed With Game Of Thrones Star’s New Role
 
 Streaming TV, Harry Potter
