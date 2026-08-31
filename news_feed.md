@@ -1,3 +1,267 @@
+# Doctor Who Officially Returns With Memento Mori
+
+Gaming, Doctor Who
+
+Mon, 31 Aug 2026 09:03:57 GMT
+
+https://screenrant.com/doctor-who-memento-mori-available-now/
+
+Doctor Who is in a time of transition right now, but while you wait for what's next, there is a new release that continues the narrative.
+---------
+
+# 10 Years Later, The Legend Of Zelda Officially Ends The Wilds Era With One Final Release
+
+Gaming, The Legend of Zelda: Breath of the Wild
+
+Mon, 31 Aug 2026 09:00:15 GMT
+
+https://screenrant.com/10-years-later-the-legend-of-zelda-officially/
+
+The Legend Of Zelda's Wilds Era is finally coming to an end after nearly 10 years.
+---------
+
+# 27 Years Later, Pokémon Returns To Johto With Stunning Remake
+
+Gaming, Pokemon, Nintendo Game Boy Advance
+
+Mon, 31 Aug 2026 06:34:39 GMT
+
+https://screenrant.com/pokemon-heart-soul-romhack-johto-remake/
+
+Johto and Kanto return in Pokémon Heart & Soul, a fan-made GBA ROM hack that recreates the classic adventure with modern features.
+---------
+
+# Brandon Sanderson's Official Stormlight Sequel Arrives Next Year
+
+Tabletop, Brandon Sanderson, The Stormlight Archive, The Cosmere RPG, tabletop games, The Cosmere
+
+Mon, 31 Aug 2026 06:00:14 GMT
+
+https://screenrant.com/stormlight-archive-tidebreakers-october-2027-release-brandon-sanderson/
+
+The Cosmere universe is getting even bigger in 2027 with the official release of a sequel to Brandon Sanderson’s The Stormlight Archive.
+---------
+
+# Pokémon Worlds 2026 Closing Recap: All The Massive Announcements
+
+Gaming, Pokemon, Triple-A Games
+
+Mon, 31 Aug 2026 05:14:32 GMT
+
+https://screenrant.com/pokemon-worlds-2026-all-announcements-recap/
+
+Pokémon Worlds 2026 had a ton of nail-biting competition, especially in the Champions arena, but there were also some announcements that dropped.
+---------
+
+# Star Wars: System Overload Officially Announced
+
+Gaming, Star Wars
+
+Mon, 31 Aug 2026 05:00:15 GMT
+
+https://screenrant.com/star-wars-system-overload-release-update/
+
+Discover the new System Overload set for Star Wars: Unlimited, launching 2026, with 260+ cards and exciting gameplay features.
+---------
+
+# Judge Dredd Is Officially Returning To His Roots With New Release
+
+Gaming, Judge Dredd
+
+Mon, 31 Aug 2026 04:30:14 GMT
+
+https://screenrant.com/judge-dredd-official-return-classic/
+
+Discover the upcoming Judge Dredd pinball game in Pinball FX, celebrating almost 50 years of the iconic franchise!
+---------
+
+# Pokémon Announces New Movie Starring Ash And Pikachu Replacements
+
+Anime, Pokemon
+
+Mon, 31 Aug 2026 04:10:23 GMT
+
+https://screenrant.com/pokemon-wildcard-new-anime-movie/
+
+The Pokémon movie franchise is back with a new film, and it teases a massive change for the beloved series.
+---------
+
+# Doctor Who Writer Explains How A Classic TV Show Can Resolve Controversial Twist
+
+TV, Doctor Who
+
+Mon, 31 Aug 2026 04:00:20 GMT
+
+https://screenrant.com/doctor-who-billie-piper-twist-resolved/
+
+Doctor Who writer Mark Gatiss believes that the show's latest controversial twist can be handled by following in the footsteps of a classic TV show.
+---------
+
+# Fallout 2 Open-World Remake Gets Exciting Update
+
+Gaming, Fallout
+
+Mon, 31 Aug 2026 04:00:19 GMT
+
+https://screenrant.com/fallout-2-open-world-remake-latest/
+
+Fallout 2 is getting an open-world remake in Fallout 4's engine, and it's looking better and better every day.
+---------
+
+# After 7 Years, Pokémon Is Officially Changing Its Movie Formula for 2027
+
+Anime, Pokemon, Pokemon TCG, Nintendo
+
+Mon, 31 Aug 2026 05:46:07 GMT
+
+https://www.cbr.com/pokemon-wild-card-2027-movie-tcg-player/
+
+After almost a decade, a brand-new theatrical Pokémon movie is finally here, and it’s officially changing the franchise’s 30-year-old formula.
+---------
+
+# 10 Forgotten '90s Anime Movies That Have Aged Like Fine Wine
+
+Anime, Ninja Scroll: The Series, Macross Plus
+
+Mon, 31 Aug 2026 03:45:11 GMT
+
+https://www.cbr.com/forgotten-90s-anime-movies-aged-well/
+
+Hidden gems from the '90s like Jin-Roh and Ocean Waves challenge today’s conventions with timeless themes and exceptional craftsmanship.
+---------
+
+# 10 best Far Side Comics With Groan-Worthy Puns, Ranked
+
+Comics, The Far Side
+
+Mon, 31 Aug 2026 03:30:11 GMT
+
+https://www.cbr.com/best-far-side-pun-comics-ranked/
+
+The Far Side is famous for its sardonic and surreal sense of humor, but there are countless comics full of groan-worthy puns for readers in need.
+---------
+
+# Crunchyroll Drops 7 Major Anime Releases in New November 2026 Update
+
+Anime, Crunchyroll, The Apothecary Diaries, Overlord, My Dress-Up Darling, Miss Kobayashi's Dragon Maid
+
+Mon, 31 Aug 2026 03:30:11 GMT
+
+https://www.cbr.com/crunchyroll-anime-home-media-release-november-2026/
+
+Crunchyroll's November home video slate is stacked with iconic series like My Dress-Up Darling, Jujutsu Kaisen, Overlord and more.
+---------
+
+# 4 Perfect Sci-Fi Shows You Can Binge in 1 Day
+
+TV, Sci-Fi, Love, Death & Robots, Firefly
+
+Mon, 31 Aug 2026 03:30:11 GMT
+
+https://www.cbr.com/perfect-sci-fi-shows-single-day-binge-list/
+
+Epic sci-fi stories like Devs and Firefly may be shorter in nature, but that only means they are perfect for a quick binge session.
+---------
+
+# 5 R-Rated Open World Games That Are 10/10 Masterpieces
+
+Games, Video Games, Grand Theft Auto V, Red Dead Redemption 2, open world
+
+Mon, 31 Aug 2026 03:15:11 GMT
+
+https://www.cbr.com/masterpiece-r-rated-mature-open-world-games/
+
+Whether for their graphic violence or mature themes, there are plenty of incredible masterpiece open-world RPGs that are for grown-ups only.
+---------
+
+# 10 Most Intense Crime Thrillers of the 21st Century, Ranked
+
+Movies, Thriller
+
+Mon, 31 Aug 2026 03:00:11 GMT
+
+https://www.cbr.com/most-intense-crime-thrillers-21st-century-ranked-list/
+
+From Memories of Murder to No Country for Old Men, these ten movies thrive and shine with their intense storytelling.
+---------
+
+# Adam Scott Recalls the Tired Acting Cliche That Actually Happened To Him
+
+CBR Exclusives, The Whisper Man
+
+Mon, 31 Aug 2026 02:53:02 GMT
+
+https://www.cbr.com/adam-scott-party-down-revival-acting-cliche/
+
+Adam Scott reveals why returning to Party Down Season 3 after 13 years instantly felt like no time had passed.
+---------
+
+# 10 Most Valuable Pokémon Promo Cards Ever Released
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG
+
+Mon, 31 Aug 2026 02:45:11 GMT
+
+https://www.cbr.com/most-expensive-pokemon-promo-cards/
+
+These are the most expensive Pokémon Promo Cards that can still be picked up today if collectors are willing to pay the hefty price tag.
+---------
+
+# Say Hello to Gerard Butler's 2018 War Gem on Free Streaming
+
+Movie News, Gerard Butler, War, Hunter Killer, Plex
+
+Mon, 31 Aug 2026 09:00:11 GMT
+
+https://collider.com/gerard-butler-hunter-killer-streaming-plex-september-2026/
+
+Gerard Butler teams up with Gary Oldman for this war gem, now streaming for free. Find out more about Hunter Killer here.
+---------
+
+# New Pokémon Movie Officially Confirmed
+
+Movie News, Pokémon, Pokemon: The First Movie, Detective Pikachu, Pikachu
+
+Mon, 31 Aug 2026 04:02:54 GMT
+
+https://collider.com/new-pokemon-movie-announced-pokemon-worlds/
+
+The Pokémon Company has officially announced a brand-new Pokémon movie.
+---------
+
+# Pokémon Officially Reveals Where the 2027 World Championships Are Headed
+
+Gaming News, Pokémon, Gaming, Games, Pikachu
+
+Mon, 31 Aug 2026 04:00:25 GMT
+
+https://collider.com/pokemon-world-championships-2027-location/
+
+The Pokémon Company has officially revealed the 2027 Pokémon World Championships will take place in Singapore.
+---------
+
+# Margot Robbie, Chris Pine, & Chiwetel Ejiofor Teamed Up for This Unforgettable Sci-Fi Thriller
+
+Movie Features, Z For Zachariah, Margot Robbie, Chris Pine, Chiwetel Ejiofor
+
+Mon, 31 Aug 2026 03:59:50 GMT
+
+https://collider.com/z-for-zachariah-margot-robbie-chris-pine-chiwetel-ejiofor/
+
+Z for Zachariah trades familiar tropes for a deeply introspective sci-fi thriller starring Margot Robbie, Chris Pine, and Chiwetel Ejiofor.
+---------
+
+# 7 Forgotten K-Dramas That Have Aged Like Fine Wine
+
+TV, South Korea, Be Melodramatic, Dear My Friends, Secret Love Affair
+
+Mon, 31 Aug 2026 03:22:11 GMT
+
+https://collider.com/forgotten-k-dramas-aged-like-fine-wine/
+
+From the psychological thriller White Christmas to recent rom-com gem Be Melodramatic, these K-dramas are largely forgotten but have aged well.
+---------
+
 # Every K-Drama Coming To Netflix, Hulu, Prime Video & More In September 2026
 
 TV, K-Drama
