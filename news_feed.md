@@ -1,3 +1,443 @@
+# James Wan’s Live-Action Reboot Of Disney’s Cult Classic Fantasy Series Is Dead
+
+TV, Gargoyles
+
+Mon, 31 Aug 2026 21:55:35 GMT
+
+https://screenrant.com/disney-gargoyles-live-action-series-dead/
+
+Three years after it was first announced, James Wan's live-action reboot of a Disney cult classic fantasy series is confirmed to be dead.
+---------
+
+# 60 Years Later, The Greatest Trilogy In Western History Is Free On YouTube
+
+Classic Movies, A Fistful of Dollars
+
+Mon, 31 Aug 2026 21:50:14 GMT
+
+https://screenrant.com/clint-eastwood-dollars-trilogy-western-movies-streaming-free-youtube/
+
+One of the best Western trilogies ever made is now on YouTube, and this is a huge change for everyone to revisit these iconic three movies.
+---------
+
+# Arthur Conan Doyle Meets Peaky Blinders In Guy Ritchie's 8-Part Crime Thriller
+
+Streaming TV, Masked Recs
+
+Mon, 31 Aug 2026 21:45:14 GMT
+
+https://screenrant.com/young-sherlock-arthur-conan-doyle-meets-peaky-blinders-guy-ritchie/
+
+Peaky Blinders turned early 20th century Britain into a slick world of crime, and now Guy Ritchie has done the same thing to Victorian Oxford.
+---------
+
+# 5 Best Prime Video Series To Binge-Watch This Week (Aug 30–Sept 4, 2026)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 31 Aug 2026 21:38:14 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-week-august-30-2026/
+
+Prime Video's best hidden series to watch this week, August 30–September 4, 2026, are Sprung, 12 Monkeys, Person of Interest, Goliath & The Capture.
+---------
+
+# Robert De Niro's The Matrix Meets Lucy Thriller Is Quickly Climbing Streaming Charts
+
+Movies, Masked Recs
+
+Mon, 31 Aug 2026 21:38:00 GMT
+
+https://screenrant.com/robert-de-niro-limitless-matrix-meets-lucy-lionsgate-plus-streaming-success-august-2026/
+
+Robert De Niro's sci-fi thriller, described as The Matrix meets Lucy, is quickly climbing the streaming charts 15 years after its release.
+---------
+
+# One Piece And Spongebob's Official Crossover Finally Has A Release Date
+
+Anime, SpongeBob SquarePants, One Piece
+
+Mon, 31 Aug 2026 21:30:14 GMT
+
+https://screenrant.com/one-piece-spongebob-crossover-release-date-mcdonalds/
+
+McDonald's is gearing up to provide exclusive One Piece x SpongeBob SquarePants toys, but can the fast-food company satisfying the anticipated demand?
+---------
+
+# 10 Superhero Movie Villains Who Considered Themselves The Hero
+
+Classic Movies, Superhero
+
+Mon, 31 Aug 2026 21:30:14 GMT
+
+https://screenrant.com/superhero-movie-villains-considered-themselves-hero/
+
+There are many superhero movies where the villains actually see themselves as the hero of the story, and believe they are right to the end.
+---------
+
+# September Will Be A Great Month For Guy Ritchie On Netflix After Young Sherlock
+
+TV, Masked Recs
+
+Mon, 31 Aug 2026 21:27:56 GMT
+
+https://screenrant.com/guy-ritchie-the-gentlemen-ministry-of-ungentlemanly-warfare-netflix-releases-september-2026/
+
+Guy Ritchie will have a couple of major releases on Netflix in September, continuing the streaming success of Prime Video's Young Sherlock.
+---------
+
+# Indiana Jones Meets Tomb Raider In The Forgotten '90s Classic With 66 Episodes
+
+TV, Masked Recs
+
+Mon, 31 Aug 2026 21:03:14 GMT
+
+https://screenrant.com/relic-hunter-forgotten-1990s-show/
+
+The globetrotting thrills and banter of Indiana Jones fuse with Lara Croft's martial arts showdowns as a professor hunts lost artifacts worldwide.
+---------
+
+# Disney+'s Franchise With 9.8 Billion Minutes Viewed This Year Is So Popular, A Third Movie Is On The Way
+
+New Movies, Masked Recs
+
+Mon, 31 Aug 2026 21:00:14 GMT
+
+https://screenrant.com/disney-plus-zootopia-2-franchise-streaming-success-poplarity/
+
+One of Disney's franchises has been a streaming phenomenon this year, and a third movie is officially on the way after the incredible performance.
+---------
+
+# Disney+'s Live-Action Reboot of Cult Favorite Fantasy Series Fate Revealed
+
+TV, Gargoyles
+
+Mon, 31 Aug 2026 21:36:46 GMT
+
+https://www.cbr.com/disney-gargoyles-live-action-series-update/
+
+The long-gestating live-action adaptation gets a major update.
+---------
+
+# Original Transformers Officially Returns With New 2026 Release After Reboot Bombs at Box Office
+
+Movies, The Transformers: The Movie, Transformers
+
+Mon, 31 Aug 2026 21:33:05 GMT
+
+https://www.cbr.com/the-transformers-the-movie-40th-anniversary-limited-edition-steelbook/
+
+The original Transformers are back.
+---------
+
+# Fox's Overlooked Crime Drama Finally Sets Netflix Release Date Ahead of Season 3
+
+TV, Murder in a Small Town, Netflix, Drama
+
+Mon, 31 Aug 2026 21:30:11 GMT
+
+https://www.cbr.com/murder-in-a-small-town-fox-crime-drama-netflix-release-date/
+
+This small-town crime drama is coming to Netflix in September.
+---------
+
+# 5 Near-Perfect Soulslike Games Nobody Played
+
+Games, Video Games, Elden Ring, Dark Souls
+
+Mon, 31 Aug 2026 21:15:11 GMT
+
+https://www.cbr.com/near-perfect-soulslike-games-nobody-played/
+
+Not every soulslike game reaches the level of critical acclaim games like Elden Ring and Dark Souls achieve.
+---------
+
+# Nicole Kidman's Overlooked Big Little Lies Follow-Up Explodes on Streaming
+
+TV, Big Little Lies, AMC, nicole kidman
+
+Mon, 31 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/nicole-kidman-the-last-anniversary-amc-plus-success-august-2026/
+
+This Australian mystery series produced by Kidman is a streaming hit.
+---------
+
+# The 10 Most Suspenseful Sci-Fi Movies of All Time, Ranked
+
+Movies, Sci-Fi
+
+Mon, 31 Aug 2026 21:00:11 GMT
+
+https://www.cbr.com/most-suspenseful-sci-fi-movies-list/
+
+The sci-fi genre perfectly blends with countless other types of storytelling, and these films are the most suspenseful the genre offers.
+---------
+
+# One Piece Director Reveals the Secret Digimon Connection Behind His Biggest Anime Movies
+
+Anime, Digimon, Mamoru Hosoda
+
+Mon, 31 Aug 2026 20:35:11 GMT
+
+https://www.cbr.com/mamoru-hosoda-digimon-virtual-world-philosophy/
+
+The director explored the concept of the virtual world in his very first Digimon film, which he then expanded in his subsequent films.
+---------
+
+# Elizabeth Olsen & Aaron Taylor-Johnson's $529M Pre-MCU Movie Finds New Streaming Home
+
+Movies, Godzilla
+
+Mon, 31 Aug 2026 20:30:11 GMT
+
+https://www.cbr.com/godzilla-monster-paramount-plus-september-2026/
+
+The super-sized creature feature that kicked off one of the biggest franchise's of a generation is about to take over a new streaming home.
+---------
+
+# Norman Reedus Says Goodbye to Daryl Dixon as He Lands New Apple TV Action Thriller
+
+TV, Apple TV, The Walking Dead: Daryl Dixon
+
+Mon, 31 Aug 2026 20:25:29 GMT
+
+https://www.cbr.com/norman-reedus-apple-tv-disavowed/
+
+Norman Reedus lands his first post-Walking Dead: Daryl Dixon role.
+---------
+
+# 5 American Anime Series That Have Aged Like Milk
+
+Anime, Animation, Spider-Man: The New Animated Series, Kappa Mikey
+
+Mon, 31 Aug 2026 20:15:11 GMT
+
+https://www.cbr.com/american-anime-series-aged-like-milk/
+
+The early-to-mid 2000s produced a wave of American series chasing anime's visual shorthand without absorbing the storytelling discipline.
+---------
+
+# Godzilla Director’s ‘80s Action Reboot Officially Gets Update After 5 Year Delay
+
+Movie News, ThunderCats, Adam Wingard, Action, Fantasy
+
+Mon, 31 Aug 2026 21:54:34 GMT
+
+https://collider.com/thundercats-movie-adam-wingard-update-not-dead-new-script/
+
+Adam Wingard gives a promising update on his long-awaited ThunderCats movie, confirming the project is still alive and received a new script draft in
+---------
+
+# The 10 Best Films of the 1980s, Ranked
+
+Movie, 1980s, E.T. the Extra-Terrestrial, The Empire Strikes Back, Raging Bull
+
+Mon, 31 Aug 2026 21:54:11 GMT
+
+https://collider.com/best-films-1980s-ranked/
+
+From The Empire Strikes Back to Back to the Future, the '80s were totally tubular.
+---------
+
+# 5 Movie Trilogies That Ended Poorly
+
+Movie, Spider-Man 3, The Mummy: Tomb of the Dragon Emperor, Star Wars: Episode IX - The Rise of Skywalker, The Godfather Part III
+
+Mon, 31 Aug 2026 21:42:11 GMT
+
+https://collider.com/movie-trilogies-ended-poorly/
+
+The Godfather, The Mummy, and Spider-Man are movie trilogies that infamously ended on a disappointing low note.
+---------
+
+# The 8 Most Exciting Action Movies in Film History
+
+Movie, Speed, Mad Max: Fury Road, Die Hard, Action
+
+Mon, 31 Aug 2026 21:31:11 GMT
+
+https://collider.com/most-exciting-action-movies-film-history/
+
+Mad Max: Fury Road, Speed, and Die Hard are all among the best, most exciting action movies ever made.
+---------
+
+# Sigourney Weaver Was “Not Very Happy” About This ‘Aliens’ Cut [Exclusive]
+
+Exclusives, Aliens, Sigourney Weaver, Michael Biehn, James Cameron
+
+Mon, 31 Aug 2026 21:30:11 GMT
+
+https://collider.com/sigourney-weaver-aliens-deleted-scene-reaction-michael-biehn/
+
+Michael Biehn recalls Sigourney Weaver’s reaction to James Cameron cutting Ripley’s daughter storyline from Aliens.
+---------
+
+# 7 Years Later, Netflix Officially Confirms 'Star Trek: Picard' Showrunner's Fantasy Series Is Still Alive
+
+TV News, Magic: The Gathering, Netflix, Hasbro, Animation
+
+Mon, 31 Aug 2026 21:21:50 GMT
+
+https://collider.com/magic-the-gathering-netflix-series-still-in-development-terry-matalas/
+
+Netflix officially confirms the future of Star Trek: Picard showrunner Terry Matalas' new fantasy series.
+---------
+
+# The 6 Best R-Rated Soft Sci-Fi Movies, Ranked
+
+Movie, Sci-Fi, Children of Men, Aliens, The Terminator
+
+Mon, 31 Aug 2026 21:08:11 GMT
+
+https://collider.com/best-r-rated-soft-sci-fi-movies-ranked/
+
+From Eternal Sunshine of the Spotless Mind to The Terminator, these R-rated sci-fi films use big ideas to explore loss, identity, and humanity.
+---------
+
+# Taylor Sheridan’s ‘Yellowstone’ Universe Officially Eyes a Major Video Game Expansion
+
+Gaming News, Taylor Sheridan, Paramount, Lioness, Yellowstone
+
+Mon, 31 Aug 2026 21:07:36 GMT
+
+https://collider.com/yellowstone-video-game-taylor-sheridan-paramount-games-landman-lioness/
+
+Paramount Games is exploring video game adaptations of Taylor Sheridan hits, including Yellowstone, Landman, Tulsa King, and potentially Lioness.
+---------
+
+# Prime Video's 'Vikings' Replacement Series Officially Expands
+
+TV News, Bloodaxe, Prime Video, Vikings, Vikings: Valhalla
+
+Mon, 31 Aug 2026 21:05:24 GMT
+
+https://collider.com/bloodaxe-season-2-cast-prime-video-vikings-replacement/
+
+Prime Video’s Vikings replacement Bloodaxe adds five new stars to Season 2, including Kieran Bew, as production begins ahead of its 2027 debut.
+---------
+
+# Alan Ritchson Will Officially Move On From ‘Reacher’ in 2 Weeks
+
+Movie News, Runner, Alan Ritchson, Reacher, Owen Wilson
+
+Mon, 31 Aug 2026 21:00:11 GMT
+
+https://collider.com/alan-ritchson-runner-owen-wilson-release-date-september-2026/
+
+Reacher star Alan Ritchson teams with Owen Wilson in a new 97-minute action thriller arriving in theaters September 11. Here's what you need to know.
+---------
+
+# New Dark Fantasy Epic Confirms It's Officially the End of an Era for Beloved Studio
+
+Movie News, Fantasy, Wildwood
+
+Mon, 31 Aug 2026 21:36:48 GMT
+
+https://movieweb.com/wildwood-pg-13-rating-laika/
+
+Laika's new movie 'Wildwood' earned a PG-13 rating, confirmed it is no longer a studio making movies just for young audiences.
+---------
+
+# Netflix Officially Confirms Fate of 'Tires' Season 4
+
+TV News, Tires, Comedy, Shane Gillis, Netflix
+
+Mon, 31 Aug 2026 21:31:18 GMT
+
+https://movieweb.com/netflix-tires-season-4-renewed-shane-gillis/
+
+Star Shane Gillis released a typically laid-back statement about the news.
+---------
+
+# 10 Sci-Fi Movies So Confusing, You'll Need to Watch Them Twice
+
+Movie Lists, Sci-Fi
+
+Mon, 31 Aug 2026 21:00:14 GMT
+
+https://movieweb.com/confusing-sci-fi-movies-watch-twice/
+
+These sci-fi movies feature big twists and confusing plots, and they will only make sense if you watch them more than once.
+---------
+
+# 'Reacher' Franchise Expands With All-New Action Thriller Series Set To Hit Streaming Next Month
+
+TV News, Neagley, Reacher, Coming/Leaving Streaming
+
+Mon, 31 Aug 2026 20:30:13 GMT
+
+https://movieweb.com/neagley-spin-off-reacher-streaming-prime-video-september-2026/
+
+Just when you thought 'Reacher' couldn't get any better.
+---------
+
+# Jason Momoa Joins New 'Sicario' Meets 'Lethal Weapon' Crime Thriller
+
+Movie News, Jason Momoa, Miles Teller, Crime
+
+Mon, 31 Aug 2026 20:15:22 GMT
+
+https://movieweb.com/jason-momoa-miles-teller-copperhead/
+
+Jason Momoa joins an impressive cast that also includes Miles Teller and Kiefer Sutherland.
+---------
+
+# The Most Underrated Sci-Fi Action Thriller of the 21st Century Is Streaming Free on YouTube
+
+Features, Dredd, Sci-Fi, Thriller
+
+Mon, 31 Aug 2026 20:01:13 GMT
+
+https://movieweb.com/dredd-sci-fi-thriller-streaming-free-youtube/
+
+One of the most underrated sci-fi action thrillers of the century is available to watch on YouTube, and it could be getting a reboot relatively soon.
+---------
+
+# Disney's Long-Awaited Reboot of Cult-Classic Gothic Fantasy Series Officially Dead
+
+TV News, Gargoyles, Fantasy
+
+Mon, 31 Aug 2026 19:14:33 GMT
+
+https://movieweb.com/gargoyles-live-action-reboot-canceled-disney/
+
+'Gargoyles' creator Greg Weisman reveals that the James Wan-produced live-action remake of the hit animated series has been canceled.
+---------
+
+# All Movies with Ben Stiller and Owen Wilson, Ranked
+
+Movie Lists, Ben Stiller, Owen Wilson, Comedy
+
+Mon, 31 Aug 2026 19:01:14 GMT
+
+https://movieweb.com/movies-with-ben-stiller-and-owen-wilson/
+
+Ben Stiller and Owen Wilson have appeared in 12 films together. Here's how each ranks against the others.
+---------
+
+# Forget 'Reacher,' Walton Goggins's 7-Part Action Thriller Is Still the Best Cop Thriller of the Century
+
+Features, Reacher, Action, Thriller, The Shield, Walton Goggins
+
+Mon, 31 Aug 2026 19:01:13 GMT
+
+https://movieweb.com/the-shield-action-thriller-reacher-comparison/
+
+Walton Goggins starred in the best cop thriller series of the century, and it still has one of the best TV finales ever.
+---------
+
+# Netflix's New 114-Minute Throwback Crime Thriller Is Officially the Biggest Movie on Streaming
+
+Movie News, The Whisper Man, Hot on Streaming, Crime, Thriller, Netflix
+
+Mon, 31 Aug 2026 19:01:13 GMT
+
+https://movieweb.com/the-whisper-man-crime-thriller-streaming-hit-netflix-august-2026/
+
+Netflix's newest global smash is a throwback to '90s crime thrillers that's failed to hit the mark with critics.
+---------
+
 # H.P. Lovecraft Meets Riverdale In Netflix’s 4-Part Fantasy Horror
 
 TV, Masked Recs
