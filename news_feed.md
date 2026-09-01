@@ -1,3 +1,388 @@
+# 39 Years Later, One Of The Greatest War Movies Of All Time Is Streaming Free On YouTube
+
+Movies, Masked Recs
+
+Tue, 01 Sep 2026 21:50:14 GMT
+
+https://screenrant.com/full-metal-jacket-movie-streaming-free-youtube/
+
+Full Metal Jacket, one of the best war movies of all time, is now streaming for free on YouTube, and it still holds up almost four decades later.
+---------
+
+# Disney Reportedly Adapting Rick Riordan's Popular Adventure Trilogy After Failed Netflix Attempt
+
+TV
+
+Tue, 01 Sep 2026 21:48:59 GMT
+
+https://screenrant.com/disney-plus-rick-riordan-kane-chronicles-adaptation-development-report/
+
+As Percy Jackson and the Olympians heads into season 3, another Rick Riordan book series is reportedly being adapted as a Disney+ show.
+---------
+
+# 8 Years Later, American Horror Story's Best Episode Will Never Be Topped
+
+Streaming TV, American Horror Story
+
+Tue, 01 Sep 2026 21:45:14 GMT
+
+https://screenrant.com/american-horror-story-best-episode-return-to-murder-house/
+
+American Horror Story season 13 is just around the corner, but the Ryan Murphy anthology series peaked with its best episode eight years ago.
+---------
+
+# How To Beat Giovanni In Pokémon GO (September 2026)
+
+Gaming, Pokemon GO, Mobile, Live Service Games
+
+Tue, 01 Sep 2026 21:30:14 GMT
+
+https://screenrant.com/pokemon-go-how-to-beat-giovanni-counters-september-2026/
+
+The Pokémon GO leader Giovanni comes back in style for September 2026, bringing a team of dangerous Shadows back for another challenge.
+---------
+
+# Before Apple TV's Slow Horses, This 75-Episode Thriller Was TV's Best Spy Show
+
+Classic TV, Masked Recs
+
+Tue, 01 Sep 2026 21:30:14 GMT
+
+https://screenrant.com/the-americans-best-spy-show-before-slow-horses/
+
+Before Slow Horses premiered on Apple TV, The Americans was the greatest spy show ever, and all 75 episodes of the thriller are available on Hulu.
+---------
+
+# Alan Ritchson's New John Wick Meets Reacher Streaming Hit Confirms He's The Best Stallone & Arnie Replacement
+
+Movies, Masked Recs
+
+Tue, 01 Sep 2026 21:20:16 GMT
+
+https://screenrant.com/alan-ritchson-motor-city-movie-streaming-success-stallone-schwarzenegger-replacement/
+
+Alan Ritchson's new film, which combines elements of Jack Reacher and John Wick, proves he's the best replacement for Schwarzenegger and Stallone.
+---------
+
+# 7 Years After Its Finale, My Little Pony: Friendship Is Magic Returns With a New Series
+
+Comics, My Little Pony
+
+Tue, 01 Sep 2026 21:06:14 GMT
+
+https://screenrant.com/my-little-pony-friendship-is-magic-series-return/
+
+My Little Pony fans have something to celebrate, as favorites like Twilight Sparkle and Rainbow Dash return for the next era of Friendship Is Magic.
+---------
+
+# Daisy Ridley's Star Wars Reunion Is Officially Happening After 9 Years In New Fantasy Movie
+
+Movies, Daisy Ridley
+
+Tue, 01 Sep 2026 21:05:23 GMT
+
+https://screenrant.com/nevatars-trailer-daisy-ridley-kelly-marie-tran-star-wars-reunion/
+
+Rey star Daisy Ridley is set to reunite with a Star Wars alum after seven years in a brand-new fantasy movie from director Andy Serkis.
+---------
+
+# Prime Video's Hit 4-Season Action Thriller Shows Jack Ryan How It's Done
+
+TV, Masked Recs
+
+Tue, 01 Sep 2026 21:02:14 GMT
+
+https://screenrant.com/reacher-season-4-prime-video-beat-jack-ryan/
+
+A Prime Video drifter's gritty, grounded story outpaces globe-trotting espionage with relentless brawls and clear small town stakes that land harder.
+---------
+
+# 10 Fall Romance Books To Try If You Like The Pumpkin Spice Café
+
+Books
+
+Tue, 01 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/fall-romance-books-like-the-pumpkin-spice-cafe/
+
+Explore enchanting fall romance novels similar to The Pumpkin Spice Café for your perfect swoon-worthy autumn reading list.
+---------
+
+# Fox’s Hit Medical Drama With 7.3M Viewers Finally Sets Netflix Release Date
+
+TV, Doc, fox, Netflix
+
+Tue, 01 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/fox-doc-season-2-netflix-release-date-september-2026/
+
+The second season of Fox's hit medical drama Doc will be coming to Netflix on Sept. 22, the same day Season 3 premieres.
+---------
+
+# 10 Most Valuable Pokémon Cards From the 1990s, Ranked by Price
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG
+
+Tue, 01 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/most-expensive-base-set-pokemon-cards/
+
+These cards from Pokémon's English Base Set are potentially worth hundreds or even thousands of dollars.
+---------
+
+# Xbox Game Pass Officially Says Goodbye to Cyberpunk 2077 and 9 More Games on September 15
+
+Games, Cyberpunk 2077, Cyberpunk
+
+Tue, 01 Sep 2026 21:11:28 GMT
+
+https://www.cbr.com/xbox-game-pass-leaving-september-2026-cyberpunk-2077/
+
+Cyberpunk 2077 is the standout title leaving Xbox Game Pass in September, but there are a handful of other big names making their exit as well.
+---------
+
+# Netflix's 6-Part Cult Thriller With 28.M Views Returns as 1 of the Most Popular Shows
+
+TV, Unchosen, Netflix, Thriller
+
+Tue, 01 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/unchosen-netflix-cult-thriller-google-trends-september-2026/
+
+The series is trending once again.
+---------
+
+# Prime Video's New 140-Minute Space Opera Reboot Surpasses the Original In Every Way
+
+Movies, Masters of the Universe, Fantasy, Prime Video
+
+Tue, 01 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/masters-of-the-universe-reboot-better-than-original/
+
+It may have been a flop in the theaters, but Amazon's Masters of the Universe is better than the original in every conceivable way.
+---------
+
+# SpongeBob SquarePants Officially Joins the Straw Hat Pirates With 15 New McDonald's Happy Meal Toys
+
+Anime, One Piece, toys, merchandise, collectibles, SpongeBob SquarePants, mcdonald's
+
+Tue, 01 Sep 2026 20:49:04 GMT
+
+https://www.cbr.com/one-piece-spongebob-squarepants-mcdonalds-happy-meal-toys-america-release/
+
+This month, the future Pirate King and America's favorite talking sea sponge will join forces for a one-of-a-kind McDonald's USA event.
+---------
+
+# Disney+’s 2-Season Fantasy Revival With 100% RT Returns With New Episodes in 1 Month
+
+TV, Adventure Time: Side Quests, Fantasy, Disney+
+
+Tue, 01 Sep 2026 20:48:05 GMT
+
+https://www.cbr.com/adventure-time-side-quests-season-2-release-date-october-2026/
+
+The fantasy favorite returns on Disney+ with new episodes in just one month.
+---------
+
+# 3 Years Later, Blue Beetle Star Finally Gives Update On Sequel
+
+CBR Exclusives, DC Comics, DCU, Blue Beetle
+
+Tue, 01 Sep 2026 20:39:30 GMT
+
+https://www.cbr.com/blue-beetle-star-finally-gives-update-on-dc-sequel/
+
+Finally, the main star of Blue Beetle has broken his silence on the sequel's status.
+---------
+
+# 5 European Anime Nobody Remembers Today
+
+Anime, Sherlock Hound, Ulysses 31, The Mysterious Cities of Gold
+
+Tue, 01 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/european-anime-nobody-remembers-today/
+
+These forgotten European-Japanese anime collaborations brought beloved stories to life with a distinct animation style.
+---------
+
+# Avengers: Secret Wars Adds A Quiet Place Star in “Top-Secret” MCU Role
+
+Movies, Avengers: Secret Wars
+
+Tue, 01 Sep 2026 20:09:29 GMT
+
+https://www.cbr.com/avengers-secret-wars-noah-jupe-role/
+
+New casting for Avengers: Secret Wars has been revealed ahead of Doomsday's release.
+---------
+
+# 10 Genuinely Perfect Sci-Fi Action Movies, Ranked
+
+Movie, Sci-Fi, Action, Mad Max: Fury Road, RoboCop
+
+Tue, 01 Sep 2026 21:42:11 GMT
+
+https://collider.com/perfect-sci-fi-action-movies-ranked/
+
+From The Matrix Revolutions to RoboCop, these sci-fi action classics deliver groundbreaking ideas, unforgettable thrills, and spectacle.
+---------
+
+# 10 Movies That Will Change Your Life
+
+Movie, The Shawshank Redemption, Ikiru, The Thin Red Line, Aftersun
+
+Tue, 01 Sep 2026 21:23:11 GMT
+
+https://collider.com/movies-that-will-change-your-life/
+
+Movies that have the power to change your life include cathartic classics like The Shawshank Redemption alongside bittersweet films like Ikiru.
+---------
+
+# 8 Miniseries Without a Single Flaw
+
+TV, TV Miniseries, Chernobyl, The Queen's Gambit, Unbelievable
+
+Tue, 01 Sep 2026 21:08:11 GMT
+
+https://collider.com/miniseries-without-flaws/
+
+From Sharp Objects to The Night Of, these miniseries deliver masterful storytelling, unforgettable performances, and not a single wasted episode.
+---------
+
+# The Most Successful Horror Movie of the Century Is Officially Being Taken to Court
+
+Movie News, Obsession, Horror, Curry Barker, Inde Navarrette
+
+Tue, 01 Sep 2026 21:00:11 GMT
+
+https://collider.com/obsession-court-case-leonora-ann-darby/
+
+Obsession officially hit with a lawsuit as executive producer sues over alleged unpaid profits from the $510 million box office horror hit.
+---------
+
+# Forget ‘Wonder Woman,’ Gal Gadot’s New Action Thriller Is Officially Streaming Tomorrow
+
+Movie News, The Runner, Gal Gadot, Damian Lewis, Kevin Macdonald
+
+Tue, 01 Sep 2026 20:30:11 GMT
+
+https://collider.com/the-runner-gal-gadot-prime-video-streaming-september-2026/
+
+Gal Gadot’s new Die Hard-style action thriller The Runner officially hits Prime Video tomorrow, September 2.
+---------
+
+# Netflix's GTA 6 Release Is Officially the Streamer's Biggest Hit
+
+Gaming News, GTA 5, Netflix, Gaming, Rockstar Games
+
+Tue, 01 Sep 2026 20:20:39 GMT
+
+https://collider.com/gta-6-extended-look-streaming-success-netflix-september-2026/
+
+The debut gameplay footage of GTA 6 is officially dominating Netflix's streaming charts with over 30 million views. Read on for more.
+---------
+
+# Win Free Tickets to Our Early 'The Transformers: The Movie' and 'Optimus Prime: Awakening' Screening With Q&A
+
+Exclusives, The Transformers: The Movie, Screening, Transformers, Transformers One
+
+Tue, 01 Sep 2026 20:11:19 GMT
+
+https://collider.com/transformers-the-movie-40th-anniversary-optimus-prime-awakening-screening/
+
+Details on how to enter for a chance to win free tickets to our 40th Anniversary screening of The Transformers: The Movie, a short film, and Q&amp;A.
+---------
+
+# Netflix Is Getting One of the Best Horror Sequels of the Decade in 48 Hours
+
+Movie News, Smile, Smile 2, Naomi Scott
+
+Tue, 01 Sep 2026 20:00:11 GMT
+
+https://collider.com/smile-2-netflix-streaming-september-2026/
+
+The $138 million horror sequel Smile 2 officially joins Netflix on September 3, bringing Naomi Scott’s acclaimed 2024 hit to a new streaming home.
+---------
+
+# 8 Forgotten Fantasy Shows That Have Aged Like Fine Wine
+
+TV, Pushing Daisies, Lost Girl, Samurai Jack, Fantasy
+
+Tue, 01 Sep 2026 19:44:11 GMT
+
+https://collider.com/forgotten-fantasy-shows-aged-fine-wine/
+
+The Magicians, Pushing Daisies, Lost Girl, Merlin, and more make up our list of forgotten fantasy shows that have aged like fine wine.
+---------
+
+# Naughty Dog Officially Leaves ‘The Last of Us’ Behind With New Sci-Fi Game Update
+
+Gaming News, Naughty Dog, The Last of Us, The Last of Us: Part II, Neil Druckmann
+
+Tue, 01 Sep 2026 19:30:11 GMT
+
+https://collider.com/intergalactic-the-heretic-prophet-filming-wrap-release-window/
+
+Naughty Dog announced this week that its new game, Intergalactic: The Heretic Prophet, had officially wrapped filming.
+---------
+
+# Kurt Russell's Brutal 10/10 Modern Western Blasts Onto Free Streaming
+
+Movie News, Bone Tomahawk, Tubi, Coming/Leaving Streaming, Western
+
+Tue, 01 Sep 2026 21:30:13 GMT
+
+https://movieweb.com/bone-tomahawk-stream-free-tubi-sept-2026/
+
+It's one of the most brutal and unforgettable westerns of the century.
+---------
+
+# 'John Wick' Icon's Action Thriller Trilogy Ends With Epic Trailer for Ambitious Sequel
+
+Movie News, Scott Adkins, Action
+
+Tue, 01 Sep 2026 21:14:27 GMT
+
+https://movieweb.com/one-last-shot-trailer-scott-adkins/
+
+Scott Adkins and 'Rocky IV' star Dolph Lundgren star in the action-packed 'One Last Shot.'
+---------
+
+# 8 Years Later, Ridley Scott's Most Terrifying Thriller Remains Surprisingly Accurate
+
+Features, The Terror, Ridley Scott, Thriller
+
+Tue, 01 Sep 2026 21:00:13 GMT
+
+https://movieweb.com/the-terror-ridley-scott-historically-accurate/
+
+Ridley Scott's beloved and impressive thriller, which was released eight years ago, is also historically accurate.
+---------
+
+# Ridley Scott & Mark Wahlberg's 135-Minute Crime Thriller Flop Lands Free Streaming Release
+
+Movie News, All the Money in the World, Coming/Leaving Streaming
+
+Tue, 01 Sep 2026 20:31:13 GMT
+
+https://movieweb.com/all-the-money-in-the-world-streaming-free-tubi-september-2026/
+
+As viewers catch up with his latest sci-fi film, 'The Dog Stars,' one of Scott’s finest dramas arrives on free streaming.
+---------
+
+# 'Avengers: Secret Wars' Officially Casts 'Quiet Place' Star in MCU Event Movie in Potentially Major Role
+
+Movie News, Avengers: Secret Wars, Noah Jupe
+
+Tue, 01 Sep 2026 19:29:12 GMT
+
+https://movieweb.com/avengers-secret-wars-noah-jupe-cast/
+
+Noah Jupe, best known for his work in 'A Quiet Place' and 'Hamnet,' has been cast in a key role in 'Avengers: Secret Wars.'
+---------
+
 # Cartoon Network's Hit Fantasy Revival Officially Returns On Disney+ & Hulu Next Month
 
 TV, Hulu, Disney+, Cartoon Network, Adventure Time: Side Quests
