@@ -1,3 +1,421 @@
+# Cartoon Network's Hit Fantasy Revival Officially Returns On Disney+ & Hulu Next Month
+
+TV, Hulu, Disney+, Cartoon Network, Adventure Time: Side Quests
+
+Tue, 01 Sep 2026 19:03:20 GMT
+
+https://screenrant.com/adventure-time-side-quests-season-2-release-date-disney-hulu/
+
+Cartoon Network's hit fantasy revival of a 10-part series is coming back for a season 2, and now Hulu confirms the release date for next month.
+---------
+
+# Game Of Thrones: Endless Winter Officially Arrives September 14
+
+Gaming, Game Of Thrones, Game of Thrones, Game of Thrones: Legends, PC
+
+Tue, 01 Sep 2026 19:00:15 GMT
+
+https://screenrant.com/game-of-thrones-legends-endless-winter-september-14/
+
+Game of Thrones fans will want to mark their calendars for September 14 with the arrival of Endless Winter, available for a limited time.
+---------
+
+# Michael B. Jordan's New Fantasy Series On Prime Video Can Last At Least 5 Seasons
+
+Streaming TV, Masked Recs
+
+Tue, 01 Sep 2026 19:00:15 GMT
+
+https://screenrant.com/fourth-wing-prime-video-series-last-multiple-seasons/
+
+Michael B. Jordan is developing a new fantasy series on Prime Video, with enough material that it can last at least five seasons.
+---------
+
+# 41 Years Later, Back To The Future's Opening Scene Is Still The Greatest Setup In Sci-Fi History
+
+Movies, Back to the Future
+
+Tue, 01 Sep 2026 18:43:53 GMT
+
+https://screenrant.com/back-to-the-future-movie-best-sci-fi-opening-scene/
+
+Back to the Future's opening scene is a masterclass in setup, exposition, and foreshadowing, and is filled with details you only notice rewatching.
+---------
+
+# Kit Harington Addresses Marvel Future & Black Knight Return Hopes After 5-Years Absence
+
+Movies, Marvel Cinematic Universe
+
+Tue, 01 Sep 2026 18:42:33 GMT
+
+https://screenrant.com/marvel-studios-black-knight-return-mcu-future-kit-harington-response/
+
+After his introduction in the Marvel Cinematic Universe, Kit Harington gives a new update on whether or not there is a future for the Black Knight.
+---------
+
+# Netflix's 2-Season Psychological Thriller Masterpiece Makes Hannibal Look Tame
+
+TV, Masked Recs
+
+Tue, 01 Sep 2026 18:32:14 GMT
+
+https://screenrant.com/netflix-mindhunter-hannibal-look-tame/
+
+Netflix's clinical, whisper-quiet study of murderers traded Hannibal's gory spectacle for chilling, reconstructed interviews and atmosphere.
+---------
+
+# 6 Unforgettable Far Side Comics Set in Space
+
+Comics, The Far Side
+
+Tue, 01 Sep 2026 18:31:15 GMT
+
+https://screenrant.com/far-side-comics-space-best-jokes/
+
+The Far Side's most far out cosmic comics.
+---------
+
+# After 38 Years, The Simpsons’ New Era Is Finally Here
+
+TV, The Simpsons
+
+Tue, 01 Sep 2026 18:27:37 GMT
+
+https://screenrant.com/the-simpsons-2026-no-summer-hiatus-new-era/
+
+A bold scheduling pivot allows The Simpsons to change sitcom history forever by ensuring that fans get new specials throughout the entire year.
+---------
+
+# Xbox Game Pass September 2026 Line-Up Includes 3 Bonus Freebies
+
+Gaming, Xbox Game Pass, Triple-A Games
+
+Tue, 01 Sep 2026 18:27:16 GMT
+
+https://screenrant.com/http/xbox-game-pass-september-2026-wave-1-bonus-freebies/
+
+The Xbox Game Pass service is heating up in September, with a few notable additions and several games leaving the service, as is customary.
+---------
+
+# Douglas Adams Meets Quantum Leap In The 91-Episode Sci-Fi Series That Refuses To Die
+
+TV, Masked Recs
+
+Tue, 01 Sep 2026 18:07:15 GMT
+
+https://screenrant.com/rick-and-morty-refuse-to-end/
+
+Mix the time-hopping sci-fi adventures of Quantum Leap with the surreal, absurd comedy of Douglas Adams, and you get an iconic 12-season cult hit.
+---------
+
+# Critics Praise New R-Rated Sci-Fi Thriller as Love Letter to Classic John Carpenter
+
+Movies, Onslaught
+
+Tue, 01 Sep 2026 19:02:31 GMT
+
+https://www.cbr.com/onslaught-rotten-tomatoes-score-john-carpenter-influence/
+
+The ultra-violent new film is drawing comparisons to John Carpenter's horror and sci-fi classics.
+---------
+
+# 10 Greatest Movie Fight Scenes of All Time, Ranked
+
+Movies, Action
+
+Tue, 01 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/best-movie-fight-scenes-ranked-list/
+
+These fight sequences have become an inspiration for the rest of the industry as the genre continues to challenge itself.
+---------
+
+# Netflix Reveals New 3-Part Matthew Perry Series 3 Years After Friends Star’s Death
+
+TV, Friends, Netflix
+
+Tue, 01 Sep 2026 18:58:31 GMT
+
+https://www.cbr.com/the-one-about-matthew-perry-documentary-netflix/
+
+Matthew Perry will be remembered in a new series headed to Netflix.
+---------
+
+# Star Wars Zero Company Studio In Trouble Despite Successful Launch
+
+Games, Star Wars
+
+Tue, 01 Sep 2026 18:37:44 GMT
+
+https://www.cbr.com/star-wars-zero-company-bit-reactor-furlough-lawsuit/
+
+Bit Reactor has run into major problems with staffing and a lawsuit, keeping the studio from celebrating the success of Star Wars Zero Company.
+---------
+
+# Dungeon Crawler Carl: Allies & Enemies Officially Arrives November 2026
+
+Games, Dungeon Crawler Carl
+
+Tue, 01 Sep 2026 18:35:11 GMT
+
+https://www.cbr.com/dungeon-crawler-carl-officially-returns-new-release-november-2026/
+
+A brand-new addition to the Dungeon Crawler RPG is officially releasing this November.
+---------
+
+# 10 Hardest '90s Games, Officially Ranked
+
+Games, retro games
+
+Tue, 01 Sep 2026 18:30:11 GMT
+
+https://www.cbr.com/hardest-90s-games-ever-battletoads-contra/
+
+'90s games like Battletoads and Contra: Hard Corps were known for their brutal difficulty.
+---------
+
+# Disney+ Recasts Pedro Pascal’s Mandalorian for New Star Wars Special
+
+TV, LEGO Star Wars: The Mandalorian, Lego Star Wars, The Mandalorian
+
+Tue, 01 Sep 2026 18:26:24 GMT
+
+https://www.cbr.com/disney-recasts-pedro-pascal-mandalorian-star-wars-lego-special/
+
+The Mandalorian LEGO special replaces Pedro Pascal.
+---------
+
+# Anime To Watch If You Miss Naruto
+
+Anime, Naruto, Jujutsu Kaisen, One Piece
+
+Tue, 01 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/anime-must-watch-if-you-miss-naruto/
+
+These anime capture the action, friendship, and character development that made Naruto such a beloved classic.
+---------
+
+# CBS Confirms Ziva’s NCIS Season 24 Return Status Ahead of Tony's Comeback
+
+TV, NCIS, NCIS: Tony & Ziva
+
+Tue, 01 Sep 2026 18:13:37 GMT
+
+https://www.cbr.com/cbs-confirms-ziva-ncis-season-24-return-status/
+
+NCIS showrunner breaks the silence on Ziva.
+---------
+
+# 10 Strongest Sci-fi Movie Heroes Of the Last 25 Years, Ranked
+
+Movies, Sci-Fi
+
+Tue, 01 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/perfect-sci-fi-movie-heroes-last-25-years-list/
+
+The following sci-fi movie heroes became some of the most unstoppable characters audiences have seen in the genre over the last 25 years.
+---------
+
+# 'Street Fighter' Officially Returns to the Big Screen With a Stunning New Trailer
+
+Movie News, Street Fighter, Andrew Koji, Noah Centineo, David Dastmalchian
+
+Tue, 01 Sep 2026 18:23:10 GMT
+
+https://collider.com/street-fighter-trailer-release-date-october-2026/
+
+Ahead of its October release, Street Fighter has debuted a brand-new trailer. See it here!
+---------
+
+# Idiots: Why Dave Franco Put a Jagged Rock in His Shoe | Set Stories
+
+Movie, Idiots
+
+Tue, 01 Sep 2026 18:15:11 GMT
+
+https://collider.com/video/idiots-why-dave-franco-put-a-jagged-rock-in-his-shoe-set-stories/
+
+Kiernan Shipka, Dave Franco, Macon Blair, Mason Thames, and O'Shea Jackson Jr. break down the physical comedy, practical challenges, and improvisation that shaped Idiots.
+---------
+
+# ABC Marks the 25th Anniversary of 9/11 With a New Documentary
+
+TV News, Jon Stewart, ABC, Jimmy Fallon, Billy Crystal
+
+Tue, 01 Sep 2026 18:00:11 GMT
+
+https://collider.com/9-11-united-we-stand-25-years-later-documentary-abc-disney-plus-hulu/
+
+9/11: United We Stand — 25 Years Later examines America’s cultural response to September 11 with Jon Stewart, Pete Davidson, Derek Jeter and more.
+---------
+
+# The Best Fantasy Franchise Since 'Game of Thrones' Officially Scores New Release
+
+Collectibles, A Court of Thorns and Roses, Funko Pop, Funko
+
+Tue, 01 Sep 2026 17:59:25 GMT
+
+https://collider.com/a-court-of-thorns-and-roses-funko-pop-images/
+
+A Court of Thrones and Roses is officially returning with a brand-new release now available for pre-order. Read on for more.
+---------
+
+# 10 High Fantasy Movies That Are Perfectly Written
+
+Movie, Fantasy, The Princess Bride, The Neverending Story, The Lord of the Rings
+
+Tue, 01 Sep 2026 17:52:11 GMT
+
+https://collider.com/high-fantasy-movies-perfectly-written/
+
+Fantasy is full of incredible movies, many of which are perfectly written, from comedies like The Princess Bride to epics like The Lord of the Rings.
+---------
+
+# Marvel Just Officially Created a Team the Avengers Cannot Beat [Exclusive]
+
+Books and Comics, Comics, Marvel, Avengers, WandaVision
+
+Tue, 01 Sep 2026 17:00:11 GMT
+
+https://collider.com/marvel-dimensions-avengers-first-strike-alex-ross-first-look/
+
+See a first look at Alex Ross’ Marvel Dimensions, where the Avengers face the perfectly matched 1st Strike in the ambitious new Marvel graphic novel.
+---------
+
+# Paramount Officially Confirms the End of an Era for Taylor Sheridan's 'The Sopranos' Replacement
+
+TV News, Tulsa King, Paramount, Taylor Sheridan, Sylvester Stallone
+
+Tue, 01 Sep 2026 17:00:11 GMT
+
+https://collider.com/tulsa-king-season-4-release-date-teaser-october-2026-sylvester-stallone/
+
+Tulsa King Season 4 officially premieres on October 16 on Paramount+, with Sylvester Stallone returning as Dwight Manfredi in the first teaser.
+---------
+
+# The 10 Most Ambitious Rock Albums of All Time, Ranked
+
+Music Features, Green Day, The Beatles, Led Zeppelin, David Bowie
+
+Tue, 01 Sep 2026 16:45:11 GMT
+
+https://collider.com/most-ambitious-rock-albums-all-time-ranked/
+
+Some of the most ambitious rock albums in the history of the genre include classics like Radiohead's OK Computer and Green Day's American Idiot.
+---------
+
+# Prime Video's Binge-Worthy New Mystery Series Continues To Impress on Streaming Ahead of Season 2
+
+TV News, Sterling Point, Hot on Streaming, Mystery, Prime Video
+
+Tue, 01 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/sterling-point-mystery-prime-video-streaming-hit-september-2026/
+
+Megan Park's latest is a Certified Fresh hit that remains a force to be reckoned with on streaming one month after its debut.
+---------
+
+# Ridley Scott Reportedly Fired Original 'The Dog Stars' Lead After 'Gladiator 2' Failure
+
+Movie News, Ridley Scott, Paul Mescal, Sci-Fi
+
+Tue, 01 Sep 2026 18:40:02 GMT
+
+https://movieweb.com/ridley-scott-fired-paul-mescal-the-dog-stars/
+
+'The Dog Stars' original lead Paul Mescal reportedly fell out of Ridley Scott's favor after 'Gladiator II's box office flop.
+---------
+
+# First Look at HBO's 'Harry Potter' Season 2 Officially Reveals New 'Chamber of Secrets' Adaptation
+
+TV News, Harry Potter, HBO Max
+
+Tue, 01 Sep 2026 18:29:52 GMT
+
+https://movieweb.com/hbo-harry-potter-season-2-first-look-chamber-of-secrets/
+
+A new image has been revealed for the second season before the first has even premiered.
+---------
+
+# The Best Disney Movies for Toddlers
+
+Movie Lists, Disney
+
+Tue, 01 Sep 2026 18:23:39 GMT
+
+https://movieweb.com/disney-movies-for-toddlers/
+
+Over the years, Disney has released productions for different age groups to enjoy. Here are the best ones for the little ones.
+---------
+
+# Live-Action 'Moana' Digital Streaming Date Officially Confirmed
+
+Movie News, Moana
+
+Tue, 01 Sep 2026 18:02:20 GMT
+
+https://movieweb.com/moana-live-action-streaming-release/
+
+'Moana' will be available for digital purchase and rental starting Sept. 8 and on physical media on Oct. 6.
+---------
+
+# Michael Keaton Tracks Down Morgan Freeman in New 'Memento'-Esque Western Revenge Thriller
+
+Movie News, Michael Keaton, Morgan Freeman
+
+Tue, 01 Sep 2026 18:01:38 GMT
+
+https://movieweb.com/michael-keaton-morgan-freeman-western-thriller-rode-to-ruin/
+
+The 'Batman' star's latest directorial effort is a dark mystery that promises to be more than a traditional cowboy movie.
+---------
+
+# The 10 Longest Stephen King Books, Ranked by How Worth the Commitment They Are
+
+Movie Lists, Stephen King, Thriller, Horror, Fantasy
+
+Tue, 01 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/longest-stephen-king-books-worth-commitment/
+
+Stephen King has written many long fantasy, thriller, and horror novels, and these ones are worth reading.
+---------
+
+# 'Harry Potter' Teaser Trailer Reveals Magical New Look at HBO Reboot
+
+TV News, Harry Potter
+
+Tue, 01 Sep 2026 17:44:16 GMT
+
+https://movieweb.com/harry-potter-teaser-trailer-hbo/
+
+Warner Bros. and HBO showed off new looks at the magic and mystery in store for the upcoming 'Harry Potter' reboot series.
+---------
+
+# The 10 Most Underrated Movies of 2026 (So Far)
+
+Movie Lists, The Sheep Detectives, The Death of Robin Hood
+
+Tue, 01 Sep 2026 17:30:14 GMT
+
+https://movieweb.com/underrated-2026-movies/
+
+Not every great movie in 2026 was a box office hit, and these 10 movies flew under the radar — but they're all still well worth checking out.
+---------
+
+# Taylor Sheridan & Josh Brolin's 122-Minute Action Thriller Epic Is Streaming Free
+
+Movie News, Taylor Sheridan, Josh Brolin, Sicario: Day Of The Soldado, Coming/Leaving Streaming
+
+Tue, 01 Sep 2026 17:30:14 GMT
+
+https://movieweb.com/sicario-day-of-the-soldado-streaming-free-tubi-september-2026/
+
+One of the best sequels of the last 20 years, no questions asked.
+---------
+
 # Michael Keaton and Morgan Freeman Reunite for New Western After 40 Years
 
 Movies, Michael Keaton, Morgan Freeman
