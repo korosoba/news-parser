@@ -1,3 +1,344 @@
+# Official Pacific Rim RPG Is Perfect For Fans Of Guillermo Del Toro's Movie
+
+Tabletop, Pacific Rim, tabletop games
+
+Tue, 01 Sep 2026 06:00:14 GMT
+
+https://screenrant.com/pacific-rim-rpg-cinematic-adventure-game/
+
+A new and official RPG set in the world of Guillermo Del Toro’s Pacific Rim has just been released, and yes, you can beat Kaiju with your Jaegers.
+---------
+
+# Legend Of Zelda Officially Returns To The Wilds Era With New Game
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Breath of the Wild, The Legend of Zelda: Tears of the Kingdom
+
+Tue, 01 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/zelda-tears-of-the-kingdom-return-new-game/
+
+If you're a fan of Breath of the Wild or Tears of the Kingdom, then be sure to check out this official new Legend of Zelda puzzle game.
+---------
+
+# Star Trek Is Officially Switching Genre In 2027
+
+Gaming, Star Trek, Star Trek - Season 1, star trek discovery, PC
+
+Tue, 01 Sep 2026 04:00:19 GMT
+
+https://screenrant.com/star-trek-2027-shadow-frontier-horror/
+
+Star Trek officially returns in a brand-new way in 2027 with a fresh take on the franchise and venturing into a completely different genre.
+---------
+
+# All Signs Point To Ahsoka Season 2 Introducing The Most Powerful Star Wars Villain Ever
+
+Star Wars, Ahsoka
+
+Tue, 01 Sep 2026 03:44:28 GMT
+
+https://screenrant.com/ahsoka-season-2-most-powerful-star-wars-villain-theory-abeloth/
+
+Ahsoka season 2's first trailer has me very excited about its biggest mystery and the potential debut of one of Star Wars' most powerful villains.
+---------
+
+# Batman Just Summed Up DC’s Next Major Crossover Event With 6 Words, And They’re Perfect
+
+DC Comics, Batman, DC
+
+Tue, 01 Sep 2026 03:22:47 GMT
+
+https://screenrant.com/batman-bad-seeds-dc-event/
+
+DC's big new crossover event has commenced, and Batman has the perfect preface for it for anyone who is diving in without any clue about it.
+---------
+
+# Only 1 Of The MCU's Original Avengers Replacements Has Truly Worked So Far
+
+Superheroes, Marvel Cinematic Universe, Avengers: Doomsday
+
+Tue, 01 Sep 2026 03:11:20 GMT
+
+https://screenrant.com/mcu-best-original-avenger-replacement-yelena-black-widow/
+
+When looking at the Multiverse Saga after Endgame, there's really only one Avengers replacement hero that has truly worked so far ahead of Doomsday.
+---------
+
+# After 3 Years, Fantastic Four Debuts New Human Torch Design With Hilarious Tribute
+
+Marvel Comics, Marvel, Fantastic Four
+
+Tue, 01 Sep 2026 03:01:52 GMT
+
+https://screenrant.com/fantastic-four-new-human-torch-design-mustache-gone/
+
+The Fantastic Four's Johnny Storm is ditching his new look, and it's as much a superhero in its last hurrah as any member of Marvel's first family.
+---------
+
+# Marvel Announces Iron Man’s New Era With Critically Acclaimed Writer At The Helm
+
+Marvel Comics, Iron Man, Marvel
+
+Tue, 01 Sep 2026 03:00:14 GMT
+
+https://screenrant.com/iron-man-new-era-ryan-north/
+
+Marvel is about to embark on a brand-new era for Iron Man, and it's armed with the talent of a fantastic comic book writer who is sure to elevate it.
+---------
+
+# 40 Years Later, This 10/10 NES Masterpiece Still Has One Of Gaming’s Best Secrets
+
+Gaming, nes, Nintendo
+
+Tue, 01 Sep 2026 03:00:14 GMT
+
+https://screenrant.com/zelda-nes-greatest-secret-second-quest/
+
+The Nintendo Entertainment System still hides one of gaming's best kept secrets, and no one talks about it — or the legacy it created — today.
+---------
+
+# Wednesday Season 3 Soft Launches The Addams Family's Next Best Spinoff
+
+Streaming TV
+
+Tue, 01 Sep 2026 02:30:14 GMT
+
+https://screenrant.com/wednesday-season-3-uncle-fester-internation-road-trip/
+
+The future of Wednesday and the Addams Family franchise is uncertain, leaving it to season 3 to define what next step will best suit this kooky crew.
+---------
+
+# David Boreanaz's 25-Year-Old Scream-Style Slasher Movie Arrives on Netflix
+
+Movies, Valentine
+
+Tue, 01 Sep 2026 03:55:21 GMT
+
+https://www.cbr.com/valentine-2001-streaming-netflix-september-2026/
+
+The forgotten slasher flick returns on Netflix 25 years after its theatrical release.
+---------
+
+# 10 PS2 Games That Are 10/10, No Notes
+
+Games, PlayStation 2, retro games, Innovation
+
+Tue, 01 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/perfect-ps2-games-flawless-start-to-finish-list/
+
+PS2 games like Kingdom Hearts 2 are still all-time classics decades later.
+---------
+
+# Apple TV's 3-Season Thriller Is a 92% RT Sleeper for Spy Fans
+
+TV, Tehran, Apple TV, Thriller
+
+Tue, 01 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/apple-tv-tehran-best-spy-thriller/
+
+Apple TV continues to position itself as a growing powerhouse in television, as evident in this standout spy thriller that continues to impress fans.
+---------
+
+# 10 best Far Side Comics From 1982 That Prove Gary Larson is a Genius, Ranked
+
+CBR Exclusives, The Far Side
+
+Tue, 01 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/the-far-side-comics-1982-gary-larson-is-a-genius/
+
+Throughout 1982, Gary Larson continued delivering thought-provoking jokes in his iconic The Far Side comic series that took the whole world by storm.
+---------
+
+# 10 Greatest Sega Genesis Games of All Time, Ranked
+
+Games, Sega Genesis, retro games
+
+Tue, 01 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/best-sega-genesis-games-all-time-ranked-list/
+
+The Sega Genesis' best games include classics like Comix Zone and Castlevania: Bloodlines.
+---------
+
+# Beloved Harry Potter Star Joins Johnny Depp in New Look at Reimagined Holiday Tale
+
+Movies, Ebenezer
+
+Tue, 01 Sep 2026 03:06:19 GMT
+
+https://www.cbr.com/ebenezer-new-look-johnny-depp-rupert-grint/
+
+Paramount reveals a new sneak peek at Johnny Depp's next big film.
+---------
+
+# Transformers Brings Back Rare Heroic Starscream Design in New Official Release
+
+Anime, Transformers, merchandise, toys, action figures, hasbro
+
+Tue, 01 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/transformers-shattered-glass-starscream-hasbro-release/
+
+One of Starscream's rarest and most beloved looks is about to make a comeback, and fans will be able to get their hands on it sooner than expected.
+---------
+
+# 5 Upcoming Anime That Could Be the Perfect Solo Leveling Replacement
+
+Anime, Solo Leveling
+
+Tue, 01 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/upcoming-anime-perfect-to-replace-solo-leveling/
+
+Why wait for Solo Leveling's return when you can keep feeding the power fantasy yearning with these upcoming anime that could replace it?
+---------
+
+# 5 Fantasy Movie Villains More Powerful Than Voldemort, Ranked
+
+Movies, Fantasy
+
+Tue, 01 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/fantasy-villains-more-powerful-than-voldemort-list/
+
+Voldemort may be the strongest villain in the Harry Potter universe, but the fantasy genre has multiple villains who are more powerful than him.
+---------
+
+# 10 Greatest Game Boy Advance Games of All Time, Ranked
+
+Games, Nintendo, Video Games, The Legend of Zelda, Gaming
+
+Tue, 01 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/greatest-game-boy-advance-games-all-time-ranked/
+
+The Game Boy Advance produced some of the best titles ever made, and not all were made by Nintendo, with third-party studios rising to the challenge.
+---------
+
+# 10 Regency Romance Books That Are Perfect From the First Page to the Last
+
+Books and Comics, Romance, Bridgerton, Pride & Prejudice (2005), Books
+
+Tue, 01 Sep 2026 04:18:11 GMT
+
+https://collider.com/regency-romance-books-perfect-first-page-to-last/
+
+From the classic masterpiece Pride and Prejudice to the Bridgerton gem The Viscount Who Loved Me, these Regency romance books are truly flawless.
+---------
+
+# History Says 'GTA 6' May Be the Biggest Game of the Year, but Not the Best
+
+Gaming, GTA V, The Legend of Zelda, Gears of War, Red Dead Redemption 2
+
+Tue, 01 Sep 2026 04:13:11 GMT
+
+https://collider.com/grand-theft-auto-6-game-of-the-year-competition/
+
+GTA VI will surely be the biggest game of 2026, but history says Marvel's Wolverine, Gears of War: E-Day, or Ocarina of Time wins Game of the Year.
+---------
+
+# Robert Pattinson's Forgotten Sci-Fi Satire Is a Stealth Masterpiece
+
+Movie Features, Bong Joon Ho, Robert Pattinson, Mickey 17, Parasite
+
+Tue, 01 Sep 2026 04:05:11 GMT
+
+https://collider.com/robert-pattinson-mickey-17-sci-fi-streaming-hbo-max-september-2026/
+
+Bong Joon Ho's Parasite follow-up, the Robert Pattinson space satire Mickey 17, bombed at the box office, but it's getting a second chance on HBO Max.
+---------
+
+# 'Community' Meets 'Parks & Rec' in This 4-Part Comedy That Gets Better Every Season
+
+TV Features, Animal Control, Joel McHale, Community, Parks and Recreation
+
+Tue, 01 Sep 2026 03:46:11 GMT
+
+https://collider.com/parks-and-rec-community-replacement-series-animal-control-joel-mchale-sitcom/
+
+Joel McHale's Animal Control series has been steadily gaining steam, both on Fox and Netflix.
+---------
+
+# ‘Buffy’s Newest Story Has Officially Been Cancelled
+
+TV Features, Buffy The Vampire Slayer, Sarah Michelle Gellar, Comics, Angel
+
+Tue, 01 Sep 2026 03:16:11 GMT
+
+https://collider.com/buffy-the-vampire-slayer-angel-dynamite-comics-cancelled/
+
+Dynamite's Buffy and Angel comics run have been cancelled, but the good news is, it makes way for bigger and better plans for the franchise.
+---------
+
+# Tarantino Meets Greek Tragedy In Prime Video's Revenge Thriller With a Near-Perfect Rotten Tomatoes Score
+
+Movie Features, Is God Is, Kara Young, Vivica A. Fox, Sterling K. Brown
+
+Tue, 01 Sep 2026 03:11:11 GMT
+
+https://collider.com/is-god-is-tarantino-influence-streaming-prime-video-september-2026/
+
+Though the Tarantino-influenced revenge thriller Is God Is struggled at the box office, it's now a Prime Video hit.
+---------
+
+# 'The Rookie' Officially Locks In for More Seasons Thanks to 1 Major Move
+
+TV Features, The Rookie, ABC, Alexi Hawley, Nathan Fillion
+
+Tue, 01 Sep 2026 02:09:11 GMT
+
+https://collider.com/the-rookie-lionsgate-contract-extended-alexi-hawley/
+
+Showrunner Alexi Hawley has officially extended his contract with Lionsgate Television, which means more seasons of The Rookie are sure to come.
+---------
+
+# 15 Years Later, David Fincher’s Forgotten Classic Is Getting the Series It Deserves
+
+TV Features, The Girl With the Dragon Tattoo, Series, Sky Go, David Fincher
+
+Tue, 01 Sep 2026 01:47:11 GMT
+
+https://collider.com/the-girl-with-the-dragon-tattoo-sky-series-adaptation/
+
+Sky is adapting Stieg Larsson’s The Girl with the Dragon Tattoo as an eight-part series, giving Lisbeth Salander room to shine.
+---------
+
+# 31 Years Later, This Masterpiece Remains the Greatest Comic of All Time
+
+Animation, Comics, 80s, 90s
+
+Tue, 01 Sep 2026 01:38:11 GMT
+
+https://collider.com/calvin-and-hobbes-greatest-comic-of-all-time/
+
+31 years after its end, Calvin and Hobbes' messages about imagination, friendship, and the world still resonate.
+---------
+
+# 3 Near-Perfect Series to Binge on Prime Video This September
+
+TV, Prime Video, Elementary, Bunheads, The Lord of the Rings: The Rings of Power
+
+Tue, 01 Sep 2026 01:11:11 GMT
+
+https://collider.com/prime-video-shows-binge-september-2026/
+
+The Lord of the Rings: The Rings of Power, Elementary, and Bunheads make up our list of the best shows to binge on Prime Video this September.
+---------
+
+# 8 Prime Video Original Series That Are 10/10 Masterpieces
+
+TV Lists, Prime Video, The Boys, Invincible
+
+Tue, 01 Sep 2026 02:30:13 GMT
+
+https://movieweb.com/prime-video-original-series-perfect-masterpieces/
+
+Prime Video is one of the best platforms in the game when it comes to original series, and these eight standout as genuinely perfect masterpieces.
+---------
+
 # Casting The Lord Of The Rings If It Was Made In 2026: All 12 Main Roles
 
 Movies, The Lord of the Rings
