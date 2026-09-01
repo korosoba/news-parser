@@ -1,3 +1,443 @@
+# Casting The Lord Of The Rings If It Was Made In 2026: All 12 Main Roles
+
+Movies, The Lord of the Rings
+
+Tue, 01 Sep 2026 00:56:57 GMT
+
+https://screenrant.com/lord-of-the-rings-movies-recast-2026-actors/
+
+With major fantasy franchises like Harry Potter being rebooted, if The Lord of the Rings movies were made in 2026, this would be the perfect cast.
+---------
+
+# 7 Years Later, Doctor Doom Will Finally Accomplish Thanos' Real Endgame Goal (MCU Theory Explained)
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe, Thanos, Doctor Doom, Avengers: Endgame
+
+Tue, 01 Sep 2026 00:36:22 GMT
+
+https://screenrant.com/doctor-doom-thanos-goals-endgame-theory-mcu/
+
+7 years later, it feels likely that Avengers: Endgame and Doomsday's biggest connection will be in the shared goals of Thanos and Doctor Doom.
+---------
+
+# Cult Classic Sci-Fi Show On Hulu Is So Good, It's Getting New Episodes More Than 25 Years Later
+
+Streaming TV, Masked Recs
+
+Tue, 01 Sep 2026 00:30:14 GMT
+
+https://screenrant.com/firefly-classic-sci-fi-show-hulu-new-episodes-sequel/
+
+If there was ever a show that deserved a modern revival, it's this cult-classic sci-fi series that was cut short by network greed in 2002.
+---------
+
+# Netflix's 44-Episode Detective Drama Deserves To Be As Big As Bosch
+
+TV, Masked Recs
+
+Tue, 01 Sep 2026 00:02:14 GMT
+
+https://screenrant.com/the-killing-netflix-detective-drama-underrated/
+
+A grim slow burn murder mystery with haunting atmosphere and relentless moral ambiguity? Netflix's masterpiece was Bosch's ideal replacement.
+---------
+
+# The Flash Is Back With A New Series, And It's Already An Instant Classic
+
+Comics, The Flash, DC Comics
+
+Tue, 01 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/flash-new-series-ryan-north-instant-classic/
+
+The newest run of DC Comics' The Flash is six issues into the series, but it already seems like it will become a classic.
+---------
+
+# Netflix's 3-Part Sci-Fi Masterpiece Quietly Delivers The Best Time Travel Story
+
+Streaming TV, Masked Recs
+
+Mon, 31 Aug 2026 23:45:14 GMT
+
+https://screenrant.com/dark-netflix-best-time-travel-story/
+
+Time travel has been done so often in sci-fi shows it was starting to feel like a narrative dead-end, until one 2017 Netflix series proved otherwise.
+---------
+
+# Russell Crowe's Franchise Launch Attempt Finds Salvation On Netflix After Box Office Bomb
+
+Movies, Masked Recs
+
+Mon, 31 Aug 2026 23:39:49 GMT
+
+https://screenrant.com/russell-crowe-kraven-the-hunter-starz-global-streaming-success-august-2026/
+
+Russell Crowe's failed attempt at launching a franchise is finding salvation on Netflix after bombing at the box office a few years ago.
+---------
+
+# X-Files Fans, Don't Miss This Sequel Coming In 2028
+
+Gaming, The X-Files, Indie Games, PC
+
+Mon, 31 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/thimbleweed-park-2-like-x-files-2028-release/
+
+Fans of The X-Files will want to keep an eye on this classic adventure game sequel coming out in 2028 from two legendary video game creators.
+---------
+
+# 10 Most Bloodthirsty Characters In DC Comics History
+
+Comics
+
+Mon, 31 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/most-bloodthirsty-dc-comics-characters/
+
+While the DC Universe is home to many inspiring heroes, it also houses some terrifying characters with an insatiable thirst for violence.
+---------
+
+# Does The Dog Die In The Dog Stars? Here's The Answer & How The Movie Changes The Book
+
+Movies, The Dog Stars
+
+Mon, 31 Aug 2026 23:00:14 GMT
+
+https://screenrant.com/does-the-dog-die-in-the-dog-stars-movie/
+
+Ridley Scott’s new post-apocalyptic thriller centers a canine in its stacked cast, leading prospective viewers to worry about the pup’s fate.
+---------
+
+# 10 Pokémon Cards That Became Worth a Fortune
+
+Games, Pokemon TCG, TCG, Tabletop, Pokemon
+
+Tue, 01 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/most-expensive-pokemon-cards-ever-sold/
+
+It's astounding to see Pokémon cards that have sold for hundreds of thousands of dollars or more.
+---------
+
+# All 3 Movies in Sam Raimi's Forgotten Horror Trilogy Get Resurrected by Tubi
+
+Movies, Boogeyman
+
+Tue, 01 Sep 2026 00:27:39 GMT
+
+https://www.cbr.com/boogeyman-trilogy-streaming-tubi-september-2026/
+
+The 21-year-old horror franchise can be streamed for free.
+---------
+
+# Hunter x Hunter Finally Breaks Out of Netflix Jail
+
+Anime, Hunter X Hunter, Naruto, viz media, RetroCrush, Hunter x Hunter: Phantom Rouge, Naruto the Movie: Ninja Clash in the Land of Snow
+
+Tue, 01 Sep 2026 00:20:11 GMT
+
+https://www.cbr.com/hunter-x-hunter-viz-media-retrocrush-release/
+
+Hunter x Hunter escapes Netflix jail as Phantom Rouge joins RetroCrush alongside other major franchises like Sailor Moon, Naruto and Bleach.
+---------
+
+# 5 Strongest Magic Types in Black Clover, Officially Ranked
+
+Anime, Black Clover
+
+Tue, 01 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/black-clover-strongest-magic-types-ranked/
+
+From Time Magic to Gravity Magic, Black Clover's strongest magic types can turn even the most powerful battles on their heads.
+---------
+
+# 5 Zelda Reveals Expected for the September Nintendo Direct
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Tue, 01 Sep 2026 00:10:11 GMT
+
+https://www.cbr.com/zelda-40th-anniversary-september-nintendo-direct/
+
+From Ocarina of Time's release date reveal to the live-action movie's first-look trailer, this September's Nintendo Direct will be big for Zelda fans.
+---------
+
+# Bob Saget's Iconic Sitcom Surges on Streaming 31 Years After Its Final Episode
+
+TV, Full House (US)
+
+Mon, 31 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/full-house-streaming-success-august-2026/
+
+Whatever happened to predictability?
+---------
+
+# Éomer Fixed King Théoden's Greatest Mistake in The Lord of the Rings
+
+Movies, The Lord of the Rings
+
+Mon, 31 Aug 2026 23:30:11 GMT
+
+https://www.cbr.com/lord-of-the-rings-eomer-fixed-worst-theoden-mistake/
+
+Decades before the War of the Ring, King Théoden made a disastrous decision that Éomer needed to undo after the events of The Lord of the Rings.
+---------
+
+# Netflix's Steamy 8-Part Sleeper Hit Finds New Popularity Ahead of New Episodes
+
+TV, Finding Her Edge
+
+Mon, 31 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/netflix-finding-her-edge-sleeper-hit-google-trends-success-august-2026/
+
+The show was a quiet hit, and it will return for Season 2.
+---------
+
+# Netflix's 3-Season Action Sleeper Is the Perfect '90s Thriller Revival
+
+TV, The Night Agent, Netflix, Thriller
+
+Mon, 31 Aug 2026 23:00:11 GMT
+
+https://www.cbr.com/netflix-the-night-agent-perfect-90s-thriller-revival/
+
+This Netflix action sleeper hit is reminiscent of '90s thrillers, signaling that it's time for a resurrection of the style for the small screen.
+---------
+
+# Netflix's True Crime Movie With 98% RT Explodes in Popularity 1 Year Later
+
+Movies, The Perfect Neighbor, Netflix, Crime
+
+Mon, 31 Aug 2026 22:49:39 GMT
+
+https://www.cbr.com/netflixs-true-crime-movie-with-98-rt-explodes-in-popularity-1-year-later/
+
+Netflix's 2025 crime documentary, which makes innovative use of surveillance footage, is rising in popularity.
+---------
+
+# The 10 Best Family Films of the 2020s So Far, Ranked
+
+Movie, Family, Animation, Wolfwalkers, Coyote Vs. Acme
+
+Tue, 01 Sep 2026 00:09:11 GMT
+
+https://collider.com/best-family-films-2020s-so-far-ranked/
+
+Coyote vs. Acme, Soul, and Wolfwalkers are all among the very best movies for kids and families from the 2020s so far.
+---------
+
+# ‘Alien Deathstorm’ Could Officially Be the Perfect 1-Weekend Horror Game
+
+Gaming News, alien, Alien, Sci-Fi, Gaming
+
+Tue, 01 Sep 2026 00:03:37 GMT
+
+https://collider.com/alien-deathstorm-runtime-8-10-hours-rebellion-game-pass-2027/
+
+Alien Deathstorm, the new sci-fi horror shooter from Sniper Elite developer Rebellion, confirms a short runtime ahead of its Spring 2027 release.
+---------
+
+# The X-Men Project “Nobody Wanted” Was Almost Cancelled Before It Started [Exclusive]
+
+TV News, X-Men: The Animated Series, X-Men '97, Disney+, Fan Expo
+
+Tue, 01 Sep 2026 00:00:11 GMT
+
+https://collider.com/x-men-the-animated-series-almost-canceled-before-ever-started/
+
+Tenured X-Men producer Larry Houston reveals the mutant project that almost crashed and burned before it ever started.
+---------
+
+# 'Harry Potter’ Officially Reveals New Designs for All 4 Hogwarts Houses
+
+TV News, Harry Potter, HBO, HBO Max
+
+Mon, 31 Aug 2026 23:45:52 GMT
+
+https://collider.com/harry-potter-hbo-hogwarts-house-designs-ravenclaw-eagle/
+
+HBO’s Harry Potter reveals new Gryffindor, Slytherin, Hufflepuff and Ravenclaw house designs, including Ravenclaw’s book-accurate eagle.
+---------
+
+# Brandon Sanderson’s ‘Stormlight Archive’ Officially Announces a New 2027 Adventure
+
+Books and Comics News, Brandon Sanderson, Fantasy, Sci-Fi, The Stormlight Archive
+
+Mon, 31 Aug 2026 23:39:51 GMT
+
+https://collider.com/stormlight-archive-tidebreakers-release-october-2027-brandon-sanderson/
+
+Brandon Sanderson’s Stormlight Archive expands with Tidebreakers, a new Cosmere RPG adventure coming in October 2027 and set across the Reshi Isles.
+---------
+
+# How John Wayne Officially Inspired One of Star Wars' Most Iconic Characters [Exclusive]
+
+Movie News, The Mandalorian and Grogu, Brendan Wayne, John Wayne, The Mandalorian
+
+Mon, 31 Aug 2026 23:30:11 GMT
+
+https://collider.com/the-mandalorian-and-grogu-din-djarin-walk-shaped-by-john-wayne/
+
+The Mandalorian and Grogu actor Brendan Wayne speaks on the similarities between Din Djarin and the great American cowboy, John Wayne.
+---------
+
+# Neagley’s Best ‘Reacher’ Quote Proves Why Prime Video Gave Her a Spin-Off
+
+TV Features, Neagley, Reacher, Maria Sten, Prime Video
+
+Mon, 31 Aug 2026 23:29:11 GMT
+
+https://collider.com/reacher-neagley-best-quote-spin-off-prime-video/
+
+After three seasons as a supporting member of Reacher's team, Neagley is finally leading her own series.
+---------
+
+# 7 HBO Show Endings That Are Genuine Masterpieces
+
+TV, HBO, Hacks, The Sopranos, Six Feet Under
+
+Mon, 31 Aug 2026 23:14:11 GMT
+
+https://collider.com/hbo-show-endings-masterpieces/
+
+It's a true achievement to end a series well, but HBO shows like Hacks, The Sopranos, and Six Feet Under have endings that are genuine masterpieces.
+---------
+
+# New Quentin Tarantino Release Forever Changes the Way We Watch His Best Action Movie
+
+Movie Features, Kill Bill: The Whole Bloody Affair, Quentin Tarantino, Uma Thurman, Kill Bill: Vol. 1
+
+Mon, 31 Aug 2026 23:08:11 GMT
+
+https://collider.com/quentin-tarantino-kill-bill-whole-bloody-affair-4k-release-lionsgate/
+
+23 years later, Quentin Tarantino's Kill Bill has finally been made whole in a home video format, letting fans see the epic as intended.
+---------
+
+# ‘God of War’ Legend Reveals Why He Turned Down Live-Action Kratos [Exclusive]
+
+TV News, God of War, Dave Bautista, Prime Video, Fan Expo
+
+Mon, 31 Aug 2026 23:00:11 GMT
+
+https://collider.com/god-of-war-chrstiopher-judge-dave-bautista-kratos-reaction-prime-video-series/
+
+Christopher Judge finally shared his thoughts on Dave Bautista replacing Ryan Hurst as Kratos in Prime Video's God of War series.
+---------
+
+# Iconic '80s Fantasy Adventure Reboot Finally Gets an Update Five Years After Announcement
+
+Movie News, ThunderCats, Adam Wingard, Fantasy
+
+Tue, 01 Sep 2026 00:43:31 GMT
+
+https://movieweb.com/thundercats-reboot-live-action-update-adam-wingard/
+
+Filmmaker Adam Wingard confirms 'ThunderCats' is still happening but other projects took precedence.
+---------
+
+# 'Landman' Star Teases Return to "Roller Coaster" Season 3 & Plot Details
+
+TV News, Landman, Western
+
+Tue, 01 Sep 2026 00:21:40 GMT
+
+https://movieweb.com/landman-james-jordan-season-3-plot-details/
+
+It looks like 'Landman' Season 2's happy ending is short-lived.
+---------
+
+# Netflix’s Greatest Thriller Series Was So Good, the Streamer Reused Its 10/10 Formula
+
+Features, The Haunting of Hill House, Thriller, Horror, Netflix
+
+Tue, 01 Sep 2026 00:00:13 GMT
+
+https://movieweb.com/haunting-hill-house-netflix-repeated-formula/
+
+Netflix's greatest thriller series is one that masterfully balances weighty themes, dread, and genuine scares — and inspired similar approaches later.
+---------
+
+# 45 Years Later, Epic '80s Fantasy Adventure Getting New Release
+
+Movie News, Clash of the Titans, Blu-ray, Fantasy
+
+Mon, 31 Aug 2026 23:57:20 GMT
+
+https://movieweb.com/clash-of-the-titans-4k-blu-ray/
+
+'Clash of the Titans' and all of its stop-motion glory hits 4K Ultra HD Blu-ray in November.
+---------
+
+# HBO’s Masterpiece War Epic Is So Good, There Are Two More Just Like It
+
+Features, HBO Max, Band of Brothers, The Pacific, Masters of the Air, War, Steven Spielberg
+
+Mon, 31 Aug 2026 23:00:14 GMT
+
+https://movieweb.com/hbo-steven-spielberg-war-miniseries-trilogy/
+
+After 20 years, few shows have matched the scale and emotional intensity of the World War II epic, Band of Brothers— but these two come close.
+---------
+
+# Dystopian Sci-Fi Masterpiece Roger Ebert Gave 10/10 Becomes One of the Biggest Hits on Streaming
+
+Movie News, Children of Men, Sci-Fi, Hot on Streaming
+
+Mon, 31 Aug 2026 23:00:14 GMT
+
+https://movieweb.com/children-of-men-streaming-success-hbo-max-august-2026/
+
+This one features some of the best action sequences ever put on film.
+---------
+
+# Taylor Sheridan's Secret Advantage That Other Creators Don't Have Revealed By Star
+
+TV News, Lioness, Western, LaMonica Garrett
+
+Mon, 31 Aug 2026 22:54:03 GMT
+
+https://movieweb.com/lioness-lamonica-garrett-taylor-sheridan-talent/
+
+'Lioness' star LaMonica Garrett reveals what sets Taylor Sheridan apart from other creators.
+---------
+
+# Jennifer Lawrence's Action Franchise Finally Confirms Its Plans for a New Release
+
+Movie News, The Hunger Games, Jennifer Lawrence, Sci-Fi
+
+Mon, 31 Aug 2026 22:36:32 GMT
+
+https://movieweb.com/the-hunger-games-jennifer-lawrence-theatrical-release-schedule/
+
+Ahead of the release of a new prequel, the original 'The Hunger Games' is returning to theater with an official release schedule now available.
+---------
+
+# Disney's 10/10 2-Part John Wick-Style Action Thriller Series You Likely Missed Is Must-Watch TV
+
+Features, A Shop For Killers, John Wick, Disney+, Action, Thriller
+
+Mon, 31 Aug 2026 22:00:13 GMT
+
+https://movieweb.com/a-shop-for-killers-john-wick-action-thriller/
+
+'John Wick' is one of the most beloved action movie franchises, and if you enjoyed the films starring Keanu Reeves, you'll like this Disney series.
+---------
+
+# Rebecca Ferguson's 3-Part Sci-Fi Thriller Masterpiece Is Officially One of the Biggest Shows in the World
+
+TV News, Silo, Apple TV, Hot on Streaming, Sci-Fi
+
+Mon, 31 Aug 2026 22:00:13 GMT
+
+https://movieweb.com/silo-scifi-streaming-hit-apple-nielsen/
+
+Three seasons in and we're still as confused as ever.
+---------
+
 # James Wan’s Live-Action Reboot Of Disney’s Cult Classic Fantasy Series Is Dead
 
 TV, Gargoyles
