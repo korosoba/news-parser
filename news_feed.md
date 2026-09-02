@@ -1,3 +1,300 @@
+# Brandon Sanderson's Mistborn Handbook Arrives Fall 2026
+
+Gaming, Mistborn, Triple-A Games
+
+Wed, 02 Sep 2026 07:00:14 GMT
+
+https://screenrant.com/mistborn-handbook-fall-2026-release-window/
+
+Although fans of Brandon Sanderson don't have to wait long for his next project to release, Mistborn fans in particular have a lot to look forward to.
+---------
+
+# Game Of Thrones: Vhagar Officially Announced
+
+Gaming, Game of Thrones, PC
+
+Wed, 02 Sep 2026 06:00:14 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-vhagar-announced/
+
+Fans of the incredible game, Game of Thrones: Dragonfire, will want to check out the latest announcement, Vhagar.
+---------
+
+# The Runner Review: Gal Gadot's Prime Video Thriller Underwhelms
+
+New Movies, The Runner
+
+Wed, 02 Sep 2026 04:00:18 GMT
+
+https://screenrant.com/the-runner-gal-gadot-movie-review/
+
+Voice-on-phone thrillers are inherently challenging, and Gal Gadot's The Runner doesn't have the goods to overcome those challenges.
+---------
+
+# Pokémon Scarlet & Violet Free Download Officially Available For 24 Hours
+
+Gaming, Pokemon, Pokemon Scarlet and Violet, Nintendo, Nintendo Switch
+
+Wed, 02 Sep 2026 04:00:18 GMT
+
+https://screenrant.com/pokemon-scarlet-violet-free-rare-download-24-hours/
+
+A free rare Pokémon is available for just 24 hours in Pokémon Scarlet and Violet, meaning fans will need to act fast.
+---------
+
+# 5 Superhero Teams Stronger Than The Justice League
+
+Comics
+
+Wed, 02 Sep 2026 03:30:14 GMT
+
+https://screenrant.com/superhero-teams-stronger-than-justice-league/
+
+The Justice League features some of DC’s mightiest heroes, but these formidable superhero teams greatly surpass them in sheer power.
+---------
+
+# Forget Superman, James Gunn's DCU Just Introduced The Most Powerful Characters In The Franchise
+
+Superheroes, Lanterns, DC Universe
+
+Wed, 02 Sep 2026 03:18:33 GMT
+
+https://screenrant.com/lanterns-just-introduced-guardians-most-powerful-dcu-characters/
+
+James Gunn's DC Universe has just debuted the most powerful characters in the entire franchise (but I think there's going to be a big catch).
+---------
+
+# Pokémon Announces The End Of A 29-Year Old Era With New 2027 Release
+
+Anime, Pokemon
+
+Wed, 02 Sep 2026 03:00:14 GMT
+
+https://screenrant.com/pokemon-end-era-wild-card-movie-no-ash/
+
+A major 2027 release is officially breaking a 29-year tradition by replacing the franchise's iconic hero and battle formula for the Pokémon franchise.
+---------
+
+# Friday The 13th Writer Victor Miller Dies At 86
+
+Movies, Friday the 13th, Friday The 13th
+
+Wed, 02 Sep 2026 02:55:56 GMT
+
+https://screenrant.com/victor-miller-death-obituary/
+
+Victor Miller, who wrote the original Friday the 13th move that launched the iconic horror franchise, has passed away at the age of 86 years old.
+---------
+
+# Batman Knightfall Part 1 Review: DC's R-Rated Epic Has a Messy Start
+
+Movies, Batman: Knightfall Part 1: Knightfall
+
+Wed, 02 Sep 2026 05:30:50 GMT
+
+https://www.cbr.com/batman-knightfall-part-1-review/
+
+Batman Knightfall Part 1 faithfully adapts the classic DC saga, but uneven pacing keeps its R-rated first chapter from fully landing.
+---------
+
+# Buddy Review: Too Many Cooks Creator Unleashes a Brilliantly Twisted Nightmare
+
+Movies, Buddy
+
+Wed, 02 Sep 2026 04:37:29 GMT
+
+https://www.cbr.com/buddy-review/
+
+Casper Kelly's Buddy weaponizes '90s kids-TV nostalgia in a surreal horror comedy starring Cristin Milioti and Keegan-Michael Key.
+---------
+
+# Square Enix Officially Surprises Fans With New Chrono Trigger Releases Coming February 2027
+
+Games, Chrono Trigger, Video Games, Square Enix
+
+Wed, 02 Sep 2026 04:30:11 GMT
+
+https://www.cbr.com/chrono-trigger-official-new-merchandise-february-2027/
+
+Square Enix has announced a surprise new Chrono Trigger release for 2027, one that fans have been begging to purchase for decades.
+---------
+
+# 5 Strongest Waterbenders in Avatar: The Last Airbender, Ranked
+
+Anime, Avatar: The Last Airbender
+
+Wed, 02 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-strongest-waterbenders-ranked/
+
+Aang might be the Avatar, but even he needs to bow down before the greatest waterbenders in Avatar: The Last Airbender.
+---------
+
+# 1 of Stephen King's Best Horror Shows in Years Is Abandoning the Novel in Season 2
+
+TV, Stephen King, The Institute, Horror
+
+Wed, 02 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/stephen-king-the-institute-season-2-book-changes/
+
+Having exhausted the plot of Stephen King's 2019 novel The Institute, the second season will take a fresh direction to build on its ambiguous ending.
+---------
+
+# The Gary Larson Fascination That Shaped The Far Side From the Start
+
+Comics, The Far Side
+
+Wed, 02 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/gary-larson-far-side-inspirations-explained/
+
+Gary Larson's fascination with science and nature would go on to mold the award-winning The Far Side comic strip series.
+---------
+
+# 5 Masterpiece Turn-Based RPGs Better Than Clair Obscur
+
+Games, Role Playing Game, RPG
+
+Wed, 02 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/masterpiece-turn-based-rpgs-better-than-clair-obscur-list/
+
+Clair Obscur was the best game of 2025, but that doesn't mean it's the greatest turn-based RPG of all time.
+---------
+
+# Gundam Revives Its Ultimate Zeta-Era Mecha With Over 12 Forms
+
+Anime, Mobile Suit Gundam, Mobile Suit Zeta Gundam, merchandise, bandai, toys
+
+Wed, 02 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/zeta-gundam-tr-1-hazel-rah-bandai-metal-robot-spirits/
+
+A versatile transforming design from a Mobile Suit Zeta Gundam spinoff lives again through an action figure equipped with several configurations.
+---------
+
+# Stargate Star Was Almost Cast as Kratos in Amazon's Live-Action God of War Series
+
+TV, God of War
+
+Wed, 02 Sep 2026 03:01:25 GMT
+
+https://www.cbr.com/god-of-war-series-almost-cast-christopher-judge/
+
+The role will ultimately be played by Dave Bautista in the Prime Video series.
+---------
+
+# What the Idiots Cast Learned From Dumb & Dumber and Midnight Run
+
+CBR Exclusives, Idiots
+
+Wed, 02 Sep 2026 03:01:03 GMT
+
+https://www.cbr.com/idiots-cast-dave-franco-oshea-jackson-jr-dumb-and-dumber-midnight-run/
+
+Dave Franco and the Idiots cast discuss how comedies like Dumb and Dumber and Midnight Run influenced the new movie.
+---------
+
+# ‘The Mandalorian’s New 45-Minute Episode Fails To Live Up to the LEGO Legacy | Review
+
+TV Reviews, LEGO Star Wars: The Mandalorian, Lego Star Wars, Star Wars, Disney+
+
+Wed, 02 Sep 2026 07:01:11 GMT
+
+https://collider.com/lego-star-wars-the-mandalorian-review/
+
+How does LEGO Star Wars: The Mandalorian stack up against previous LEGO projects set within a galaxy far, far away?
+---------
+
+# Taylor Sheridan's 10/10 Gritty American Western Isn't Even Connected to 'Yellowstone'
+
+TV Features, Lawmen: Bass Reeves, Taylor Sheridan, David Oyelowo, Western
+
+Wed, 02 Sep 2026 04:45:11 GMT
+
+https://collider.com/lawmen-bass-reeves-american-western-not-yellowstone-spinoff/
+
+Taylor Sheridan's Lawmen: Bass Reeves is a standout American Western series that doesn't have any connection to the Yellowstone universe.
+---------
+
+# These 2026 Horror Movies Are Better Than 'Obsession'
+
+Movie, Obsession, Hokum, Backrooms, Send Help
+
+Wed, 02 Sep 2026 04:27:11 GMT
+
+https://collider.com/2026-horror-movies-better-than-obsession/
+
+Hokum, Backrooms, Send Help, 28 Years Later: The Bone Temple, and more make up our list of 2026 horror movies better than Obsession.
+---------
+
+# Ridley Scott and 'Project Hail Mary's Screenwriter Almost Made This Violent, Gritty Western
+
+Movie Features, Ridley Scott, Drew Goddard, Western, Project Hail Mary
+
+Wed, 02 Sep 2026 04:14:11 GMT
+
+https://collider.com/ridley-scott-project-hail-mary-drew-goddard-unmade-western/
+
+After their collaboration on The Martian, Ridley Scott and Drew Goddard almost created a gritty and ultra-violent Western.
+---------
+
+# Zack Snyder's Visually Stunning Superhero Flop That Became a Cult Classic Is the Perfect Late-Night Watch
+
+Movie Features, Watchmen, Zack Snyder, Alan Moore, HBO Max
+
+Wed, 02 Sep 2026 03:58:32 GMT
+
+https://collider.com/zack-snyder-watchmen-streaming-hbo-max-september-2026/
+
+Zack Snyder's adaptation of Alan Moore's landmark graphic novel was technically faithful, but didn't reach its audience in theaters.
+---------
+
+# One of the Greatest WWII Movies of All Time Is Waiting To Be Rediscovered on Free Streaming
+
+Movie Features, A Bridge Too Far, Sean Connery, Robert Redford, Gene Hackman
+
+Wed, 02 Sep 2026 03:44:44 GMT
+
+https://collider.com/a-bridge-too-far-ww2-movie-free-streaming-september-2026/
+
+Decades after its release, A Bridge Too Far remains one of the most ambitious and underappreciated World War II movies ever made.
+---------
+
+# The 10 Best Books That Are Over 100 Years Old, Ranked
+
+Books and Comics, The Odyssey, Frankenstein, Wuthering Heights, War and Peace
+
+Wed, 02 Sep 2026 03:26:11 GMT
+
+https://collider.com/best-books-over-100-years-old-ranked/
+
+Books over 100 years old that have well and truly stood the test of time include classics like Frankenstein, Wuthering Heights, and The Trial.
+---------
+
+# Everything Officially Coming to Disney+ This Fall
+
+TV, Disney+, VisionQuest, Percy Jackson & the Olympians, Frozen
+
+Wed, 02 Sep 2026 03:18:11 GMT
+
+https://collider.com/disney-plus-fall-2026-new-releases/
+
+VisionQuest, Percy Jackson and the Olympians Season 3, a Frozen short film, and more make up the list of everything coming to Disney+ this fall.
+---------
+
+# Gal Gadot's Prime Video Thriller Is as Mindless and Ludicrous as Streaming Movies Come | Review
+
+Movie Reviews, Gal Gadot, The Runner, Thriller, Prime Video
+
+Wed, 02 Sep 2026 04:00:18 GMT
+
+https://movieweb.com/the-runner-review/
+
+The premise of 'The Runner' is absurd on its own, and its execution is just as underwhelming.
+---------
+
 # Every Judge Dredd Video Game Ranked, From Worst To Best
 
 Gaming, Judge Dredd
