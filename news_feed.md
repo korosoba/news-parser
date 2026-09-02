@@ -1,3 +1,432 @@
+# 10 Greatest Anime Dragons Of All Time
+
+Anime
+
+Wed, 02 Sep 2026 19:30:25 GMT
+
+https://screenrant.com/coolest-dragons-anime-ranked/
+
+The best anime dragons are all awe-inspiring creatures who prove why the dragon remains the world's most recognizable mythical creature.
+---------
+
+# 8 Hard Sci-Fi Shows Better Than Battlestar Galactica
+
+Streaming TV, Battlestar Galactica, Sci-Fi
+
+Wed, 02 Sep 2026 19:30:16 GMT
+
+https://screenrant.com/hard-sci-fi-shows-better-than-battlestar-galactica/
+
+Battlestar Galactica may be one of hard sci-fi's greats, but many other shows beat it when it comes to grounded scientific realism and complexity.
+---------
+
+# 8 Greatest Comedy Shows About College
+
+Classic TV, Comedy
+
+Wed, 02 Sep 2026 19:16:14 GMT
+
+https://screenrant.com/best-comedy-shows-about-college/
+
+From crowded apartments to elementary schools, comedy settings range far and wide, but colleges/universities have some of the best situational humor.
+---------
+
+# Every Character's Signature Weapon In The Walking Dead
+
+Classic TV, The Walking Dead
+
+Wed, 02 Sep 2026 19:00:15 GMT
+
+https://screenrant.com/the-walking-dead-signature-weapons/
+
+Between Rick's hatchet and Daryl's crossbow, every major character in The Walking Dead carries their own signature zombie-slaying weapon.
+---------
+
+# "He Let Us Rip:" Clive Barker's Hellraiser Gets Some Hardcore New Lore In Revival
+
+Gaming, Hellraiser, Triple-A Games
+
+Wed, 02 Sep 2026 19:00:15 GMT
+
+https://screenrant.com/clive-barkers-hellraiser-revival-interview-gamescom/
+
+The Narrative Director on Hellraiser: Revival breaks down wild new lore and teases ambitions for a follow up to their twisted take on the Cenobites.
+---------
+
+# The Batman Part II: Poison Ivy Could Fix 3 Big Problems
+
+Movies, Originals, The Batman Part II
+
+Wed, 02 Sep 2026 19:00:15 GMT
+
+https://screenrant.com/video/the-batman-part-ii-poison-ivy-could-fix-3-big-problems/
+
+Scarlett Johansson’s mysterious role in The Batman Part II has fueled theories ranging from Phantasm to Gilda Dent, but Poison Ivy may be the possibility that best fits Matt Reeves’ grounded Gotham.
+---------
+
+# The Wait Is Over, Sam and Dean’s Next Supernatural Era Starts Today
+
+Comics, Supernatural
+
+Wed, 02 Sep 2026 18:49:52 GMT
+
+https://screenrant.com/supernatural-special-wayward-review/
+
+Supernatural’s new era officially kicked off today, with Sam and Dean Winchester returning for a story unlike anything the fandom has ever seen.
+---------
+
+# NYT Connections Solution And Hints For September 2, 2026
+
+Gaming, Connections, Mobile
+
+Wed, 02 Sep 2026 18:36:30 GMT
+
+https://screenrant.com/nyt-connections-solution-answer-hints-september-2-2026/
+
+The theme for today's Connections is remarkably simple, but divided into two directions, easily creating confusion without the right clues.
+---------
+
+# 6 Far Side Comics Starring Bears That Are 10/10 Perfect
+
+Comics, The Far Side
+
+Wed, 02 Sep 2026 18:35:15 GMT
+
+https://screenrant.com/far-side-bears-funniest-cartoons/
+
+The Far Side's most unbeatable bear comics.
+---------
+
+# Crunchyroll Gets Anime Streaming Rival This Month With Over 1,300 Hours of the Greatest Anime for Free
+
+Anime, Streaming
+
+Wed, 02 Sep 2026 19:20:11 GMT
+
+https://www.cbr.com/pluto-tv-1300-hours-anime-free/
+
+Crunchyroll is being challenged by its free streaming rival following the addition of major anime titles to its catalog.
+---------
+
+# Red Dead Redemption 2 Free Downloads Officially Available Until October 5
+
+Games, Red Dead Redemption, Red Dead Redemption 2
+
+Wed, 02 Sep 2026 19:10:11 GMT
+
+https://www.cbr.com/red-dead-redemption-2-free-download-officially-available-september-2026/
+
+Red Dead Redemption 2 continues to offer new free content, exclusively available throughout September and early October.
+---------
+
+# Mark Harmon’s NCIS Return Unveiled in First Look
+
+TV, NCIS
+
+Wed, 02 Sep 2026 19:07:43 GMT
+
+https://www.cbr.com/ncis-mark-harmon-gibbs-return-first-look/
+
+Mark Harmon is officially back as Leroy Jethro Gibbs.
+---------
+
+# Jason Statham’s 107-Minute Revenge Thriller Is Officially Crowned a Global Streaming Hit
+
+Movies, Shelter
+
+Wed, 02 Sep 2026 19:04:02 GMT
+
+https://www.cbr.com/jason-statham-shelter-revenge-thriller-global-streaming-hit/
+
+Box office truly is only metric of success, as Jason Statham's recent revenge thriller has blown up on streaming.
+---------
+
+# Netflix's New 5-Part Crime Noir With 16.1M Views Is 1 of the Biggest Shows on Streaming
+
+TV, Netflix, Crime, Thriller
+
+Wed, 02 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/blood-sacrifice-nordic-noir-thriller-netflix-success-august-2026/
+
+Netflix's latest Nordic noir crime thriller, Blood Sacrifice, topped the streaming charts worldwide.
+---------
+
+# Prime Video's New Sci-Fi Reboot Is Bringing Cyberpunk Back to TV
+
+TV, Robocop, Sci-Fi, Innovation
+
+Wed, 02 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/prime-video-robocop-reboot-cyberpunk/
+
+An action icon is headed back to TV, and this time, a new Prime Video streaming show has the chance to be his best adaptation by embracing cyberpunk.
+---------
+
+# Canon Events: The Justice League's Controversial Crisis Retroactively Broke the Batman
+
+Comics, Canon Events, Batman, Justice League, identity crisis
+
+Wed, 02 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/canon-events-identity-crisis-justice-league-broke-batman-first/
+
+Knightfall's animated release gave fans a taste of Batman's worst physical defeat, but an even worse loss was dealt by his close allies in the League.
+---------
+
+# Alex Ross Officially Reworks Marvel's Origin Stories, And Confirms What 'Defines His Style'
+
+Comics, Marvel Comics, alex ross
+
+Wed, 02 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/alex-ross-interview-marvel-dimensions/
+
+In a CBR exclusive interview with superstar creator, Alex Ross, we talk about his stunning new project, Marvel Dimensions
+---------
+
+# 8 Masterpiece Movie Trilogies That Rival Back to the Future
+
+Movies, Back to the Future, Indiana Jones, Sci-Fi
+
+Wed, 02 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/best-movie-trilogies-rival-back-to-the-future-list/
+
+Back to the Future is a timeless adventure trilogy, but it has plenty of competition to rival it as the perfect three-part experience.
+---------
+
+# YouTube Confirms New Streaming Platform to Its Premium Tier
+
+TV, YouTube, YouTube Premium, ESPN
+
+Wed, 02 Sep 2026 18:47:38 GMT
+
+https://www.cbr.com/youtube-confirms-new-espn-streaming-platform-to-its-premium-tier/
+
+One of the most in-demand streaming platforms is heading to YouTube TV.
+---------
+
+# 'The Office' Officially Returns With New Release in 5 Days
+
+TV News, The Office, Peacock, Documentary, Steve Carell
+
+Wed, 02 Sep 2026 19:31:07 GMT
+
+https://collider.com/the-office-documentary-fan-level-midnight-release-date-september-2026/
+
+13 years later, The Office is officially back, with the franchise officially returning to Peacock in just 5 days. Read on for more details.
+---------
+
+# 8 Years Later, Taylor Sheridan’s Greatest Western Still Says Everything About America
+
+TV Features, Yellowstone, Taylor Sheridan, Western, Paramount Plus
+
+Wed, 02 Sep 2026 19:19:11 GMT
+
+https://collider.com/taylor-sheridan-greatest-western-american-tv-yellowstone-opinion/
+
+Taylor Sheridan’s Yellowstone became a massive Western hit, but its lasting impact on American TV and culture runs even deeper.
+---------
+
+# The 10 Scariest Gangster Movies of All Time, Ranked
+
+Movie, Casino, Eastern Promises, Sin City, Uncut Gems
+
+Wed, 02 Sep 2026 19:19:11 GMT
+
+https://collider.com/scariest-gangster-movies-all-time-ranked/
+
+Classic gangster movies like Casino, Eastern Promises, and Once Upon a Time in America all rank among the scariest and most confronting of all time.
+---------
+
+# Disney Officially Replaces Pedro Pascal as The Mandalorian
+
+TV News, The Mandalorian, The Mandalorian and Grogu, LEGO Star Wars: The Mandalorian, Pedro Pascal
+
+Wed, 02 Sep 2026 19:15:11 GMT
+
+https://collider.com/pedro-pascal-mandalorian-replacement-gavin-hammon-lego-star-wars/
+
+Pedro Pascal has officially been replaced as the voice of Din Djarin in Disney+’s new LEGO Star Wars: The Mandalorian special.
+---------
+
+# 'Only Murders in the Building' Officially Set for Season 7 Shake-Up
+
+TV News, Only Murders in the Building, Hulu, Martin Short, Steve Martin
+
+Wed, 02 Sep 2026 19:07:52 GMT
+
+https://collider.com/only-murders-in-the-building-season-7-writers-room-new-york/
+
+Before Season 6 even airs, Hulu is officially preparing for Only Murders in the Building's seventh chapter. Read on for more!
+---------
+
+# ‘The Rookie’ Season 9 Is Officially Changing Its Winning Formula
+
+TV News, The Rookie, Nathan Fillion, ABC, Alexi Hawley
+
+Wed, 02 Sep 2026 19:00:11 GMT
+
+https://collider.com/abc-the-rookie-season-9-recasting-titular-character-nathan-fillion/
+
+Alexi Hawley has confirmed a major development for The Rookie Season 9, introducing a fresh rookie joining the LAPD's Mid-Wilshire Division.
+---------
+
+# ‘Pokémon’ Officially Celebrates 30th Anniversary With Biggest New Release Yet
+
+Movie News, Pokémon, Video Game, Anime, Amazon
+
+Wed, 02 Sep 2026 18:58:27 GMT
+
+https://collider.com/pokemon-24-movie-collection-blu-ray-images/
+
+Pokémon celebrates its 30th anniversary with a new collector’s release that brings decades of the franchise together in one package.
+---------
+
+# Mark Harmon Is Officially Returning To NCIS
+
+TV News, NCIS: Origins, NCIS, Mark Harmon
+
+Wed, 02 Sep 2026 18:46:27 GMT
+
+https://collider.com/ncis-origins-season-3-mark-harmon-gibbs-return-images/
+
+Mark Harmon returns as Gibbs throughout NCIS: Origins Season 3, with his Alaska retirement disrupted by a mystery tied to his past.
+---------
+
+# ‘Star Trek’ Officially Gives Nathan Fillion His Captain Kirk Moment
+
+TV News, Star Trek: The Animated Series, Nathan Fillion, The Rookie, Noah Wyle
+
+Wed, 02 Sep 2026 18:45:11 GMT
+
+https://collider.com/nathan-fillion-cast-captain-kirk-star-trek-animated-series-script-reading/
+
+The Rookie's Nathan Fillion has officially been cast as Star Trek's Captain Kirk alongside other stars like Noah Wyle, D'Arcy Carden, and Paul Scheer.
+---------
+
+# Marvel’s Best Anti-Hero Gets a Complete Makeover in New Marvel Release
+
+Books and Comics News, Logan, Dafne Keen, Deadpool & Wolverine, Marvel Comics
+
+Wed, 02 Sep 2026 18:42:30 GMT
+
+https://collider.com/marvel-comics-x-23-new-powers/
+
+Logan and Deadpool & Wolverine fan-favorite X-23 is getting a major overhaul thanks to Marvel. Read on for more details.
+---------
+
+# Netflix's New 5-Part 'Mindhunter' Substitute Crime Thriller Remains the Biggest Series in the World
+
+TV News, Netflix, Hot on Streaming
+
+Wed, 02 Sep 2026 19:31:13 GMT
+
+https://movieweb.com/blood-sacrifice-streaming-success-netflix-tudum-september-2026/
+
+Weeks after its premiere, the gripping mystery remains the most watched series on the streamer.
+---------
+
+# Gal Gadot's New 84-Minute Netflix Action Thriller Was Shaped by the Former Wonder Woman
+
+Exclusives, The Runner, Gal Gadot, Kevin Macdonald
+
+Wed, 02 Sep 2026 19:24:37 GMT
+
+https://movieweb.com/the-runner-gal-gadot-wonder-woman/
+
+Wonder Woman star Gal Gadot's new movie has plenty of influence from its leading star, according to the director who brought the story to life.
+---------
+
+# 'A Tale of Two Cities' Series Marks the End of an Era for 'Game of Thrones' Kit Harington
+
+Exclusives, A Tale Of Two Cities, History, Kit Harington
+
+Wed, 02 Sep 2026 19:04:39 GMT
+
+https://movieweb.com/a-tale-of-two-cities-kit-harington-sydney-carton-jon-snow/
+
+Kit Harington hilariously describes his 'A Tale of Two Cities' character as a "piece of s* on a pedestal."
+---------
+
+# 8 'Harry Potter' TV Series vs. Movie Differences Already Confirmed For HBO's Reboot
+
+TV Lists, Harry Potter, Fantasy
+
+Wed, 02 Sep 2026 18:25:50 GMT
+
+https://movieweb.com/harry-potter-tv-show-movie-differences-confirmed/
+
+A new trailer for the upcoming 'Harry Potter' remake has arrived, and there are already major differences between the HBO show and movies.
+---------
+
+# Guy Ritchie's Smash-Hit Crime Thriller Series Gets Major Season 3 Return Update Ahead of Season 2
+
+TV News, The Gentlemen, Thriller, Crime
+
+Wed, 02 Sep 2026 18:16:33 GMT
+
+https://movieweb.com/the-gentlemen-season-3-update/
+
+Season 3 of 'The Gentlemen' could drop sooner than expected.
+---------
+
+# 59 Years Later, Acclaimed WWII Action Classic Scores a New Release
+
+Movie News, The Dirty Dozen, Action, Blu-ray
+
+Wed, 02 Sep 2026 18:07:59 GMT
+
+https://movieweb.com/the-dirty-dozen-blu-ray-release/
+
+'The Dirty Dozen,' the war epic responsible for influencing modern action films like 'Inglourious Basterds,' is getting a release on Blu-ray.
+---------
+
+# 8 Underrated Jack Reacher Books Everyone Needs to Read
+
+TV Lists, Action, Thriller, Reacher
+
+Wed, 02 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/underrated-jack-reacher-books/
+
+Lee Child's Jack Reacher novels are the basis for the popular Amazon Prime Video action thriller TV series 'Reacher' starring Alan Ritchson.
+---------
+
+# Netflix's New 7-Part Action Thriller Series That Veterans Called "Authentic" Suffers Streaming Setback
+
+TV News, SEAL Team, Netflix, Streaming
+
+Wed, 02 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/seal-team-netflix-streaming-setback-tudum-september-2026/
+
+The fan-favorite military action series has been deemed one of the most realistic titles in the genre.
+---------
+
+# Taylor Sheridan's Record-Breaking Action Thriller Finally Returns in Explosive Season 2 Trailer
+
+TV News, Marshals, Taylor Sheridan, Western, Drama
+
+Wed, 02 Sep 2026 17:39:24 GMT
+
+https://movieweb.com/marshals-season-2-trailer/
+
+Taylor Sheridan is back on the small screen with a new look at 'Marshals' Season 2, the first trailer for which is now available to watch.
+---------
+
+# Official 'NCIS' Trailer Confirms the Start of a New Era for the Crime Series
+
+TV Trailers, NCIS, Crime, Michael Weatherly, Network TV
+
+Wed, 02 Sep 2026 17:37:19 GMT
+
+https://movieweb.com/ncis-trailer-season-24-michael-weatherly/
+
+An old favorite returns for the 24th season of 'NCIS.'
+---------
+
 # Slow Horses Meets Homeland In Peacock’s 12-Part Series Tearing Up Streaming
 
 TV, Masked Recs
