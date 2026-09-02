@@ -1,3 +1,421 @@
+# A24's New John Carpenter-Like Action-Thriller Secures Solid Rotten Tomatoes Score
+
+Movies, Onslaught
+
+Wed, 02 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/onslaught-a24-movie-john-carpenter-inspirations-rotten-tomatoes-score/
+
+After producing the hit horror flick Backrooms in May, A24 is back with a new action thriller that’s already garnering positive reviews from critics.
+---------
+
+# The Boys Meets Spider-Man In Prime Video's 4-Part Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Wed, 02 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/invincible-the-boys-meets-spider-man-prime-video/
+
+Prime's coming of age superhero saga mixes wisecracking charm with brutal carnage and a widening interstellar conflict that's impossible not to binge.
+---------
+
+# Superman Debuts His Darkest Superpower of All Time, Too Gross for the DCU
+
+Comics, Superman
+
+Wed, 02 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/superman-new-power-blood/
+
+Superman breaks a villain's back using his own blood.
+---------
+
+# How To Romance Crake In The Blood Of Dawnwalker
+
+Gaming, The Blood of Dawnwalker, PC
+
+Wed, 02 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/blood-of-dawnwalker-crake-romance-guide/
+
+Crake is one of just a select few characters in The Blood of Dawnwalker that Coen can have an intimate relationship with.
+---------
+
+# How To Romance Lacra In The Blood Of Dawnwalker
+
+Gaming, The Blood of Dawnwalker, PC
+
+Wed, 02 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/the-blood-of-dawnwalker-how-to-romance-lacra-guide/
+
+Lacra and Coen have an interesting and complicated relationship in The Blood of Dawnwalker, and she's one of a handful of unique romances in the game.
+---------
+
+# How To Romance Anca In The Blood Of Dawnwalker
+
+Gaming, The Blood of Dawnwalker, PC
+
+Wed, 02 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/blood-of-dawnwalker-how-to-romance-anca-guide/
+
+There are several romance options in The Blood of Dawnwalker, and things can get pretty spicy between Coen and Anca if you choose your words wisely.
+---------
+
+# Why The DCU Is Recasting Wonder Woman & Gal Gadot Won't Be Returning
+
+Superheroes, Wonder Woman, DC Universe
+
+Wed, 02 Sep 2026 21:50:14 GMT
+
+https://screenrant.com/wonder-woman-dcu-gal-gadot-recast-explained/
+
+Gal Gadot won't return as Wonder Woman in the DCU, with James Gunn's franchise recasting the character. Several factors led to these decisions.
+---------
+
+# HBO's Harry Potter Is Finally Filling The Gaps With Dumbledore's Missing Story
+
+Streaming TV, Harry Potter
+
+Wed, 02 Sep 2026 21:45:14 GMT
+
+https://screenrant.com/harry-potter-hbo-give-philosophers-stone-dumbledore-movies-missing/
+
+HBO's Harry Potter is taking a different approach to Dumbledore's story than the movies, filling in gaps from the books based on canon details.
+---------
+
+# The Sex Lives Of College Girls: Netflix Quietly Adds HBO Max's 30-Episode Teen Comedy
+
+Streaming TV, Masked Recs
+
+Wed, 02 Sep 2026 21:35:14 GMT
+
+https://screenrant.com/netflix-sex-lives-of-college-girls-watch/
+
+Netflix just quietly added HBO Max's comedy series The Sex Lives of College Girls. With 30 episodes & 3 seasons, it's perfect to binge this weekend.
+---------
+
+# Tim Curry’s Official Cause of Death Confirmed
+
+Movies, Tim Curry
+
+Wed, 02 Sep 2026 21:12:38 GMT
+
+https://screenrant.com/tim-curry-official-cause-of-death/
+
+Tim Curry's cause of death has officially been confirmed according to medical reports from the Los Angeles County Department of Public Health.
+---------
+
+# War of the Drakons Could Be the Next The Lord of the Rings
+
+Movies, The Lord of the Rings, Fantasy
+
+Wed, 02 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/barrie-osborne-lotr-replacement-war-of-the-drakons/
+
+This upcoming project from the producer of The Lord of the Rings may become the greatest fantasy event since Peter Jackson's trilogy.
+---------
+
+# Star Trek’s Canceled 2-Season Series That Broke the Formula Returns as a Streaming Hit
+
+TV, Star Trek: Starfleet Academy, Star Trek, Sci-Fi, Innovation
+
+Wed, 02 Sep 2026 21:52:31 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-sci-fi-success-pvod-apple-tv-september-2026/
+
+The divisive Star Trek series is back on the streaming chart.
+---------
+
+# Russo Bros. Confirm Greatest Western of All Time's Influence on Avengers: Doomsday
+
+Movies, Avengers: Doomsday, Once Upon a Time in the West
+
+Wed, 02 Sep 2026 21:44:30 GMT
+
+https://www.cbr.com/avengers-doomsday-confirms-western-influence/
+
+The Avengers: Doomsday filmmakers credit a beloved Western classic as a big inspiration for the MCU film.
+---------
+
+# 8 Action Games That Rival God of War
+
+Games, God of War
+
+Wed, 02 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/action-games-that-rival-god-of-war/
+
+Action games are the backbone of the video game industry, and God of War is at the absolute top of this space, but it's not the only one.
+---------
+
+# 7 80s Action Movies That Can Be Called Masterpieces
+
+Movies, Action
+
+Wed, 02 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/perfect-80s-action-movies-list/
+
+The 1980s changed action movies forever, producing genre classics that raised the bar for blockbusters and still hold up more than 40 years later.
+---------
+
+# Peter Cullen's Cause of Death Revealed
+
+TV, Transformers
+
+Wed, 02 Sep 2026 20:52:13 GMT
+
+https://www.cbr.com/peter-cullen-cause-of-death/
+
+We now know what caused the death of Transformers legend Peter Cullen
+---------
+
+# Mario Kart 8 Gets Free Surprise Update On Switch 2
+
+Games, Mario Kart 8 Deluxe, Mario Kart
+
+Wed, 02 Sep 2026 20:47:32 GMT
+
+https://www.cbr.com/mario-kart-8-free-update-nintendo-switch-2/
+
+Mario Kart 8 Deluxe has received a free update on the Switch 2, adding brand-new features and improvements to the 12-year-old kart racing game.
+---------
+
+# Star Wars Finally Returns to Disney+ With 3 New Releases Today
+
+Movies, The Mandalorian and Grogu, Star Wars, Disney+, Innovation
+
+Wed, 02 Sep 2026 20:43:13 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-and-grogu-disney-plus-lego-podcast/
+
+It's a big day for Star Wars on Disney+.
+---------
+
+# Cowboy Bebop Unveils New 25th Anniversary Design Ahead of October 30 Return
+
+Anime, Cowboy Bebop, Cowboy Bebop: Knockin' On Heaven's Door
+
+Wed, 02 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/cowboy-bebop-movie-anniversary-design-theatrical-revival/
+
+Cowboy Bebop gears up for its 25th anniversary with a brand-new visual that perfectly captures the cool vibes of anime's favorite space cowboy.
+---------
+
+# 7 Classic SNES Games That Are 10/10 Masterpieces
+
+Games, Nintendo
+
+Wed, 02 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/classic-snes-games-perfect-masterpieces-list/
+
+SNES games like Final Fantasy 6 have aged like fine wine and stand as flawless masterpieces today.
+---------
+
+# 10 Most Perfect Thriller Shows of the Last 30 Years, Ranked
+
+TV, Thriller, Breaking Bad, Severance, Ozark
+
+Wed, 02 Sep 2026 22:03:11 GMT
+
+https://collider.com/most-perfect-thriller-shows-last-30-years-ranked/
+
+AMC's Breaking Bad, FX's The Americans, and Apple TV's Severance are among the best TV thrillers of the last 30 years, but which is the greatest?
+---------
+
+# The 10 Best Sequels in Film History
+
+Movie, The Godfather Part II, The Empire Strikes Back, Bride of Frankenstein, The Lord of the Rings: The Return of the King
+
+Wed, 02 Sep 2026 21:51:11 GMT
+
+https://collider.com/best-movie-sequels/
+
+From The Dark Knight to The Godfather Part II, these movie sequels are the absolute best in cinema history.
+---------
+
+# The 10 Best Urban Fantasy Games, Ranked
+
+Gaming, Video Game, Persona 5, Fantasy, Darksiders 3
+
+Wed, 02 Sep 2026 21:29:11 GMT
+
+https://collider.com/best-video-games-urban-fantasy-ranked/
+
+Video games like Dishonored and Lies of P do an incredible job translating the magic and adventure of fantasy to an urban, often decaying setting.
+---------
+
+# 10 Horror Books That I Knew Would Be Masterpieces From the First 10 Pages
+
+Books and Comics, Books, Horror, Dracula, Frankenstein
+
+Wed, 02 Sep 2026 21:29:11 GMT
+
+https://collider.com/perfect-horror-masterpieces-first-10-pages/
+
+From classics like The Call of Cthulhu to recent hits like Bird Box, I knew these horror novels were masterpieces just by reading the first 10 pages.
+---------
+
+# George Harrison Took on a Bob Dylan Classic and Officially Made It His Own
+
+Music Features, George Harrison, The Beatles, Bob Dylan, Music, Rock
+
+Wed, 02 Sep 2026 20:28:51 GMT
+
+https://collider.com/george-harrison-bob-dylan-classic-if-not-for-you/
+
+George Harrison put his own unforgettable spin on Bob Dylan’s If Not for You, turning the classic song into something uniquely his own.
+---------
+
+# 9 Most Heartbreaking Netflix Shows of All Time, Ranked
+
+TV, Netflix, One Day, The Haunting of Hill House, When They See Us
+
+Wed, 02 Sep 2026 20:28:11 GMT
+
+https://collider.com/most-heartbreaking-netflix-shows-all-time-ranked/
+
+The Haunting of Hill House, One Day, When They See Us, BoJack Horseman, and more make up our list of the most heartbreaking Netflix shows of all time.
+---------
+
+# 7 Best New and Returning Anime Series Coming to Netflix and Crunchyroll in September
+
+TV, Anime, Netflix, Crunchyroll, Re:Zero -Starting Life in Another World-
+
+Wed, 02 Sep 2026 20:05:11 GMT
+
+https://collider.com/best-anime-series-netflix-crunchyroll-september-2026/
+
+From new episodes of Re:ZERO and Pokémon Horizons to the return of Red River, these are the best anime coming to Crunchyroll and Netflix in September.
+---------
+
+# Most Likely To...? | The Cast of Adults Season 2 Plays Collider Superlatives
+
+TV, Adults, Originals
+
+Wed, 02 Sep 2026 19:39:44 GMT
+
+https://collider.com/video/most-likely-to-the-cast-of-adults-season-2-plays-collider-superlatives/
+
+It's the dawning of a new era of the friend sitcom and Adults Season 2 is going for it. We bring the gang together to answer our most asked questions, read each other for filth and maybe learn the truth about the cast, behind the scenes.Featuring: Jack Innanen (Paul Baker), Amita Rao (Issa), Owen Thiele (Anton), Lucy Freyer (Billie) and Malik Elassal (Samir)
+---------
+
+# After 4 Years, an Action Thriller Movie Turned Viral Sensation Returns With New Release
+
+Features, Fall 2: Deadpoint, Action, Thriller
+
+Wed, 02 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/fall-2-deadpoint-viral-action-sequel/
+
+The sequel to an action thriller movie that became popular on streaming and went viral on TikTok has a new release.
+---------
+
+# Netflix's Newest Hit Is a 105-Minute Disaster Thriller That's One of the Biggest Movies on Streaming
+
+Movie News, The Wave, Hot on Streaming, Thriller, Netflix
+
+Wed, 02 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/the-wave-disaster-thriller-netflix-streaming-hit-september-2026/
+
+Netflix has found its newest global hit in a critical acclaimed disaster thriller that's come from behind to become one of their most popular movies.
+---------
+
+# HBO’s ‘Harry Potter’ Reboot Is Already Proving Its New Format Is Better Than The Movies
+
+Features, Harry Potter, HBO Max
+
+Wed, 02 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/hbo-harry-potter-reboot-format-better-movies/
+
+HBO Max's upcoming Harry Potter reboot is already proving its format is perfect for giving more screen time to classes and extracurriculars.
+---------
+
+# Tim Curry Cause of Death Officially Confirmed
+
+Movie News, Tim Curry
+
+Wed, 02 Sep 2026 20:44:46 GMT
+
+https://movieweb.com/tim-curry-cause-of-death-confirmed/
+
+The cause of death for the late Tim Curry, known for his work in 'The Rocky Horror Picture Show,' was officially confirmed.
+---------
+
+# Samuel L. Jackson's US President Battles an Endless Army in 'The Beast' Action Thriller Trailer
+
+Movie Trailers, The Beast, Action, Samuel L. Jackson, Joel Kinnaman
+
+Wed, 02 Sep 2026 20:27:47 GMT
+
+https://movieweb.com/samuel-l-jackson-the-beast-trailer/
+
+Samuel L. Jackson plays exactly the kind of president you'd think he would.
+---------
+
+# Netflix's Grimy New Thriller Described as "Nightcrawler Meets Trainspotting" in Glowing First Reactions
+
+Movie News, Ink, Danny Boyle, Netflix, Thriller
+
+Wed, 02 Sep 2026 20:26:44 GMT
+
+https://movieweb.com/ink-netflix-first-reactions-reviews-danny-boyle/
+
+The first reactions are in — Guy Pearce and Jack O'Connell deliver standout performances in Danny Boyle's 'Ink.'
+---------
+
+# Mark Wahlberg's 109-Minute Crime Thriller Is a Stealth Remake of a John Wayne Western Classic
+
+Features, John Wayne, Mark Wahlberg, Four Brothers, The Sons of Katie Elder, Thriller, Crime, Western
+
+Wed, 02 Sep 2026 20:00:13 GMT
+
+https://movieweb.com/four-brothers-sons-of-katie-elder-comparison/
+
+John Wayne's beloved classic Western movie and Mark Wahlberg's 2000s crime thriller movie share a lot in common.
+---------
+
+# Gal Gadot's New Non-Stop Prime Video Action Thriller Debuts Jaw-Dropping Rotten Tomatoes Score
+
+Movie News, The Runner, Gal Gadot, Thriller, Action
+
+Wed, 02 Sep 2026 19:53:00 GMT
+
+https://movieweb.com/the-runner-rotten-tomatoes-score-gal-gadot/
+
+The jury is still out but there's a trend forming as 'The Runner' scored Gadot some of the worst critical reactions of her career.
+---------
+
+# 'NCIS' Icon Officially Returns to the Crime Franchise as First Look Photos Debut
+
+TV News, NCIS: Origins
+
+Wed, 02 Sep 2026 19:45:02 GMT
+
+https://movieweb.com/ncis-origins-season-3-mark-harmon-images/
+
+The next season of a new 'NCIS' spin-off showed one of the franchise's biggest stars in their return to the small screen.
+---------
+
+# Ryan Reynolds' New Action Adventure Streaming Movie Lands Solid Rotten Tomatoes Score
+
+Movie News, Ryan Reynolds, Mayday, Action, Apple TV
+
+Wed, 02 Sep 2026 19:37:04 GMT
+
+https://movieweb.com/ryan-reynolds-mayday-rotten-tomatoes/
+
+Ryan Reynolds' 'Mayday' has received a decent Rotten Tomatoes score.
+---------
+
 # 10 Greatest Anime Dragons Of All Time
 
 Anime
