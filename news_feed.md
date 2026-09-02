@@ -1,3 +1,410 @@
+# Every Judge Dredd Video Game Ranked, From Worst To Best
+
+Gaming, Judge Dredd
+
+Wed, 02 Sep 2026 02:00:25 GMT
+
+https://screenrant.com/judge-dredd-video-games-ranked/
+
+Judge Dredd video games are rather niche and sparse, mainly belonging to an era of the industry that has long been outdated, though with great ideas.
+---------
+
+# 10 Perfectly Directed Fantasy Movies That Are Rightly Considered Classics
+
+Movies, Fantasy
+
+Wed, 02 Sep 2026 02:00:25 GMT
+
+https://screenrant.com/well-directed-fantasy-movies-classic/
+
+These fantasy classics prove that great direction can make even the strangest worlds feel completely believable.
+---------
+
+# Band Of Brothers' Best Character Isn't Who You Think
+
+Classic TV, Band of Brothers
+
+Wed, 02 Sep 2026 01:30:14 GMT
+
+https://screenrant.com/band-of-brothers-best-character-eugene-roe/
+
+The wartime masterpiece Band of Brothers has one of the best ensemble casts of all time, but some characters get more recognition than others.
+---------
+
+# 10 Most-Anticipated Comics Releasing In September 2026
+
+Comics
+
+Wed, 02 Sep 2026 01:30:14 GMT
+
+https://screenrant.com/most-anticipated-comics-releasing-september-2026/
+
+Amazing Spider-Man's milestone issue, the debut of the Bat in Absolute Batman, Stephanie Williams' new chapter in Smile, and more must-read comics.
+---------
+
+# 7 Years Later, HBO's Watchmen Finally Has A Sequel
+
+TV, Masked Recs
+
+Wed, 02 Sep 2026 01:24:10 GMT
+
+https://screenrant.com/lanterns-hbo-watchmen-spiritual-successor/
+
+HBO has finally found the perfect series to replace Watchmen, and while it took them 7 years to figure it out, this sci-fi story is impeccable.
+---------
+
+# 5 Best Paramount+ Series To Binge-Watch This Week (Aug 31–Sept 4, 2026)
+
+Streaming TV, Paramount Plus, What to Watch on Paramount+
+
+Wed, 02 Sep 2026 01:03:14 GMT
+
+https://screenrant.com/best-paramount-plus-shows-to-binge-week-august-31-2026/
+
+The best new shows to watch on Paramount+ this week, August 31–September 4, 2026 are The Agency, Lioness, MobLand, Dutton Ranch & Dexter Resurrection.
+---------
+
+# 4 Perfect 10/10 PlayStation 2 Masterpieces Nobody Remembers
+
+Gaming, PlayStation, PlayStation 2
+
+Wed, 02 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/perfect-playstation-ps2-masterpieces-nobody-remembers/
+
+These perfect PlayStation 2 games are absolutely worth playing, even if nobody else remembers them.
+---------
+
+# 10 Best New Movies Coming To Prime Video In September 2026
+
+Movies, Amazon Prime Video
+
+Wed, 02 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/prime-video-best-new-movies-september-2026/
+
+From a 1980s horror classic to an iconic Stephen King film, Prime Video is adding some major movie favorites to check out in September 2026.
+---------
+
+# Netflix's 3-Part Norse Historical Drama Is Even Better Than Vikings
+
+Classic TV, Masked Recs
+
+Wed, 02 Sep 2026 00:30:14 GMT
+
+https://screenrant.com/netflix-vikings-valhalla-better-than-original-show/
+
+Netflix is home to the Norse historical drama series Vikings: Valhalla, which, despite being shorter, ended up being better than Vikings.
+---------
+
+# 22 Years Later, The Greatest Closing Line In Sci-Fi History Is Still The Best Novel Quote Of The 2000s
+
+Books, Masked Recs
+
+Wed, 02 Sep 2026 00:30:14 GMT
+
+https://screenrant.com/cloud-atlas-best-sci-fi-closing-line-history-2000s/
+
+The greatest closing line in science fiction novel history is from this 2004 classic with a divisive Hollywood adaptation.
+---------
+
+# 5 Open World Roleplaying Games with Unique Survival Crafting Mechanics
+
+Games, Video Games, RPG
+
+Wed, 02 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/open-world-rpgs-unique-survival-crafting-mechanics/
+
+These open-world RPGs combine unique survival mechanics with traditional roleplaying progression to create hybrid games that will keep you playing.
+---------
+
+# Zelda: Ocarina of Time's Bottom of the Well Gets Promising Switch 2 Update
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Nintendo
+
+Wed, 02 Sep 2026 01:45:11 GMT
+
+https://www.cbr.com/zelda-oot-switch-2-remake-korean-age-rating/
+
+As the Ocarina of Time Switch 2 remake gets rated in more countries, a new picture is being painted of a darker version of Zelda's creepiest dungeon.
+---------
+
+# Qui-Gon Jinn's Single Greatest Quote in Star Wars History
+
+Movies, Star Wars
+
+Wed, 02 Sep 2026 01:30:11 GMT
+
+https://www.cbr.com/star-wars-phantom-menace-qui-gon-best-quote-sci-fi-history/
+
+Qui-Gon Jinn didn't have a lot of time in Star Wars, and yet he delivered the series most important line.
+---------
+
+# 6 Darkest Backstories in One Piece
+
+Anime, One Piece
+
+Wed, 02 Sep 2026 01:25:11 GMT
+
+https://www.cbr.com/one-peice-darkest-backstories/
+
+One Piece's backbone is the incredible backstories of its characters, and these are the darkest of them all.
+---------
+
+# Pokémon Winds and Waves May Have Just Revealed Its Starter Evolutions
+
+Games, Pokemon
+
+Wed, 02 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/pokemon-winds-waves-starter-evolutions-revealed/
+
+The evolved forms of the Pokémon Winds and Waves Starter Trio may have just been revealed early.
+---------
+
+# Better Call Saul Is Better Than Breaking Bad According to Guillermo del Toro
+
+TV, Better Call Saul, Breaking Bad, Crime
+
+Wed, 02 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/better-call-saul-better-than-breaking-bad/
+
+According to the legendary filmmaker, this 6-season crime series is even better than the iconic Breaking Bad.
+---------
+
+# The Best Fantasy Video Game Quote of the '90s Still Hits Hard
+
+Games, Planescape: Torment, Dungeons and Dragons
+
+Wed, 02 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/dungeons-and-dragons-best-fantasy-video-game-quote-90s/
+
+A haunting final exchange forces a shattered immortal to defend belief as the engine of self transformation in this '90s fantasy classic.
+---------
+
+# Naruto Shippuden Reveals First Itachi Design for New Noir Edge Series
+
+Anime, Naruto, merchandise, Naruto: Shippuden, bandai
+
+Wed, 02 Sep 2026 00:20:11 GMT
+
+https://www.cbr.com/naruto-shippuden-itachi-noir-edge-first-look/
+
+Fans just got their first look at Itachi's new design for Naruto Shippuden's Noir Edge series, and it couldn't be any cooler.
+---------
+
+# 10 Greatest Anime Series of the Last 20 Years, Ranked
+
+Anime, Fullmetal Alchemist, Frieren: Beyond Journey's End, The Apothecary Diaries
+
+Wed, 02 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/greatest-anime-series-of-the-last-20-years-ranked/
+
+The last two decades of amazing anime can be distilled into intimate portraits of family, loss, ambition, and the costs that shape everyone.
+---------
+
+# The Last Stand of Ellen Cole Combines John Wick and Yellowstone
+
+Movies, Western
+
+Wed, 02 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/the-last-stand-of-ellen-cole-combines-john-wick-yellowstone/
+
+The Western genre continues to see a resurgence in recent years with one action thriller combining John Wick and Yellowstone.
+---------
+
+# HBO’s 4-Part ‘Game of Thrones’ Spin-Off Is Still the Queen of Streaming
+
+TV News, House of the Dragon, HBO Max, Fantasy, Game Of Thrones
+
+Wed, 02 Sep 2026 02:00:21 GMT
+
+https://collider.com/hbo-house-of-the-dragon-season-3-streaming-success-september-2026/
+
+3 weeks after the Season 3 finale, HBO's hit Game of Thrones spin-off, House of the Dragon, is still ruling the streaming charts.
+---------
+
+# Ryan Murphy’s ‘American Horror Story’ Replacement Is Officially a Streaming Hit
+
+TV News, The Shards, Disney+, Horror, Ryan Murphy
+
+Wed, 02 Sep 2026 01:45:11 GMT
+
+https://collider.com/the-shards-streaming-success-disney-plus-hulu-september-2026/
+
+Disney+ and Hulu's new horror thriller is making a mark on streaming. Get all the details about the flashy drama here.
+---------
+
+# ‘Ghosts’ Meets ‘Meet the Parents’ in CBS's New Fantasy Series
+
+TV Features, Eternally Yours, Ghosts, CBS, Meet the Parents
+
+Wed, 02 Sep 2026 01:43:48 GMT
+
+https://collider.com/ghosts-meet-the-parents-replacement-fantasy-series-cbs-eternally-yours/
+
+Eternally Yours is the new vampire comedy from CBS, blending the tone of Ghosts with the family dynamics of Meet the Parents.
+---------
+
+# 15 Years Later, Gerard Butler's Gritty Action Sleeper Hit Is Taking Over Streaming
+
+Movie Features, Machine Gun Preacher, Gerard Butler, Marc Forster, Michelle Monaghan
+
+Wed, 02 Sep 2026 01:43:11 GMT
+
+https://collider.com/gerard-butler-machine-gun-preacher-action-streaming-paramount-plus-september-2026/
+
+The 2011 Gerard Butler action thriller Machine Gun Preacher failed in theaters, but it's now one of the top 10 most-streamed movies on Paramount+.
+---------
+
+# ‘Wallace & Gromit’ Officially Return With New Release Next Month
+
+Movie News, Wallace and Gromit, Lego, Aardman Animation, Wallace & Gromit: Vengeance Most Fowl
+
+Wed, 02 Sep 2026 01:30:11 GMT
+
+https://collider.com/wallace-and-gromit-lego-set-images-releaes-date-october-2026/
+
+Wallace & Gromit are officially back, with the beloved British duo returning for a brand-new release this October. Read on for more.
+---------
+
+# ‘The Hunger Games: Sunrise on the Reaping’ Officially Arrives in Theaters 2 Months Early
+
+Movie News, The Hunger Games, The Hunger Games: Sunrise on the Reaping, The Hunger Games: The Ballad of Songbirds and Snakes
+
+Wed, 02 Sep 2026 01:15:11 GMT
+
+https://collider.com/the-hunger-games-sunrise-on-the-reaping-sneak-peek-september-2026/
+
+The Hunger Games: Sunrise on the Reaping arrives in theaters early with an exclusive sneak peek accompanying the franchise’s theatrical re-release.
+---------
+
+# 26 Years Later, This Remains Christopher Nolan's Best Twist Ending
+
+Movie Features, Christopher Nolan, Jonathan Nolan, Memento, Guy Pearce
+
+Wed, 02 Sep 2026 01:12:11 GMT
+
+https://collider.com/christopher-nolan-memento-greatest-twist-ending/
+
+The twist ending of Christopher Nolan's Memento established themes around time and identity that the director would go back to throughout his career.
+---------
+
+# Netflix Officially Decides the Fate of Its ‘Always Sunny’ Replacement
+
+TV News, Netflix, Tires, Comedy, Shane Gillis
+
+Wed, 02 Sep 2026 01:00:11 GMT
+
+https://collider.com/netflix-tires-season-4-renewed/
+
+Shane Gillis' hit Netflix series Tires has officially had its fate decided after 3 seasons. Read on for all the details.
+---------
+
+# All 5 Upcoming Marvel TV Series, Ranked by Hype
+
+TV, Marvel TV, VisionQuest, X-Men '97, Daredevil: Born Again
+
+Wed, 02 Sep 2026 00:55:11 GMT
+
+https://collider.com/upcoming-marvel-shows-ranked/
+
+Find out where VisionQuest, X-Men '97 Season 3, Daredevil: Born Again Season 3, and more fall on our list of anticipated Marvel TV shows.
+---------
+
+# Pokémon Has a Serious Problem They Can’t Ignore Anymore
+
+Gaming, Pokémon, Games
+
+Wed, 02 Sep 2026 00:51:11 GMT
+
+https://collider.com/pokemon-trading-card-game-scalping-ruining-hobby/
+
+Pokémon cards have a major scalping problem, but resellers and investment culture are creating an even bigger problem for the Pokémon TCG.
+---------
+
+# 10 Modern Western Series Better Than 'Yellowstone'
+
+TV Lists, Western, Yellowstone
+
+Wed, 02 Sep 2026 02:00:24 GMT
+
+https://movieweb.com/modern-western-tv-shows-yellowstone-comparison/
+
+'Yellowstone' is one of Taylor Sheridan's most popular TV shows and stars Kevin Costner, but these other contemporary Western series are better.
+---------
+
+# 8 Ongoing HBO Shows Perfect for Binge-Watching
+
+TV Lists, HBO Max, House of the Dragon
+
+Wed, 02 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/ongoing-hbo-shows-to-binge-watch/
+
+HBO is a master at creating shows that fuel week-to-week conversations, and these ongoing series are perfect to binge before they return.
+---------
+
+# 'Star Trek' Reboot Officially Confirmed as 'Crimson Tide' Meets 'Training Day' Sci-Fi Thriller
+
+Movie News, Star Trek 4, Star Trek, Sci-Fi, Thriller
+
+Wed, 02 Sep 2026 00:12:56 GMT
+
+https://movieweb.com/star-trek-reboot-training-day-crimson-tide/
+
+Jonathan Goldstein and John Francis Daley are drawing on two Denzel Washington films for inspiration to bring in a wider audience.
+---------
+
+# Seminal Supernatural Thriller Officially Getting a Reboot for the Second Time
+
+Movie News, Pulse, Horror
+
+Tue, 01 Sep 2026 23:18:24 GMT
+
+https://movieweb.com/pulse-movie-reboot-remake/
+
+'Never After Dark' director announces that a remake of the 2001 horror film, 'Pulse,' is officially in the works.
+---------
+
+# The 24-Episode Action Fantasy Masterpiece That's Now Streaming for Free
+
+TV News, Dororo, Pluto TV, Coming/Leaving Streaming, Action, Anime
+
+Tue, 01 Sep 2026 22:30:13 GMT
+
+https://movieweb.com/dororo-action-stream-free-pluto-september-2026/
+
+Is revenge worth dooming your country for?
+---------
+
+# Forget Harlan Coben, Netflix’s Star-Studded Thriller Tells a Near-Perfect Story
+
+Features, Netflix, The Beast in Me, Thriller
+
+Tue, 01 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/the-beast-in-me-netflix-thriller-harlan-coben/
+
+Netflix has many great Harlan Coben TV adaptations, but this thriller from the streaming service is even more exciting.
+---------
+
+# 'The Batman 2's Robert Pattinson Reveals the Biggest Challenge of Returning to Gotham
+
+Movie News, The Batman Part II, Robert Pattinson
+
+Tue, 01 Sep 2026 21:59:47 GMT
+
+https://movieweb.com/robert-pattinson-batman-sequel-challenge/
+
+The many delays to 'The Batman — Part II' have made the action scenes for Robert Pattinson more difficult.
+---------
+
 # 39 Years Later, One Of The Greatest War Movies Of All Time Is Streaming Free On YouTube
 
 Movies, Masked Recs
