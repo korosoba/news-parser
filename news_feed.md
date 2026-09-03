@@ -1,3 +1,432 @@
+# 35 Years Later, A Brutally Difficult NES Game Has Returned
+
+Gaming, Nintendo, Triple-A Games
+
+Thu, 03 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/nintendo-nes-hard-game-ninja-gaiden-3-release/
+
+Even if you weren't around for the Nintendo Entertainment System (NES) era, there's an old classic that's fully back now, and it's worth checking out.
+---------
+
+# 36 Years Later, The Far Side’s Biggest Mistake Remains The Funniest Moment In Comic Strip History
+
+Comics, The Far Side
+
+Thu, 03 Sep 2026 21:59:15 GMT
+
+https://screenrant.com/the-far-side-dennis-menace-mistake-funniest-moment/
+
+Two mistaken captions turned a wholesome comic strip panel into a darkly surreal moment that even The Far Side's Gary Larson called an improvement.
+---------
+
+# Fire Country & Sheriff Country Announce 2-Hour Crossover Event As EP Teases Prison Break Storyline
+
+TV, Fire Country, Sheriff Country
+
+Thu, 03 Sep 2026 21:53:11 GMT
+
+https://screenrant.com/fire-country-sheriff-country-crossover-storyline/
+
+This fall, characters from Fire Country and Sheriff Country will be teaming up yet again, this time with a prison break twist, according to the EP.
+---------
+
+# Glen Powell's 12-Part Comedy Series Officially Switches Genres In Season 2
+
+Streaming TV, Masked Recs
+
+Thu, 03 Sep 2026 21:47:29 GMT
+
+https://screenrant.com/glen-powell-chad-powers-change-genre-season-2/
+
+Glen Powell's hit comedy series is back with season 2 on Hulu, and its new episodes feature a dark turn that changes genres for the show.
+---------
+
+# HBO Unveiled The Hard Truth About The Harry Potter TV Show In Only 2.5 Minutes
+
+Streaming TV, Harry Potter
+
+Thu, 03 Sep 2026 21:45:14 GMT
+
+https://screenrant.com/harry-potter-hbo-trailer-hard-truth-movies-special-effects/
+
+HBO has released another trailer for its upcoming Harry Potter TV remake, and despite what we might hope, the clip solidifies an unfortunate truth.
+---------
+
+# 16 Years Later, Stan Lee's Opinion On Superman Shows What Makes Marvel Such A Powerhouse
+
+Marvel Comics, Stan Lee, Superman
+
+Thu, 03 Sep 2026 21:31:14 GMT
+
+https://screenrant.com/stan-lee-superman-opinion-marvel-great/
+
+Before Spider-Man, the Avengers, the X-Men, and the Fantastic Four arrived, Stan Lee already understood how to update DC Comics' Superman formula.
+---------
+
+# Onslaught Ending Explained: Who Are The Super Soldiers And Who Survives Their Attack?
+
+Movies, Onslaught
+
+Thu, 03 Sep 2026 21:20:14 GMT
+
+https://screenrant.com/onslaught-ending-explained/
+
+Onslaught's grisly ending is a perfectly brutal one given the events of the movie, all while underscoring the movie's exploration of PTSD.
+---------
+
+# Transformers' Next Movie Should Honor Peter Cullen By Making A Difficult Optimus Prime Decision
+
+New Movies, Transformers 8, Transformers
+
+Thu, 03 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/transformers-8-peter-cullen-honor-optimus-prime-decision/
+
+The Transformers franchise needs to do the right thing to honor Optimus Prime actor Peter Cullen, but the best way to do so requires a tough decision.
+---------
+
+# Halo Officially Returns With A New Game Later This Year
+
+Gaming, Halo, Halo: Campaign Evolved, Xbox, Xbox Series X/S
+
+Thu, 03 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/halo-campaign-evolved-2026-board-game-release-date/
+
+Halo is back again in 2026 with a whole new game that fans will absolutely want to check out, especially if they loved Campaign Evolved.
+---------
+
+# Netflix Just Proved The Witcher Was Never Geralt's Show
+
+Streaming TV, The Witcher
+
+Thu, 03 Sep 2026 20:45:14 GMT
+
+https://screenrant.com/the-witcher-netflix-show-not-about-geralt/
+
+Although Netflix's The Witcher has Geralt of Rivia as its main character, the show just proved that it was never really Geralt's story.
+---------
+
+# Solo Leveling Officially Reveals New Goddess Stronger Than Jinwoo
+
+Anime, Solo Leveling
+
+Thu, 03 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/solo-leveling-karma-azarea-itarim-theory/
+
+Solo Leveling just introduced a new canonical female deity named Azarea, who may secretly be even stronger than Sung Jinwoo himself.
+---------
+
+# Robert De Niro's New Netflix Thriller Misses No. 1 Despite 23.2M Views
+
+Movies, The Whisper Man, Netflix, Innovation, Thriller
+
+Thu, 03 Sep 2026 22:01:02 GMT
+
+https://www.cbr.com/the-whisper-man-thriller-success-netflix-september-2026/
+
+De Niro's new movie is a massive success, but couldn't crack the top spot.
+---------
+
+# Days of Thunder Reboot is Top Gun Meets Fast and Furious
+
+Movies, Days of Thunder 2
+
+Thu, 03 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/days-of-thunder-rebbot-top-gun-meets-fast-and-furious/
+
+Tom Cruise and Anne Hathaway are bringing back a cult classic with a legacy sequel that will combine two of the biggest action franchises.
+---------
+
+# Buffy The Vampire Slayer and Gargoyles' Spiritual Sequel Is Finally Here
+
+Comics, Buffy The Vampire Slayer, Gargoyles
+
+Thu, 03 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/dragonproof-ahoy-kickstarter-buffy-gargoyles-successor/
+
+This brand new story expertly captures the best of Gargoyles and Buffy, the Vampire Slayer into one unforgettable package.
+---------
+
+# PlayStation’s New Gaming Monitor Already Looks Essential
+
+Games, PlayStation (Original)
+
+Thu, 03 Sep 2026 21:50:11 GMT
+
+https://www.cbr.com/playstation-gaming-monitor-review/
+
+PlayStation officially came out with a monitor, and while desktop users might not vibe with it, it's fantastic for console players.
+---------
+
+# 10 Greatest Moments from the Top Gun Franchise
+
+Movies, Top Gun: Maverick
+
+Thu, 03 Sep 2026 21:31:11 GMT
+
+https://www.cbr.com/best-moments-in-top-gun-franchise-list/
+
+In 1986, Tony Scott and Tom Cruise soared to success with the release of Top Gun, spawning a franchise packed full of iconic pop culture moments.
+---------
+
+# Chris Pine’s Dungeons & Dragons Sequel’s Fate at Paramount Officially Confirmed After 3 Years
+
+Movies, Dungeons & Dragons: Honor Among Thieves
+
+Thu, 03 Sep 2026 21:29:22 GMT
+
+https://www.cbr.com/dungeons-dragons-honor-among-thieves-sequel-fate-paramount/
+
+The status of the planned sequel has been revealed.
+---------
+
+# Gal Gadot Reveals 1 Condition for DC Return After Messy Wonder Woman 3 Exit
+
+Movies, Wonder Woman, Justice League, DCU
+
+Thu, 03 Sep 2026 21:22:21 GMT
+
+https://www.cbr.com/gal-gadot-wonder-woman-return-zack-snyder/
+
+The DCEU's Wonder Woman reveals she's game to make Justice League 2 and 3 on one condition.
+---------
+
+# Ocarina of Time Isn't the Best Zelda Game of All Time (It Isn't Even 2nd)
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Thu, 03 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/ocarina-of-time-isnt-best-zelda-game-of-all-time/
+
+The Legend of Zelda: Ocarina of Time is an incredible game, but there are entries within its own series that challenge the Hero of Time's crown.
+---------
+
+# It's Official: Solo Leveling Is Crunchyroll's Biggest Anime of All Time
+
+Anime, Solo Leveling
+
+Thu, 03 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/solo-leveling-crunchyroll-million-rating-record-biggest-anime/
+
+Solo Leveling has officially snatched the crown from Crunchyroll anime like One Piece and Jujutsu Kaisen.
+---------
+
+# Every Movie in Sergio Leone's Once Upon a Time Trilogy, Ranked
+
+Movie, Once Upon a Time in the West, Once Upon a Time in America, Duck, You Sucker, Sergio Leone
+
+Thu, 03 Sep 2026 22:08:11 GMT
+
+https://collider.com/sergio-leone-once-upon-a-time-trilogy-movies-ranked/
+
+After directing the Dollars trilogy, Sergio Leone's final three movies ended up part of a Once Upon a Time trilogy, but which of them is the best?
+---------
+
+# Gal Gadot Officially Explains Why the Final 'Fast & Furious' Movie Is Taking So Long
+
+Exclusives, The Runner, Fast & Furious, Gal Gadot, Prime Video
+
+Thu, 03 Sep 2026 21:58:57 GMT
+
+https://collider.com/fast-and-furious-11-gal-gadot-the-runner-interview/
+
+Gal Gadot discusses her new Prime Video thriller The Runner, her next project with Doug Liman, and the future of the Fast & Furious franchise.
+---------
+
+# The 6 Best Books Released Since 2000
+
+Books and Comics, Books, Cormac McCarthy, Sci-Fi, Drama
+
+Thu, 03 Sep 2026 21:45:11 GMT
+
+https://collider.com/best-books-since-2000-ranked/
+
+From The Road to Never Let Me Go, these modern classics pair unforgettable characters with stories that stay with you.
+---------
+
+# After 'Coyote vs. Acme,' This 26-Episode Post-Apocalyptic Sci-Fi Series Is a 10/10 Binge
+
+TV Features, Coyote Vs. Acme, Loonatics Unleashed, Looney Tunes
+
+Thu, 03 Sep 2026 21:27:11 GMT
+
+https://collider.com/loonatics-unleashed-coyote-vs-acme-post-apocalyptic-sci-fi/
+
+Loonatics Unleashed delivers a bold reimagining of Looney Tunes in a quirky, post-apocalyptic animated series.
+---------
+
+# 2 Years Later, Prime Video’s Most Disturbing Masterpiece Is Unlike Anything Else on TV
+
+TV Features, Them, Prime Video, Horror, Thriller
+
+Thu, 03 Sep 2026 21:25:41 GMT
+
+https://collider.com/prime-video-horror-series-them-the-scare/
+
+Prime Video’s Them: The Scare remains one of television’s boldest horror anthologies, blending supernatural terror with disturbing real-world fears.
+---------
+
+# The 10 Best-Selling Fiction Books of All Time, Ranked
+
+Books and Comics, Books, The Lord of the Rings, Harry Potter, Agatha Christie
+
+Thu, 03 Sep 2026 21:19:11 GMT
+
+https://collider.com/best-selling-fiction-books-all-time-ranked/
+
+The Hobbit, Harry Potter and the Philosopher's Stone, and Alice's Adventures in Wonderland are all among the best-selling fiction books of all time.
+---------
+
+# 5 Superhero Movie Sequels of the 2000s That Surpassed the Originals
+
+Movie, The Dark Knight, Spider-Man 2, X2: X-Men United, Hellboy II: The Golden Army
+
+Thu, 03 Sep 2026 21:09:11 GMT
+
+https://collider.com/superhero-movie-sequels-2000s-better-than-originals/
+
+There were a few superhero sequels from the 2000s that improved upon the original movies, including X2, Hellboy II: The Golden Army, and Spider-Man 2.
+---------
+
+# The 10 Greatest Classic American Sci-Fi Movies, Ranked
+
+Movie, Sci-Fi, Bride of Frankenstein, The Day The Earth Stood Still, Village of the Damned
+
+Thu, 03 Sep 2026 20:57:11 GMT
+
+https://collider.com/best-classic-american-sci-fi-movies-ranked/
+
+Village of the Damned, Bride of Frankenstein, and Forbidden Planet are all among the very best classic American science fiction movies.
+---------
+
+# Join Peacock and Collider For an Epic Night of Screams with 'Crystal Lake' and Halloween Horror Nights
+
+Exclusives, Crystal Lake, Screening, Linda Cardellini, Universal Studios Halloween Horror Nights
+
+Thu, 03 Sep 2026 20:56:19 GMT
+
+https://collider.com/crystal-lake-peacock-screening-halloween-horror-nights/
+
+Details on how to enter for your chance to win free tickets to our early screening of Crystal Lake and Q&amp;A, plus tickets to Halloween Horror Nights!
+---------
+
+# 10 Classic Rock Songs That Have Aged Like Milk
+
+Music Features, Led Zeppelin, The Beatles, Jimi Hendrix, Music, Rock
+
+Thu, 03 Sep 2026 20:54:24 GMT
+
+https://collider.com/classic-rock-songs-aged-like-milk/
+
+Not every classic rock song has stood the test of time, and The Beatles, The Kinks, The Rolling Stones and Led Zeppelin all have songs that haven’t ag
+---------
+
+# Matt Damon Is a 'Power Ranger'-Esque Hero In First Look at Upcoming Action Sci-Fi Blockbuster
+
+Movie News, Matt Damon, Action
+
+Thu, 03 Sep 2026 22:22:13 GMT
+
+https://movieweb.com/matt-damon-first-look-costume-daniels-set-photos/
+
+A new look at the highly anticipated project has provided some clues about the film's story.
+---------
+
+# 8 Masterpiece Sci-Fi Movies With 10/10 Action That Are Free To Stream
+
+Movie Lists, Sci-Fi, Action
+
+Thu, 03 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/sci-fi-action-masterpieces-free-stream/
+
+You don't need to pay for a subscription to watch the best sci-fi action movies; these seven masterpieces are free to stream.
+---------
+
+# The 48-Episode Historical Action Masterpiece That's Now Streaming for Free
+
+TV News, Vinland Saga, Pluto TV, Hot on Streaming, Action, Anime
+
+Thu, 03 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/vinland-saga-stream-free-pluto-sept-2026/
+
+Forget 'Gladiator,' the greatest historical action epic is now streaming for free.
+---------
+
+# 'Dungeons & Dragons 2' Finally Gets Promising Update After Original Studio Scrapped Plans
+
+Movie News, Dungeons & Dragons: Honor Among Thieves, Fantasy
+
+Thu, 03 Sep 2026 21:25:57 GMT
+
+https://movieweb.com/dungeons-and-dragons-sequel-update/
+
+Although Paramount Pictures passed on the project, Jonathan Goldstein and Jon Francis Daley are seeking a new studio to produce the sequel.
+---------
+
+# The 10 Greatest Martial Arts Movies of the 21st Century, Ranked
+
+Movie Lists, Martial Arts, Action, Thriller
+
+Thu, 03 Sep 2026 21:01:13 GMT
+
+https://movieweb.com/greatest-martial-arts-movies-21st-century-ranked/
+
+From genre legends to new action icons, these are the best martial arts movies released from 2001 to the present day.
+---------
+
+# 'Obsession' Star Inde Navarrette Leads New 'Waffle House' Sci-Fi Thriller for Apple
+
+Movie News, Obsession
+
+Thu, 03 Sep 2026 20:33:48 GMT
+
+https://movieweb.com/obsession-inde-navarrette-waffle-house-index/
+
+Between 'X-Men' and now 'The Waffle House Index', Navarette has picked her follow-up projects to the breakout hit, 'Obsession.'
+---------
+
+# 8 Great Action Thriller Series To Watch While Waiting For 'Marshals'
+
+TV Lists, Action, Thriller, Marshals, Lioness, Reacher, Taylor Sheridan
+
+Thu, 03 Sep 2026 20:31:13 GMT
+
+https://movieweb.com/action-thriller-shows-before-marshals-season-2/
+
+'Marshals' Season 2 will premiere in October 2026, and while waiting for the Taylor Sheridan show, viewers should watch these action thrillers.
+---------
+
+# Prime Video's 103-Minute "Rambo Meets Batman" Action Thriller Remains a Global Streaming Hit
+
+Movie News, Action, Hot on Streaming, Prime Video
+
+Thu, 03 Sep 2026 20:31:13 GMT
+
+https://movieweb.com/vengeance-action-prime-video-streaming-hit-september-2026/
+
+Rambo meets Batman in Prime Video's hit action thriller out of Mexico that's been on a streaming roll this summer.
+---------
+
+# Sydney Sweeney's "Transformers Meets Star Wars" Blockbuster Could Revive a Whole Sci-Fi Franchise
+
+Features, Gundam, Sydney Sweeney, Sci-Fi
+
+Thu, 03 Sep 2026 20:01:13 GMT
+
+https://movieweb.com/sydney-sweeney-gundam-movie-revive-franchise/
+
+The upcoming sci-fi movie could revive a classic franchise and introduce it to a new generation. It's exactly the sort of thing that the IP needs.
+---------
+
 # 10 Movies To Watch If You Can't Wait For Godzilla Minus Zero
 
 Movies, Godzilla Minus Zero, The End of Oak Street, Love and Monsters, Reign of Fire, Pacific Rim, Cloverfield, Jurassic World, Rampage, War of The Worlds, Tremors, Troll Hunter
