@@ -1,3 +1,443 @@
+# 10 Movies To Watch If You Can't Wait For Godzilla Minus Zero
+
+Movies, Godzilla Minus Zero, The End of Oak Street, Love and Monsters, Reign of Fire, Pacific Rim, Cloverfield, Jurassic World, Rampage, War of The Worlds, Tremors, Troll Hunter
+
+Thu, 03 Sep 2026 19:55:14 GMT
+
+https://screenrant.com/godzilla-minus-zero-movies-watch-before/
+
+Fans of Godzilla Minus One are eagerly awaiting Godzilla Minus Zero, and here are some titles outside the franchise still worth your time.
+---------
+
+# One Of The Best Sci-Fi Movies Of All Time Has Arrived On Netflix & It's A Must-Watch
+
+Movies, Masked Recs
+
+Thu, 03 Sep 2026 19:54:17 GMT
+
+https://screenrant.com/about-time-netflix-release-september-2026-must-watch/
+
+One of the best sci-fi movies of all time is now streaming on Netflix, and this impactful genre release is a must-watch for subscribers.
+---------
+
+# New The Last Of Us Games Officially Confirmed
+
+Gaming, The Last of Us, The Last of Us Part 2, The Last of Us 3
+
+Thu, 03 Sep 2026 19:50:43 GMT
+
+https://screenrant.com/the-last-of-us-new-games-officially-confirmed/
+
+The Last of Us' future was looking a bit dry and spacious for a while there, but we now have official confirmation that it will be quite bright.
+---------
+
+# Two And A Half Men Ending Explained: Charlie's Return & The Final Scene Explained
+
+Classic TV, Two and a Half Men
+
+Thu, 03 Sep 2026 19:46:33 GMT
+
+https://screenrant.com/two-and-a-half-men-series-finale-explained/
+
+Charlie Harper's return in the finale of Two and a Half Men made for one of the most memorable TV endings of all time, for better or for worse.
+---------
+
+# All Of Gibbs' Rules In NCIS (& What They Mean)
+
+Network TV, NCIS
+
+Thu, 03 Sep 2026 19:30:15 GMT
+
+https://screenrant.com/all-of-gibbs-rules-in-ncis-what-they-mean/
+
+Leroy Jethro Gibbs lives by a code of rules in NCIS, guiding him and his team through complex and challenging situations throughout the CBS series.
+---------
+
+# SWAT Sequel Hints At Dark Hondo Twist After 20 Squad's Happy Ending
+
+Network TV, S.W.A.T., S.W.A.T. Exiles
+
+Thu, 03 Sep 2026 19:30:14 GMT
+
+https://screenrant.com/swat-exiles-hondo-twist-death-hint/
+
+There's going to be a dark turn during the first season of SWAT's spinoff, SWAT Exiles, as confirmed by the newly released series trailer.
+---------
+
+# Marvel Reveals Extreme Juggernaut Redesign For New Appearance
+
+Marvel Comics, Juggernaut, X-Men
+
+Thu, 03 Sep 2026 19:23:38 GMT
+
+https://screenrant.com/marvel-mangaverse-juggernaut-redesign/
+
+Juggernaut receives a breathtaking supernatural mecha redesign in Marvel's new universe, where he fights an equally powerful X-Men hero.
+---------
+
+# Alien: Earth Needs To Switch Main Characters In Season 2
+
+Streaming TV, Alien: Earth
+
+Thu, 03 Sep 2026 19:02:14 GMT
+
+https://screenrant.com/alien-earth-switch-main-characters-season-2/
+
+Wendy served as the main protagonist throughout Alien: Earth's debut season, but a different figure should come to the fore in season 2.
+---------
+
+# Zelda: Ocarina Of Time Remake Cryptic Teaser Confuses Fans
+
+Gaming, The Legend of Zelda: Ocarina of Time, Nintendo, Nintendo Direct, Nintendo Switch 2
+
+Thu, 03 Sep 2026 19:01:15 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-cryptic-teaser/
+
+The Legend of Zelda: Ocarina of Time remake ramps up mystery with cryptic X posts and fan theories about level design and release dates ignite.
+---------
+
+# Epic Fire Lord Ozai Battle Teased In First Look At Netflix’s Avatar: The Last Airbender Season 3
+
+TV, Avatar: The Last Airbender
+
+Thu, 03 Sep 2026 18:58:17 GMT
+
+https://screenrant.com/avatar-last-airbender-netflix-season-3-first-look-ozai-battle/
+
+With an intriguing new image, Netflix teases a major battle coming up in the final season of Avatar: The Last Airbender, which premieres in 2027.
+---------
+
+# NCIS Finally Paves the Way for Its Leon Vance Replacement After a 4-Year Wait
+
+TV, NCIS, CBS
+
+Thu, 03 Sep 2026 19:49:59 GMT
+
+https://www.cbr.com/ncis-season-24-casting-changes-kayla-vance/
+
+CBS has already confirmed the perfect replacement for Director Leon Vance in NCIS Season 24 after Rocky Carroll's shocking exit from the flagship.
+---------
+
+# Disney+’s Best Fantasy Show Expands With New Series in the Same Universe
+
+TV, Percy Jackson & The Olympians, Disney+, Adventure
+
+Thu, 03 Sep 2026 19:47:37 GMT
+
+https://www.cbr.com/kane-chronicles-tv-show-rick-riordan/
+
+Disney+ is looking to double down on its big fantasy hit, and the original author is involved.
+---------
+
+# Paramount Just Confirmed the Next Star Trek Saga And It Changes Everything
+
+Movies, Star Trek, Sci-Fi, Adventure
+
+Thu, 03 Sep 2026 19:32:04 GMT
+
+https://www.cbr.com/paramount-star-trek-movie-reboot-new-saga-time-jump/
+
+The upcoming Star Trek reboot will officially take the franchise where no one has gone before.
+---------
+
+# Hulu's Gritty New Serial Killer Thriller Nearly Doubles Its Audience After Season 1 Finale
+
+TV, Furious
+
+Thu, 03 Sep 2026 19:31:27 GMT
+
+https://www.cbr.com/hulu-furious-viewership-surge-after-finale/
+
+The series also still holds a near-perfect 98% score on Rotten Tomatoes.
+---------
+
+# Iconic CBS Series With More Than 6,000 Episodes Returns for Special Event in September
+
+TV, Judge Judy, CBS, Reality
+
+Thu, 03 Sep 2026 19:30:59 GMT
+
+https://www.cbr.com/judge-judy-cbs-anniversary-special/
+
+Judge Judy is celebrating its 30th anniversary with a special event on CBS that will include home videos, interviews, and more.
+---------
+
+# New 10-Part Avatar: The Last Airbender Series Finally Gives Momo His Own Episode
+
+Anime, Avatar: The Last Airbender
+
+Thu, 03 Sep 2026 19:20:11 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-chibi-minis-momo-alone-new-episode-release/
+
+The latest episode of a wildly underrated Avatar: The Last Airbender series just gave Momo his very own episode, and it is perfect.
+---------
+
+# God of War’s New Kratos Reveals Physical Transformation 1 Month After Replacing Original Star
+
+TV, God of War
+
+Thu, 03 Sep 2026 19:15:57 GMT
+
+https://www.cbr.com/dave-bautista-playing-kratos-god-of-war-tv-series-physical-transformation/
+
+Dave Bautista is back in the gym and getting into godly shape for his Kratos role.
+---------
+
+# 10 Greatest PS3 RPGs of All Time, Ranked
+
+Games, Mass Effect, Borderlands, Final Fantasy, PlayStation (Original)
+
+Thu, 03 Sep 2026 19:15:11 GMT
+
+https://www.cbr.com/greatest-ps3-rpgs-of-all-time-ranked/
+
+The PS3 era contains some of the biggest RPG experiences in the history of gaming, but these ten titles stand above head and shoulders above the rest.
+---------
+
+# Star Trek's Coldest Geordi La Forge Line Is Still Untouchable 37 Years Later
+
+TV, Star Trek: The Next Generation, Star Trek, Sci-Fi
+
+Thu, 03 Sep 2026 19:13:45 GMT
+
+https://www.cbr.com/star-trek-the-next-generation-geordi-la-forge-the-enemy-quote/
+
+Star Trek: The Next Generation's Geordi La Forge is an all-time TV legend, and one line from "The Enemy" absolutely cements that fact.
+---------
+
+# After 14 Years, Star Wars Is Finally Pulling the Plug on Ahsoka's Jedi Status
+
+TV, Star Wars, Ahsoka, Sci-Fi
+
+Thu, 03 Sep 2026 19:01:01 GMT
+
+https://www.cbr.com/is-ahsoka-a-jedi-season-2-status-confirmed/
+
+Disney+ will officially answer the question about Ahsoka Tano's Jedi status in Season 2 after nearly 15 years of debates among Star Wars fans.
+---------
+
+# The 10 Greatest Series With 12 Episodes or Less
+
+TV, WandaVision, Band of Brothers, Chernobyl, Fleabag
+
+Thu, 03 Sep 2026 19:52:11 GMT
+
+https://collider.com/best-series-12-episodes-or-less-streaming/
+
+From Fleabag to WandaVision, Band of Brothers to Chernobyl, these series with 12 episodes or fewer are perfect for a quick binge.
+---------
+
+# New 'Percy Jackson' Replacement Officially in the Works at Disney+
+
+TV News, Disney+, Percy Jackson & the Olympians, Percy Jackson & The Olympians, Fantasy
+
+Thu, 03 Sep 2026 19:34:38 GMT
+
+https://collider.com/percy-jackson-creator-rick-riordan-the-kane-chronicles-series-disney-plus/
+
+Ahead of Percy Jackson Season 3, Rick Riordan's other fantasy franchise is officially getting the live-action series treatment at Disney.
+---------
+
+# The 10 Most Nostalgic PS1 Games To Play in 2026
+
+Gaming, PlayStation (Original), Video Game, Final Fantasy, Crash Bandicoot
+
+Thu, 03 Sep 2026 19:33:11 GMT
+
+https://collider.com/playstation-1-games-most-nostalgic-2026/
+
+The original PlayStation had many exceptional titles with special nostalgic value today, including Tekken 3, Final Fantasy VII, and Crash Team Racing.
+---------
+
+# ABC’s Best Sitcom Officially Gets a ’70s Makeover Ahead of Season 6 [Exclusive]
+
+TV News, Abbott Elementary, Schoolhouse Rock!, ABC, Animation
+
+Thu, 03 Sep 2026 19:30:11 GMT
+
+https://collider.com/abbott-elementary-season-6-schoolhouse-rock-animated-teaser/
+
+Watch an exclusive Abbott Elementary Season 6 animated teaser, which pays homage to Schoolhouse Rock! ahead of the ABC sitcom's October 7 return.
+---------
+
+# The X-Men Officially Return in New 'Avengers: Doomsday' Release
+
+Movie News, Avengers: Doomsday, James Marsden, X-Men, MCU
+
+Thu, 03 Sep 2026 19:08:23 GMT
+
+https://collider.com/avengers-doomsday-x-men-cyclops-magneto-figures-images/
+
+Marvel has revealed a brand-new look at Cyclops, Magneto, and more ahead of the characters' anticipated return in Avengers: Doomsday.
+---------
+
+# Gal Gadot's 'Taken' Replacement Is Officially One of 2026's Worst Films
+
+Movie News, Gal Gadot, Die Hard, The Runner, Rotten Tomatoes
+
+Thu, 03 Sep 2026 19:01:11 GMT
+
+https://collider.com/the-runner-gal-gadot-rotten-tomatoes-score-prime-video/
+
+Gal Gadot’s new Prime Video action thriller The Runner has debuted with one of 2026’s worst Rotten Tomatoes scores.
+---------
+
+# 'Heated Rivalry' Season 2 Officially Casts a Sci-Fi Icon
+
+TV News, Heated Rivalry, HBO Max, Milla Jovovich, Hudson Williams
+
+Thu, 03 Sep 2026 18:51:21 GMT
+
+https://collider.com/heated-rivalry-season-2-cast-milla-jovovich/
+
+Milla Jovovich, star of The Fifth Element and the Resident Evil franchise, has officially joined the cast of Heated Rivalry Season 2.
+---------
+
+# Rebecca Ferguson Officially Leaves Sci-Fi Behind for New Rom-Com
+
+Movie News, Rebecca Ferguson, Greta Lee, Nahnatchka Khan, Romance
+
+Thu, 03 Sep 2026 18:26:54 GMT
+
+https://collider.com/rebecca-ferguson-greta-lee-rom-com-honeymoon-funeral/
+
+Rebecca Ferguson and Greta Lee are officially set to star in a brand-new rom-com, which is filming now in London. Read on for more.
+---------
+
+# Adults S2: The Season Opener Became a Shadow Puzzle | Collider BTS
+
+TV, Adults
+
+Thu, 03 Sep 2026 18:15:11 GMT
+
+https://collider.com/video/adults-s2-the-season-opener-became-a-shadow-puzzle-collider-bts/
+
+Cinematographer Christine Ng breaks down how careful blocking, natural lighting, handheld camerawork, and collaboration help FX’s Adults feel spontaneous without sacrificing visual precision.
+---------
+
+# 8 Shows To Watch Now That 'Outer Banks' Is Over
+
+TV, Outer Banks, Sterling Point, Stranger Things, Teenage Bounty Hunters
+
+Thu, 03 Sep 2026 18:09:11 GMT
+
+https://collider.com/shows-like-outer-banks/
+
+Now that the Netflix series Outer Banks has come to a close, it's officially time to check out shows like Sterling Point and Teenage Bounty Hunters.
+---------
+
+# Disney Officially Developing ‘Percy Jackson’ Spin-Off Based on Best-Selling Fantasy Trilogy
+
+TV News, Percy Jackson & the Olympians, Adventure, Action, Fantasy, Sci-Fi
+
+Thu, 03 Sep 2026 19:33:57 GMT
+
+https://movieweb.com/percy-jackson-kane-chronicles-spin-off-confirmed/
+
+Disney is adding another chapter to the 'Percy Jackson' franchise, courtesy of a new spin-off that is currently in development.
+---------
+
+# Alan Ritchson's 94-Minute Action Movie With a Sci-Fi Twist Is a Global Streaming Smash Hit
+
+Movie News, Alan Ritchson, Playdate, Hot on Streaming
+
+Thu, 03 Sep 2026 19:30:13 GMT
+
+https://movieweb.com/playdate-alan-ritchson-prime-video-amazon-september-2026/
+
+This is one big twist you definitely won't see coming.
+---------
+
+# Mark Wahlberg's New Action Revenge Thriller Divides Critics on Rotten Tomatoes
+
+Movie News, By Any Means, Yahya Abdul-Mateen II, Mark Wahlberg, Action, Thriller
+
+Thu, 03 Sep 2026 19:05:39 GMT
+
+https://movieweb.com/by-any-means-mark-wahlberg-rotten-tomatoes-score/
+
+'By Any Means' is already dividing audiences before it even hits theaters.
+---------
+
+# Ryan Reynolds Returns With 111-Minute Streaming Action Movie That Flips ‘Top Gun’ Upside Down
+
+Features, Ryan Reynolds, Action, Comedy, Upcoming Tease
+
+Thu, 03 Sep 2026 19:00:13 GMT
+
+https://movieweb.com/mayday-ryan-reynolds-action-apple-tv/
+
+Ryan Reynolds, known for 'Deadpool' and 'Green Lantern' is starring in a new action movie that is being released soon.
+---------
+
+# 'The Odyssey' Officially Extends Its IMAX Run Even Further After Breaking Box Office Records
+
+Movie News, The Odyssey, IMAX
+
+Thu, 03 Sep 2026 18:51:15 GMT
+
+https://movieweb.com/the-odyssey-imax-release-extended-september/
+
+'The Odyssey' will continue to screen in 70mm IMAX until Sept. 30.
+---------
+
+# 'S.W.A.T. Exiles' Trailer Continues Shemar Moore's Action Thriller Saga in New Spin-off
+
+TV News, S.W.A.T. Exiles, Action, Thriller
+
+Thu, 03 Sep 2026 18:34:57 GMT
+
+https://movieweb.com/swat-exiles-trailer-shemar-moore/
+
+Shemar Moore's Hondo is a different beast in the 'S.W.A.T. Exiles' new trailer.
+---------
+
+# The Real Reason HBO's 'Harry Potter' Reboot Looks So Much Like the Original Movies
+
+Features, Harry Potter, Fantasy
+
+Thu, 03 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/harry-potter-hbo-looks-like-movies/
+
+The 'Harry Potter' books are being adapted again, this time for the small screen. The faithful approach is raising eyebrows. Read on for more.
+---------
+
+# Prime Video Scores Big With Dave Bautista's 122-Minute Action Smash Hit
+
+Movie News, The Wrecking Crew, Prime Video, Hot on Streaming, Action
+
+Thu, 03 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/the-wrecking-crew-action-streaming-success-prime-sept-2026/
+
+Two action icons collide in this global streaming hit.
+---------
+
+# Netflix Officially Adapting ‘Dungeons & Dragons’ in New Live-Action Series Based on Iconic Setting
+
+TV News, Dungeons and Dragons, Fantasy
+
+Thu, 03 Sep 2026 17:33:33 GMT
+
+https://movieweb.com/netflix-dungeons-and-dragons-ravenloft-series/
+
+Alfonso Cuarón and John August are developing 'Raveloft,' a gothic fantasy series for Netflix.
+---------
+
+# James Corden Officially Joining Netflix's New 9/10 Mystery Thriller for Season 2
+
+TV News, James Corden, Dept. Q, Netflix
+
+Thu, 03 Sep 2026 17:26:58 GMT
+
+https://movieweb.com/james-corden-netflix-dept-q-season-2/
+
+James Corden takes on his first serious role in a drama series in 'Dept. Q's second season.
+---------
+
 # 5 Best Self Help & Personal Development Books Of All Time
 
 Books
