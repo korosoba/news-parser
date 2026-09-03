@@ -1,3 +1,344 @@
+# Star Trek: Voyager Officially Returns December 2026
+
+Gaming
+
+Thu, 03 Sep 2026 04:30:14 GMT
+
+https://screenrant.com/star-trek-voyager-expansion-pass-details/
+
+The iconic and beloved Star Trek: Voyager is making an official return this December thanks to a brand-new release for longtime fans.
+---------
+
+# Game Of Thrones: The Red Woman Officially Announced
+
+Gaming, Game of Thrones, Game of Thrones: Legends, Game Of Thrones, PC
+
+Thu, 03 Sep 2026 04:00:19 GMT
+
+https://screenrant.com/game-of-thrones-legends-melisandre-the-red-woman-announcement/
+
+The night is dark and full of terrors thanks to Melisandre's official return in Game of Thrones: The Red Woman, a brand-new release.
+---------
+
+# Ryan Reynolds Wants To Cameo In HBO Max’s Hit DC Series 15 Years After Green Lantern
+
+TV, Lanterns
+
+Thu, 03 Sep 2026 03:14:48 GMT
+
+https://screenrant.com/ryan-reynolds-lanterns-cameo-potential/
+
+Ryan Reynolds wants to return to the Green Lantern universe with a cameo in HBO’s new series, 15 years after starring as Hal Jordan.
+---------
+
+# LEGO’s New Batman Set Brings An Iconic Michael Keaton Era Design To Life
+
+Movies, Batman Returns
+
+Thu, 03 Sep 2026 03:08:31 GMT
+
+https://screenrant.com/batman-returns-michael-keaton-lego-set/
+
+LEGO has a brand-new set that recreates one of the most iconic elements from Michael Keaton's hit superhero film, Batman Returns.
+---------
+
+# The Blood Of Dawnwalker: Should You Use Or Destroy The Font Of Life?
+
+Gaming, The Blood of Dawnwalker, PC
+
+Thu, 03 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/blood-of-dawnwalker-use-destroy-font-of-life-choice/
+
+When you reach The Font with Anca in The Blood of Dawnwalker, you'll have to decide for yourself what to do, and the best choice may not be clear.
+---------
+
+# 4 Years Later, Marvel Studios’ X-Men Reboot Can’t Ignore Their Biggest Piece Of MCU Setup
+
+Superheroes, X-Men, Marvel Cinematic Universe
+
+Thu, 03 Sep 2026 02:30:15 GMT
+
+https://screenrant.com/marvel-studios-x-men-reboot-needs-animated-theme-song-mcu/
+
+As Marvel Studios prepares to debut a brand-new MCU X-Men cast, I'm really hoping they include one of their biggest teases from four years ago.
+---------
+
+# DC Debuts New Teen Titans Roster, All Members And Powers
+
+DC Comics, Teen Titans
+
+Thu, 03 Sep 2026 02:00:25 GMT
+
+https://screenrant.com/new-teen-titans-roster-red-hood/
+
+DC's classic Teen Titans team is officially replaced by a completely new generation of heroes, led by a familiar member of the Bat-Family.
+---------
+
+# The Blood Of Dawnwalker: Should You Kill Ambrus Or Drain His Blood?
+
+Gaming, The Blood of Dawnwalker, PC
+
+Thu, 03 Sep 2026 02:00:25 GMT
+
+https://screenrant.com/blood-of-dawnwalker-ambrus-kill-or-drain-guide/
+
+Ambrus is one of the three key members of Brencis' Court in The Blood of Dawnwalker, and Coen will have to either drink his blood or simply kill him.
+---------
+
+# Star Wars' Kylo Ren Replacement Got The Ending Ben Solo Deserved
+
+Streaming TV, Star Wars
+
+Thu, 03 Sep 2026 01:30:14 GMT
+
+https://screenrant.com/star-wars-nawaam-villain-ending-kylo-ren/
+
+Ben Solo's story still feels unfinished after his sacrificial death in The Rise of Skywalker, and one Star Wars character perfectly demonstrates why.
+---------
+
+# NCIS: Origins Showrunner Explains Why Fan Favorite Star Is Returning For Season 3
+
+TV, NCIS: Origins
+
+Thu, 03 Sep 2026 01:21:30 GMT
+
+https://screenrant.com/ncis-origins-mark-harmon-gibbs-return/
+
+NCIS: Origins showrunner David J. North explained why the prequel is bringing back one of the franchise's most popular characters for season 3.
+---------
+
+# The Shards Star Unpacks the ‘Bowie Energy’ and Other ’80s References in Ryan Murphy’s Series
+
+CBR Exclusives, The Shards
+
+Thu, 03 Sep 2026 04:05:37 GMT
+
+https://www.cbr.com/the-shards-jordan-roth-bowie-80s-references/
+
+Jordan Roth explains how David Sylvian, Andy Warhol, and New Wave fashion shaped Steven Reinhardt in FX’s The Shards.
+---------
+
+# All 6 Seasons of TNT's Forgotten Police Procedural Spinoff Arrive on Netflix
+
+TV, Major Crimes, The Closer
+
+Thu, 03 Sep 2026 03:56:06 GMT
+
+https://www.cbr.com/major-crimes-streaming-netflix-september-2026/
+
+The spinoff joins its seven-season parent series on Netflix.
+---------
+
+# Lioness Star Confirms She Got Nicole Kidman on TikTok
+
+TV, Lioness, Paramount Plus
+
+Thu, 03 Sep 2026 03:46:15 GMT
+
+https://www.cbr.com/nicole-kidman-tiktok-lioness-costar/
+
+Lioness star Laysla De Oliveira explains how Nicole Kidman ended up in her TikToks and why she started posting from set.
+---------
+
+# 10 Hardest RPGs of All Time, Ranked
+
+Games, Role Playing Game
+
+Thu, 03 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/hardest-rpgs-of-all-time-ranked-list/
+
+RPGs like Final Fantasy Tactics are known for their difficulty.
+---------
+
+# The 10-Episode Stephen King Horror Show on HBO With the Only Monster Scarier Than Pennywise
+
+TV, The Outsider, Stephen King, Horror
+
+Thu, 03 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/the-outsider-scarier-stephen-king-monster-than-pennywise/
+
+Pennywise feeds on children's fear, but as it turns out, Stephen King came up with something far more disturbing in this underrated horror series.
+---------
+
+# 10 Most Confusing The Far Side Comics That Fans Still Debate, Ranked
+
+Comics, The Far Side
+
+Thu, 03 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/most-confusing-the-far-side-comic-strips/
+
+The Far Side by Gary Larson was always funny, but at times, it was also quite confusing, which led to some befuddled fans and newspaper readers.
+---------
+
+# The Big Bang Theory Actor Recalls Scrapped Sheldon Episode: 'It Wasn't Good'
+
+TV, The Big Bang Theory
+
+Thu, 03 Sep 2026 03:21:38 GMT
+
+https://www.cbr.com/the-big-bang-theory-actor-zack-cut-episode/
+
+It might have been for the best that the storyline was scrapped at the last minute due to an injury.
+---------
+
+# 5 Classic Toonami Anime That Are Unwatchable Today
+
+Anime, toonami, Innovation
+
+Thu, 03 Sep 2026 03:15:12 GMT
+
+https://www.cbr.com/unwatchable-classic-toonami-anime-list/
+
+Not every anime can be Dragon Ball Z, and some classic Toonami series haven't stood the test of time.
+---------
+
+# Gundam Wing Transforms Its Most Iconic Mecha With a Traditional Japanese Redesign
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam Wing, merchandise, toys, bandai
+
+Thu, 03 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/gundam-wing-ukiyo-e-entry-grade-gunpla-bandai-release/
+
+One of the most iconic Mobile Suit Gundam designs of all time is embracing the Japanese Edo period through an artistic new Entry Grade model kit.
+---------
+
+# 5 Superhero Anime No One Remembers
+
+Anime
+
+Thu, 03 Sep 2026 03:00:11 GMT
+
+https://www.cbr.com/superhero-anime-no-one-remembers-list/
+
+Some of the best superhero anime, like Heroman, are ignored in favor of series like My Hero Academia.
+---------
+
+# Forget 'Days of Thunder 2,' This Tom Cruise Classic Deserves a Legacy Sequel
+
+Movie Features, Tom Cruise, Days of Thunder, The Color of Money, Martin Scorsese
+
+Thu, 03 Sep 2026 04:07:11 GMT
+
+https://collider.com/tom-cruise-days-of-thunder-2-color-of-money-legacy-sequel/
+
+Days of Thunder is the next '80s Tom Cruise hit to get the sequel treatment, but he should revisit The Color of Money, which was itself a sequel.
+---------
+
+# What Happens to House Velaryon by the Time of ‘Game of Thrones’?
+
+TV Features, House of the Dragon, Game Of Thrones, A Song of Ice and Fire, HBO
+
+Thu, 03 Sep 2026 04:06:11 GMT
+
+https://collider.com/house-of-the-dragon-game-of-thrones-house-velaryon/
+
+Although it's one of the richest houses in Westeros at the time of House of the Dragon, why don't we hear about House Velaryon in Game of Thrones?
+---------
+
+# ‘Ted Lasso’ Season 4 Is Already Fixing One of Ted’s Biggest Mistakes
+
+TV Features, Ted Lasso, Apple TV, Jason Sudeikis, Nick Mohammed
+
+Thu, 03 Sep 2026 03:35:27 GMT
+
+https://collider.com/ted-lasso-season-4-coach-alice-chilton-suspension-nate-shelley-replacement/
+
+Ted Lasso finally learned his lesson, making the hard decision when Coach Alice Chilton followed in Nate Shelley’s footsteps.
+---------
+
+# Apple TV’s 5-Part History-Making Series Is Ready for Its Biggest Reinvention Yet
+
+TV Features, Trying, Apple TV, Comedy, Rafe Spall
+
+Thu, 03 Sep 2026 03:15:12 GMT
+
+https://collider.com/trying-apple-tv-season-6-time-jump-biggest-reinvention/
+
+Trying has grown beyond its original premise, and Season 5 leaves the Apple TV series in the perfect position to reinvent itself.
+---------
+
+# 5 K-Dramas That Everyone Forgot About
+
+TV, South Korea, Through the Darkness, Prison Playbook, Navillera
+
+Thu, 03 Sep 2026 03:01:11 GMT
+
+https://collider.com/k-dramas-everyone-forgot/
+
+Despite their exceptional quality, great K-dramas, like Prison Playbook and Song of the Bandits, have been completely forgotten by audiences.
+---------
+
+# ‘Avatar: The Last Airbender’ Officially Returns With New Release in 2027
+
+Movie News, Avatar Aang: The Last Airbender, Avatar: The Last Airbender, Paramount, Fantasy
+
+Thu, 03 Sep 2026 02:00:21 GMT
+
+https://collider.com/avatar-aang-the-last-airbender-blu-ray-release-date-february-2027/
+
+After dominating Paramount+'s streaming charts for over a month, Avatar Aang: The Last Airbender is officially getting a brand-new release.
+---------
+
+# Andrew Garfield Officially Calls for a Groundbreaking Change to 'Spider-Man'
+
+Movie News, Andrew Garfield, Spider-Man, Spider-Man: Brand New Day, Marvel
+
+Thu, 03 Sep 2026 01:30:11 GMT
+
+https://collider.com/andrew-garfield-spider-man-sexuality-change/
+
+Spider-Man veteran Andrew Garfield has officially revealed his thoughts on the character's sexuality for future projects. Read on for more.
+---------
+
+# Ridley Scott’s New Sci-Fi Movie Struggles at the Box Office Ahead of Rumored Alien Franchise Return
+
+Movie News, Ridley Scott, The Dog Stars, Jacob Elordi, Box Office
+
+Thu, 03 Sep 2026 01:00:11 GMT
+
+https://collider.com/ridley-scott-sci-fi-the-dog-stars-box-office-18-million/
+
+Ridley Scott's first sci-fi movie in nearly a decade is turning out to be a box-office disaster, having grossed a quarter of its budget so far.
+---------
+
+# The 8 Most Fun Best Picture Winners of All Time, Ranked
+
+Movie, Academy Awards, Best Picture, Parasite, Oppenheimer
+
+Thu, 03 Sep 2026 00:31:11 GMT
+
+https://collider.com/most-fun-best-picture-oscar-winners-all-time-ranked/
+
+Oppenheimer, Parasite, and Everything Everywhere All at Once are among the most fun, entertaining movies that won the Best Picture Oscar.
+---------
+
+# J.J. Abrams’ ‘Jurassic Park’ Replacement Roars Past Major Box-Office Milestone
+
+Movie News, J.J. Abrams, The End of Oak Street, Anne Hathaway, Box Office
+
+Thu, 03 Sep 2026 00:30:11 GMT
+
+https://collider.com/jj-abrams-jurassic-park-replacement-end-of-oak-street-box-office-100-million/
+
+The new sci-fi movie The End of Oak Street may not have emerged as a blockbuster, but it has passed a massive global box-office milestone.
+---------
+
+# The 10 Greatest Sci-Fi Book Trilogies of All Time, Ranked
+
+TV Lists, Sci-Fi, 3 Body Problem, Silo
+
+Thu, 03 Sep 2026 02:00:24 GMT
+
+https://movieweb.com/best-sci-fi-book-trilogies-ranked/
+
+Three books can make for one fantastic reading experience, and these sci-fi trilogies prove what that structure and the genre are capable of.
+---------
+
 # Jon Favreau Reveals The Mandalorian and Grogu's Most Important Scene
 
 Movies, The Mandalorian and Grogu
