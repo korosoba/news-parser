@@ -1,3 +1,333 @@
+# Jon Favreau Reveals The Mandalorian and Grogu's Most Important Scene
+
+Movies, The Mandalorian and Grogu
+
+Thu, 03 Sep 2026 00:02:15 GMT
+
+https://screenrant.com/jon-favreau-the-mandalorian-and-grogu-most-important-scene-star-wars/
+
+Star Wars icon Jon Favreau believes that one quiet moment in The Mandalorian and Grogu is the most important scene in the entire movie.
+---------
+
+# Netflix's 2-Part 'Blade Runner Meets Ghost In The Shell' Series Is Aging Like Fine Wine
+
+TV, Masked Recs
+
+Thu, 03 Sep 2026 00:02:14 GMT
+
+https://screenrant.com/altered-carbon-show-netflix-aging-well/
+
+Neon-lit mystery and body swapping collide in a lavish cyberpunk thriller whose dense world building still ripples through many of today's shows.
+---------
+
+# 29 Years Later, The Best Comic Strip Of The 90s Is Aging So Much Better Than Dilbert
+
+Comics, Zits
+
+Thu, 03 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/best-1990s-comic-strip-zits-not-dilbert/
+
+Dilbert's downfall is far from emblematic of multiple other iconic 1990s comic strips, with one particular series ready to end on a high note.
+---------
+
+# The Blood Of Dawnwalker: Should You Poison Or Save Iulian?
+
+Gaming, The Blood of Dawnwalker, PC
+
+Thu, 03 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/blood-of-dawnwalker-poison-or-save-iulian-guide/
+
+Iulian has a plan to help Coen take down the notorious Ambrus in The Blood of Dawnwalker, but it may cost the nobleman his life.
+---------
+
+# 12 Thriller Miniseries That Are Perfect From Start To Finish
+
+Classic TV, Thriller
+
+Wed, 02 Sep 2026 23:45:14 GMT
+
+https://screenrant.com/thriller-miniseries-perfect-from-start-to-finish/
+
+From bite-sized horror stories to dark psychological twists that viscerally unsettle you, some of the best thrillers come in the form of miniseries.
+---------
+
+# Prime Video’s Surprise Hit Series Based On 13-Novel Franchise Crosses Massive Streaming Milestone
+
+TV, Masked Recs
+
+Wed, 02 Sep 2026 23:36:00 GMT
+
+https://screenrant.com/off-campus-prime-video-streaming-milestone-september-2026/
+
+Prime Video's new hit series that adapts a bestselling 13-novel franchise has passed a major streaming milestone to set up the show's future.
+---------
+
+# HBO Max's Crime Action Thriller Shoots Up 41 Spots To Become Streamer's #1 New Movie
+
+Movies, Masked Recs
+
+Wed, 02 Sep 2026 23:32:15 GMT
+
+https://screenrant.com/bull-movie-hbo-max-crime-action-thriller-stream-september-2026/
+
+HBO Max's crime action thriller shoots up 41 spots to become the streaming service's new No. 1 movie in the world for the past two days.
+---------
+
+# Fox Mulder's 10 Best Quotes From The X-Files
+
+Classic TV, The X-Files
+
+Wed, 02 Sep 2026 23:30:14 GMT
+
+https://screenrant.com/x-files-fox-mulder-best-quotes/
+
+Whether offering a philosophical comment or a witty one-liner, David Duchovny's Fox Mulder had some of the best quotes in The X-Files.
+---------
+
+# Dragon Ball Super's Next Anime Lands Release Date, And It's Only 6 Weeks Away
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball
+
+Wed, 02 Sep 2026 23:21:59 GMT
+
+https://screenrant.com/dragon-ball-super-beerus-release-date-trailer-poster/
+
+Dragon Ball's big anime return proves the franchise has plenty of gas in the tank with its Beerus release date, trailer, poster, and more revealed.
+---------
+
+# Ethan Hawke Reunites With Black Phone 2 Director For New Horror Movie
+
+Movies, Ethan Hawke, Scott Derrickson, The Black Phone, Black Phone 2
+
+Wed, 02 Sep 2026 23:08:01 GMT
+
+https://screenrant.com/ethan-hawke-scott-derrickson-black-phone-2-horror-movie-reunion/
+
+Ethan Hawke is officially reuniting with The Black Phone director Scott Derrickson for a new horror movie, which they are working on right now.
+---------
+
+# Berserk Officially Returns With New Art of War Release on October 2
+
+Anime, Berserk, merchandise, collectibles
+
+Thu, 03 Sep 2026 00:20:33 GMT
+
+https://www.cbr.com/berserk-guts-art-of-war-tentacle-ship-2026/
+
+The new Berserk release, in all its gory glory, is only limited to 77 handcrafted pieces.
+---------
+
+# Every Character Who Can Use Gear 5 in One Piece, Ranked
+
+Anime, One Piece, shonen anime
+
+Thu, 03 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/one-piece-every-gear-5-user-ranked/
+
+The significance of Gear 5 extends far beyond combat in One Piece, connecting Luffy to the Sun God Nika and former wielder Joy Boy.
+---------
+
+# HBO Max’s 100% RT Sci-Fi Spinoff Beats Original Series to Become a Global Streaming Hit
+
+TV, President Curtis, Rick and Morty, HBO Max
+
+Thu, 03 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/president-curtis-sci-fi-success-hbo-max-september-2026/
+
+The sci-fi spinoff is dominating the streaming charts.
+---------
+
+# Jason Statham's Mutiny is the Perfect Die Hard Replacement
+
+Movies, Mutiny
+
+Thu, 03 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/jason-statham-mutiny-perfect-die-hard-replacement/
+
+Jason Statham's latest action movie, 'Mutiny,' is currently in theaters, and it is a perfect 'Die Hard' replacement.
+---------
+
+# Daredevil vs. Punisher Returns With Another Epic Face-Off
+
+Comics, Daredevil, punisher, Marvel, Marvel Cinematic Universe
+
+Thu, 03 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/daredevil-punisher-the-devils-trigger-paperback-release/
+
+Daredevil and Punisher fans can finally revisit one of their best crossover titles, and all just ahead of the next entry in an MCU epic.
+---------
+
+# Sorry Taylor Sheridan Fans, Landman Gets More Bad News Following Major Season 3 Delay
+
+TV, Landman, Paramount Plus, Drama
+
+Wed, 02 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/landman-paramount-plus-streaming-bad-news-september-2026/
+
+Landman gets more bad news as fans wait for new episodes.
+---------
+
+# Hulu's 8-Episode Certified Hit Thriller Is Streaming's New No. 1 Show in America
+
+TV, Furious, Hulu, Thriller
+
+Wed, 02 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/furious-thriller-streaming-success-hulu-september-2026/
+
+The new series has been a massive hit for Hulu.
+---------
+
+# 6 Martial Arts Shows That Are 10/10 Masterpieces
+
+TV, Action, Cobra Kai, Avatar: The Last Airbender
+
+Wed, 02 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/flawless-martial-arts-shows-list/
+
+Martial arts achieved global dominance through cinema, but some of the genre's greatest creations, like Warrior and Cobra Kai, are actually on TV.
+---------
+
+# 8 Marvel Characters Missing from the MCU After Spider-Man: Brand New Day
+
+Movies, Spider-Man: Brand New Day, Marvel Cinematic Universe, Spider-Man 4, Spider-Man
+
+Wed, 02 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/missing-mcu-characters-after-spider-man-brand-new-day-list/
+
+Spider-Man: Brand New Day introduced some exciting new characters to the MCU, but there are many more Spider-Man allies and enemies we are yet to see.
+---------
+
+# Dragon Ball Super Officially Returns October 11 With a Brand-New Series
+
+Anime, Dragon Ball, Dragon Ball Super, Dragon Ball Super: Beerus
+
+Wed, 02 Sep 2026 22:42:03 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-anime-october-11/
+
+After almost a decade, Dragon Ball Super is finally back with a brand-new series featuring improved animation and a reimagined story.
+---------
+
+# Taylor Sheridan’s Yellowstone Officially Returns in First Look at 2-Part Sequel Series
+
+TV News, Marshals, Yellowstone, Taylor Sheridan, CBS
+
+Thu, 03 Sep 2026 00:00:11 GMT
+
+https://collider.com/marshals-season-2-first-look-image-release-date/
+
+Taylor Sheridan officially brings back Yellowstone with the first look at his two-part sequel series starring Luke Grimes.
+---------
+
+# The Best Japanese Horror Movie of All Time Is Officially Getting a Remake
+
+Movie News, Pulse, Kiyoshi Kurosawa, Horror
+
+Thu, 03 Sep 2026 00:00:11 GMT
+
+https://collider.com/pulse-remake-dave-boyle-directing/
+
+Pulse, one of the most terrifying Japanese horror films ever made, is officially getting a remake. Read on for more.
+---------
+
+# James McAvoy’s New Detective Series Is the Next Perfect ‘Bosch’ Replacement
+
+TV Features, James McAvoy, Christopher Eccleston, Benedict Wong, Bosch
+
+Wed, 02 Sep 2026 23:29:11 GMT
+
+https://collider.com/bosch-replacement-james-mcavoy-meantime-detective-thriller-sky-one-series/
+
+The upcoming detective thriller Meantime features James McAvoy as one of TV's most unorthodox sleuths.
+---------
+
+# Prime Video's 7-Episode Action Thriller Is the Perfect Replacement for Taylor Sheridan's 'Lioness'
+
+TV Features, Lioness, The Terminal List: Dark Wolf, Taylor Kitsch, Prime Video
+
+Wed, 02 Sep 2026 23:24:11 GMT
+
+https://collider.com/terminal-list-dark-wolf-action-thriller-prime-video/
+
+The Terminal List: Dark Wolf is a gripping prequel filled with espionage and intense military drama, making it perfect for fans of Lioness.
+---------
+
+# The 8 Most Immersive Open-World Games, Ranked
+
+Gaming, Video Game, Elden Ring, Cyberpunk 2077
+
+Wed, 02 Sep 2026 23:21:11 GMT
+
+https://collider.com/open-world-games-immersive/
+
+Elden Ring, Red Dead Redemption 2, and Cyberpunk 2077 are among the best, most immersive open-world video games ever made.
+---------
+
+# ‘Tracker’ Officially Begins a New Era With First Look at Season 4
+
+TV News, Tracker, Justin Hartley, Jensen Ackles, CBS
+
+Wed, 02 Sep 2026 23:00:11 GMT
+
+https://collider.com/tracker-season-4-first-look-image-production-move-to-los-angeles/
+
+Tracker is officially beginning a new era on CBS with the first-look photos of Season 4 after the production moved to Los Angeles.
+---------
+
+# You're Not a True Stephen King Fan Unless You've Read These 8 Books
+
+Books and Comics, The Dark Tower, Stephen King, The Long Walk, Silver Bullet
+
+Wed, 02 Sep 2026 22:22:11 GMT
+
+https://collider.com/stephen-king-books-true-fans-read/
+
+Stephen King books that are mostly read by hardcore fans include the likes of Cycle of the Werewolf, Insomnia, and The Eyes of the Dragon.
+---------
+
+# HBO's 'Harry Potter' Sets Up Worrying Love Triangle Problem 5 Years Too Early
+
+Features, Harry Potter
+
+Thu, 03 Sep 2026 00:00:13 GMT
+
+https://movieweb.com/harry-potter-hbo-ron-hermione-love-triangle-early/
+
+HBO's 'Harry Potter' series is already setting up a frustrating storyline that could have been cut from both the books and the movie adaptations.
+---------
+
+# New Catherine Zeta-Jones Assassin Action Thriller Series Debuts Official Trailer
+
+TV News, Kill Jackie, Thriller, Catherine Zeta-Jones
+
+Wed, 02 Sep 2026 22:55:37 GMT
+
+https://movieweb.com/kill-jackie-trailer-catherine-zeta-jones-thriller/
+
+Jackie Price is out for revenge in the first official trailer for AMC+ thriller series 'Kill Jackie.'
+---------
+
+# Kenneth Branagh Officially Responds to Agatha Christie Return After Being Recast
+
+Movie News, Kenneth Branagh, Death on the Nile, Murder on the Orient Express, A Haunting in Venice
+
+Wed, 02 Sep 2026 22:42:13 GMT
+
+https://movieweb.com/kenneth-branagh-agatha-christie-movies-future/
+
+The actor and director is still open to reprising the role in a new movie.
+---------
+
 # A24's New John Carpenter-Like Action-Thriller Secures Solid Rotten Tomatoes Score
 
 Movies, Onslaught
