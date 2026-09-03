@@ -1,3 +1,432 @@
+# 5 Best Self Help & Personal Development Books Of All Time
+
+Books
+
+Thu, 03 Sep 2026 17:00:15 GMT
+
+https://screenrant.com/best-self-help-personal-development-books-all-time/
+
+Discover several highly-rated and impactful self-help books with the power to transform your life.
+---------
+
+# 10 '90s Sitcoms That Are Still Perfect From Start To Finish
+
+Classic TV
+
+Thu, 03 Sep 2026 17:00:15 GMT
+
+https://screenrant.com/90s-sitcoms-still-perfect-from-start-to-finish/
+
+A nostalgic stroll through '90s sitcoms delivers constant rewards in these high-quality, consistent shows through razor-sharp wit & unique characters.
+---------
+
+# Netflix Officially Finds Its Next Prestige Fantasy Series To Compete With LOTR & Game Of Thrones
+
+TV, Dungeons & Dragons, Netflix
+
+Thu, 03 Sep 2026 16:43:47 GMT
+
+https://screenrant.com/ravenloft-series-netflix-dungeons-dragons-live-action-development/
+
+Prime Video has Lord of the Rings, and HBO has Game of Thrones. Netflix will soon have its own prestige fantasy series based on a popular franchise.
+---------
+
+# Sam Elliott’s Iconic Action Movie That Spawned A 37-Year Franchise Is A Streaming Hit
+
+Movies, Masked Recs
+
+Thu, 03 Sep 2026 16:31:35 GMT
+
+https://screenrant.com/sam-elliott-road-house-hbo-max-streaming-success-september-2026/
+
+Sam Elliott's iconic action movie that helped spawn a 37-year franchise grows into a streaming hit ahead of the next installment.
+---------
+
+# Netflix's Best Show Officially Returns Next Month After One Year Away
+
+Streaming TV, Masked Recs
+
+Thu, 03 Sep 2026 16:30:15 GMT
+
+https://screenrant.com/netflix-best-show-the-diplomat-season-4-return/
+
+Netflix may not be known for their prestigious TV offerings, but the streamer's acclaimed yet crowd-pleasing The Diplomat is returning for season 4.
+---------
+
+# Christopher Nolan’s The Odyssey Adds Even More Screenings After All-Time Box Office Record
+
+Movies, The Odyssey
+
+Thu, 03 Sep 2026 16:26:56 GMT
+
+https://screenrant.com/the-odyssey-imax-70mm-screenings-added-september-2026/
+
+The new Christopher Nolan movie The Odyssey, which has broken numerous all-time box office records, adds even more screenings to its smash hit run.
+---------
+
+# 10 Near-Perfect Disney Channel Original Movies That Nobody Remembers Today
+
+Movies, Disney Channel, Minutemen, Wendy Wu: Homecoming Warrior, StarStruck, Let It Shine, Avalon High, Twitches Too, Read It and Weep, Eddie's Million Dollar Cook-Off, Den Brother, Go Figure
+
+Thu, 03 Sep 2026 16:19:26 GMT
+
+https://screenrant.com/great-disney-channel-original-movies-nobody-remembers/
+
+These Disney Channel movies were just as good as the big DCOM hits, but somehow got left behind. Here are 10 worth revisiting.
+---------
+
+# Guy Ritchie’s “Dazzling” Reimagining Of Classic Novel Resurges On Streaming As New Reboot Eyes 2027 Return
+
+Movies, Masked Recs
+
+Thu, 03 Sep 2026 16:10:25 GMT
+
+https://screenrant.com/guy-ritchie-sherlock-holmes-2027-return-apple-tv-streaming-success-september-2026/
+
+Guy Ritchie has a new streaming hit in the form of a reimagining of a classic novel, and ahead of its 2027 reboot's return, it is ruling streaming.
+---------
+
+# The Hello Kitty Renaissance Is Here, With Sanrio’s Other Stars Leading The Way
+
+Comics, Hello Kitty
+
+Thu, 03 Sep 2026 16:08:32 GMT
+
+https://screenrant.com/hello-kitty-and-friends-cinnamoroll-sanrio-announcement/
+
+The world of Hello Kitty is entering a new era, as one of Sanrio’s other iconic characters is set to star in an upcoming project.
+---------
+
+# 8 Fantasy Games That Rival Legend of Zelda
+
+Games, RPG, Gaming, The Legend of Zelda
+
+Thu, 03 Sep 2026 17:15:11 GMT
+
+https://www.cbr.com/fantasy-games-better-than-legend-of-zelda/
+
+Legend of Zelda is an all-time great fantasy series, but the series has amassed many high-quality rivals.
+---------
+
+# Netflix Orders Dungeons & Dragons Series Based on Iconic Horror Setting
+
+TV, Dungeons and Dragons, Netflix, Horror, Innovation
+
+Thu, 03 Sep 2026 17:01:27 GMT
+
+https://www.cbr.com/netflix-dungeons-and-dragons-series-ravenloft/
+
+Netflix cancels one Dungeons & Dragons project to focus on another.
+---------
+
+# Power Rangers' Winning Format Is Finally Running Out of Steam After 33 Years
+
+TV, Power Rangers, Mighty Morphin Power Rangers
+
+Thu, 03 Sep 2026 17:00:11 GMT
+
+https://www.cbr.com/power-rangers-winning-format-running-out-of-steam/
+
+The Power Rangers franchise is in hanging on by a thread, and it may be too much of a relic of a bygone era to really work for modern audiences.
+---------
+
+# 5 Tombstone Characters More Dangerous Than Doc Holliday
+
+Movies, Tombstone
+
+Thu, 03 Sep 2026 16:31:11 GMT
+
+https://www.cbr.com/tombstone-characters-more-powerful-than-doc-holliday-list/
+
+As reckless and fearless as Doc Holliday may be, Tombstone has no shortage of dangerous and lethal gunslingers capable of matching his skill.
+---------
+
+# The 12 Best Jujutsu Kaisen Quotes That Define a Main Character
+
+Anime, Jujutsu Kaisen
+
+Thu, 03 Sep 2026 16:31:11 GMT
+
+https://www.cbr.com/jjk-character-defining-quotes/
+
+The cast of Jujutsu Kaisen carry main character energy and wisdom, delivering some of the most defining quotes in modern shonen anime.
+---------
+
+# Practical Magic 2: The Effects That Fooled the Cast
+
+Movies, Practical Magic 2
+
+Thu, 03 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/video/practical-magic-2-the-effects-that-fooled-the-cast/
+
+The magic of Practical Magic 2 had Xolo Maridueña and Solly McLeod wishing they could bring a few supernatural tricks home.The actors reveal the spells they’d use to solve surprisingly everyday problems, from perfectly cooked food to falling asleep on command. McLeod also shares the story behind a good luck charm connected to growing up in Scotland’s Orkney Islands, while Maridueña explains his own comfort ritual when traveling for a shoot. They also geek out over the sequel’s practical effects and Nicole Kidman’s on-set antics before Maridueña offers a tantalizing update on Blue Beetle’s future in the DCU.
+---------
+
+# 10 Forgotten Anime Series That Have Aged Like Milk
+
+Anime, Love Hina, Tenchi Muyô! GXP
+
+Thu, 03 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/forgotten-anime-series-aged-poorly/
+
+Anime from the late '90s and early 2000s often carried assumptions about gender dynamics, comedy and fan service that haven't aged well at all.
+---------
+
+# Supergirl Officially Gets HBO Max Release Date 2 Months After Bombing at the Box Office
+
+Movies, Supergirl, DCU, HBO Max, Innovation
+
+Thu, 03 Sep 2026 16:14:58 GMT
+
+https://www.cbr.com/supergirl-hbo-max-release-date/
+
+The latest DC Studios movie lands on streaming after a lackluster box office.
+---------
+
+# Crunchyroll Drops 101 New Releases in Massive September 2026 Update
+
+Anime, Crunchyroll, Baki Hanma, Shovel Knight
+
+Thu, 03 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/crunchyroll-game-vault-101-new-games-september-2026/
+
+Crunchyroll is massively expanding its gaming lineup, adding over 100 games at no extra cost to subscribers this September.
+---------
+
+# The Good, the Bad, and the Ugly Has the Greatest Opening Scene in Western History
+
+Movies, The Good, the Bad and the Ugly
+
+Thu, 03 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/the-good-the-bad-and-the-ugly-best-western-opening-scene/
+
+The Good, the Bad and the Ugly is a Western classic with one of the greatest opening scenes the genre has ever seen.
+---------
+
+# 8 Greatest Heist Movies of All Time, Ranked
+
+Movie, Crime, Ocean's Eleven, Heat, The Thomas Crown Affair
+
+Thu, 03 Sep 2026 17:18:11 GMT
+
+https://collider.com/best-heist-movies-all-time-ranked/
+
+Ocean’s Eleven, The Italian Job, Heat, Dog Day Afternoon, and more make up our list of the best heist movies of all time.
+---------
+
+# Netflix Officially Reveals New Dungeons and Dragons Horror Series
+
+TV News, Dungeons and Dragons, Netflix, Alfonso Cuaron, Hasbro
+
+Thu, 03 Sep 2026 17:09:13 GMT
+
+https://collider.com/netflix-live-action-dungeons-and-dragons-horror-reboot-ravenloft/
+
+Netflix has officially cancelled Shawn Levy's Dungeons & Dragons reboot, but is now moving forward with a new horror-centric D&amp;D series.
+---------
+
+# The 10 Greatest Fantasy Books That You Haven't Read
+
+Books and Comics, Books, Fantasy, The Lord of the Rings, Adventure
+
+Thu, 03 Sep 2026 17:08:11 GMT
+
+https://collider.com/best-fantasy-books-you-have-not-read/
+
+Fantasy has such a wealth of choices that great books like Lord of Snow and Shadows and Infinity Blade remain undiscovered by most mainstream readers.
+---------
+
+# Anthony Boyle and Julia Garner Are a Crypto-Era Bonnie & Clyde in First Look at Netflix's New True Crime Series [Exclusive]
+
+Exclusives, The Altruists, Anthony Boyle, Julia Garner, Collider Exclusive Preview
+
+Thu, 03 Sep 2026 17:00:11 GMT
+
+https://collider.com/the-altruists-image-anthony-boyle-julia-garner-netflix/
+
+A new look at Netflix's The Altruists highlights Anthony Boyle and Julia Garner as FTX power couple Sam Bankman-Fried and Caroline Ellison.
+---------
+
+# Taylor Sheridan’s Best ‘Yellowstone’ Spin-Off Yet Officially Crowned the King of Streaming
+
+TV News, Taylor Sheridan, Paramount Plus, Yellowstone, Dutton Ranch
+
+Thu, 03 Sep 2026 16:30:11 GMT
+
+https://collider.com/taylor-sheridan-dutton-ranch-streaming-success-paramount-plus-september-2026/
+
+Taylor Sheridan's 10/10 Yellowstone sequel, Dutton Ranch, has officially dominated streaming for over 100 days. Read on for more.
+---------
+
+# Every Villain in Sam Raimi's Spider-Man Trilogy, Ranked
+
+Movie, Spider-Man, Sam Raimi, Alfred Molina, Willem Dafoe
+
+Thu, 03 Sep 2026 16:21:11 GMT
+
+https://collider.com/spider-man-sam-raimi-trilogy-villains-ranked/
+
+Sam Raimi's Spider-Man trilogy features a group of memorable villains, including the iconic Green Goblin and Doctor Octopus, but who is the best?
+---------
+
+# Josh Gates Officially Joins ‘The Librarians: The Next Chapter’ Season 2 With New Sneak Peek [Exclusive]
+
+TV News, The Librarians: The Next Chapter, Josh Gates, The Librarians, TNT
+
+Thu, 03 Sep 2026 16:00:11 GMT
+
+https://collider.com/the-librarians-the-next-chapter-season-2-sneak-peek-josh-gates/
+
+TNT has released a new sneak peek at The Librarians: The Next Chapter Season 2, showing Josh Gates joining the fantasy show.
+---------
+
+# HBO's Dark Sci-Fi Detective Series 'Lanterns' Would've Fit Perfectly in Zack Snyder's DCEU
+
+TV Features, Lanterns, Kyle Chandler, Aaron Pierre, DC
+
+Thu, 03 Sep 2026 15:50:11 GMT
+
+https://collider.com/lanterns-show-dceu-comparisons/
+
+HBO's Lanterns is the kind of storytelling more akin to the DCEU era, not just in aesthetics but in theme.
+---------
+
+# 9 Greatest 'Friday Night Lights' Quotes, Ranked
+
+TV, Friday Night Lights, Kyle Chandler, NBC, Sports
+
+Thu, 03 Sep 2026 15:36:11 GMT
+
+https://collider.com/friday-night-lights-best-quotes-ranked/
+
+Friday Night Lights, starring Kyle Chandler and Connie Britton, has a number of memorable, inspirational lines, but which quote is the greatest?
+---------
+
+# This New Horror Movie Is Officially Bringing Back VHS Nightmares [Exclusive]
+
+Movie News, Horror, Fantastic Fest, Collider Exclusive Preview, Daisy Jones & The Six
+
+Thu, 03 Sep 2026 15:00:11 GMT
+
+https://collider.com/play-house-2026-horror-first-look-image-fantastic-fest/
+
+Get a first look at Play House, a new analog horror movie starring Will Harrison about a terrifying unaired television show discovered on VHS.
+---------
+
+# Dave Bautista Shows Off Kratos Transformation as He Prepares for Amazon's 'God of War' Series
+
+TV News, God of War, Dave Bautista
+
+Thu, 03 Sep 2026 17:03:51 GMT
+
+https://movieweb.com/god-of-war-dave-bautista-transformation/
+
+Dave Bautista's update also revealed the reshoot schedule has been pushed back.
+---------
+
+# New Game of the Year Movie Adaptation Is a "Stephen King Meets Groundhog Day" Mystery Thriller
+
+Movie News, video games, Resident Evil, Adventure
+
+Thu, 03 Sep 2026 17:02:10 GMT
+
+https://movieweb.com/the-drifter-movie-adaptation-sony/
+
+Sony has found its next video game adaptation after 'Resident Evil' in Game of the Year winner 'The Drifter.'
+---------
+
+# "Supernatural Meets Castle" in the Binge-Worthy Fantasy Series Netflix Saved From Cancellation
+
+Features, Lucifer, Supernatural, Castle, Fantasy
+
+Thu, 03 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/lucifer-supernatural-castle-comparison/
+
+A fantasy TV series available on Netflix shares a premise and character dynamics with 'Supernatural' and 'Castle.'
+---------
+
+# Why Was Penny Barely in 'The Big Bang Theory' Season 4?
+
+Features, Big Bang Theory
+
+Thu, 03 Sep 2026 16:30:14 GMT
+
+https://movieweb.com/big-bang-theory-penny-absent-season-4/
+
+Kaley Cuoco may have taken the showbiz idiom "break a leg" a little too seriously.
+---------
+
+# 'Supergirl' Streaming Release Date Officially Confirmed
+
+Movie News, Supergirl, Action, Superhero, Adventure
+
+Thu, 03 Sep 2026 16:28:00 GMT
+
+https://movieweb.com/supergirl-streaming-hbo-max-date/
+
+DC Studios revealed when its second theatrical movie, 'Supergirl,' will make its way to HBO Max for a streaming audience.
+---------
+
+# 'Harry Potter' Fans Call Out HBO Reboot for Lacking Key Part of 25-Year-Old Original
+
+TV News, Harry Potter, Fantasy
+
+Thu, 03 Sep 2026 16:00:33 GMT
+
+https://movieweb.com/harry-potter-reboot-worse-movies-too-dark/
+
+After the second 'Harry Potter' trailer, one specific aspect of the show did not land as favorably when compared to the original movie.
+---------
+
+# 'Star Trek: Strange New Worlds' Sets up Missing 'Original Series' Character Exit
+
+Features, star trek: strange new worlds, Star Trek, Star Trek: The Original Series, Sci-Fi
+
+Thu, 03 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-ortegas-exit/
+
+'Strange New Worlds' has a handful of characters who never appear in 'The Original Series,' and the Paramount+ sequel is finally explaining that.
+---------
+
+# Mark Wahlberg Is More Brutal Than Ever in His Civil Rights Action Crime Thriller | Review
+
+3 star movies, By Any Means, Mark Wahlberg, Yahya Abdul-Mateen II, Crime, Thriller
+
+Thu, 03 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/by-any-means-review/
+
+A Mafia hitman and a Black FBI agent battle the KKK in 1966 Mississippi in 'By Any Means.'
+---------
+
+# Henry Cavill's New 97-Minute Action Thriller Is a Global Streaming Sensation After Dethroning Jason Statham
+
+Movie News, Henry Cavill, Jason Statham, Action, Thriller, In the Grey, Shelter, Prime Video, Streamer Comparisons
+
+Thu, 03 Sep 2026 15:30:13 GMT
+
+https://movieweb.com/henry-cavill-in-the-grey-beat-statham-shelter-streaming/
+
+Even action icon Jason Statham is no match for Henry Cavill and Guy Ritchie's latest genre effort.
+---------
+
+# 'Star Wars': 8 Yoda Quotes That Live Rent-Free in Our Heads
+
+Movie Lists, Star Wars, Yoda
+
+Thu, 03 Sep 2026 15:00:13 GMT
+
+https://movieweb.com/star-wars-best-yoda-quotes/
+
+Master Yoda is a beacon of wisdom throughout the 'Star Wars' franchise, and some of his quotes are truly the best in the entire galaxy.
+---------
+
 # New Gundam Timeline Officially Begins March 5
 
 Gaming, Gundam Rogue Orbit, PC, Triple-A Games, State of Play
