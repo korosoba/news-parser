@@ -1,3 +1,432 @@
+# Star Trek's Timely New Spin-Off Hits the Ground Running (Advanced Review)
+
+Comics, Star Trek
+
+Fri, 04 Sep 2026 19:30:14 GMT
+
+https://screenrant.com/star-trek-zero-point-review/
+
+An impressive debut
+---------
+
+# The Real Reason Behind Ducky's Nickname In NCIS Is Surprisingly Simple
+
+Network TV, NCIS
+
+Fri, 04 Sep 2026 19:30:14 GMT
+
+https://screenrant.com/ncis-ducky-nickname-reason/
+
+While the explanation may not be the most exciting, the simple origin of Ducky's nickname in NCIS is one that deserves to be delved into thoroughly.
+---------
+
+# 10 1960s TV Shows That Are Still Essential Viewing Today
+
+Classic TV, television show
+
+Fri, 04 Sep 2026 19:30:14 GMT
+
+https://screenrant.com/1960s-tv-shows-essential-viewing/
+
+TV began to grow in popularity at the beginning of the 1960s, resulting in some great shows, including these 10 that have aged better than most.
+---------
+
+# Catwoman Stars Halle Berry and Zoë Kravitz Unite in New Movie
+
+Movies, Catwoman
+
+Fri, 04 Sep 2026 19:27:43 GMT
+
+https://screenrant.com/otherwise-engaged-movie-halle-berry-zoe-kravitz-catwoman-connection/
+
+Halle Berry and Zoë Kravitz, two Catwoman stars from different DC eras, are uniting for the first time in a new movie.
+---------
+
+# Brad Pitt's $239M Action Hit Gets Unique Prequel Pitch From Star After Being "Mangled" In First Movie (Exclusive)
+
+Movies, Bullet Train, Joey King
+
+Fri, 04 Sep 2026 19:22:46 GMT
+
+https://screenrant.com/brad-pitt-bullet-train-prequel-pitch-the-prince-joey-king/
+
+Exclusive: One of the stars of Brad Pitt's recent action hits is sharing their pitch for a unique prequel to the film after their gnarly fate.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (September 5-6)
+
+Movies, Netflix, Recommendation
+
+Fri, 04 Sep 2026 19:20:14 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-september-5/
+
+The best movies on Netflix this weekend are a horror slasher, a documentary about a controversial figure, and Jake Gyllenhaal's R-Rated war thriller.
+---------
+
+# Taylor Sheridan Confirms Yellowstone’s New John Dutton
+
+Network TV, Marshals, Yellowstone
+
+Fri, 04 Sep 2026 19:15:14 GMT
+
+https://screenrant.com/marshals-kayce-new-john-dutton-yellowstone/
+
+Three years after Kevin Costner departed from the role of John Dutton in Yellowstone, Taylor Sheridan has found his replacement in Marshals' Kayce.
+---------
+
+# Creator Of Charlie Hunnam’s New Amazon Crime Series Sued Over Alleged Sexual Assault
+
+TV, Criminal
+
+Fri, 04 Sep 2026 19:04:48 GMT
+
+https://screenrant.com/criminal-prime-video-show-ed-brubaker-alleged-sexual-assault-lawsuit/
+
+The creator of Prime Video's upcoming series Criminal, Ed Brubaker, has been sued by a production assistant due to alleged sexual assault.
+---------
+
+# Game Of Thrones: Of Fire And Blood Officially Announced
+
+Gaming, Game of Thrones: Conquest, Game of Thrones, Game Of Thrones, House of the Dragon
+
+Fri, 04 Sep 2026 19:00:14 GMT
+
+https://screenrant.com/game-of-thrones-fire-and-blood-dragonseeds/
+
+Game of Thrones officially announces Of Fire and Blood, an exciting new release that will only be available for a limited time starting this weekend.
+---------
+
+# Netflix's 45-Episode Sci-Fi Masterpiece Series Is Perfect From Start To Finish
+
+Streaming TV, Masked Recs
+
+Fri, 04 Sep 2026 19:00:14 GMT
+
+https://screenrant.com/love-death-and-robots-sci-fi-show-perfect-start-to-finish/
+
+Love, Death & Robots is a 4-season science fiction anthology sereis on Netflix with 45 episodes, where each episode is someone's favorite.
+---------
+
+# Steam Users Have Until September 14 to Claim a Free RPG
+
+Games, Steam, RPG
+
+Fri, 04 Sep 2026 19:23:56 GMT
+
+https://www.cbr.com/steam-free-rpg-legends-of-starkadia/
+
+An indie RPG is free on Steam for a limited time as part of a turbulent development cycle; get it before the price goes up on September 14—or wait.
+---------
+
+# Avatar: The Last Airbender Officially Reawakens Aang on November 3
+
+Anime, Avatar Aang: The Last Airbender, Avatar: The Last Airbender
+
+Fri, 04 Sep 2026 19:20:11 GMT
+
+https://www.cbr.com/avatar-aang-the-last-airbender-home-media-release-date/
+
+Avatar Aang: The Last Airbender is about to be available for fans to bring home, and they won't have to wait much longer before they can.
+---------
+
+# 10 Greatest Anime Movies Since 2016, Ranked Worst to Best
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Chainsaw Man, Neon Genesis Evangelion
+
+Fri, 04 Sep 2026 19:15:11 GMT
+
+https://www.cbr.com/greatest-anime-movies-since-2016-ranked/
+
+Some of the most incredible anime films of all time have been released in the past decade, and these are the absolute best.
+---------
+
+# Director of MCU’s First Big Flop Comes Out in Defense of Superhero Movies
+
+Movies, Marvel, MCU, Eternals
+
+Fri, 04 Sep 2026 19:04:52 GMT
+
+https://www.cbr.com/director-of-mcu-eternals-defends-superhero-movies/
+
+It was the biggest flop in MCU history, but its director wants to get something off their chest.
+---------
+
+# 5 Classic Fantasy Books That Have Aged Like Fine Wine
+
+Movies, Fantasy
+
+Fri, 04 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/fantasy-books-that-have-aged-well/
+
+The best fantasy books stand the test of time, and these classic stories remain just as enjoyable to read decades after they were first published.
+---------
+
+# New Fear-of-Heights Thriller Sequel Gets a Divisive Reaction from Critics
+
+Movies, Fall 2: Deadpoint
+
+Fri, 04 Sep 2026 18:55:45 GMT
+
+https://www.cbr.com/fall-2-deadpoint-rotten-tomatoes-score/
+
+The first of two sequels to the 2022 sleeper hit is proving to be very divisive.
+---------
+
+# It's Official, Pokémon Is Over As We Know It
+
+Anime, Pokemon, Pokémon: Wild Card, Pokémon Horizons
+
+Fri, 04 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/pokemon-officially-changed-forever/
+
+Three years after Ash's farewell, Pokémon is finally leaving its iconic hero behind as its movies embrace a new protagonist for a new era.
+---------
+
+# Apple TV's Greatest Sci-Fi Show Ever Finally Has a Release Date for Its Final Season
+
+TV, Silo
+
+Fri, 04 Sep 2026 18:03:54 GMT
+
+https://www.cbr.com/silo-season-4-apple-tv-release-date/
+
+It's the beginning of the end of Apple TV's flawless sci-fi series.
+---------
+
+# Star Wars’ First Movie in 7 Years Is the Most-Streamed Film in the World After Box Office Struggles
+
+Movies, The Mandalorian and Grogu, Star Wars, Disney+, Innovation
+
+Fri, 04 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-and-grogu-success-disney-plus-september-2026/
+
+Star Wars returns as the king of streaming on Disney+.
+---------
+
+# Blade Runner Heads Back to Tokyo in New Cyberpunk Series
+
+Comics, Blade Runner 2099, Blade Runner 2049
+
+Fri, 04 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/blade-runner-tokyo-nexus-die-with-honor-release-date/
+
+Blade Runner has just received a thrilling new release ahead of the live-action television show later this year.
+---------
+
+# Every MCU Movie Featuring Elizabeth Olsen's Scarlet Witch, Ranked
+
+Movie, MCU, Elizabeth Olsen, Doctor Strange In the Multiverse of Madness, Avengers: Infinity War
+
+Fri, 04 Sep 2026 19:29:11 GMT
+
+https://collider.com/scarlet-witch-elizabeth-olsen-mcu-movies-ranked/
+
+Elizabeth Olsen's mighty Wanda Maximoff is one of the key figures in the MCU, but which of the five movies featuring the Scarlet Witch is the best?
+---------
+
+# 10 Addictive Apple TV Shows That Are Impossible To Stop Watching
+
+TV, Apple TV, Severance, Ted Lasso, Defending Jacob
+
+Fri, 04 Sep 2026 19:08:11 GMT
+
+https://collider.com/addictive-apple-tv-shows-impossible-to-stop-watching/
+
+Discover the most binge-worthy and compelling Apple TV shows that will keep you glued to the screen, including Severance, Slow Horses, and Foundation.
+---------
+
+# 15 Years Later, Ryan Reynolds Is Officially Ready to Reprise His Most Infamous Role
+
+TV News, Ryan Reynolds, Green Lantern, Lanterns, DCU
+
+Fri, 04 Sep 2026 18:20:11 GMT
+
+https://collider.com/ryan-reynolds-green-lantern-return-lanterns-cameo-potential/
+
+Ryan Reynolds hints at a possible Green Lantern cameo in HBO's Lanterns series, reflecting on his most infamous role.
+---------
+
+# Scoot McNairy Talks 'Furious' Most Shocking Finale Moment
+
+Exclusives, Furious, Hulu, Scoot McNairy, Thriller
+
+Fri, 04 Sep 2026 18:01:11 GMT
+
+https://collider.com/furious-hulu-finale-alice-danny-romance-scoot-mcnairy/
+
+Furious star Scoot McNairy dissects the finale's biggest moments for Alice and Danny and what Danny would do if he knew about Alice's dark secret.
+---------
+
+# ‘Band of Brothers’ Meets ‘Top Gun: Maverick’ in Apple TV’s 9-Part WWII Sleeper Hit
+
+TV News, Masters of the Air, Apple TV, Band of Brothers, Top Gun: Maverick
+
+Fri, 04 Sep 2026 18:01:11 GMT
+
+https://collider.com/apple-tv-nine-episode-ww2-series-masters-of-the-air-streaming-success-september-2026/
+
+Apple TV's nine-episode WWII sleeper hit with shades of Band of Brothers and Top Gun: Maverick is the perfect streaming success.
+---------
+
+# 'The Last of Us' Creator Officially Confirms New Sequels Following HBO Exit
+
+Gaming News, The Last of Us, Neil Druckmann, HBO Max
+
+Fri, 04 Sep 2026 17:59:37 GMT
+
+https://collider.com/the-last-of-us-franchise-future-neil-druckmann/
+
+The Last of Us is preparing for its final season on HBO, but the acclaimed video game franchise may still have more stories left to tell.
+---------
+
+# 30 Years Ago, ‘Frasier’s Greatest Episode Rewrote the Sitcom’s Formula
+
+TV Features, Frasier, Cheers, Kelsey Grammer, Sitcom
+
+Fri, 04 Sep 2026 17:44:11 GMT
+
+https://collider.com/frasier-greatest-episode-the-matchmaker-season-2/
+
+A standout Season 2 episode helped Frasier find the farcical formula that would go on to define the beloved NBC sitcom.
+---------
+
+# 88 Years Later, Ridley Scott Still Remembers the WWII Images That Shaped His Sci-Fi
+
+Movie News, Ridley Scott, Sci-Fi, Blade Runner, The Dog Stars
+
+Fri, 04 Sep 2026 17:40:11 GMT
+
+https://collider.com/ridley-scott-world-war-2-sci-fi-influence-the-dog-stars-blade-runner/
+
+Ridley Scott reflected on his childhood as a "war baby" and how it influenced his vision for the future. Find out more.
+---------
+
+# HBO’s ‘Harry Potter’ Series Just Revealed a Problem It Can’t Avoid
+
+TV Features, Harry Potter, Harry Potter and the Sorcerer's Stone, HBO Max, HBO
+
+Fri, 04 Sep 2026 17:28:11 GMT
+
+https://collider.com/hbo-harry-potter-reboot-hogwarts-design-problem-meaning/
+
+A recent look at the set of HBO's Harry Potter reboot stirred up backlash, and exposed the series' greatest obstacle.
+---------
+
+# ‘All Creatures Great and Small’ Season 7 Officially Begins a New Post-WWII Era in 4 Months
+
+TV News, All Creatures Great And Small, PBS, War, Drama
+
+Fri, 04 Sep 2026 17:21:11 GMT
+
+https://collider.com/all-creatures-great-and-small-season-7-trailer-release-date/
+
+Watch the All Creatures Great and Small Season 7 trailer and learn when the beloved PBS drama returns for its new 1946-set chapter.
+---------
+
+# Taylor Sheridan Is Taking Over Streaming After His Biggest Shows Dominate 50% of the Global Charts
+
+TV News, Taylor Sheridan, Hot on Streaming
+
+Fri, 04 Sep 2026 19:31:13 GMT
+
+https://movieweb.com/taylor-sheridan-paramount-plus-streaming-success-september-2026/
+
+This is why you should never question the power of Taylor Sheridan.
+---------
+
+# The 28 Most Powerful DC Characters, Ranked
+
+Movie Lists, DCU, Superman, Batman, Superhero
+
+Fri, 04 Sep 2026 19:09:13 GMT
+
+https://movieweb.com/most-powerful-dc-characters-ranked/
+
+Be they alien, god, or meta-human, these are the strongest characters that DC Comics has in its arsenal.
+---------
+
+# Netflix Replaces Tom Hanks' Robert Langdon as New Dan Brown Thriller Crosses Major Milestone
+
+TV News, The Secret of Secrets, Tom Hanks, Mystery
+
+Fri, 04 Sep 2026 19:08:59 GMT
+
+https://movieweb.com/secret-of-secrets-robert-langdon-first-look-netflix/
+
+Netflix has officially replaced Tom Hanks' Robert Langford in the first look at the new mystery thriller adaptation 'The Secret of Secrets.'
+---------
+
+# 8 Netflix Shows That Are Perfect at Just One Season
+
+TV Lists, Netflix, The Haunting of Hill House, The Fall of the House of Usher
+
+Fri, 04 Sep 2026 19:01:13 GMT
+
+https://movieweb.com/netflix-shows-perfect-one-season/
+
+Netflix has many great long-running TV series, but these shows didn't need more than one season to impress.
+---------
+
+# Michael Fassbender's New Sci-Fi Action Thriller Is an Insanely Fun Alien Invasion Epic | Review
+
+Movie Reviews, Hope, Michael Fassbender, Sci-Fi, Thriller, Action
+
+Fri, 04 Sep 2026 19:01:13 GMT
+
+https://movieweb.com/hope-review/
+
+Aliens are on the loose in a small South Korean town in director Na Hong-jin's alien invasion epic 'Hope.'
+---------
+
+# Jon Bernthal's 128-Minute "John Wick Meets Reacher" Action Thriller Returns To Dominate Streaming
+
+Movie News, Jon Bernthal, The Accountant, Action, Thriller, Apple TV
+
+Fri, 04 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/jon-bernthal-accountant-action-streaming-september-2026/
+
+He sees what others can't. He does what others won't.
+---------
+
+# The 10 Best Comic Strips From the '90s (Including The Far Side)
+
+TV Lists, comics, The Far Side
+
+Fri, 04 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/far-side-best-comic-strips-90s/
+
+The 1990s were a decade of transition for comic strips, but these are the most memorable ones, including Gary Larson's 'The Far Side.'
+---------
+
+# Surprise Indie Smash With 88% RT Score Set To Dethrone Ridley Scott’s Post-Apocalyptic Thriller
+
+Movie News, Buddy, Box Office Milestones
+
+Fri, 04 Sep 2026 17:44:16 GMT
+
+https://movieweb.com/ridley-scott-the-dog-stars-buddy-box-office/
+
+Ridley Scott's The Dog Stars is already being outpaced day to day by Buddy.
+---------
+
+# New Psychological Sci-Fi Thriller Starring Léa Seydoux Rivals Scarlett Johansson's R-Rated Cult Classic
+
+Movie News, The Unknown, Lea Seydoux
+
+Fri, 04 Sep 2026 17:36:04 GMT
+
+https://movieweb.com/lea-seydoux-the-unknown-teaser-trailer/
+
+Léa Seydoux leads a new trailer for the critically acclaimed sci-fi thriller 'The Unknown.'
+---------
+
 # CBS Has A Genius Meta-Reference To Tracker Season 4’s Biggest Change
 
 Network TV, Tracker
