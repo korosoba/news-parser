@@ -1,3 +1,377 @@
+# Onslaught Doesn't Have A Post-Credits Scene, But You'll Regret Leaving Early (It Sets Up A Sequel)
+
+Movies, Onslaught
+
+Fri, 04 Sep 2026 23:30:14 GMT
+
+https://screenrant.com/onslaught-movie-post-credits-scene-explained/
+
+There are Easter eggs sprinkled throughout end credits of Adam Wingard's Onslaught that provide hints for future franchise installments.
+---------
+
+# 10 Gangster Dramas That Deserve To Be As Big As The Sopranos
+
+Classic TV, The Sopranos
+
+Fri, 04 Sep 2026 23:30:14 GMT
+
+https://screenrant.com/gangster-tv-shows-deserve-the-sopranos-success/
+
+HBO's The Sopranos has stood the test of time. But instead of rewatching it yet again, maybe give some of these critically praised series a chance.
+---------
+
+# NCIS: Origins Announces Special Companion Series Ahead Of Season 3 Premiere
+
+TV, NCIS: Origins
+
+Fri, 04 Sep 2026 23:20:44 GMT
+
+https://screenrant.com/ncis-origins-mike-franks-online-series/
+
+Before NCIS: Origins season 3 premieres on CBS next month, a special companion series is being released online for fans of the prequel.
+---------
+
+# Marvel Confirms Star-Lord's New Costume Ahead Of Next Guardians Of The Galaxy Appearance
+
+Marvel Comics, Star-Lord, Guardians of the Galaxy
+
+Fri, 04 Sep 2026 23:09:59 GMT
+
+https://screenrant.com/marvel-star-lord-new-costume-next-guardians-galaxy/
+
+Star-Lord makes his grand return, wearing a breathtaking adaptation of Peter Quill's first comic costume, complete with a full helmet and goggles.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (September 5-6)
+
+Movies, Prime Video, Recommendation
+
+Fri, 04 Sep 2026 23:03:18 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-september-5/
+
+Prime Video's best movies this weekend include a Martin Scorsese suspense classic, a Tom Cruise action film, and Gal Gadot's new thriller.
+---------
+
+# 26 Years Later, A Near-Perfect PlayStation 1 Classic Is Returning On PS5
+
+Gaming, PlayStation, PlayStation 5, PlayStation Plus, Triple-A Games, Dino Crisis
+
+Fri, 04 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/playstation-ps1-classic-dino-crisis-ps-plus/
+
+A beloved PlayStation 1 classic is making an official comeback, 26 years after its official release, arriving for free on PlayStation 5 consoles.
+---------
+
+# Star Wars Meets Firefly In The BBC’s 52-Episode Space Opera With 100% On Rotten Tomatoes
+
+Classic TV, Masked Recs
+
+Fri, 04 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/blakes-7-bbc-space-opera-like-star-wars-firefly/
+
+A gritty 1978 space opera that pairs moral ambiguity with high stakes rebellion to create a sweeping sci-fi saga light years ahead of its time.
+---------
+
+# Every Major Mystery One Piece Needs to Explain Before It Ends
+
+Anime, One Piece
+
+Fri, 04 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/every-major-one-piece-mystery-needs-solve/
+
+After close to three decades, One Piece is at last in the final leg of its story, but the series can't end before it addresses these mysteries.
+---------
+
+# Netflix's New R-Rated Adaptation Of Thriller Comics Series Officially Storms Streaming With 2M Viewership Debut
+
+TV, Masked Recs, Netflix
+
+Fri, 04 Sep 2026 22:54:26 GMT
+
+https://screenrant.com/netflix-mousetrap-show-streaming-charts-viewership-september-2026/
+
+Netflix's new adaptation based on a thrilling comic series officially storms the streaming charts with a strong debut of 2 million views.
+---------
+
+# The Last Of Us Season 3 Is Moving Forward Without One Of Its Key Creators
+
+TV, The Last of Us
+
+Fri, 04 Sep 2026 22:45:19 GMT
+
+https://screenrant.com/the-last-of-us-season-3-moving-forward-without-neil-druckmann/
+
+One of the creators of the hit HBO video game adaptation, The Last of Us, offers more clarity regarding his status on season 3 of the series.
+---------
+
+# 7 Strongest Dragon Ball Characters Who Never Fought Goku, Ranked
+
+Anime, Dragon Ball, Goku, Akira Toriyama
+
+Fri, 04 Sep 2026 23:45:11 GMT
+
+https://www.cbr.com/strongest-dragon-ball-characters-who-never-fought-goku/
+
+Goku has taken on most of Dragon Ball's fiercest foes, but there are still several characters who have somehow never traded blows with the Saiyan.
+---------
+
+# Blumhouse Officially Announces Remake of Highly-Praised Horror Movie
+
+Movies, Blumhouse, Horror
+
+Fri, 04 Sep 2026 23:21:41 GMT
+
+https://www.cbr.com/blumhouse-remake-vincent-must-die/
+
+Blumhouse Atomic Monster now has multiple horror movie remakes in development.
+---------
+
+# Strongest Bounty Hunters In Anime History, Ranked
+
+Anime, One Piece, Hunter x Hunter
+
+Fri, 04 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/strongest-bounty-hunters-anime-history-ranked/
+
+Anime has featured plenty of deadly bounty hunters, but these five stand out as the strongest of them all.
+---------
+
+# Steam Officially Makes Civilization VII Free to Play Until September 10, Plus an Additional Freebie
+
+Games, Civilization
+
+Fri, 04 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/civilization-free-steam-first-class-trouble/
+
+The latest entry in one of the greatest gaming franchises of all time is free for the next week on Steam, plus another great gaming experience.
+---------
+
+# Star Trek’s Canceled 92% RT Series Returns to Streaming Charts After Changing Genre
+
+Movies, Star Trek: Strange New Worlds, Star Trek, Paramount+ with Showtime, Innovation
+
+Fri, 04 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-success-paramount-plus-september-2026/
+
+A genre shift brings big results for Star Trek's canceled series.
+---------
+
+# 5 Greatest Time Travel Books of All Time, Ranked
+
+Movies, Sci-Fi
+
+Fri, 04 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/best-time-travel-books-of-all-time-ranked/
+
+Time travel books can rewrite history and reshape the future, creating some of the most imaginative stories in the history of science fiction.
+---------
+
+# Taylor Sheridan's Hit 3-Part Spy Series Is CIA Yellowstone (& It's Perfect)
+
+TV, Yellowstone, Lioness, Paramount
+
+Fri, 04 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/taylor-sheridan-lioness-cia-yellowstone/
+
+Taylor Sheridan's three-part CIA thriller on Paramount+ is a great watch for Yellowstone fans looking for even more star power and high-stakes action.
+---------
+
+# Studio Ghibli Releases Its Annual Totoro Collector's Plate for 2027
+
+Anime, My Neighbor Totoro, collectibles, merchandise, Studio Ghibli
+
+Fri, 04 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/studio-ghibli-totoro-collectors-plate-2027/
+
+In preparation for the upcoming New Year, Studio Ghibli officially opens pre-orders for its new 2027 collector's plate starring Totoro and the Catbus.
+---------
+
+# Stargate Fan Campaign to Rescue Amazon's Canceled Revival Continues After New Milestone
+
+TV, Stargate
+
+Fri, 04 Sep 2026 22:33:57 GMT
+
+https://www.cbr.com/stargate-fan-campaign-save-amazon-series-update/
+
+Fans continue to rally for Amazon to reverse its decision to cancel a planned Stargate revival.
+---------
+
+# Gal Gadot’s New 84-Minute Action Movie Sets a New Rotten Tomatoes Record
+
+Movies, The Runner
+
+Fri, 04 Sep 2026 22:17:07 GMT
+
+https://www.cbr.com/gal-gadot-the-runner-rotten-tomatoes-record/
+
+The action film continues an unfortunate three-year-old Rotten Tomatoes trend.
+---------
+
+# 3 Greatest Series to Binge on Prime Video This Weekend (September 5-6)
+
+TV, The Grand Tour, My Lady Jane, Prime Video, Spider-Noir
+
+Fri, 04 Sep 2026 23:43:11 GMT
+
+https://collider.com/prime-video-shows-binge-september-5-2026/
+
+The Grand Tour, Spider-Noir, and My Lady Jane make up our list of the best shows to binge on Prime Video the weekend of September 5.
+---------
+
+# ‘Harry Potter and the Goblet of Fire’ Almost Looked Completely Different
+
+Movie News, Alfonso Cuaron, Harry Potter and the Goblet of Fire, Mike Newell, David Heyman
+
+Fri, 04 Sep 2026 23:30:11 GMT
+
+https://collider.com/harry-potter-and-the-goblet-of-fire-director-mike-newell-bollywood-pitch/
+
+Harry Potter producer David Heyman recalled director Mike Newell's unique pitch for Harry Potter and the Goblet of Fire. Find out more here.
+---------
+
+# Jason Statham’s Sci-Fi Mega-Hit Officially Swims Toward HBO Max
+
+Movie News, Jason Statham, The Meg, HBO Max, Sci-Fi
+
+Fri, 04 Sep 2026 23:06:17 GMT
+
+https://collider.com/jason-statham-the-meg-streaming-hbo-max-september-2026/
+
+Jason Statham’s global box office sensation has found a new hunting ground on HBO Max. Read on for more.
+---------
+
+# ‘Star Trek’ Officially Soars Onto Streaming for 60th Anniversary
+
+Movie News, Star Trek, Star Trek Into Darkness, Star Trek Beyond
+
+Fri, 04 Sep 2026 23:00:11 GMT
+
+https://collider.com/star-trek-reboot-trilogy-streaming-peacock-september-2026/
+
+To celebrate Star Trek's 60th anniversary, the reboot trilogy of films is now available on a new streaming home. Read on for more.
+---------
+
+# The 8 Most Fun Action Movies of the 1990s, Ranked
+
+Movie, Last Action Hero, Men in Black, The Mummy, Action
+
+Fri, 04 Sep 2026 22:48:11 GMT
+
+https://collider.com/most-fun-action-movies-1990s-ranked/
+
+Men In Black, Speed, and The Mummy are all among the best, most purely fun and entertaining action movies of the 1990s.
+---------
+
+# 10 Exciting Thriller Shows That Don't Slow Down for a Single Episode
+
+TV, Thriller, Breaking Bad, Better Call Saul, The Sopranos
+
+Fri, 04 Sep 2026 22:44:11 GMT
+
+https://collider.com/exciting-thriller-shows-fast-paced/
+
+Dive into exciting thriller TV series that maintain high stakes and quality throughout every episode, from The Americans to Mr. Robot.
+---------
+
+# A Dozen Ways Van Halen Damaged Its Own Legacy
+
+Music Features, Music, Van Halen
+
+Fri, 04 Sep 2026 21:59:11 GMT
+
+https://collider.com/how-van-halen-damaged-its-own-legacy/
+
+Since the disastrous MTV VMAs appearance in 1996, Van Halen has done everything possible to tarnish their legacy.
+---------
+
+# 'Guardians of the Galaxy' Spin-Off Officially Happening With Main Character Confirmed
+
+Movie News, NOVA, Michael Waldron, Superhero
+
+Fri, 04 Sep 2026 23:30:41 GMT
+
+https://movieweb.com/nova-guardians-of-the-galaxy-spin-off-movie-confirmed/
+
+A Marvel hero with major connections to the Guardians of the Galaxy is set to come to the big screen in a new solo movie.
+---------
+
+# Tom Hardy's $533 Million Action Epic Is Officially Making a Comeback on Streaming
+
+Movie News, The Revenant, HBO Max, Hot on Streaming, Tom Hardy, Action
+
+Fri, 04 Sep 2026 23:30:13 GMT
+
+https://movieweb.com/the-revenant-tom-hardy-action-stream-hbo-sept-2026/
+
+Tom Hardy + a killer revenge story = a great movie.
+---------
+
+# Dan Stevens Confirms 'Onslaught's Deep Connection to Cult-Classic Action Thriller
+
+Movie News, Onslaught, The Guest, Dan Stevens, Adam Wingard, A24, Action
+
+Fri, 04 Sep 2026 23:25:27 GMT
+
+https://movieweb.com/onslaught-dan-stevens-the-guest-connection/
+
+Adam Wingard's latest has a surprising number of connections to his 2014 film.
+---------
+
+# "Tolkien Meets Avatar: The Last Airbender" in Netflix's 100% RT Fantasy Series Nobody Talks About
+
+Features, The Dragon Prince, Netflix, Fantasy
+
+Fri, 04 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/dragon-prince-netflix-tolkien-avatar-last-airbender-comparison/
+
+Netflix's seven-part fantasy epic is basically Tolkien meets Avatar: The Last Airbender, and it's a shame that so few people give it recognition.
+---------
+
+# 68 Years Later, Cult-Classic Gothic Supernatural Thriller Officially Getting New Release
+
+Movie News, Dracula, Horror, Thriller, Blu-ray
+
+Fri, 04 Sep 2026 22:30:14 GMT
+
+https://movieweb.com/horror-of-dracula-4k-blu-ray-release/
+
+Warner Archive and Hammer Films are preparing a 4K Blu-ray and Blu-ray releases of Terence Fisher's gothic cult classic 'Horror of Dracula.'
+---------
+
+# Nicolas Cage's Spider-Man's Fate Officially Confirmed by Prime Video
+
+TV News, Spider-Noir, Prime Video, Nicolas Cage
+
+Fri, 04 Sep 2026 22:06:15 GMT
+
+https://movieweb.com/spider-noir-canceled-prime-video-nicolas-cage-spider-man/
+
+'Spider-Noir' is officially canceled after a single season.
+---------
+
+# 'The Matrix' Co-Creator Officially Addresses Drew Goddard's Long-Awaited Sequel
+
+Movie News, The Matrix 5, The Matrix, Lilly Wachowski, Sci-Fi
+
+Fri, 04 Sep 2026 22:01:01 GMT
+
+https://movieweb.com/the-matrix-5-lilly-wachowski-update/
+
+Lilly Wachowski said Drew Goddard wants her blessing to finally make 'The Matrix 5.'
+---------
+
 # Lost Meets Severance In The Original Mystery Box TV Series With 100% On Rotten Tomatoes
 
 Classic TV, Masked Recs
