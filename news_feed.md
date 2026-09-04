@@ -1,3 +1,443 @@
+# CBS Has A Genius Meta-Reference To Tracker Season 4’s Biggest Change
+
+Network TV, Tracker
+
+Fri, 04 Sep 2026 17:15:14 GMT
+
+https://screenrant.com/tracker-season-4-los-angeles-production-move-meta-reference-genius/
+
+Tracker season 4 is shifting its entire production to Los Angeles, nodding to the move with a clever meta reference in the season's premiere episode.
+---------
+
+# Godzilla Officially Returns Fall 2026 In Epic New RPG
+
+Tabletop, Godzilla, tabletop games
+
+Fri, 04 Sep 2026 17:00:15 GMT
+
+https://screenrant.com/godzilla-fall-2026-rpg/
+
+Godzilla is set to officially return this fall with an epic new RPG experience, bringing kaiju, survivors, mutants, and destruction to life.
+---------
+
+# The BBC's 12-Episode Spy Series With Avengers Star Is Perfect For Binging
+
+Streaming TV, Masked Recs
+
+Fri, 04 Sep 2026 17:00:15 GMT
+
+https://screenrant.com/the-night-manager-watch-in-one-go/
+
+After becoming one of Marvel's biggest stars, Tom Hiddleston played a leading role in The Night Manager, which is a perfect 12-episode binge.
+---------
+
+# Why Odysseus Shot The Cyclops With An Arrow After Escaping & How It Changes The Odyssey's Story
+
+Movies, The Odyssey
+
+Fri, 04 Sep 2026 16:55:14 GMT
+
+https://screenrant.com/the-odyssey-movie-odysseus-cyclops-arrow-scene-explained/
+
+There was a scene in The Odyssey that seemed out of place for Odysseus with the Cyclops, and here is the reason he shot the monster before leaving.
+---------
+
+# Smile 2: What Was Real & What Scenes Didn't Really Happen
+
+New Movies, Smile 2
+
+Fri, 04 Sep 2026 16:54:14 GMT
+
+https://screenrant.com/smile-2-what-was-real-not/
+
+The Smile entity went to new lengths to haunt its host in Smile 2, completely erasing the lines between what was real and what was a hallucination.
+---------
+
+# Guy Ritchie's The Gentlemen Season 2 Sets All-Time Record For Franchise
+
+TV, The Gentlemen
+
+Fri, 04 Sep 2026 16:53:57 GMT
+
+https://screenrant.com/the-gentlemen-season-2-rotten-tomatoes-score/
+
+The Gentlemen season 2 is breaking records for the Guy Ritchie franchise, as the Rotten Tomatoes score has proven the Netflix series is a success.
+---------
+
+# The Gentlemen Season 2 Interviews with Theo James, Kaya Scodelario & More
+
+TV, The Gentlemen, The Gentlemen - Season 2, Theo James
+
+Fri, 04 Sep 2026 16:47:38 GMT
+
+https://screenrant.com/video/the-gentlemen-season-2-theo-james-kaya-scodelario-cast-interview/
+
+The Gentlemen stars Theo James, Kaya Scodelario, Benedetta Porcaroli, Vinnie Jones, Giancarlo Esposito, and Ray Winstone break down the complicated character dynamics in season 2.
+---------
+
+# 36 Years Later, Back To The Future Stars Have Adorable New Reunion In New Photos
+
+Movies, Back to the Future Part III, Back to the Future, Mary Steenburgen, Christopher Lloyd
+
+Fri, 04 Sep 2026 16:47:01 GMT
+
+https://screenrant.com/back-to-the-future-christopher-lloyd-mary-steenburgen-reunion/
+
+As seen in a brand-new photo on Instagram, an exciting Back to the Future reunion has taken place over three decades after the sci-fi trilogy ended.
+---------
+
+# Why Dexter's New Star Is Ready To Say Goodbye To His Character After 1 Season
+
+TV, Dexter: Resurrection
+
+Fri, 04 Sep 2026 16:46:39 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-dan-stevens-character/
+
+Dexter: Resurrection season 2 is going to get messy, as one actor is very eager to say goodbye to his "nasty" character after the second season.
+---------
+
+# A Tale Of Two Cities Review: Kit Harington Shines In An Elegant Twist On Dickens' Classic Romance
+
+Streaming TV, A Tale Of Two Cities
+
+Fri, 04 Sep 2026 16:45:11 GMT
+
+https://screenrant.com/a-tale-of-two-cities-tv-review/
+
+MGM+'s new take on the classic Charles Dickens historical drama turns the book into a French Revolutionary Twilight. Which is better than it sounds.
+---------
+
+# 10 Anime Arcs Where the Villain Dies
+
+Anime, Dragon Ball, Jujutsu Kaisen, Naruto
+
+Fri, 04 Sep 2026 17:15:11 GMT
+
+https://www.cbr.com/anime-arcs-where-the-villain-dies/
+
+While many anime arcs allow their villains to survive and fight another day, these storylines end with the deaths of their major antagonists.
+---------
+
+# Yellowstone Confirms Rip's Replacement in Dutton Ranch
+
+TV, Dutton Ranch, Yellowstone, Paramount Plus, Innovation
+
+Fri, 04 Sep 2026 17:08:49 GMT
+
+https://www.cbr.com/dutton-ranch-rip-wheeler-cole-hauser-replacement-yellowstone/
+
+Dutton Ranch replaces Rip Wheeler's Yellowstone role in the latest spinoff of Taylor Sheridan's original series that Kevin Costner led as John Dutton.
+---------
+
+# Jason Bateman's 10-Part Horror Thriller Is the Tightest Adaptation of a Stephen King Novel
+
+TV, The Outsider, HBO Max, Innovation, Horror, Stephen King
+
+Fri, 04 Sep 2026 17:08:24 GMT
+
+https://www.cbr.com/hbo-the-outsider-best-stephen-king-tv-adaptation/
+
+Although many Stephen King stories have been adapted for TV, only one series stands out as the best and remains widely underrated.
+---------
+
+# Netflix's 'Slick' Guy Ritchie Gangster Hit Returns 'Bigger & Bloodier' Than Season 1
+
+TV, The Gentlemen, Rotten Tomatoes
+
+Fri, 04 Sep 2026 16:56:42 GMT
+
+https://www.cbr.com/netflix-the-gentlemen-season-2-rotten-tomatoes-score/
+
+The series returned, but it's future has never been brighter.
+---------
+
+# Ocarina of Time Collector’s Edition Leaks Ahead of Zelda 40th Anniversary Direct
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Fri, 04 Sep 2026 16:35:20 GMT
+
+https://www.cbr.com/zelda-ocarina-time-remake-collectors-edition-leak-direct/
+
+A greater look at the Ocarina of Time remake will finally come in the Zelda 40th Anniversary Direct, but a big surprise may have been spoiled.
+---------
+
+# 10 Fantasy Books With the Greatest Worlds
+
+Movies, Fantasy
+
+Fri, 04 Sep 2026 16:30:11 GMT
+
+https://www.cbr.com/fantasy-books-with-greatest-worlds-list/
+
+Settings that are filled with magic, wonder, and awe, excellent world-building is one of the most essential aspects of a good fantasy novel.
+---------
+
+# Kenneth Branagh's Agatha Christie Return Teased After Hercule Poirot Recasting
+
+Movies, Murder on the Orient Express, A Haunting in Venice, Mystery
+
+Fri, 04 Sep 2026 16:24:36 GMT
+
+https://www.cbr.com/kenneth-branagh-agatha-christie-future/
+
+Kenneth Branagh starred in three Agatha Christie adaptations as Hercule Poirot, and many fans are wondering whether he'll return for another sequel.
+---------
+
+# Zelda: Ocarina of Time Remake Gets Major Production Update From Official Retailer
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Fri, 04 Sep 2026 16:21:11 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-monolith-soft-developer/
+
+Ahead of Zelda’s 40th anniversary Direct on Sept 8, the team behind Xenoblade Chronicles was revealed as lead developer of the Ocarina of Time remake.
+---------
+
+# James Bond Frontrunner Takes Himself Out of the Running, and for Good Reason
+
+Movies, James Bond
+
+Fri, 04 Sep 2026 16:19:52 GMT
+
+https://www.cbr.com/why-theo-james-wont-be-james-bond-amazon-reboot/
+
+Amazon is narrowing in on the next 007, but it won't be this popular British actor, and he's got a good reason for taking himself out of the running.
+---------
+
+# Casting Dragon Ball Z If It Were Made Into a Movie in 2026
+
+Anime, Dragon Ball, Dragon Ball Z
+
+Fri, 04 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/dragon-ball-z-live-action-movie-fan-castings/
+
+If the Dragon Ball Z universe was brought into live-action properly, these actors would excel as Goku, Vegeta, and the other stars.
+---------
+
+# 'Wheel of Time's Replacement Officially Returns This Month
+
+Books and Comics News, The Wheel of Time, Fourth Wing, Fantasy
+
+Fri, 04 Sep 2026 17:06:41 GMT
+
+https://collider.com/fourth-wing-threshing-day-release-date-september-2026-rebecca-yarros/
+
+Rebecca Yarros’ newest Fourth Wing book, Threshing Day, officially arrives this month with 13 new stories from the Empyrean series.
+---------
+
+# 6 Looney Tunes Characters Who Deserve Their Own 'Coyote vs. Acme' Movie
+
+Movie, Coyote Vs. Acme, Looney Tunes, Animation, Comedy
+
+Fri, 04 Sep 2026 17:04:11 GMT
+
+https://collider.com/coyote-vs-acme-looney-tunes-characters-deserve-movie/
+
+After the revival and success of Coyote vs. Acme, we think other Looney Tunes characters, like Marvin the Martian, deserve their own solo movie.
+---------
+
+# Mission: Impossible Star's 12-Part 'Slow Horses' Replacement Is Officially a Streaming Sleeper Hit
+
+TV News, The Undeclared War, Simon Pegg, Peacock, Slow Horses
+
+Fri, 04 Sep 2026 17:00:11 GMT
+
+https://collider.com/simon-pegg-peacock-spy-thriller-the-undeclared-war-season-2-streaming-success-september-2026/
+
+Simon Pegg from Mission: Impossible stars in Peacock's sleeper hit spy thriller, The Undeclared War, which recently returned for Season 2.
+---------
+
+# One of Prime Video’s Biggest Sci-Fi Stars Is Trading the Apocalypse for Christmas [Exclusive]
+
+Movie News, Fallout, Sarita Choudhury, Christmas, Russell Tovey
+
+Fri, 04 Sep 2026 17:00:11 GMT
+
+https://collider.com/fallout-star-sarita-choudhury-cast-first-christmas/
+
+Fallout star Sarita Choudhury joins Russell Tovey, Eleanor Tomlinson, Mark Addy, and more in the upcoming dark holiday comedy First Christmas.
+---------
+
+# George R.R. Martin’s Biggest ‘Game of Thrones’ Release of the Year Is Officially Changing Its Winning Formula
+
+TV News, George R.R. Martin, Game Of Thrones, Game of Thrones: The Mad King, HBO
+
+Fri, 04 Sep 2026 16:54:04 GMT
+
+https://collider.com/game-of-thrones-the-mad-king-london-2027-george-rr-martin/
+
+George R. R. Martin officially confirms Game of Thrones: The Mad King will transfer to London in 2027 after its acclaimed RSC run.
+---------
+
+# The "Big 3" of Gaming, Ranked
+
+Gaming, Video Game, Nintendo, PlayStation (Original), Xbox 360
+
+Fri, 04 Sep 2026 16:06:11 GMT
+
+https://collider.com/big-3-gaming-ranked/
+
+While there are many companies, the Big 3 of the gaming world are Nintendo, Sony, and Microsoft. Which of them reigns supreme in the industry, though?
+---------
+
+# Rebecca Ferguson’s ‘Silo’ Officially Reveals First Look at Its Fourth and Final Season
+
+TV News, Silo, Rebecca Ferguson, Sci-Fi, Apple TV
+
+Fri, 04 Sep 2026 16:03:07 GMT
+
+https://collider.com/silo-season-4-first-look-sneak-peek-release-date-rebecca-ferguson/
+
+Watch the first sneak peek at Silo Season 4 as Rebecca Ferguson returns as Juliette Nichols for the Apple TV sci-fi series’ final chapter.
+---------
+
+# 'Percy Jackson and the Olympians' Showrunners' New Series Officially Cancelled at Disney+
+
+TV News, Percy Jackson & the Olympians, Power Rangers, Disney+, Percy Jackson & The Olympians
+
+Fri, 04 Sep 2026 16:00:11 GMT
+
+https://collider.com/power-rangers-series-cancelled/
+
+Disney+ halts development on new Power Rangers series due to budget concerns, despite involvement of Percy Jackson showrunners.
+---------
+
+# Johnny Knoxville Officially Moves On From 'Jackass' With New R-Rated Movie 'Tiny Fugitives' [Exclusive]
+
+Exclusives, Johnny Knoxville, Jackass, Comedy, Jackass Forever
+
+Fri, 04 Sep 2026 16:00:11 GMT
+
+https://collider.com/tiny-fugitives-johnny-knoxville-release-date-trailer/
+
+Johnny Knoxville’s new comedy Tiny Fugitives officially hits theaters September 18, with the Jackass star playing a deranged camp counselor.
+---------
+
+# No, ‘Mayday’s Ryan Reynolds and Kenneth Branagh Aren’t Just Pretending to Be Friends
+
+Collider Signature, Ryan Reynolds, Kenneth Branagh, Apple TV, Mayday, profile
+
+Fri, 04 Sep 2026 16:00:11 GMT
+
+https://collider.com/ryan-reynolds-kenneth-branagh-mayday-apple-tv-interview/
+
+Ryan Reynolds and Kenneth Branagh reveal how their real-life friendship and unexpected chemistry shaped Apple TV’s buddy action-comedy Mayday.
+---------
+
+# 25 Years Later, Ridley Scott’s Epic Still Has the Greatest Quote in War Movie History
+
+Features, Black Hawk Down, Ridley Scott, Action
+
+Fri, 04 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/black-hawk-down-ridley-scott-best-quote/
+
+One of Ridley Scott's most acclaimed epics still resonates today, and includes one of the most impactful quotes you'll find in a war movie.
+---------
+
+# After 19 Years, 'The Big Bang Theory' Sets a Franchise Record With New Release
+
+Features, Stuart Fails to Save the Universe, The Big Bang Theory, Young Sheldon, Georgie & Mandy's First Marriage, Comedy, Sci-Fi, Kevin Sussman, HBO Max
+
+Fri, 04 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/tbbt-stuart-spinoff-shortest-episode-ever-franchise-record/
+
+Despite only having a runtime of 15 minutes, 'Stuart Fails to Save the Universe' Episode 7 is still an action-packed adventure full of laughs.
+---------
+
+# One of TV's Best Sci-Fi Thrillers Cements Its Status as a Streaming Smash With Season 2
+
+TV News, Dark Matter, Hot on Streaming, Sci-Fi, Apple TV
+
+Fri, 04 Sep 2026 16:45:14 GMT
+
+https://movieweb.com/dark-matter-season-2-sci-fi-streaming-hit-apple-tv-september-2026/
+
+Apple TV's cerebral sci-fi-thriller is finally back and has wasted no time making its presence felt on streaming.
+---------
+
+# 'The Odyssey' Dethrones 'Spider-Man' for Massive Box Office Record as the Blockbuster Battle Continues
+
+Movie News, Box Office Milestones
+
+Fri, 04 Sep 2026 16:22:39 GMT
+
+https://movieweb.com/the-odyssey-dethrones-spider-man-brand-new-day-box-office/
+
+After weeks of sitting just behind 'Spider-Man: Brand New Day,' 'The Odyssey' has finally taken the top spot for a day.
+---------
+
+# 'Silo' Suddenly Canonizes a Shocking Theory Once Believed Totally Debunked
+
+Features, Silo, Sci-Fi
+
+Fri, 04 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/silo-season-3-outside-twist/
+
+Apple TV's 'Silo' has already revealed that it isn't safe to go outside, but the mystery is more complex than it seems. Read on for more.
+---------
+
+# 10 Great Detective Thriller Movies That Are Totally Unpredictable
+
+Movie Lists, Thriller
+
+Fri, 04 Sep 2026 15:30:14 GMT
+
+https://movieweb.com/detective-thriller-movies-unpredictable/
+
+Whether they subvert the genre with unique mysteries or blend tones, these detective films are totally unpredictable.
+---------
+
+# 24 Years Later, One of the Greatest Action Thriller Franchises Ever Returns To Dominate Streaming
+
+Movie News, Bourne, Matt Damon, Hot on Streaming, Action
+
+Fri, 04 Sep 2026 15:30:14 GMT
+
+https://movieweb.com/matt-damon-jason-bourne-action-streaming-hit-starz-september-2026/
+
+Ahead of Matt Damon's potential return to the series, the influential action franchise is finding new life on streaming.
+---------
+
+# HBO's 'Harry Potter' Finally Confirms Key Voldemort Casting Alongside Dobby & New Ginny
+
+TV News, Harry Potter, Fantasy, HBO Max
+
+Fri, 04 Sep 2026 15:27:01 GMT
+
+https://movieweb.com/harry-potter-season-2-ginny-weasley-dobby-cast/
+
+The upcoming 'Harry Potter' reboot now has stars to play a trio of important characters in Season 2, including a version of an epic villain.
+---------
+
+# Glen Powell Officially Remaking "Spectacular" Serial Killer Action Thriller
+
+Movie News, Glen Powell, Confession of Murder
+
+Fri, 04 Sep 2026 15:25:32 GMT
+
+https://movieweb.com/glen-powell-confession-of-murder-remake/
+
+The 2012 Korean film 'Confession of Murder' is officially getting an American twist, with none other than Glen Powell.
+---------
+
+# Keanu Reeves' New "Jaws Meets Edge of Tomorrow" Action Thriller Blockbuster Is Coming in 2027
+
+Features, Keanu Reeves, Action, Sci-Fi, Thriller
+
+Fri, 04 Sep 2026 15:00:13 GMT
+
+https://movieweb.com/keanu-reeves-action-thriller-shiver/
+
+Reeves will star in a high-concept sci-fi action thriller called Shiver, and it could be among the biggest blockbusters next year.
+---------
+
 # Why Star Trek: Strange New Worlds’ Soap Opera Episode Guest Stars Look So Familiar
 
 TV, Star Trek, Star Trek: Strange New Worlds
