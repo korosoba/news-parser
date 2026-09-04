@@ -1,3 +1,366 @@
+# The Lord Of The Rings: Sieges Of Middle-Earth Officially Arrives Winter 2026
+
+Gaming, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, PC
+
+Fri, 04 Sep 2026 04:30:14 GMT
+
+https://screenrant.com/lord-of-the-rings-sieges-middle-earth-winter-2026/
+
+The Lord of the Rings will officially return this winter with Sieges of Middle-Earth, a brand-new RPG expansion for War of the Ring.
+---------
+
+# A New Foundation Adaptation Has Officially Been Unveiled
+
+Gaming, Foundation, PC
+
+Fri, 04 Sep 2026 04:00:19 GMT
+
+https://screenrant.com/foundation-new-adaptation-official-announcement/
+
+A brand-new adaptation of the legendary sci-fi series Foundation has officially been announced, much to the delight of fans.
+---------
+
+# A Knight Of The Seven Kingdoms Officially Continues With The Bald Boy Squire September 30
+
+Gaming, A Knight Of The Seven Kingdoms, PC, Game of Thrones, Game of Thrones: Legends
+
+Fri, 04 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-bald-boy-squire-game-of-thrones-legends/
+
+A Knight of the Seven Kingdoms officially returns ahead of season 2 with the release of The Bald Boy Squire on September 30.
+---------
+
+# Apple TV’s Highly Ambitious Sci-Fi Show Is Becoming As Good As Netflix’s Dark
+
+Streaming TV, Masked Recs
+
+Fri, 04 Sep 2026 02:58:32 GMT
+
+https://screenrant.com/apple-tv-dark-matter-season-2-netflix-sci-fi-potential/
+
+One of Apple TV’s best sci-fi shows, Dark Matter, is becoming so compelling that it is hard not to see how it can eventually rival Netflix’s Dark.
+---------
+
+# James Gunn's DCU Reveals A Major Truth About Nathan Fillion's Green Lantern
+
+Superheroes, Lanterns, DC Universe, Superman
+
+Fri, 04 Sep 2026 02:30:15 GMT
+
+https://screenrant.com/dcu-reveals-truth-about-guy-gardner-green-lantern-vows/
+
+Thanks to the newest release in James Gunn's DCU, we now know a key truth about Guy Gardner's Green Lantern, first featured in 2025's Superman.
+---------
+
+# Prime Video's Canceled Sci-Fi Reboot Would Have Filled The Void Left By Battlestar Galactica
+
+Classic TV, Masked Recs
+
+Fri, 04 Sep 2026 02:30:06 GMT
+
+https://screenrant.com/stargate-prime-video-reboot-fill-battlestar-galactica-void/
+
+There hasn't been another reboot like Battlestar Galactica in 17 years, but we came painfully close to getting a sci-fi that would have changed that.
+---------
+
+# There's Only 1 Zombie Apocalypse Darker Than Walking Dead
+
+Comics, The Walking Dead
+
+Fri, 04 Sep 2026 02:28:08 GMT
+
+https://screenrant.com/crossed-zombie-apocalypse-darker-walking-dead/
+
+The Walking Dead's zombie-infested dystopia may be iconic, but there's another undead apocalypse with an even more terrifying version of the undead.
+---------
+
+# Is That R2-D2 In The Mandalorian & Grogu? Star Wars Cameo Explained
+
+Movies, The Mandalorian and Grogu, R2-D2
+
+Fri, 04 Sep 2026 02:00:24 GMT
+
+https://screenrant.com/is-r2d2-in-the-mandalorian-and-grogu-movie/
+
+The Mandalorian and Grogu refrained from having too many Star Wars cameos, but fans are convinced that one fan-favorite droid was in the movie.
+---------
+
+# Harry Potter Meets Pokémon In Huge New Free-To-Play MMORPG
+
+Gaming, Harry Potter, Hogwarts Legacy, Pokemon GO, Palworld, Roco Kingdom
+
+Fri, 04 Sep 2026 02:00:24 GMT
+
+https://screenrant.com/harry-potter-meets-pokemon-roco-kingdom-free-rpg/
+
+Harry Potter meets Pokemon in an upcoming game where you can attend magic academy, capture Jinies and roam an ever evolving free to play world.
+---------
+
+# 8 Garfield Strips From The 2020s That Are Absolute Gold
+
+Comics
+
+Fri, 04 Sep 2026 01:32:14 GMT
+
+https://screenrant.com/best-garfield-strips-from-2020s/
+
+The 2020s are far from over, but six years of Garfield comics that defined the decade have already delivered plenty of strips that are pure gold.
+---------
+
+# Dexter: Resurrection Season 2 Confirmed to Bring Back Killed-Off Major Character
+
+TV, Dexter: Resurrection
+
+Fri, 04 Sep 2026 03:55:33 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-david-zayas-returning/
+
+Of course, Dexter fans will know that characters dying in the franchise doesn't always mean they won't be seen again.
+---------
+
+# 10 Strongest Hunter x Hunter Nen Users, Ranked
+
+Anime, Hunter x Hunter
+
+Fri, 04 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/hunter-x-hunter-official-strongest-nen-users-ranked/
+
+The most powerful Nen users in Hunter x Hunter demonstrate the ceiling of strength in this beloved shonen anime.
+---------
+
+# Katee Sackhoff's 3-Season Sci-Fi Show With a 90% RT Score Outshines Battlestar Galactica
+
+TV, Battlestar Galactica, Sci-Fi
+
+Fri, 04 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/the-mandalorian-best-katee-sackhoff-sci-fi-show/
+
+Katee Sackhoff has been part of some iconic sci-fi shows, but only one surpassed the greatness of Battlestar Galactica.
+---------
+
+# The Best Far Side Comics About Dreams and Nightmares That Are Weirdly Relatable
+
+Comics, The Far Side
+
+Fri, 04 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/best-far-side-comics-about-dreams-and-nightmares/
+
+In Gary Larson's The Far Side, dreams and nightmares are an opportunity for a good laugh.
+---------
+
+# Paramount+ Unveils Massive Halloween Horror Lineup With Full Franchise Collections
+
+Movies, Paramount+ with Showtime
+
+Fri, 04 Sep 2026 03:18:40 GMT
+
+https://www.cbr.com/paramount-plus-peak-screaming-horror-collection-2026/
+
+Paramount+'s Peak Screaming lineup returns with several major franchises in full streaming on the platform just in time for the Halloween season.
+---------
+
+# 10 Classic '90s RPGs No One Remembers Today
+
+Games, Nintendo, RPG, JRPG
+
+Fri, 04 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/classic-90s-rpgs-no-one-remembers-today/
+
+The 1990s ushered in a new era of RPG experiences on both consoles and PCs, leading many titles to get overshadowed by the biggest hits.
+---------
+
+# Star Trek IV Gave Kirk His Greatest Quote in Sci-Fi History
+
+Movies, Star Trek IV: The Voyage Home
+
+Fri, 04 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/star-trek-iv-the-voyage-home-best-captain-kirk-quote-sci-fi-history/
+
+In one of the best and most beloved Star Trek films, this Kirk quote from Star Trek IV perfectly sums up the iconic sci-fi hero and his misadventures
+---------
+
+# Transformers: The Movie's Ultimate 40th Anniversary Release Officially Delayed
+
+Anime, Transformers, The Transformers: The Movie, merchandise, books
+
+Fri, 04 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/the-transformers-the-movie-ultimate-visual-history-delay-new-release-date/
+
+A visual look at The Transformers: The Movie has been delayed, but fans can look forward to an even deeper dive when it releases by year's end.
+---------
+
+# 7 Maximals Stronger Than Optimus Primal
+
+Anime, Transformers
+
+Fri, 04 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/transformers-maximals-stronger-than-optimus-primal/
+
+Optimus Primal survives 3 Predacon uprisings, takes Optimus Prime's spark mid-battle and still ends Beast Machines with a self-sacrifice
+---------
+
+# Gal Gadot’s Twisted 84-Minute Taken Replacement Conquers Streaming After Just 1 Day
+
+Movies, The Runner, Prime Video
+
+Fri, 04 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/gal-gadot-the-runner-prime-video-success-september-2026/
+
+It may be dominating the streaming charts, but Gal Gadot's new film can't outrun the negative reviews.
+---------
+
+# 5 Superhero Shows That Have Aged Like Milk
+
+TV, Superhero, Iron Fist, Secret Invasion, Heroes Reborn
+
+Fri, 04 Sep 2026 04:07:11 GMT
+
+https://collider.com/superhero-shows-aged-like-milk/
+
+Time hasn't been so kind to superhero shows like Secret Invasion, Iron Fist, and Heroes Reborn, with their poor reputation only growing worse.
+---------
+
+# The 8 Most Fun Movies of the 21st Century, Ranked
+
+Movie, Pirates of the Caribbean: The Curse of the Black Pearl, Hunt for the Wilderpeople, Tropic Thunder, Hot Fuzz
+
+Fri, 04 Sep 2026 04:05:11 GMT
+
+https://collider.com/most-fun-movies-21st-century-ranked/
+
+From fun-filled comedies like Shrek to the high-octane action carnage of Mad Max: Fury Road, these are the most fun movies of the 21st century so far.
+---------
+
+# The Sci-Fi Classic Christopher Nolan Considers "Pure Cinema," But Still Doesn't Understand
+
+Movie Features, Christopher Nolan, 2001: A Space Odyssey, Stanley Kubrick, Sci-Fi
+
+Fri, 04 Sep 2026 03:49:11 GMT
+
+https://collider.com/christopher-nolan-2001-a-space-odyssey-pure-cinema/
+
+Stanley Kubrick's 2001: A Space Odyssey is considered a seminal sci-fi classic, inspiring generations of filmmakers, including Christopher Nolan.
+---------
+
+# ‘NCIS’s Latest Comeback Comes With a Tragic Catch
+
+TV Features, NCIS: New York, NCIS, LL Cool J, CBS
+
+Fri, 04 Sep 2026 03:48:11 GMT
+
+https://collider.com/ncis-new-york-sam-hanna-tragic-return/
+
+NCIS: New York brings LL Cool J’s Sam Hanna home, but his return begins with a friend’s murder and a darker new chapter for the franchise.
+---------
+
+# 50 Years Ago, David Bowie Released a Song Written for Elvis Presley, He Turned It Down and Bowie Made It a Hit
+
+Music Features, David Bowie, Elvis Presley, Music, Rock
+
+Fri, 04 Sep 2026 03:27:11 GMT
+
+https://collider.com/david-bowie-golden-years-elvis-turned-down-50-years-ago/
+
+David Bowie's Golden Years was originally written for Elvis Presley. Bowie's version became a hit, with the persona of The Thin White Duke.
+---------
+
+# 59 Years Later, Leonard Nimoy’s Favorite Star Trek Episode Reveals a Whole New Spock
+
+TV Features, Star Trek, Star Trek: The Original Series, Leonard Nimoy, Sci-Fi
+
+Fri, 04 Sep 2026 03:04:11 GMT
+
+https://collider.com/star-trek-leonard-nimoy-favorite-episode-spock/
+
+"This Side of Paradise" is Leonard Nimoy's beloved Star Trek episode, and it's one that reveals a new side of Spock.
+---------
+
+# In Just 5 Words, This Unforgettable Last Line Defined the Greatest Western of the Modern Era
+
+Movie Features, No Country for Old Men, The Coen Brothers, Tommy Lee Jones, Cormac McCarthy
+
+Fri, 04 Sep 2026 03:03:11 GMT
+
+https://collider.com/no-country-for-old-men-best-quote-western-movie/
+
+The Coen Brothers' Best Picture-winning 2007 neo-Western No Country for Old Men redefined the genre with its final line, which still resonates.
+---------
+
+# One of the Greatest Western Remakes of All Time Is Finally Streaming Again
+
+Movie Features, 3:10 to Yuma, Christian Bale, Russell Crowe, James Mangold
+
+Fri, 04 Sep 2026 02:42:48 GMT
+
+https://collider.com/310-to-yuma-remake-streaming-philo/
+
+James Mangold's Western remake 3:10 to Yuma, starring Christian Bale, Ben Foster, and Russell Crowe, is the filmmaker at the top of his game.
+---------
+
+# Harlan Coben's 2-Part Crime Series Officially Returns in 1 Month
+
+TV News, Harlan Coben's Final Twist, Harlan Coben, CBS, Netflix
+
+Fri, 04 Sep 2026 01:45:11 GMT
+
+https://collider.com/harlan-coben-crime-series-final-twist-season-2-release-date-cbs-october-2026/
+
+Ahead of the return of Harlan Coben's true-crime series, CBS has revealed plot details for the premiere episode, teasing a brutal murder case.
+---------
+
+# Apple TV's 'Slow Horses' Is Officially Abandoning Its Original Formula With Season 6
+
+TV Features, Slow Horses, Apple TV, Gary Oldman, Jack Lowden
+
+Fri, 04 Sep 2026 01:36:11 GMT
+
+https://collider.com/slow-horses-season-6-apple-tv-recurring-characters-formula-change/
+
+Apple TV's Slow Horses is making a change to its original formula in Season 6 with serialized storytelling and returning characters.
+---------
+
+# One of the Most Polarizing Movies of Robin Williams' Career Getting New Release
+
+Movie News, Patch Adams, Robin Williams, Comedy, Drama, Blu-ray
+
+Fri, 04 Sep 2026 02:00:23 GMT
+
+https://movieweb.com/robin-williams-patch-adams-4k-blu-ray/
+
+Kino Lorber is preparing a 4K Blu-ray release of Robin Williams' polarizing 1998 comedy-drama 'Patch Adams' for release before the end of the year.
+---------
+
+# 'The Big Bang Theory' Officially Reveals More About a Core Character's Heartbreaking Backstory
+
+Features, The Big Bang Theory, Stuart Fails to Save the Universe, Young Sheldon, Johnny Galecki, Jim Parsons, Sci-Fi, Comedy
+
+Fri, 04 Sep 2026 01:30:13 GMT
+
+https://movieweb.com/tbbt-stuart-spinoff-bernadette-pageant-backstory/
+
+Years later, 'The Big Bang Theory' spin-off 'Stuart Fails to Save the Universe' finally reveals more about Bernadette's childhood as a pageant star.
+---------
+
+# Netflix Is Officially Removing Canceled Sci-Fi Action Series Despite Hopes for Season 3 Revival
+
+TV News, Halo, Coming/Leaving Streaming, Sci-Fi, Action, Netflix
+
+Fri, 04 Sep 2026 00:30:14 GMT
+
+https://movieweb.com/halo-series-sci-fi-action-thriller-leaving-netflix-october-2026/
+
+After being canceled by Paramount in 2024, Netflix breathed new life into the 17-episode series, fueling speculation that there could be a revival.
+---------
+
 # Netflix's New 8-Part Sci-Fi Series With Near-Perfect Rotten Tomatoes Score Defines A Major Era
 
 TV, Masked Recs
