@@ -1,3 +1,366 @@
+# Netflix's New 8-Part Sci-Fi Series With Near-Perfect Rotten Tomatoes Score Defines A Major Era
+
+TV, Masked Recs
+
+Fri, 04 Sep 2026 00:05:35 GMT
+
+https://screenrant.com/the-boroughs-something-very-bad-is-going-to-happen-duffer-brothers-netflix/
+
+Netflix's new sci-fi series defines a new era for the streaming service, as it stands out amid a crucial 2026 streak with Stranger Things ties.
+---------
+
+# Netflix's Hit New Jason Bourne Replacement Action Thriller Is Quietly Part Of A 7-Movie Franchise
+
+Movies, Masked Recs
+
+Fri, 04 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/alpha-movie-netflix-jason-bourne-movie-franchise/
+
+Netflix's new action hit delivers Jason Bourne-style thrills, but many viewers may not realize it's already part of a massive spy franchise.
+---------
+
+# This Recently Dethroned R-Rated Action Movie Is Still Killing It On Streaming
+
+Movies, Masked Recs, Disney+
+
+Thu, 03 Sep 2026 23:32:57 GMT
+
+https://screenrant.com/deadpool-and-wolverine-disney-plus-streaming-success-september-2026/
+
+After losing its title as the highest-grossing R-rated movie of all time, the Hollywood feature continues to succeed in the world of streaming.
+---------
+
+# HBO's Lanterns Makes Kyle Chandler's Netflix Crime Thriller Bloodline Worth A Rewatch
+
+Streaming TV, Masked Recs
+
+Thu, 03 Sep 2026 23:25:14 GMT
+
+https://screenrant.com/lanterns-kyle-chandler-bloodline-netflix-rewatch/
+
+HBO's hit new series Lanterns makes Netflix's crime thriller Bloodline, featuring one of Kyle Chandler's best performances, worth a binge this week.
+---------
+
+# Fox Orders First New Live-Action Comedy Series In 2 Years From Modern Family Creator
+
+TV, FOX
+
+Thu, 03 Sep 2026 23:07:37 GMT
+
+https://screenrant.com/mammoth-fox-modern-family-christopher-lloyd/
+
+Fox orders its first new live-action comedy series in more than two years, from Modern Family creator and executive producer Christopher Lloyd.
+---------
+
+# 2026 Is Officially A Huge Year For Star Trek: The Next Generation Fans
+
+Gaming, Star Trek, Star Trek: The Next Generation, PC
+
+Thu, 03 Sep 2026 23:00:14 GMT
+
+https://screenrant.com/star-trek-the-next-generation-2026-return/
+
+Star Trek: The Next Generation fans celebrating the franchise's 60th anniversary are eating pretty this year, with several exciting releases on deck.
+---------
+
+# One Of The Best Crime Thriller Series Of All Time Is Finally Resurrected As A Streaming Hit
+
+TV, Masked Recs
+
+Thu, 03 Sep 2026 22:52:44 GMT
+
+https://screenrant.com/the-mentalist-amazon-vod-streaming-success-september-2026/
+
+One of the best crime thriller series of all time is resurrected as a streaming hit years later, just when its main star has also resurged.
+---------
+
+# Stephen King's Best Adaptation Deserves More Than Its 98% Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Thu, 03 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/stephen-king-the-shawshank-redeption-deserves-better-rotten-tomatoes/
+
+Stephen King's best movie is The Shawshank Redemption, but despite being one of the greatest movies of all time, it does not have a 100% RT rating.
+---------
+
+# X-Men Officially Unveils Colossus' New Design, With Hulk-Level Strength
+
+Comics, X-Men
+
+Thu, 03 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/x-men-colossus-redesign-new-powers-mangaverse/
+
+Cyclops now punches harder than "three atomic warheads."
+---------
+
+# Twilight Star's 108-Minute Disaster Movie Debuts Strong on Netflix Charts
+
+Movies, 13 Minutes, Netflix
+
+Fri, 04 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/13-minutes-drama-success-netflix-september-2026/
+
+The movie recently arrived on Netflix and had some pretty great numbers to start.
+---------
+
+# Steel Magnolias Has The Greatest Monologues In Movie History
+
+Movies, Steel Magnolias, Comedy, Drama
+
+Fri, 04 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/dolly-parton-steel-magnolias-greatest-monologue-movie-history/
+
+This beloved comedy-drama features an incredibly talented cast, including Dolly Parton, as well as one of the most gripping monologues of all time.
+---------
+
+# 8 Years Later, Helen Mirren's Winchester Director Shares the Actor's Very Humble Request While Filming
+
+Movies, Winchester, Helen Mirren
+
+Thu, 03 Sep 2026 23:33:09 GMT
+
+https://www.cbr.com/helen-mirren-winchester-director-shares-humble-request/
+
+She's a icon and a titan of Hollywood, but this proves she's also one of the most humble.
+---------
+
+# Netflix's Steamy Adults-Only Drama Is the No. 2 Show in the World 1 Week After Season 3 Drops
+
+TV, Tyler Perry’s Beauty in Black, Netflix, Drama
+
+Thu, 03 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/beauty-in-black-drama-success-netflix-september-2026/
+
+Netflix's steamy drama is a streaming hit once again.
+---------
+
+# Mushoku Tensei's Biggest Problem Is Getting Harder to Ignore
+
+Anime, Mushoku Tensei, Mushoku Tensei: Jobless Reincarnation, Isekai
+
+Thu, 03 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/mushoku-tensei-hard-to-ignore-problem/
+
+Mushoku Tensei Season 3 makes Rudeus' redemption harder to defend as the anime's long-standing controversies and tonal issues resurface.
+---------
+
+# The 59-Year-Old Star Trek Episode William Shatner & Leonard Nimoy Both Hailed as Their Favorite
+
+TV, Star Trek, Star Trek: The Original Series, Sci-Fi, Innovation
+
+Thu, 03 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/star-trek-tos-cast-favorite-episode-the-devil-in-the-dark/
+
+Star Trek: The Original Series produced many classic episodes, but William Shatner and Leonard Nimoy have a mutual favorite.
+---------
+
+# Netflix's New 91-Minute Action Thriller Based on a True Story Keeps Dominating With 20M Views
+
+Movies, Facing El Chapo, Netflix, Thriller
+
+Thu, 03 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/facing-el-chapo-thriller-success-netflix-september-2026/
+
+The thriller that tells a real-life story continues to dominate on the streaming platform.
+---------
+
+# 5 Space Opera Masterpieces That Rival Star Wars
+
+Movies, Star Wars, Sci-Fi, Star Trek
+
+Thu, 03 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/space-opera-sci-fi-movies-better-than-star-wars-list/
+
+These legendary space opera epics are just as good as anything from the galaxy far, far away.
+---------
+
+# Fox Gives Series Order to Hit Sitcom Remake From Modern Family Creator
+
+TV, fox, Mammoth
+
+Thu, 03 Sep 2026 22:58:12 GMT
+
+https://www.cbr.com/mammoth-fox-series-order/
+
+The Modern Family team will reimagine the hit comedy series for Fox.
+---------
+
+# Before Great Saiyaman, Dragon Ball Turned Gohan Into a Surfer
+
+Anime, Dragon Ball, weekly shonen jump
+
+Thu, 03 Sep 2026 22:46:11 GMT
+
+https://www.cbr.com/dragon-ball-akira-toriyama-gohan-surfer-design/
+
+Young Gohan goes from hanging bad guys out to dry to hanging ten in the latest release from the official Akira Toriyama Archive.
+---------
+
+# Taylor Sheridan's ‘Landman’ Is Officially Changing Its Formula for Season 3
+
+TV Features, Landman, Taylor Sheridan, Billy Bob Thornton, Jacob Lofland
+
+Fri, 04 Sep 2026 00:13:11 GMT
+
+https://collider.com/taylor-sheridan-landman-season-3-formula-change/
+
+Landman promises new dynamics and character resets for the Taylor Sheridan series in Season 3.
+---------
+
+# 10 Books That Are Page-Turners From Start to Finish
+
+Books and Comics, Fahrenheit 451, 11.22.63, Dune, The Lord of the Rings
+
+Fri, 04 Sep 2026 00:11:11 GMT
+
+https://collider.com/books-page-turners-start-to-finish/
+
+If you're after compelling books that are difficult-to-put-down page-turners, it's worth reading classics like Dune, 11/22/63, and Fahrenheit 451.
+---------
+
+# ‘The Boys’ Star’s Forgotten Marvel Role Officially Rewrote the MCU Formula [Exclusive]
+
+TV News, Erin Moriarty, The Boys, Jessica Jones, Prime Video
+
+Fri, 04 Sep 2026 00:00:11 GMT
+
+https://collider.com/the-boys-star-erin-moriarty-jessica-jones-role-rewrote-mcu-formula/
+
+The Boys stars Erin Moriarty recalls her forgotten MCU role in Jessica Jones that rewrote the entire Marvel formula.
+---------
+
+# Netflix’s ‘Sicario’ Replacement Officially Tops 38 Million Views in 2 Weeks
+
+Movie News, Facing El Chapo, Netflix, Sicario, Thriller
+
+Fri, 04 Sep 2026 00:00:11 GMT
+
+https://collider.com/netflix-sicario-replacement-facing-el-chapo-streaming-success-september-2026/
+
+Netflix's new Spanish-language sensation has topped the streamer's non-English chart for two weeks in a row, outperforming major movies along the way.
+---------
+
+# James Bond Frontrunner’s New Thriller Is Officially One of the Best Movies of 2026
+
+Movie News, Jack O'Connell, Ink, Danny Boyle, Rotten Tomatoes
+
+Thu, 03 Sep 2026 23:45:11 GMT
+
+https://collider.com/james-bond-contender-jack-o-connell-ink-rotten-tomatoes-score-is-it-good/
+
+The new movie Ink, directed by and starring two men who both have a James Bond connection, premiered to excellent reviews at Venice.
+---------
+
+# 5 Modern Fantasy Books That Are Perfect From the First Page to the Last
+
+Books and Comics, Fantasy, Percy Jackson & The Olympians, Shadow and Bone, Nimona
+
+Thu, 03 Sep 2026 23:39:11 GMT
+
+https://collider.com/modern-fantasy-books-perfect-first-page-to-last/
+
+From the beloved graphic novel Nimona to the Grishaverse heist adventure Six of Crows, these modern fantasy books are truly flawless and entertaining.
+---------
+
+# James Gunn Officially Confirms Blue Beetle's Status in the DCU
+
+TV News, Blue Beetle, James Gunn, DCU, Superhero
+
+Thu, 03 Sep 2026 23:30:11 GMT
+
+https://collider.com/james-gunn-dc-blue-beetle-series-not-cancelled/
+
+James Gunn clarifies that Blue Beetle's animated series is still moving forward, despite ongoing rumors and a string of recent cancellations.
+---------
+
+# 24 Years Later, These Are the 10 Best Movies of 2002
+
+Movie, 2000s, The Lord of the Rings: The Two Towers, The Bourne Identity, Spider-Man
+
+Thu, 03 Sep 2026 23:21:11 GMT
+
+https://collider.com/best-movies-2002/
+
+The Lord of the Rings: The Two Towers, Minority Report, and Spider-Man are all among the very best movies from the year 2002.
+---------
+
+# ‘The Witcher’ Officially Returns This Month With Groundbreaking New Release
+
+Gaming News, The Witcher 3: Wild Hunt, The Witcher, CD Projekt Red, Henry Cavill
+
+Thu, 03 Sep 2026 23:15:11 GMT
+
+https://collider.com/the-witcher-3-wild-hunt-remaster-release-date-september-2026/
+
+CD Projekt Red is officially bringing back The Witcher this month for its most ambitious new release yet. Read on for more details.
+---------
+
+# The 10 Best Thriller Shows With Less Than 5 Seasons, Ranked
+
+TV, Thriller, Twin Peaks, True Detective, Mindhunter
+
+Thu, 03 Sep 2026 23:12:11 GMT
+
+https://collider.com/best-thriller-shows-shorter-than-5-seasons-ranked/
+
+Thriller TV shows don't have to be long to entertain fans, as proven by series with fewer than five seasons, from Mindhunter to Twin Peaks.
+---------
+
+# 8 Perfect Action Thriller Miniseries With 8 Episodes or Less You Can Binge in One Night
+
+TV Lists, Action, Thriller
+
+Fri, 04 Sep 2026 00:00:13 GMT
+
+https://movieweb.com/action-thriller-miniseries-8-episodes-or-less-binge/
+
+Action thriller miniseries can be difficult to come by, but these eight will make audiences want to lose an entire evening to binge-watching.
+---------
+
+# Vin Diesel May Have Finally Revealed the Real Director of Final 'Fast & Furious' Sequel
+
+Movie News, Fast Forever, Vin Diesel, Action
+
+Thu, 03 Sep 2026 23:33:33 GMT
+
+https://movieweb.com/fast-forever-director-vin-diesel/
+
+'Fast & Furious' leading man Vin Diesel offered a potential tease for who will direct the decades-long franchise's final outing.
+---------
+
+# Forget 'Band of Brothers,' This 10/10 2-Part War Masterpiece Is an Essential Streaming Hit
+
+TV News, SAS: Rogue Heroes, Hot on Streaming, War
+
+Thu, 03 Sep 2026 23:00:13 GMT
+
+https://movieweb.com/sas-rogue-heroes-streaming-hit-mgm-plus-september-2026/
+
+This is guaranteed to have you saying, "Saving Private who?"
+---------
+
+# 'Tracker' Officially Returns in First Teaser for Action Thriller's Season 4
+
+TV News, Tracker, Action, Thriller, Network TV
+
+Thu, 03 Sep 2026 22:50:15 GMT
+
+https://movieweb.com/tracker-season-4-teaser/
+
+Justin Hartley's fate is finally confirmed in the first official teaser for 'Tracker' Season 4
+---------
+
 # 35 Years Later, A Brutally Difficult NES Game Has Returned
 
 Gaming, Nintendo, Triple-A Games
