@@ -1,3 +1,388 @@
+# Lost Meets Severance In The Original Mystery Box TV Series With 100% On Rotten Tomatoes
+
+Classic TV, Masked Recs
+
+Fri, 04 Sep 2026 21:45:14 GMT
+
+https://screenrant.com/the-prisoner-mystery-box-series-like-lost-severance/
+
+Severance and Lost may be two of the most prominent mystery box shows ever made, but The Prisoner is still a masterpiece 59 years later.
+---------
+
+# 3 Best Prime Video Series To Binge-Watch This Weekend (Sept 4–6, 2026)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Fri, 04 Sep 2026 21:18:14 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-weekend-september-4-2026/
+
+The best and most popular shows to binge-watch on Prime Video this weekend, September 4–6, 2026, are Off Campus, Sterling Point, and Reacher season 4.
+---------
+
+# Netflix's Big Gamble On New Tabloid Adaptation Pays Off With Strong Rotten Tomatoes Score
+
+Movies, Ink, Netflix
+
+Fri, 04 Sep 2026 21:16:26 GMT
+
+https://screenrant.com/netflix-ink-rotten-tomatoes-score-debut-venice/
+
+A new tabloid biopic is just coming off of its debut at the Venice International Film Festival, and so far, early reviews are very positive.
+---------
+
+# Stranger Things Meets X-Men In Netflix's 4-Part Fantasy Series
+
+Streaming TV, Masked Recs
+
+Fri, 04 Sep 2026 21:09:14 GMT
+
+https://screenrant.com/the-umbrella-academy-stranger-things-meets-x-men-netflix/
+
+The found-family dynamic gets its weirdest treatment ever in this X-Men inspired gem that's perfect for Stranger Things fans who miss the Upside Down.
+---------
+
+# Nicolas Cage’s Spider-Noir Season 2 Fate Officially Sealed By Prime Video
+
+TV, Spider-Noir, Spider-Man, Marvel Cinematic Universe
+
+Fri, 04 Sep 2026 21:04:09 GMT
+
+https://screenrant.com/spider-noir-season-2-nicolas-cage-fate-prime-video-cancelled/
+
+The future for Nicolas Cage's Spider-Noir TV series has finally been decided by Prime Video, following season 1 of the new Marvel drama from 2026.
+---------
+
+# Christopher Nolan's The Odyssey Officially Breaks 17-Year Box Office Drought With Rare Milestone
+
+Movies, The Odyssey, Box Office
+
+Fri, 04 Sep 2026 21:01:41 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-one-billion-overseas-box-office-milestone/
+
+Christopher Nolan's film adaptation of The Odyssey has pulled off another box office achievement as its theatrical run across the world continues.
+---------
+
+# Sherlock Holmes Meets Agatha Christie In Netflix's Next Great Novel Adaptation
+
+TV, Netflix, Masked Recs
+
+Fri, 04 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/final-problem-netflix-sherlock-holmes-agatha-christie-detective/
+
+Netflix's upcoming detective series presents its own version of Sherlock Holmes and also draws inspiration from the work of Agatha Christie.
+---------
+
+# Power Rangers Officially Kicking Off A Brand-New Era
+
+Gaming, Power Rangers, Triple-A Games
+
+Fri, 04 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/power-rangers-new-era-rpg-rule-overhaul/
+
+The Power Ranger and Super Sentai series have been around for a long time, but now the former is looking to mix things up a lot.
+---------
+
+# Paramount’s Classic 635-Episode Western Makes Taylor Sheridan Look Small
+
+TV, Masked Recs
+
+Fri, 04 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/gunsmoke-makes-taylor-sheridan-yellowstone-franchise-look-small/
+
+Taylor Sheridan might be the most prolific creator of screen Westerns this century, but he's still far behind another record-breaking TV show.
+---------
+
+# Harry Potter Is Switching Genres In 2027
+
+Streaming TV, Harry Potter
+
+Fri, 04 Sep 2026 20:45:14 GMT
+
+https://screenrant.com/harry-potter-season-2-chamber-of-secrets-change-genre/
+
+Harry Potter is coming back on Christmas Day 2026 now as a TV show, and for its 2027 run with a second season, it will switch genres.
+---------
+
+# 2 of the Best '90s Shows in TV History Have Returned to Conquer Streaming
+
+TV, Beverly Hills 90210, Melrose Place, Drama
+
+Fri, 04 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/beverly-hills-90210-melrose-place-streaming-success/
+
+The '90s are back, according to streaming.
+---------
+
+# Forget Taylor Sheridan, a Rare British Western Is Surging on Streaming After 10 Years
+
+TV, Jericho, Prime Video, Western
+
+Fri, 04 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/western-jericho-prime-video-success-september-2026/
+
+A forgotten British Western is making its way up the Prime Video charts.
+---------
+
+# 5 Masterpiece Isekai Anime Better Than Mushoku Tensei
+
+Anime, Mushoku Tensei: Jobless Reincarnation, Re:Zero -Starting Life in Another World-, KonoSuba: God's Blessing on This Wonderful World!
+
+Fri, 04 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/masterpiece-isekai-anime-better-than-mushoku-tensei/
+
+Mushoku Tensei is one of the genre's biggest hits, but these isekai anime deliver even better stories and characters.
+---------
+
+# Prime Video Cancels Its Live-Action Spider-Man Series After Just 3 Months
+
+TV, Spider-Noir, Spider-Man, Prime Video, Innovation
+
+Fri, 04 Sep 2026 21:05:59 GMT
+
+https://www.cbr.com/spider-noir-canceled-prime-video/
+
+That's the end of Prime Video's unusual Spider-Man series, despite strong reviews.
+---------
+
+# Missing Original NCIS Character Returns After a Full Decade
+
+TV, NCIS, NCIS: Origins
+
+Fri, 04 Sep 2026 21:02:56 GMT
+
+https://www.cbr.com/ncis-victoria-mallard-return-caroline-lagerfelt/
+
+A missing NCIS character finally returns to the franchise 10 years later.
+---------
+
+# 10 Classic 90s Sci-Fi Movies No One Remembers Today
+
+Movies, Sci-Fi
+
+Fri, 04 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/best-90s-sci-fi-movies-no-one-remembers-list/
+
+It's impossible to see every movie that comes out, but these '90s sci-fi films were forgotten by audiences.
+---------
+
+# Jujutsu Kaisen Deliberately Rejected Demon Slayer's Winning Formula, Studio President Reveals
+
+Anime, Jujutsu Kaisen, Demon Slayer, mappa, Chainsaw Man, Chainsaw Man - The Movie: Reze Arc
+
+Fri, 04 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/jujutsu-kaisen-demon-slayer-winning-formula-mappa-reject/
+
+While producing Jujutsu Kaisen, anime studio MAPPA took a 'cool' approach that set the series apart from its hit predecessor, Demon Slayer.
+---------
+
+# 6 Best Chris Evans Movies Since Avengers: Endgame
+
+Movies, Chris Evans, Avengers: Endgame, Avengers: Doomsday, Marvel Cinematic Universe, The Gray Man, Ghosted, Materialists, Lightyear, Deadpool & Wolverine, Knives Out
+
+Fri, 04 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/best-chris-evans-movies-since-avengers-endgame-list/
+
+Chris Evans is returning to the MCU as Steve Rogers in Avengers: Doomsday after a seven-year hiatus that has seen him take on several other roles.
+---------
+
+# 5 RPGs With Crafting Systems That Are 10/10 Masterpieces
+
+Games, Monster Hunter Stories, Video Games, Final Fantasy
+
+Fri, 04 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/rpgs-with-masterpiece-crafting-systems/
+
+Equipment decisions lock into strategy with elemental weaknesses and status resistances shaping every boss approach.
+---------
+
+# Ryan Reynolds Offers to Return to His Pre-Deadpool Superhero Role 15 Years Later
+
+Movies, ryan reynolds, Green Lantern, Lanterns
+
+Fri, 04 Sep 2026 20:07:18 GMT
+
+https://www.cbr.com/ryan-reynolds-green-lantern-return-teased/
+
+Reynolds is open to appearing in the new series that's become a hit on HBO.
+---------
+
+# 3 Perfect Movies Streaming on Prime Video This Weekend (Sep 5-6)
+
+Movie, The Edge of Seventeen, Chef, The Purge, Prime Video
+
+Fri, 04 Sep 2026 21:48:11 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-september-5-2026/
+
+The Purge, Chef, and The Edge of Seventeen make up our list of the best movies to stream on Prime Video the weekend of September 5.
+---------
+
+# Steven Spielberg’s 2-Part Horror Franchise Officially Returns Amid Sequel Talks
+
+Movie News, Gremlins, Gremlins 2: The New Batch, Steven Spielberg, Joe Dante
+
+Fri, 04 Sep 2026 21:48:05 GMT
+
+https://collider.com/steven-spielberg-gremlins-franchise-streaming-hbo-max-september-2026/
+
+Amid talks of a third movie, Steven Spielberg’s two-part horror franchise has officially returned on HBO Max.
+---------
+
+# Every Lord of the Rings Movie, Ranked by Legacy
+
+Movie, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, Fantasy
+
+Fri, 04 Sep 2026 21:35:11 GMT
+
+https://collider.com/lord-of-the-rings-movies-legacy-ranked/
+
+All are widely acclaimed, but not every Lord of the Rings movie has the same influence on pop culture and cinema, with one having the best legacy.
+---------
+
+# Prime Video's Sci-Fi Detective Series Is Officially Dead
+
+TV News, Prime Video, Spider-Noir, Nicolas Cage, Oren Uziel
+
+Fri, 04 Sep 2026 21:20:00 GMT
+
+https://collider.com/prime-video-spider-noir-season-2-cancelled/
+
+After a hit first season, Prime Video has officially decided the fate of its new sci-fi detective series.
+---------
+
+# Peacock’s ‘Dungeon Crawler Carl’ Series Needs To Get Ahead of the Books in One Important Way
+
+TV Features, Dungeon Crawler Carl, Peacock, Seth MacFarlane, Eric Heisserer
+
+Fri, 04 Sep 2026 21:18:11 GMT
+
+https://collider.com/peacock-dungeon-crawler-carl-series-ahead-books-pineapple-cabaret/
+
+Peacock's Dungeon Crawler Carl adaptation should include the novella Backstage at the Pineapple Cabaret, which was added to the books later on.
+---------
+
+# 22 Years Later, These Are the 10 Best Movies of 2004
+
+Movie, Shrek 2, Before Sunset, Eternal Sunshine of the Spotless Mind, The Incredibles
+
+Fri, 04 Sep 2026 21:05:11 GMT
+
+https://collider.com/best-movies-2004/
+
+The Incredibles, Before Sunset, and Eternal Sunshine of the Spotless Mind are all among the very best movies from the year 2004.
+---------
+
+# Tom Cruise Battles Russell Crowe in the Failed Fantasy Reboot Taking Over Prime Video
+
+Movie News, The Mummy, Tom Cruise, Dark Universe, Russell Crowe
+
+Fri, 04 Sep 2026 21:03:28 GMT
+
+https://collider.com/tom-cruise-the-mummy-reboot-streaming-prime-video-september-2026/
+
+Tom Cruise and Russell Crowe’s failed fantasy franchise reboot has now been resurrected on Prime Video.
+---------
+
+# The 8 Best Books You Probably Had To Read in High School, Ranked
+
+Books and Comics, The Great Gatsby, Fahrenheit 451, The Odyssey, To Kill A Mockingbird
+
+Fri, 04 Sep 2026 20:50:11 GMT
+
+https://collider.com/best-books-read-in-high-school-ranked/
+
+Some books you might've been made to read in high school are actually pretty great, including classics like Frankenstein and The Great Gatsby.
+---------
+
+# Ridley Scott’s Most Popular Sci-Fi Franchise Officially Hits Netflix
+
+Movie News, alien, Aliens, Netflix, Ridley Scott
+
+Fri, 04 Sep 2026 20:41:59 GMT
+
+https://collider.com/ridley-scott-alien-franchise-streaming-netflix-september-2026/
+
+Ridley Scott’s generation-defining sci-fi franchise starter and its sequel are now streaming on Netflix. Read on for all the details.
+---------
+
+# Timothée Chalamet’s Gory Answer to ‘Twilight’ Officially Takes a Bite Out of Free Streaming
+
+Movie News, Timothée Chalamet, Bones and All, Luca Guadagnino, Taylor Russell
+
+Fri, 04 Sep 2026 20:39:15 GMT
+
+https://collider.com/timothee-chalamet-twilight-replacement-bones-and-all-streaming-pluto-tv-september-2026/
+
+Timothée Chalamet’s R-rated answer to Twilight is officially available on free streaming. Find out where here!
+---------
+
+# New Adventure Thriller Officially Divides Critics With Rotten Tomatoes Score
+
+Movie News, Thriller, Fall 2: Deadpoint
+
+Fri, 04 Sep 2026 21:05:40 GMT
+
+https://movieweb.com/fall-2-deadpoint-rotten-tomatoes-score/
+
+The official Rotten Tomatoes score for 'Fall 2: Deadpoint' is much lower than the original 'Fall.'
+---------
+
+# Russell Crowe 9/10 Historical Epic That Roger Ebert Called "Glorious" Becomes a Streaming Smash Hit
+
+Movie News, Russell Crowe, Master and Commander: The Far Side of the World, Hot on Streaming
+
+Fri, 04 Sep 2026 21:01:13 GMT
+
+https://movieweb.com/russell-crowe-master-commander-apple-streaming-hit-september-2026/
+
+Forget 'Gladiator,' this was peak 2000s Russell Crowe.
+---------
+
+# 10 Classic Western Shows No One Talks About Anymore
+
+TV Lists, Western
+
+Fri, 04 Sep 2026 21:01:13 GMT
+
+https://movieweb.com/classic-western-shows-no-one-talks-about/
+
+'Yellowstone' isn't the only Western TV show that people should talk about, and these classic Western series deserve more attention.
+---------
+
+# Forget ‘Lioness’: Netflix’s Military Action Thriller Has Been Praised by Experts For Its Accuracy
+
+Features, SEAL Team, Lioness, Taylor Sheridan, Thriller
+
+Fri, 04 Sep 2026 20:30:13 GMT
+
+https://movieweb.com/seal-team-netflix-military-thriller-accuracy/
+
+'SEAL Team' continues to hold its ground as one of the most accurate military series of all time.
+---------
+
+# Mind-Blowing 'Silo' Juliette Theory Changes How You'll Watch Season 4
+
+Features, Silo, Sci-Fi
+
+Fri, 04 Sep 2026 20:01:13 GMT
+
+https://movieweb.com/silo-season-4-juliette-daniel-theory/
+
+With 'Silo's fourth and final season on the horizon, there are plenty of theories about how the story will end, and this one connects Jules and Troy.
+---------
+
 # Star Trek's Timely New Spin-Off Hits the Ground Running (Advanced Review)
 
 Comics, Star Trek
