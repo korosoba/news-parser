@@ -1,3 +1,245 @@
+# Fallout 5's Replacement Officially Lands In February 2027
+
+Gaming, Metro 2039, Triple-A Games, PC, Fallout 5
+
+Sat, 05 Sep 2026 07:00:14 GMT
+
+https://screenrant.com/metro-2039-february-2027-fallout-5-replacement/
+
+While fans are waiting for the arrival of Fallout 5, there is one new game that may serve as a perfect replacement that’s being released in February.
+---------
+
+# Zelda Officially Returns December 2026 With New $624 Release You Can Pre-Order Now
+
+Gaming, The Legend of Zelda
+
+Sat, 05 Sep 2026 06:33:49 GMT
+
+https://screenrant.com/legend-of-zelda-decayed-master-sword-december-2026/
+
+The Legend Of Zelda is returning in December with a brand-new premium release, although it has a premium price tag to match.
+---------
+
+# Dungeon Crawler Carl: Allies & Enemies Officially Releases November 2026
+
+Gaming, Dungeon Crawler Carl
+
+Sat, 05 Sep 2026 06:13:20 GMT
+
+https://screenrant.com/dungeon-crawler-carl-allies-enemies-november-2026/
+
+Dungeon Crawler Carl officially returns November 2026, so mark your calendars.
+---------
+
+# Star Trek: Deep Space 9 Officially Returns October 2026
+
+Gaming, Star Trek, Star Trek: Deep Space Nine, Star Trek: Deep Space Nine - Season 1, PC
+
+Sat, 05 Sep 2026 04:30:14 GMT
+
+https://screenrant.com/star-trek-deep-space-9-returns-in-fluxx/
+
+Star Trek: Deep Space Nine will officially return in October 2026 thanks to a brand-new upcoming release, mark your calendars now.
+---------
+
+# Game Of Thrones: Of Salt And Sea Officially Announced
+
+Gaming, Game of Thrones, PC
+
+Sat, 05 Sep 2026 04:15:15 GMT
+
+https://screenrant.com/game-of-thrones-salt-and-see-dragonseeds/
+
+A brand-new Game of Thrones project titled Of Salt and Sea has been officially announced, and fans will want to check it out.
+---------
+
+# Project Zomboid Meets Resident Evil In Free Zombie Survival Adventure
+
+Gaming, Indie Games, PC, Project Zomboid, Resident Evil
+
+Sat, 05 Sep 2026 04:00:19 GMT
+
+https://screenrant.com/project-zomboid-meets-resident-evil-free-game/
+
+If you’re looking for a zombie survival adventure that you can play entirely for free with Project Zomboid and Resident Evil vibes, look no further.
+---------
+
+# Naruto Unveils Dark New Itachi Design, And It's 10/10 Perfect
+
+Anime, Naruto
+
+Sat, 05 Sep 2026 03:59:15 GMT
+
+https://screenrant.com/naruto-new-itachi-dark-redesign-perfect/
+
+One of Naruto's most complicated characters gets a new way to shine as news continues to trickle in about the franchise's continuously bright future.
+---------
+
+# Ahsoka Season 2 Confirms The Biggest Problem With The Mandalorian & Grogu
+
+Star Wars, Ahsoka, The Mandalorian and Grogu
+
+Sat, 05 Sep 2026 03:52:23 GMT
+
+https://screenrant.com/ahsoka-season-2-confirms-biggest-problem-with-mandalorian-and-grogu/
+
+All things considered, the first trailer for Ahsoka season 2 is already highlighting the biggest problem with The Mandalorian & Grogu movie.
+---------
+
+# 8 Most Iconic Anime Heroes Of All Time
+
+Anime
+
+Sat, 05 Sep 2026 03:45:15 GMT
+
+https://screenrant.com/most-iconic-anime-heroes-ever/
+
+Discover the 8 most iconic anime heroes who have shaped the genre and captivated fans worldwide.
+---------
+
+# Inspired By Star Wars, Prime Video’s New “Grumpy Meets Sunshine” Romcom Is Bound To Be A Hit
+
+Movies, Masked Recs
+
+Sat, 05 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/love-hypothesis-prime-video-star-wars-inspiration-romcom-hit/
+
+Prime Video’s new “grumpy meets sunshine” themed romcom is secretly inspired by Star Wars and all set to become one of the biggest genre hits of 2026.
+---------
+
+# Classic Kids’ WB Anime That Are Unwatchable Today
+
+Anime, Pokémon, Yu-Gi-Oh!
+
+Sat, 05 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/classic-kids-wb-anime-unwatchable-today/
+
+Some Kids’ WB anime classics have not aged well. These six series feel especially dated by today's standards.
+---------
+
+# Netflix’s New 8-Part Dark Fantasy With 100% RT Is TV's Best Supernatural Series in Decades
+
+TV, The East Palace, Fantasy, Netflix
+
+Sat, 05 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/netflix-the-east-palace-best-dark-fantasy-supernatural-series/
+
+Netflix's dark fantasy series subverts all expectations with its supernatural twist as a spirit's curse threatens royalty in this perfect miniseries.
+---------
+
+# The Best Version of The Far Side That Gary Larson Fans May Have Missed
+
+Comics, The Far Side
+
+Sat, 05 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/tales-from-the-far-side-best-version/
+
+Gary Larson's The Far Side became a crucial part of the cartooning industry, but the comic strip also became a TV special in Tales from the Far Side.
+---------
+
+# 10 Most Valuable Legendary Pokémon Cards of All Time, Ranked by Price
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG
+
+Sat, 05 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/most-valuable-legendary-pokemon-cards-ranked/
+
+These are the most expensive Legendary Pokémon cards that fans can still buy today.
+---------
+
+# Netflix, Disney & Crunchyroll Leave Major Summer 2026 Anime Frozen in Streaming Limbo
+
+Anime, Crunchyroll, Streaming, Netflix
+
+Sat, 05 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/summer-2026-anime-streaming-limbo/
+
+Dodge Danko, Cyborg 009: Nemesis and more Summer 2026 anime remain unavailable on major streaming platforms in North America.
+---------
+
+# 7 Strongest Infinity Castle Arc Duos in Demon Slayer, Ranked
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle, shonen anime
+
+Sat, 05 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/demon-slayer-strongest-infinity-castle-arc-duos/
+
+The Infinity Castle's shifting mechanic makes teamwork one of Demon Slayer's most valuable assets in the series' final arc.
+---------
+
+# Jon Bernthal and Tom Holland's First Epic Deserves a Rewatch 9 Years Later
+
+Movie Features, Pilgrimage, Spider-Man: Brand New Day, The Odyssey, Pluto TV
+
+Sat, 05 Sep 2026 04:08:11 GMT
+
+https://collider.com/pilgrimage-jon-bernthal-tom-holland-historical-epic/
+
+Tom Holland and Jon Bernthal first joined forces on Pilgrimage, which led to a long-lasting working relationship.
+---------
+
+# This Sci-Fi Movie With 100% on Rotten Tomatoes Is a Perfect Time Loop From Start to Finish
+
+Movie Features
+
+Sat, 05 Sep 2026 03:55:11 GMT
+
+https://collider.com/river-greatest-time-loop-sci-fi-movie-masterpiece/
+
+Junta Yamaguchi's River cleverly navigates time loop chaos with a playful narrative, using whimsical challenges to update the familiar trope.
+---------
+
+# 'The Wheel of Time' Meets 'Sherlock' in Prime Video’s 2-Part Fantasy Series
+
+TV Features, Carnival Row, Prime Video, Fantasy, Orlando Bloom
+
+Sat, 05 Sep 2026 03:48:11 GMT
+
+https://collider.com/carnival-row-prime-video-fantasy-series-wheel-of-time-meets-sherlock/
+
+Prime Video's Carnival Row is a unique series that blends dark urban fantasy with noir mystery influence.
+---------
+
+# Ridley Scott Names His Own Sci-Fi Masterpiece As His Favorite Film of All Time, but I Can’t Disagree
+
+Movie Features, Blade Runner, Ridley Scott, Harrison Ford, Sci-Fi
+
+Sat, 05 Sep 2026 03:19:11 GMT
+
+https://collider.com/ridley-scott-blade-runner-personal-favorite-movie-masterpiece/
+
+Ridley Scott has chosen his cut of Blade Runner starring Harrison Ford as one of his four favorite films ever, and honestly, can anyone blame him?
+---------
+
+# ABC’s Classic Action Series Is Quietly Finding Redemption on Streaming 50 Years Later
+
+TV Features, Charlie's Angels, ABC, Crime, Farrah Fawcett, Action
+
+Sat, 05 Sep 2026 03:01:11 GMT
+
+https://collider.com/charlies-angels-abc-classic-action-series-streaming/
+
+Charlie's Angels gains a new audience and respect 50 years after its debut on streaming as it climbs the Apple TV Store charts.
+---------
+
+# 12 Years Later, ‘The Simpsons’ Biggest Sci-Fi Mistake Still Makes No Sense
+
+TV Features, The Simpsons, Sci-Fi, Sitcom, Fox
+
+Sat, 05 Sep 2026 02:22:11 GMT
+
+https://collider.com/the-simpsons-days-of-future-future-sci-fi-mistake/
+
+The Simpsons has delivered plenty of great future stories, but “Days of Future Future” remains one of its messiest sci-fi misfires.
+---------
+
 # Star Wars Actor Shares His True Feelings About His Controversial Fate In Rise Of Skywalker
 
 Movies, Star Wars, Star Wars: Episode IX - The Rise of Skywalker
