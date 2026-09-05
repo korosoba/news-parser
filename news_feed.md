@@ -1,3 +1,399 @@
+# Glen Powell's 12-Part R-Rated Series That Switches Genres Becomes Major Streaming Hit
+
+TV, Masked Recs
+
+Sat, 05 Sep 2026 20:50:16 GMT
+
+https://screenrant.com/chad-powers-season-2-glen-powell-streaming-success-september-2026/
+
+Glen Powell's R-rated series just released new episodes, and the TV show that switches genres has instantly become a major streaming sensation.
+---------
+
+# 27 Years Later, Stephen King’s Best TV Show Is Still A 3-Part Horror Masterpiece He Scripted Himself
+
+TV, Masked Recs
+
+Sat, 05 Sep 2026 20:45:14 GMT
+
+https://screenrant.com/stephen-king-best-tv-show-storm-of-the-century/
+
+There are now countless TV shows based on the work of Stephen King, but the best of them is a forgotten masterpiece scripted by the author himself.
+---------
+
+# Marvel Risks Wasting 2 Perfect Opportunities For Scarlet Witch's MCU Return In 2026
+
+Movies, Scarlet Witch, VisionQuest, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sat, 05 Sep 2026 20:45:14 GMT
+
+https://screenrant.com/scarlet-witch-elizabeth-olsen-mcu-return-avengers-doomsday-visionquest-wasted/
+
+Scarlet Witch has long been one of the MCU's worst treated characters, and if Marvel ignores the perfect chance to bring her back, it's criminal.
+---------
+
+# Marvel's Next TV Show Will Make You Reappraise Avengers: Age Of Ultron... Again
+
+Streaming TV, Avengers: Age of Ultron, Marvel Cinematic Universe
+
+Sat, 05 Sep 2026 20:30:14 GMT
+
+https://screenrant.com/avengers-age-of-ultron-visionquest-reappraisal/
+
+Avengers: Age of Ultron was well-received when it came out, then the reception soured. Now, VisionQuest is about to reinvigorate the discourse.
+---------
+
+# 6 Classic Spider-Man Allies The MCU Still Hasn't Touched
+
+Movies, Spider-Man: Brand New Day
+
+Sat, 05 Sep 2026 20:30:14 GMT
+
+https://screenrant.com/spider-man-mcu-movies-classic-allies-still-missing/
+
+Several of Spider-Man's most important allies in the classic comics have yet to receive live-action counterparts in the Marvel Cinematic Universe.
+---------
+
+# 10 Modern Classics That Will Be Taught In Schools 50 Years From Now
+
+Books
+
+Sat, 05 Sep 2026 20:15:27 GMT
+
+https://screenrant.com/modern-classics-will-become-literary-school-teaching/
+
+Modern books poised to be classics in future classrooms that, even without major commercial success, could be life-changing.
+---------
+
+# 10 Best Movies To Watch If You Love Pacific Rim
+
+Movies, Pacific Rim
+
+Sat, 05 Sep 2026 20:15:14 GMT
+
+https://screenrant.com/best-movies-like-pacific-rim/
+
+Pacific Rim is one of the most exciting action blockbusters of the 2010s, and these fantastic movies really capture the same incredible feeling.
+---------
+
+# Netflix's 6-Season Spy Thriller Is So Good, It's Getting A Remake After Just 8 Years
+
+TV, Masked Recs
+
+Sat, 05 Sep 2026 20:02:14 GMT
+
+https://screenrant.com/the-americans-netflix-korean-remake/
+
+Netflix's simmering, deservedly acclaimed 1980s spy drama reimagined in 1990s Seoul, swapping suburban secrets for tense city double lives.
+---------
+
+# Valheim Meets D&D In Free New Game On Xbox Game Pass
+
+Gaming, Xbox Game Pass, PC, Indie Games, RuneScape
+
+Sat, 05 Sep 2026 20:00:14 GMT
+
+https://screenrant.com/xbox-game-pass-runescape-dragonwilds-september-2026/
+
+A free addition to Xbox Game Pass in September is going to allow fans of Valheim and Dungeons and Dragons to survive, craft, and battle in co-op.
+---------
+
+# Squid Game Returns In Crossover With Hit Game Franchise
+
+Gaming
+
+Sat, 05 Sep 2026 19:55:39 GMT
+
+https://screenrant.com/squid-game-zombicide-crossover/
+
+Squid Game is coming back in a surprising format, mixing familiar faces and games with a zombie onslaught to add a new level of threat.
+---------
+
+# Disney Is Quietly Shelving Its Old Percy Jackson Strategy in Season 3
+
+TV, Percy Jackson & The Olympians, Disney+, Fantasy
+
+Sat, 05 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/percy-jackson-and-the-olympians-season-3-strategy-shift/
+
+The third season of Percy Jackson & the Olympians marks the beginning of a new era for the beloved Disney+ franchise.
+---------
+
+# 8 Strongest Phantom Troupe Members in Hunter x Hunter, Ranked
+
+Anime, Hunter x Hunter
+
+Sat, 05 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/hxh-strongest-phantom-troupe-members/
+
+Hunter x Hunter's Phantom Troupe is far too terrifying to reduce their strengths to simple measurements of physical power.
+---------
+
+# Kenneth Branagh Reflects on Harry Potter Role After Kit Harington Recasting
+
+Movies, Harry Potter
+
+Sat, 05 Sep 2026 20:12:55 GMT
+
+https://www.cbr.com/kenneth-branagh-harry-potter-gilderoy-lockhart/
+
+The Harry Potter film series featured some of the most-esteemed UK stars.
+---------
+
+# Netflix's 'Bigger & Bloodier' Gangster Series Is the Most-Watched Show on Streaming In Just 2 Days
+
+TV, The Gentlemen
+
+Sat, 05 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/the-gentlemen-season-2-netflix-success-september-2026/
+
+The new season already improved its score and impressed critics.
+---------
+
+# Crunchyroll’s Next Action Anime Hit Finally Sets 1-Night-Only U.S. Premiere
+
+Anime, Sekiro: No Defeat, Crunchyroll, Sekiro: Shadows Die Twice
+
+Sat, 05 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/sekiro-no-defeat-anime-us-premiere/
+
+Crunchyroll has finally confirmed a U.S. premiere for its next 2026 action anime hit, but fans will have to act fast to watch it.
+---------
+
+# 8 Greatest Romantic Thrillers To Watch After The Drama
+
+Movies, The Drama, Thriller, Eternal Sunshine of the Spotless Mind, You Hurt My Feelings, The Worst Person in the World, Silver Linings Playbook, Blue Valentine, Closer, Malcolm & Marie, The One I Love
+
+Sat, 05 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/best-romantic-thrillers-watch-after-the-drama-list/
+
+The Drama has cemented itself as one of the best romantic thrillers of 2026, and there are several other movies that need to be seen if you loved it.
+---------
+
+# 10 Darkest Garfield Comic Strips of All Time, Ranked
+
+Comics, Garfield
+
+Sat, 05 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/darkest-garfield-comic-strips-ranked/
+
+The witty, fun-filled Garfield comic series can take a dark turn at times when fans least expect it, resulting in a few of these unforgettable strips.
+---------
+
+# Zelda: Ocarina of Time Isn't a 1:1 Remake According to Nintendo Insiders
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Sat, 05 Sep 2026 19:56:11 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-remake-changes-leak-direct/
+
+According to new information from known Nintendo insiders, it looks like The Legend of Zelda: Ocarina of Time won’t be an exact 1:1 remake after all.
+---------
+
+# 8 Anime Series Where the Hero Dies and Come Back
+
+Anime, Solo Leveling, Attack on Titan, Dragon Ball
+
+Sat, 05 Sep 2026 19:15:11 GMT
+
+https://www.cbr.com/anime-hero-dies-returns/
+
+In anime, deaths are not always permanent, and nobody proves that more the heroes who came back to life against all odds.
+---------
+
+# New NCIS Spinoff Will Answer a Major Question About Key Returning Character
+
+TV, NCIS: New York, CBS
+
+Sat, 05 Sep 2026 19:08:00 GMT
+
+https://www.cbr.com/ncis-new-york-spinoff-sam-hanna-past/
+
+The new spinoff to the long-running procedural brings back a key character, and it will settle a 14-season mystery.
+---------
+
+# Every Peter Jackson Middle-Earth Movie Cameo, Ranked
+
+Movie, Peter Jackson, The Lord of the Rings, The Hobbit trilogy, J.R.R. Tolkien
+
+Sat, 05 Sep 2026 20:38:11 GMT
+
+https://collider.com/peter-jackson-middle-earth-movie-cameos-ranked/
+
+From a turn as Albert Dreary to an appearance as Bungo Baggins, we've ranked every Peter Jackson cameo in the Lord of the Rings and Hobbit movies.
+---------
+
+# NBC’s Unforgettable Fantasy Series Is Surging on Streaming 61 Years Later
+
+TV Features, I Dream of Jeannie, NBC, Sitcom, Fantasy
+
+Sat, 05 Sep 2026 20:36:11 GMT
+
+https://collider.com/i-dream-of-jeannie-nbc-fantasy-series-streaming/
+
+I Dream of Jeannie finds new life on streaming as it climbs the Apple TV Store charts 61 years after its premiere.
+---------
+
+# Jon Bernthal's Gritty Crime Series Is Officially One of the Biggest Streaming Hits in the World
+
+TV News, The Punisher, Jon Bernthal, Disney+, Reacher
+
+Sat, 05 Sep 2026 20:30:11 GMT
+
+https://collider.com/jon-bernthal-action-show-the-punisher-streaming-success-disney-plus-september-2026/
+
+Jon Bernthal's 26-episode action series that's even darker than Reacher has officially become a #1 worldwide hit. Read on for more details.
+---------
+
+# The Best Performance of Every Year in the 2020s
+
+Movie, Anthony Hopkins, Emma Stone, Rose Byrne, Marianne Jean-Baptiste
+
+Sat, 05 Sep 2026 20:04:11 GMT
+
+https://collider.com/best-performance-every-year-2020s/
+
+Every year of the 2020s so far has produced one standout and acclaimed performance, including Sir Anthony Hopkins in 2020 and Emma Stone in 2023.
+---------
+
+# Tom Cruise’s $1.5B Action Phenomenon Is Officially Back on Streaming Charts
+
+Movie News, Tom Cruise, Top Gun: Maverick, Paramount Plus, Action
+
+Sat, 05 Sep 2026 20:00:11 GMT
+
+https://collider.com/tom-cruise-top-gun-maverick-streaming-hit-paramount-plus-september-2026/
+
+Tom Cruise's cinema-saving action masterpiece also starring Miles Teller and Glen Powell is a streaming hit again. Read on for details.
+---------
+
+# 8 Apple TV Sci-Fi Shows Where Every Episode Is a Masterpiece
+
+TV, Apple TV, Sci-Fi, Silo, Dark Matter
+
+Sat, 05 Sep 2026 19:19:11 GMT
+
+https://collider.com/apple-tv-sci-fi-shows-every-episode-masterpiece/
+
+From the Rebecca Ferguson dystopian drama Silo to the Joel Edgerton series Dark Matter, every episode of these Apple TV sci-fi shows is a masterpiece.
+---------
+
+# 'Silo' Stars Tease More Tragedy in Season 4, But Promise a Very Satisfying Series Ending
+
+Exclusives, Silo, Jessica Henwick, Ashley Zukerman, Apple TV
+
+Sat, 05 Sep 2026 19:18:41 GMT
+
+https://collider.com/silo-season-4-reaction-jessica-henwick-ashley-zukerman-interview/
+
+Silo's Ashley Zukerman and Jessica Henwick discuss that brutal Season 3 finale and what fans should expect from Season 4.
+---------
+
+# Ben Affleck’s Near-Perfect Crime Thriller Is Officially Streaming Now on Paramount+
+
+Movie News, Gone Baby Gone, Ben Affleck, Casey Affleck, Thriller
+
+Sat, 05 Sep 2026 19:00:11 GMT
+
+https://collider.com/ben-affleck-gone-baby-gone-streaming-paramount-plus-september-2026/
+
+The acclaimed 94% RT crime thriller Gone Baby Gone, directed by Ben Affleck and starring his brother Casey, is now streaming on Paramount+.
+---------
+
+# Clint Eastwood’s Greatest Mystery Still Hits Just As Hard as It Did on Day 1
+
+Movie, Mystic River, Clint Eastwood, Mystery, Sean Penn
+
+Sat, 05 Sep 2026 18:53:11 GMT
+
+https://collider.com/clint-eastwood-mystic-river-greatest-mystery-still-hits/
+
+In 2003, Clint Eastwood directed Mystic River, which remains one of his best and most emotionally intense movies nearly a quarter of a century later.
+---------
+
+# Crime Masterpiece That's One of the Best Shows in History Becomes the #1 Series on Streaming
+
+Movie News, Breaking Bad, Hot on Streaming
+
+Sat, 05 Sep 2026 20:30:13 GMT
+
+https://movieweb.com/breaking-bad-streaming-hit-september-2026/
+
+While many might try, it's impossible to replace this absolutely essential TV series.
+---------
+
+# 10 Stephen King Books That Are 10/10 Masterpieces
+
+Movie Lists, Stephen King, Horror, Thriller
+
+Sat, 05 Sep 2026 20:30:13 GMT
+
+https://movieweb.com/stephen-king-books-masterpieces/
+
+Stephen King has dozens of great books, but 10 of them guarantee entertainment and intellectual nourishment to any reader.
+---------
+
+# 10 Best Walton Goggins TV Shows, Ranked From Solid to Masterpiece
+
+TV Lists, Walton Goggins, Thriller, Comedy, Sci-Fi
+
+Sat, 05 Sep 2026 20:00:13 GMT
+
+https://movieweb.com/walton-goggins-best-tv-shows/
+
+From 'Justified' to 'Fallout', Walton Goggins has proven himself an unmatched talent, so how do his best TV shows stack up?
+---------
+
+# Ryan Reynolds' 111-Minute Action Movie Hail as One of His "Best" Gets Solid RT Score
+
+Movie News, Mayday, Action, Ryan Reynolds
+
+Sat, 05 Sep 2026 19:30:13 GMT
+
+https://movieweb.com/ryan-reynolds-mayday-rotten-tomatoes-score/
+
+Early reviews for Mayday suggest Ryan Reynolds may have one of his strongest live-action crowd-pleasers in years.
+---------
+
+# Forget 'MobLand,' Guy Ritchie's Best 2-Part Crime Thriller Is Officially One of the Biggest Shows on Streaming
+
+TV News, The Gentlemen, Netflix, Hot on Streaming, Guy Ritchie, MobLand
+
+Sat, 05 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/the-gentlemen-season-2-streaming-success-netflix-september-2026/
+
+Who needs Tom Hardy when you've got a killer cast and one of the best crime thrillers on streaming?
+---------
+
+# Denzel Washington's Action Thriller From 22 Years Ago Was So Good, No One Realized It Was a Remake
+
+Features, Denzel Washington, Man on Fire, Action, Thriller
+
+Sat, 05 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/denzel-washington-man-on-fire-action-thriller-remake/
+
+The original thriller was released 17 years before Denzel Washington turned it into an action-packed masterpiece.
+---------
+
+# 7 Reasons Why 'Apocalypse Now' Is So Controversial
+
+Movie Lists, Apocalypse Now
+
+Sat, 05 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/wildest-things-apocalypse-now-controversial/
+
+Recreating the Vietnam War came at great cost to all who set foot on the wild set of Francis Ford Coppola's unbelievably disastrous 1970s epic.
+---------
+
 # Dexter Morgan Is Haunted By A Familiar Face In Resurrection Season 2 Set Photos
 
 TV, Dexter: Resurrection
