@@ -1,3 +1,432 @@
+# Anakin Skywalker's Official Star Wars: Zero Company Return Reveals His True Potential
+
+Gaming, Star Wars Zero Company, Star Wars, Triple-A Games, PC
+
+Sat, 05 Sep 2026 16:30:16 GMT
+
+https://screenrant.com/star-wars-zero-company-anakin-skywalker-potential-games/
+
+Anakin Skywalker just showed up in a new Star Wars story, and its smart usage of the character could lay the groundwork for a lot more.
+---------
+
+# Prime Video's The Boys Replacement Has A Villain Even Darker Than Homelander
+
+TV, The Boys
+
+Sat, 05 Sep 2026 16:29:14 GMT
+
+https://screenrant.com/the-boys-vought-rising-stormfront-worse-than-homelander/
+
+Prime Video's upcoming spinoff steers into origin territory with a charismatic extremist whose charm masks decades of brutal, organized cruelty.
+---------
+
+# Stanley Kubrick's Last Movie Eyes Wide Shut & Rumored Missing 20 Minutes Get An Official Statement From Daughter
+
+Movies, Eyes Wide Shut
+
+Sat, 05 Sep 2026 16:26:46 GMT
+
+https://screenrant.com/stanley-kubrick-eyes-wide-shut-missing-20-minutes-vivian-kubrick-statement/
+
+A long-standing rumor about some mysterious cuts made to Stanley Kubrick's Eyes Wide Shut after his death gets an answer from his daughter.
+---------
+
+# WWXD: Glen Powell & The Chad Powers Cast Must Become Masters Of Disguise
+
+TV, Chad Powers, Chad Powers - Season 2, Glen Powell, Steve Zahn
+
+Sat, 05 Sep 2026 16:24:40 GMT
+
+https://screenrant.com/chad-powers-season-2-glen-powell-cast-wwxd/
+
+Glen Powell, Perry Mattfeld, Quentin Plair, Wynn Everett, Frankie Rodriguez, and Steve Zahn play What Would Chad Powers Do to celebrate season 2.
+---------
+
+# 115-Minute John Wick Replacement Movie Hits Prime Video & It Still Needs A Sequel
+
+Movies, Masked Recs
+
+Sat, 05 Sep 2026 16:20:15 GMT
+
+https://screenrant.com/atomic-blonde-movie-john-wick-streaming-prime-video-september-2026/
+
+One of the best John Wick-inspired action movies from the 2010s is streaming on Prime, and it still deserves a sequel nearly a decade on.
+---------
+
+# The Sopranos Meets Breaking Bad In HBO's 8-Part Crime Thriller Series
+
+Classic TV, Masked Recs
+
+Sat, 05 Sep 2026 16:15:15 GMT
+
+https://screenrant.com/the-penguin-show-sopranos-meets-breaking-bad-hbo/
+
+HBO has long been the home of some of the best prestige TV, including shows like The Sopranos, and with The Penguin, they improve on that legacy.
+---------
+
+# Brendan Fraser’s 23-Year-Old Classic Officially Surpassed At Box Office By 2026 Franchise Return
+
+Movies, Box Office, Coyote Vs. Acme, Looney Tunes
+
+Sat, 05 Sep 2026 16:12:59 GMT
+
+https://screenrant.com/coyote-vs-acme-box-office-week-2-domestic-report/
+
+A classic Brendan Fraser movie is outgrossed at the box office by a new installment in the franchise that arrived more than two decades later.
+---------
+
+# Netflix's Biggest Sleeper Hit Of Summer 2026 Is A Thriller Disguised As A Rom-Com
+
+TV, Netflix, Masked Recs
+
+Sat, 05 Sep 2026 16:00:15 GMT
+
+https://screenrant.com/netflix-biggest-sleeper-hit-sticky-love/
+
+Forget Spooky in Love and My Royal Nemesis, Netflix's most underrated K-drama of the season is a rom-com that's secretly a thriller.
+---------
+
+# CIA Promises A Major Story Improvement When It Returns For Season 2 Next Month
+
+Network TV, CIA
+
+Sat, 05 Sep 2026 16:00:15 GMT
+
+https://screenrant.com/cia-season-2-fbi-crossover-high-stakes-story-improve/
+
+CIA's first season had a few minor issues, but it looks like season 2 is set to start addressing them immediately in the first episode.
+---------
+
+# 18 Years Later, A Beloved PlayStation 2 JRPG Is Coming To PS5
+
+Gaming
+
+Sat, 05 Sep 2026 16:00:15 GMT
+
+https://screenrant.com/playstation-ps2-remake-ps5-release-persona/
+
+Discover Persona 4 Revival: the enhanced JRPG launching on PS5, Xbox, and Windows on Feb 18, 2027.
+---------
+
+# 12 Best D&D 5e Buff Spells That Don't Need Concentration
+
+Games, Dungeons and Dragons
+
+Sat, 05 Sep 2026 16:30:12 GMT
+
+https://www.cbr.com/dnd-best-non-concentration-buff-spells/
+
+Not all Dungeons & Dragons buffing spells require Concentration on the part of the caster, as they can be spammed by only spending slots.
+---------
+
+# If You Love Lanterns, HBO's Other Damon Lindelof Hit With 91% RT Was Created Just for You
+
+TV, The Leftovers, HBO Max, Drama
+
+Sat, 05 Sep 2026 16:30:11 GMT
+
+https://www.cbr.com/hbo-the-leftovers-damon-lindelof-drama/
+
+Damon Lindelof's first HBO original offers up subversion, mystery, and excellent performances in an intimate, large-scale drama series.
+---------
+
+# Agatha Christie's New 6-Part Series Breaks Format With First-Ever Steamy Show
+
+TV, Tommy & Tuppence, Britbox UK, Mystery
+
+Sat, 05 Sep 2026 16:24:21 GMT
+
+https://www.cbr.com/agatha-christie-tommy-and-tuppence-britbox-adaptation-first-steamy-show/
+
+BritBox and the BBC's Agatha Christie's Tommy & Tuppence series breaks the mold in more than one way.
+---------
+
+# 5 Anime Arcs Where the Hero Turns Evil
+
+Anime, Attack On Titan, Code Geass: Lelouch of the Rebellion, Tokyo Ghoul
+
+Sat, 05 Sep 2026 16:16:11 GMT
+
+https://www.cbr.com/anime-arcs-where-hero-turns-evil/
+
+These anime arcs prove that even the greatest heroes can fall, with five protagonists taking surprisingly dark turns.
+---------
+
+# Skyrim Officially Returns September 9 With New IKEA Release
+
+Games, The Elder Scrolls V: Skyrim
+
+Sat, 05 Sep 2026 16:10:11 GMT
+
+https://www.cbr.com/skyrim-official-new-release-ikea-september-9/
+
+The Elder Scrolls V: Skyrim and IKEA are about to collide in ways that players and fans could have never imagined, at least from the looks of things.
+---------
+
+# What's Streaming on Pluto TV in September 2026? Everything Streaming for Free
+
+TV, Pluto, paramount pictures
+
+Sat, 05 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/what-streaming-pluto-tv-september-2026-full-list/
+
+The Paramount-owned free streaming service is doubling down on more exciting titles.
+---------
+
+# Hatsune Miku Revives a Forgotten '90s Classic in Major New Collection
+
+Anime, Hatsune Miku, merchandise, Clothing
+
+Sat, 05 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/hatsune-miku-fila-sneaker-revive/
+
+Hatsune Miku's 19th birthday is being crowned by her latest collaboration with FILA, with the shoemaker bringing back a classic design to celebrate.
+---------
+
+# 5 Anime Demons Stronger Than Muzan Kibutsuji
+
+Anime, Yu Yu Hakusho, Jujutsu Kaisen, Demon Slayer: Kimetsu no Yaiba
+
+Sat, 05 Sep 2026 15:15:11 GMT
+
+https://www.cbr.com/demon-slayer-anime-demons-stronger-muzan/
+
+Muzan Kibutsuji towers over Demon Slayer, but he stands no chance against the strongest anime demons
+---------
+
+# David Boreanaz's 100% RT Crime Thriller Show Is Still Better Than Anything on Streaming
+
+TV, Bones, Crime
+
+Sat, 05 Sep 2026 15:00:12 GMT
+
+https://www.cbr.com/bones-best-crime-thriller-show/
+
+David Boreanaz starred in one of the most celebrated crime-thriller shows ever made, and it remains one of the best.
+---------
+
+# Kate Beckinsale's Dark Fantasy Cult Classic Returns to Dominate Streaming as the No. 1 Show on PVOD
+
+Movies, Kate Beckinsale, Underworld, Apple TV
+
+Sat, 05 Sep 2026 15:00:12 GMT
+
+https://www.cbr.com/kate-beckinsale-underworld-pvod-no-1-us-september-2026/
+
+Beckinsale's underrated gothic horror franchise's debut is back on the top of the charts.
+---------
+
+# 10 Years Later, Conan O’Brien’s Weirdest Sci-Fi Series Is Still a Masterpiece
+
+TV Features, People of Earth, Conan O'Brien, HBO Max, Sci-Fi
+
+Sat, 05 Sep 2026 16:16:11 GMT
+
+https://collider.com/conan-obrien-produced-sci-fi-series-people-of-earth-sitcom/
+
+Conan O’Brien produced this underrated sci-fi comedy about alien abductees, and 10 years later, it still deserves a second look.
+---------
+
+# 9 Years Later, Guy Ritchie’s Fantasy Flop Officially Gets a Second Chance on HBO Max
+
+Movie News, Guy Ritchie, King Arthur: Legend of the Sword, Jude Law, Charlie Hunnam
+
+Sat, 05 Sep 2026 16:15:11 GMT
+
+https://collider.com/9-years-later-guy-ritchies-fantasy-flop-officially-gets-a-second-chance-on-hbo-max/
+
+Guy Ritchie’s failed franchise starter, King Arthur: Legend of the Sword, is returning to the spotlight on HBO Max.
+---------
+
+# The 10/10 Sci-Fi Gem That Ridley Scott Felt Was “Too Long” Is the #1 Hit on HBO Max
+
+Movie News, Blade Runner 2049, Blade Runner, Ridley Scott, Denis Villeneuve
+
+Sat, 05 Sep 2026 15:31:11 GMT
+
+https://collider.com/blade-runner-2049-hbo-max-number-one-streaming-hit-september-2026/
+
+Blade Runner 2049 is the No. 1 movie on HBO Max years after Ridley Scott famously criticized the sci-fi sequel’s lengthy runtime.
+---------
+
+# 14 Years Later, Glen Powell Is Officially Remaking a Classic Action Thriller
+
+Movie News, Glen Powell, Confession of Murder, How to Make a Killing, Chad Powers
+
+Sat, 05 Sep 2026 15:29:03 GMT
+
+https://collider.com/glen-powell-confession-of-murder-american-remake/
+
+Glen Powell and Universal are officially teaming up for an American remake of a legendary action thriller. Read on for more
+---------
+
+# Hulu's 91% RT Romance Is Quietly One of the Best Shows on Streaming
+
+TV Features, Normal People, Hulu, Daisy Edgar-Jones, Paul Mescal
+
+Sat, 05 Sep 2026 15:23:11 GMT
+
+https://collider.com/normal-people-hulu-romance-streaming/
+
+Hulu's Normal People, starring Daisy Edgar-Jones and Paul Mescal, remains a must-watch romantic drama.
+---------
+
+# ‘Resident Evil’ Is Officially Coming Back Bigger Than Ever at the Box Office
+
+Movie News, Zach Cregger, Resident Evil, Austin Abrams, Box Office
+
+Sat, 05 Sep 2026 14:45:11 GMT
+
+https://collider.com/zach-cregger-resident-evil-reboot-box-office-opening-weekend-record/
+
+Zach Cregger’s new Resident Evil movie is eyeing a franchise-record box office debut as the horror series returns to theaters.
+---------
+
+# 8 Movies To Watch If You Loved Widow's Bay
+
+Movie, Widow's Bay, Swiss Army Man, The Witch, Vivarium
+
+Sat, 05 Sep 2026 14:28:11 GMT
+
+https://collider.com/movies-to-watch-if-you-loved-widows-bay/
+
+Nine horror-comedy films that match the small-town dread and dark humor of Apple TV's breakout hit Widow's Bay.
+---------
+
+# HBO Max's 96-Minute Thriller Is One of the Biggest Streaming Hits in the World
+
+Movie Features, Ready or Not, Samara Weaving, Thriller, HBO Max
+
+Sat, 05 Sep 2026 14:04:11 GMT
+
+https://collider.com/ready-or-not-hbo-max-thriller-streaming-hit/
+
+Ready or Not is charting on streaming, bringing audiences back to this gripping thriller starring Samara Weaving.
+---------
+
+# Ryan Reynolds’ ‘Rush Hour’ in Russia Is Officially Apple TV’s Newest Blockbuster
+
+Movie News, Mayday, Ryan Reynolds, Apple TV, Kenneth Branagh
+
+Sat, 05 Sep 2026 14:00:11 GMT
+
+https://collider.com/mayday-ryan-reynolds-apple-tv-streaming-hit-september-2026/
+
+Ryan Reynolds’ Mayday, a twisted new action-packed buddy comedy co-starring Kenneth Branagh, is a new Apple TV streaming hit.
+---------
+
+# 'The Gentlemen's Kaya Scodelario and Benedetta Porcaroli React to Season 2's Most Tragic Death
+
+Exclusives, The Gentlemen, Kaya Scodelario, Netflix, Benedetta Porcaroli
+
+Sat, 05 Sep 2026 14:00:11 GMT
+
+https://collider.com/the-gentlemen-season-2-kaya-scodelario-benedetta-porcaroli-susie-bella/
+
+Kaya Scodelario and Benedetta Porcaroli discuss The Gentlemen and go deep into their characters in Season 2.
+---------
+
+# 15 Years Later, Joel Kinnaman's Forgotten ‘Mindhunter’ Replacement Remains a Hidden Gem
+
+Features, The Killing, Joel Kinnaman, Thriller, Crime, Mindhunter
+
+Sat, 05 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/the-killing-mindhunter-comparison/
+
+A crime thriller TV series is the perfect binge-watch for those who enjoyed Netflix's 'Mindhunter,' which was executive produced by David Fincher.
+---------
+
+# 8 Perfect HBO Shows With No Bad Seasons
+
+TV Lists, HBO Max, Streaming
+
+Sat, 05 Sep 2026 15:30:13 GMT
+
+https://movieweb.com/hbo-shows-no-bad-seasons/
+
+HBO cracked the code long before streaming caught up. These shows offer perfection from start to finish.
+---------
+
+# One of the Greatest Sci-Fi Movies of the 21st Century Is Taking Over the World on Streaming
+
+Movie News, Blade Runner 2049, HBO Max, Hot on Streaming, Sci-Fi, Blade Runner 2099
+
+Sat, 05 Sep 2026 15:30:13 GMT
+
+https://movieweb.com/blade-runner-2049-scifi-stream-hbo-max-sept-2026/
+
+The new sequel drops this November.
+---------
+
+# Guy Ritchie's Highly-Anticipated Netflix Crime Thriller Lands Killer Rotten Tomatoes Score
+
+TV Shows, The Gentlemen, Guy Ritchie, Crime
+
+Sat, 05 Sep 2026 15:30:13 GMT
+
+https://movieweb.com/the-gentlemen-season-2-audience-rt-score/
+
+Audiences finally weighed in on the hit crime series' sophomore season.
+---------
+
+# Tommy Lee Jones Is a Gunslinger Taking on an Outlaw in Trailer for Action Western Remake
+
+Movie News, Angel and the Badman, Tommy Lee Jones, Western
+
+Sat, 05 Sep 2026 15:00:14 GMT
+
+https://movieweb.com/tommy-lee-jones-action-western-remake-trailer/
+
+Tommy Lee Jones returns to familiar territory in a new Western remake opposite Zachary Levi.
+---------
+
+# Forget Alan Ritchson: The Original 130-Minute 'Reacher' Adaptation Is Officially Free on YouTube
+
+Features, Reacher, Action, Thriller, Jack Reacher
+
+Sat, 05 Sep 2026 15:00:14 GMT
+
+https://movieweb.com/reacher-original-movie-free-youtube/
+
+Before Alan Ritchson took the reins, Tom Cruise starred as Jack Reacher in the hit 2012 action thriller, now free to stream on YouTube
+---------
+
+# Glen Powell Personally Emailed Johnny Depp for Surprise Finale Cameo in His New Series
+
+TV News, Chad Powers, Glen Powell, Johnny Depp, Comedy
+
+Sat, 05 Sep 2026 14:30:13 GMT
+
+https://movieweb.com/chad-powers-johnny-depp-season-2-cameo/
+
+Glen Powell's new comedy goes meta with a surprise cameo from Johnny Depp.
+---------
+
+# Guy Ritchie Meets 'Rocky' in New Series Dominating Jason Statham's Hit Action Thriller on Streaming
+
+TV News, Fightland, Streamer Comparisons, Jason Statham, Guy Ritchie, Rocky, Action
+
+Sat, 05 Sep 2026 14:00:13 GMT
+
+https://movieweb.com/fightland-beating-jason-statham-shelter-action-streaming-september-2026/
+
+Jason Statham's 2026 action hit has been dethroned on streaming by a new arrival that blends boxing with London's criminal underworld.
+---------
+
+# Gal Gadot's New High-Stakes Prime Video Action Thriller Unites Audiences and Critics
+
+Movie News, The Runner, Gal Gadot, Action
+
+Sat, 05 Sep 2026 14:00:13 GMT
+
+https://movieweb.com/the-runner-audience-rt-score/
+
+Audiences have weighed in on Gadot's fast-paced new hostage drama.
+---------
+
 # Prime Video's $114M Fantasy Movie With Over 1Bn Minutes Viewed Is A Worthy Cult Classic
 
 Movies, Masked Recs
