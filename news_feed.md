@@ -1,3 +1,399 @@
+# Dexter Morgan Is Haunted By A Familiar Face In Resurrection Season 2 Set Photos
+
+TV, Dexter: Resurrection
+
+Sat, 05 Sep 2026 18:42:01 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-set-photos-david-zayas-return/
+
+Dexter: Resurrection is resurrecting even more familiar faces, as new set photos show Dexter Morgan being haunted ahead of season 2's release.
+---------
+
+# 24 Years Later, Nathan Fillion’s Best Firefly Quote Is Still The Greatest In Any Space Western
+
+Classic TV, Firefly
+
+Sat, 05 Sep 2026 18:30:14 GMT
+
+https://screenrant.com/firefly-best-quote-nathan-fillion-greatest-space-western/
+
+A cunning disguise, marital bickering, and a now-iconic floral hat flip a frontier showdown into a moment that defines Firefly's tonal genius.
+---------
+
+# If These 8 Fantasy Books & Series Were Written By Women, They’d Be Considered Romantasy
+
+Books, Romantasy, Fantasy
+
+Sat, 05 Sep 2026 18:00:14 GMT
+
+https://screenrant.com/fantasy-books-written-by-men-romantasy-by-women/
+
+Here are 8 fantasy books and series that would be considered "romantasy" if they were written by women, because of their explicit scenes and romance.
+---------
+
+# After 35 Years, Marvel Finally Solves Deadpool's Big Healing Factor Problem With One Genius Move
+
+Comics, Deadpool, Marvel
+
+Sat, 05 Sep 2026 18:00:14 GMT
+
+https://screenrant.com/deadpool-healing-factor-problem-marvel-solve/
+
+Deadpool’s healing factor creating evil and monstrous versions of himself is an interesting change that’s made "Wade Wilson: Deadpool" more fun.
+---------
+
+# Netflix's 2027 Magical Franchise Will Make Harry Potter Look Small
+
+Movies, Masked Recs
+
+Sat, 05 Sep 2026 18:00:14 GMT
+
+https://screenrant.com/netflix-narnia-adaptation-harry-potter-look-small/
+
+In 2027, Netflix is bringing The Chronicles of Narnia to the big screen with Narnia: The Magician's Nephew, challenging HBO and Harry Potter.
+---------
+
+# Why Daniel Is So Different In Silo Season 3's Finale Clarified By Star
+
+TV, Silo, Silo - Season 3
+
+Sat, 05 Sep 2026 17:54:29 GMT
+
+https://screenrant.com/silo-season-3-finale-daniel-different-why-ashley-zukerman-response/
+
+Silo's Daniel Keene actor Ashley Zukerman breaks down why his character acts so differently in the season 3 finale of the Apple TV series.
+---------
+
+# All 14 Star Trek Movies, Ranked Worst To Best
+
+Movies, Star Trek, Ranking, Sci-Fi
+
+Sat, 05 Sep 2026 17:53:18 GMT
+
+https://screenrant.com/star-trek-movies-ranked/
+
+Every Star Trek movie ranked from worst to best, from Section 31 and the Kelvin timeline to First Contact and The Wrath of Khan.
+---------
+
+# Adults Creators Break Down Season 2's Most Important Love Story
+
+Interviews, Adults, Adults - Season 2
+
+Sat, 05 Sep 2026 17:45:59 GMT
+
+https://screenrant.com/adults-season-2-ben-kronengold-rebecca-shaw-interview/
+
+Adults creators Ben Kronengold and Rebeca Shaw discuss the Anton-Issa-Paul love triangle in season 2, while revealing the show's true love story.
+---------
+
+# Once Upon A Time In Hollywood's Sequel Can Finally Shut Down 2 Major Tarantino Theories
+
+Movies, Once Upon a Time in Hollywood, The Adventures of Cliff Booth, Quentin Tarantino
+
+Sat, 05 Sep 2026 17:45:14 GMT
+
+https://screenrant.com/the-further-misadventures-cliff-booth-ouatih-quentin-tarantino-theories/
+
+Tarantino's Hollywood epic has inspired lots of theories, from the compelling to the downright ridiculous, and Cliff Booth's return can settle two.
+---------
+
+# Today's Wordle Hints & Answer - September 5, 2026 (Puzzle #1904)
+
+Gaming, Wordle, Mobile
+
+Sat, 05 Sep 2026 17:36:16 GMT
+
+https://screenrant.com/todays-wordle-answer-hints-1904-september-5-2026/
+
+When it comes to today's Wordle, you might be able to figure out its beginning and end, but everything in between could be tricky without some clues.
+---------
+
+# 10 Fantasy Anime That Are 10/10 Masterpieces, Ranked
+
+Anime, Fantasy, Frieren: Beyond Journey's End, Mushishi, Shangri-La Frontier
+
+Sat, 05 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/masterpiece-fantasy-anime-perfect-10/
+
+Only a handpicked few fantasy anime can be called the best of the beloved genre, ranked from best to mindblowing.
+---------
+
+# HBO's Hit Fantasy Spinoff Explodes on Streaming With 940M Minutes Viewed After Season Finalec
+
+TV, HBO Max, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms
+
+Sat, 05 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/hbo-fantasy-house-of-the-dragon-explodes-on-streaming-after-season-finale/
+
+What this HBO Max megahit is doing to streaming numbers is almost unheard of.
+---------
+
+# Sydney Sweeney Is Officially Rebooting One of the Greatest Horror Franchises Ever
+
+Movies, Sleepy Hollow, Horror
+
+Sat, 05 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/sydney-sweeney-sleepy-hollow-horror-movie-reboot/
+
+After reviving the erotic thriller with The Housemaid, Sydney Sweeney is looking to bring back one of the greatest horror franchises.
+---------
+
+# Power Rangers Fans Need to See This Immersive Visual Experience
+
+Comics, Power Rangers
+
+Sat, 05 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/power-rangers-the-art-of-dan-mora-on-sale-now/
+
+A brand-new title is about to give Power Rangers fans an up-close look at some of the franchise's biggest visuals and most stunning designs.
+---------
+
+# Evangelion's New 90s 'Spin-Off' Is Modeled After Its 3 Original Evas, Designer Reveals
+
+Anime, Neon Genesis Evangelion, beyblade, Beyblade X, merchandise, toys
+
+Sat, 05 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/evangelion-beyblade-crossover-original-eva-inspire/
+
+Fans are now getting their hands on the Evangelion-themed Beyblades, with the designs nostalgically derived from the main mechs in the 1990s anime.
+---------
+
+# Mighty Morphin Power Rangers #3 Puts Classic Characters in the Spotlight
+
+Comics, Mighty Morphin Power Rangers, Power Rangers
+
+Sat, 05 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/mighty-morphin-power-rangers-3-review/
+
+The latest issue of BOOM! Studios' new Mighty Morphin Power Rangers proves that the classic team didn't need Tommy Oliver to be interesting.
+---------
+
+# Star Trek: Voyager Officially Returns With New Stories Fall 2026
+
+Games, Star Trek: Voyager, Star Trek
+
+Sat, 05 Sep 2026 17:50:11 GMT
+
+https://www.cbr.com/star-trek-voyager-official-returns-new-story-fall-2026/
+
+Star Trek: Voyager fans can officially look forward to brand-new storylines this fall, and it's all thanks to the franchise's latest gaming sensation.
+---------
+
+# Tracker Season 4 Quietly Confirms Justin Hartley’s CBS Hit Is Becoming a Different Show
+
+TV, Tracker, CBS
+
+Sat, 05 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/cbs-tracker-season-4-official-promo-justin-hartley-colter-shaw-update/
+
+An official promo that just dropped for Tracker Season 4 quietly confirms that everything has changed for Justin Hartley's Colter Shaw.
+---------
+
+# 5 Classic Open-World RPGs That Are Unplayable Today
+
+Games, Far Cry, Video Games, RPG, open world
+
+Sat, 05 Sep 2026 17:15:11 GMT
+
+https://www.cbr.com/unplayable-classic-open-world-rpgs-today/
+
+Nostalgic playgrounds reveal tight boundaries and repetitive chores that turn retro video game exploration into busywork.
+---------
+
+# Tom Cruise's Controversial $457M Samurai Epic Conquers Streaming After HBO Max Debut
+
+Movies, The Last Samurai, HBO Max
+
+Sat, 05 Sep 2026 17:00:11 GMT
+
+https://www.cbr.com/tom-cruise-the-last-samurai-conquers-hbo-max/
+
+One of Tom Cruise's most controversial films ever has taken over streaming 23 years later.
+---------
+
+# 'The Simpsons' Is Officially Changing Its Formula for the First Time in 36 Years
+
+TV Features, The Simpsons, Disney+, Matt Groening, Black Mirror
+
+Sat, 05 Sep 2026 18:38:11 GMT
+
+https://collider.com/the-simpsons-season-37-disney-exclusive-yellow-mirror-anthology/
+
+The Simpsons attempts something new in its latest Season 37 special, using a format normally reserved for Treehouse of Horrors.
+---------
+
+# Netflix's Forgotten 4-Part Comedy Only Gets Better With Every Season
+
+TV Features, Atypical, Netflix, Jennifer Jason Leigh, Jack Haven
+
+Sat, 05 Sep 2026 18:27:11 GMT
+
+https://collider.com/netflix-atypical-comedy-gets-better-every-season/
+
+Netflix's forgotten coming-of-age comedy Atypical is a series that gets better with every subsequent season.
+---------
+
+# Mayday: One Shot Had to Make America Feel Free | Collider BTS
+
+Movie, Mayday
+
+Sat, 05 Sep 2026 18:15:11 GMT
+
+https://collider.com/video/mayday-one-shot-had-to-make-america-feel-free-collider-bts/
+
+John Francis Daley and Jonathan Goldstein wanted Mayday’s aerial action to feel physically believable, even when visual effects were needed to finish the illusion. The filmmakers explain how real pilots, practical cockpit rigs, footage of French jets over the Mediterranean, and volume technology helped ground Ryan Reynolds’ Cold War adventure.In this Collider interview, Daley and Goldstein break down the making of Mayday, starring Ryan Reynolds and Kenneth Branagh, including an ejection sequence that transitioned to a stunt performer dropping 150 feet down a tree. They also reveal the logistical challenge of shooting the movie’s climactic Moscow parade sequence in Budapest with roughly 1,000 extras, a dozen Soviet tanks, and an ICBM launch vehicle.The directors also discuss building full-size train cars for an ambitious chase, finding room for Reynolds and Branagh to improvise within their carefully honed script, and why the actors’ contrasting styles made them such an appealing pa
+---------
+
+# The Best 'Spider-Man' Movie Is Officially a Netflix Smash Hit
+
+Movie News, Spider-Man Into the Spider-Verse, Netflix, Spider-Man, Streaming
+
+Sat, 05 Sep 2026 18:00:11 GMT
+
+https://collider.com/spider-man-into-the-spider-verse-streaming-hit-netflix-september-2026/
+
+As Spider-Man: Brand New Day swings to new heights at the box office, Spider-Man: Into the Spider-Verse is a smash on streaming.
+---------
+
+# 10 Near-Perfect Sci-Fi Movies You'll Want to Rewatch Immediately
+
+Movie, Science Fiction, District 9, Nausicaä of the Valley of the Wind, Brazil
+
+Sat, 05 Sep 2026 17:28:11 GMT
+
+https://collider.com/near-perfect-sci-fi-movies-rewatch-immediately/
+
+From Soylent Green to Nausicaä of the Valley of the Wind, these sci-fi movies are so good that you'll want to rewatch them as soon as they're over.
+---------
+
+# 10 Thriller Sleeper Hits That Got So Much Better After Season 1
+
+TV, Thriller, Tokyo Vice, Industry, Boardwalk Empire
+
+Sat, 05 Sep 2026 17:04:11 GMT
+
+https://collider.com/thriller-shows-sleeper-hits-better-after-season-1/
+
+Discover gripping thriller TV series that evolved and elevated after their first season, from Tokyo Vice to The Old Man.
+---------
+
+# Netflix's New 'Bridgerton' Replacement Officially Sets 2026 Release Date
+
+TV News, Netflix, Bridgerton, Romance, Drama
+
+Sat, 05 Sep 2026 17:00:11 GMT
+
+https://collider.com/netflix-bridgerton-replacement-the-doll-premiere-date-september-2026/
+
+Forget Bridgerton, Netflix's next romantic period drama has an official premiere date. Get all the details here.
+---------
+
+# 'Masters of the Universe' Officially Changes Genres for New He-Man Release
+
+Books and Comics, Masters of the Universe, Mattel, Books, He-Man and the Masters of the Universe
+
+Sat, 05 Sep 2026 16:46:14 GMT
+
+https://collider.com/masters-of-the-universe-skeletor-ate-my-homework/
+
+3 months after the release of Masters of the Universe, He-Man is officially changing genres for his next release.
+---------
+
+# New 'Game of Thrones' Prequel Officially Confirms 2027 Debut After Rave Reviews
+
+TV News, Game of Thrones, Fantasy
+
+Sat, 05 Sep 2026 18:30:13 GMT
+
+https://movieweb.com/game-of-thrones-mad-king-2027-debut/
+
+A new 'Game of Thrones' prequel is officially heading into its next phase after a strong early response.
+---------
+
+# 10 Great TV Crime Thrillers No One Talks About Anymore
+
+TV Lists, Thriller, Harlan Coben, Southland, The Fall, The Shield, Lethal Weapon
+
+Sat, 05 Sep 2026 18:30:13 GMT
+
+https://movieweb.com/tv-crime-thrillers-no-one-talks-about/
+
+From old-school cop shows to gritty neo-noirs, these are 10 great crime thrillers that have been tragically lost to the sands of time.
+---------
+
+# Apple TV's Underrated Hard Sci-Fi Adaptation Return Gets Solid Rotten Tomatoes Score
+
+TV News, Dark Matter, Sci-Fi
+
+Sat, 05 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/dark-matter-season-2-rotten-tomatoes-score/
+
+Apple TV's 'Dark Matter' is back, and the early reviews suggest Season 2 was well worth the wait.
+---------
+
+# The Revenge Thriller Masterpiece That Makes 'John Wick' Feel Small Getting New Release
+
+Movie News, Blu-ray, Kill Bill, Action
+
+Sat, 05 Sep 2026 17:30:13 GMT
+
+https://movieweb.com/kill-bill-the-whole-bloody-affair-4k-imprint-release/
+
+The complete version of Tarantino's 'Kill Bill' is getting a major new release for collectors.
+---------
+
+# Jason Statham, Mark Wahlberg, & Mel Gibson All Failed To Reboot a 92-Minute Crime Thriller Masterpiece
+
+Features, Crime, Jason Statham
+
+Sat, 05 Sep 2026 17:30:13 GMT
+
+https://movieweb.com/point-blank-crime-thriller-failed-reboots/
+
+This 1967 movie directed by Sir John Boorman and based on Donald E. Westlake's first Parker novel has had three underwhelming reboots.
+---------
+
+# 17 Years Later, One of the Greatest War Films of the 21st Century Hits New Streaming Home
+
+Movie News, Inglourious Basterds, Coming/Leaving Streaming, War
+
+Sat, 05 Sep 2026 17:30:13 GMT
+
+https://movieweb.com/inglourious-basterds-streaming-hulu-september-2026/
+
+It also features one of cinema's all-time great villains.
+---------
+
+# James Bond Casting Report Confirms When New 007 Will be Announced
+
+Movie News, James Bond, Action
+
+Sat, 05 Sep 2026 17:00:13 GMT
+
+https://movieweb.com/new-james-bond-casting-report-007-announcement/
+
+A new report may have finally narrowed the timeline for when the next 007 will be revealed.
+---------
+
+# 10 Best Sci-Fi Shows to Watch While Waiting for 'Silo' Season 4
+
+TV Lists, Silo, Sci-Fi, The Expanse, Foundation
+
+Sat, 05 Sep 2026 17:00:13 GMT
+
+https://movieweb.com/best-sci-fi-shows-before-silo-season-4/
+
+'Silo' Season 3 just ended on Apple TV, and viewers who enjoy the sci-fi series starring Rebecca Ferguson will like these shows, too.
+---------
+
 # Anakin Skywalker's Official Star Wars: Zero Company Return Reveals His True Potential
 
 Gaming, Star Wars Zero Company, Star Wars, Triple-A Games, PC
