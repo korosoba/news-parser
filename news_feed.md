@@ -1,3 +1,322 @@
+# Star Wars Actor Shares His True Feelings About His Controversial Fate In Rise Of Skywalker
+
+Movies, Star Wars, Star Wars: Episode IX - The Rise of Skywalker
+
+Sat, 05 Sep 2026 01:53:13 GMT
+
+https://screenrant.com/star-wars-rise-of-skywalker-general-armitage-hux-death-domhnall-gleeson/
+
+One of the actors of Star Wars: The Rise of Skywalker revealed how he actually feels about the way his character's journey ends.
+---------
+
+# The Handmaid's Tale Spinoff Officially Upgrades 1 Gilead Role For The Testaments Season 2
+
+TV, The Testaments
+
+Sat, 05 Sep 2026 01:48:04 GMT
+
+https://screenrant.com/the-testaments-season-2-charlie-carrick-casting-series-regular-upgrade/
+
+The Testaments season 2 has begun production, and it's been revealed that one of the Gilead official actors has been promoted to the main cast.
+---------
+
+# HBO Officially Fixes Daenerys' Ending With Game Of Thrones Spinoff
+
+Streaming TV, Game Of Thrones, House of the Dragon, Game of Thrones
+
+Sat, 05 Sep 2026 01:30:14 GMT
+
+https://screenrant.com/house-of-the-dragon-rhaenyra-arc-fixes-game-of-thrones-daenerys/
+
+There was plenty wrong with Daenerys' ending in Game of Thrones, but the franchise is taking steps to make up for it in its poetic prequel.
+---------
+
+# 8 Best Crunchyroll Anime You Can Finish In One Weekend
+
+Anime, Crunchyroll
+
+Sat, 05 Sep 2026 01:30:12 GMT
+
+https://screenrant.com/best-crunchyroll-anime-finish-one-weekend/
+
+These completed anime series on Crunchyroll offer self-contained stories and are perfect for watching from start to finish in a single weekend.
+---------
+
+# Prime Video’s New 8-Part Spy Series Crosses Vital Streaming Milestone
+
+TV, Masked Recs
+
+Sat, 05 Sep 2026 01:07:49 GMT
+
+https://screenrant.com/ride-or-die-prime-video-streaming-milestone-september-2026/
+
+Prime Video's new spy series has become a global streaming sensation, and the 8-episode show now passes a rare milestone in the United States.
+---------
+
+# Agatha Christie’s Poirot Meets Murder, She Wrote In An 18-Part Mystery Masterpiece
+
+TV, Masked Recs
+
+Sat, 05 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/marble-hall-murders-pbs-magpie-murders-like-poirot-murder-she-wrote/
+
+This PBS homage to Agatha Christie comes to an end in September 2026, as the British equivalent to Jessica Fletcher solves her final case.
+---------
+
+# The Mandalorian Meets The Last of Us In Upcoming Sci-Fi Epic
+
+Gaming, The Mandalorian, The Last of Us, Intergalactic: The Heretic Prophet, PlayStation, PlayStation 5
+
+Sat, 05 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/mandalorian-meets-last-of-us-intergalactic/
+
+The Star Wars show The Mandalorian combines with Naughty Dog's magnum opus, The Last of Us, to create this upcoming sci-fi epic.
+---------
+
+# Wheel Of Time Meets How To Train Your Dragon In New Fantasy RPG
+
+Gaming, The Wheel of Time, Triple-A Games
+
+Sat, 05 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/wheel-of-time-meets-how-to-train-your-dragon-rpg/
+
+While Wheel of Time fans are waiting for the next project to surface, there's something in the works that will get those same fans to perk up.
+---------
+
+# Marvel's New Iron Man Replacement Officially Announced
+
+Marvel Comics, Iron Man
+
+Sat, 05 Sep 2026 00:45:24 GMT
+
+https://screenrant.com/marvel-new-iron-man-riri-williams/
+
+Marvel introduces the hero who will permanently replace Tony Stark as Iron Man, without the prospect of the original Armored Avenger returning.
+---------
+
+# The Blood Of Dawnwalker: Should You Kill Or Spare Xanthe?
+
+Gaming, The Blood of Dawnwalker, PC
+
+Sat, 05 Sep 2026 00:37:10 GMT
+
+https://screenrant.com/blood-of-dawnwalker-kill-or-spare-xanthe-guide/
+
+Xanthe is one of Coen's key targets on Brencis' Court, but players don't necessarily have to kill her to get her out of the way.
+---------
+
+# 5 Masterpiece Games Harder Than Dark Souls
+
+Games, Dark Souls, Video Games
+
+Sat, 05 Sep 2026 02:15:11 GMT
+
+https://www.cbr.com/masterpiece-games-harder-than-dark-souls/
+
+Games like Ninja Gaiden and Hollow Knight manage to be even harder than Dark Souls.
+---------
+
+# Samara Weaving’s 95-Minute Thriller Conquers Streaming Days After Landing on Netflix
+
+Movies, Ready or Not, Samara Weaving, Netflix
+
+Sat, 05 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/samara-weaving-ready-or-not-thriller-netflix-success-september-2026/
+
+Weaving's smash horror hit was a big release years ago, and is making waves all over again.
+---------
+
+# Anime's Best Girl Has Been Waiting Over 2 Decades For Her Shining Moment
+
+Anime, Bleach, Bleach: Thousand Year Blood War, shonen anime
+
+Sat, 05 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/anime-best-girl-bleach-tybw-orihime-ichigo/
+
+For more than two decades, Orihime Inoue has occupied a rather contradictory position in shonen anime, but she can never be slandered again.
+---------
+
+# 10 Most Overpowered Anime Weapons, Officially Ranked
+
+Anime, Jujutsu Kaisen, Hunter X Hunter, Neon Genesis Evangelion
+
+Sat, 05 Sep 2026 01:45:11 GMT
+
+https://www.cbr.com/most-overpowered-anime-weapons-officially-ranked/
+
+The most overpowered weapons in anime are capable of destroying entire universes.
+---------
+
+# Star Trek’s 91% RT Series That Broke the Franchise Formula Surges on Streaming 27 Years Later
+
+TV, Star Trek: Deep Space Nine, Star Trek, Sci-Fi
+
+Sat, 05 Sep 2026 01:30:11 GMT
+
+https://www.cbr.com/star-trek-deep-space-nine-sci-fi-success-pvod-apple-tv-september-2026/
+
+The darkest Star Trek series returns to the streaming charts.
+---------
+
+# The Bourne Movies Are Hollywood's Smartest Action Franchise
+
+Movies, Bourne
+
+Sat, 05 Sep 2026 01:30:11 GMT
+
+https://www.cbr.com/jason-bourne-spy-movies-smartest-action-franchise/
+
+It's no wonder this grounded and gritty film series has become one of Hollywood's most successful action movie franchises over the last 24 years.
+---------
+
+# 5 Open-World Games That Let You Live Another Life
+
+Games, open world, Video Games, Red Dead Redemption II
+
+Sat, 05 Sep 2026 01:25:11 GMT
+
+https://www.cbr.com/open-world-games-escapism-live-another-life/
+
+These 5 open world games can let you live another life offering endless escapism from real life stress and struggles
+---------
+
+# CBS Is Giving NCIS a Long-Overdue Tony Upgrade in Season 24
+
+TV, NCIS, CBS
+
+Sat, 05 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/ncis-season-24-official-trailer-tony-dinozzo-status/
+
+As CBS prepares for Michael Weatherly's return to NCIS Season 24, Very Special non-Agent Anthony DiNozzo is finally getting a major upgrade.
+---------
+
+# Star Wars’ New 45-Minute Disney+ Special Is an Instant Streaming Hit After 1 Day
+
+TV, LEGO Star Wars: The Mandalorian, Lego Star Wars, Disney+
+
+Sat, 05 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/lego-star-wars-the-mandalorian-sci-fi-success-disney-plus-september-2026/
+
+Disney+'s offbeat Star Wars special is climbing the streaming charts.
+---------
+
+# Dolly Parton’s Star-Studded ’80s Classic Officially Stages a Streaming Comeback
+
+Movie News, Dolly Parton, Steel Magnolias, Streaming, Paramount Plus
+
+Sat, 05 Sep 2026 02:00:21 GMT
+
+https://collider.com/dolly-parton-steel-magnolias-streaming-hit-paramount-plus-september-2026/
+
+Dolly Parton fans can't stop watching her tear-jerking gem, also starring Julia Roberts, after Parton's passing.
+---------
+
+# 'Big Bang Theory’ Meets ‘Alias’ in NBC’s Action-Packed 5-Part Spy Series
+
+TV Features, Chuck, Alias, The Big Bang Theory, Zachary Levi
+
+Sat, 05 Sep 2026 01:55:11 GMT
+
+https://collider.com/chuck-nbc-spy-series-big-bang-theory-meets-alias/
+
+One of the best shows of its era, Chuck, is climbing up the charts on the Apple TV Store, offering the best of the comedy and spy genres.
+---------
+
+# 3 Greatest Books to Read This Weekend (Sep 5-6)
+
+Books and Comics, Books, Hayden Panettiere, Get Millie Black, Remember the Titans
+
+Sat, 05 Sep 2026 01:33:11 GMT
+
+https://collider.com/best-books-read-weekend-september-5-2026/
+
+The Disappearers: A Novel, This Is Me: A Reckoning, and Theo of Golden make up our list of the best books to read the weekend of September 5.
+---------
+
+# Ridley Scott’s 10/10 Sci-Fi Series Officially Returns for Season 2
+
+TV News, Alien: Earth, Ridley Scott, The Dog Stars, Hulu
+
+Sat, 05 Sep 2026 01:30:11 GMT
+
+https://collider.com/ridley-scott-alien-earth-season-2-filming-start-update-first-look/
+
+Ridley Scott's 10/10 sci-fi series, Alien: Earth, is officially returning as production is now underway on Season 2.
+---------
+
+# Apple TV's Next Sci-Fi Obsession Officially Debuts in 2027
+
+TV News, Neuromancer, Apple TV, Sci-Fi, Thriller
+
+Sat, 05 Sep 2026 01:15:12 GMT
+
+https://collider.com/callum-turner-neuromancer-apple-tv-sci-fi-premiere-date-january-2026/
+
+Apple TV has a major sci-fi series lined up, but viewers won't see it until next year. Get all the details here.
+---------
+
+# HBO’s Sci-Fi Spin on ‘True Detective’ Officially Adds 10M Views in 3 Days
+
+TV News, Lanterns, HBO, True Detective, HBO Max
+
+Sat, 05 Sep 2026 01:00:11 GMT
+
+https://collider.com/hbo-max-lanterns-streaming-success-september-2026/
+
+HBO's new Lanterns series, which is billed as a sci-fi version of True Detective, has added another 10 million views to its tally in just three days.
+---------
+
+# Mike Colter Officially Breaks Silence on Luke Cage's ‘Daredevil: Born Again’ Return [Exclusive]
+
+TV News, Daredevil: Born Again, Mike Colter, Luke Cage, Disney+
+
+Sat, 05 Sep 2026 01:00:11 GMT
+
+https://collider.com/daredevil-born-again-season-3-luke-cage-return-mike-colter-explains/
+
+Luke Cage star Mike Colter opens up about returning as the character in the MCU Disney+ series, Daredevil: Born Again.
+---------
+
+# Sona Movsesian Knows Exactly Why Her Comedy With Conan O’Brien Works
+
+Collider Signature, Conan O'Brien, Conan O'Brien Must Go, HBO Max, Comedy
+
+Sat, 05 Sep 2026 01:00:11 GMT
+
+https://collider.com/conan-obrien-must-go-season-3-episode-3-morocco-sona-movsesian-interview/
+
+Sona Movsesian talks Conan O’Brien Must Go Season 3, Morocco, and The World’s Worst Mom in an exclusive interview with Collider.
+---------
+
+# Forget ‘Obsession,’ 2026’s Viral Horror Sensation Hits Streaming This Month
+
+Movie News, Backrooms, A24, HBO Max, Obsession
+
+Sat, 05 Sep 2026 00:47:54 GMT
+
+https://collider.com/backrooms-streaming-hbo-max-september-2026/
+
+A24’s viral horror hit Backrooms will be staking its claim on streaming this month. Read on for all the details.
+---------
+
+# 10 Near-Perfect Animated Short Films From the Last 5 Years, Ranked
+
+Movie, Short, Short Film, Animation, Short Films
+
+Sat, 05 Sep 2026 00:45:11 GMT
+
+https://collider.com/near-perfect-animated-short-films-last-5-years/
+
+Snow Bear, Cat and Moth, and Student Accomplice are all among the best, near-perfect animated short films from the last 5 years.
+---------
+
 # Onslaught Doesn't Have A Post-Credits Scene, But You'll Regret Leaving Early (It Sets Up A Sequel)
 
 Movies, Onslaught
