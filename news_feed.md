@@ -1,3 +1,388 @@
+# 16 Years Before Supernatural, Crowley's Actor Played An Eerily Similar Villain
+
+Classic TV, Supernatural, Mark Sheppard
+
+Sat, 05 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/mark-sheppard-supernatural-crowley-x-files-character/
+
+Mark Sheppard's time as Crowley still sticks with fans of Supernatural, but the actor played a similar villainous character in another hit show.
+---------
+
+# X-Men Officially Debuts New Costume For Iconic 90s Hero, His Best Of All Time
+
+Comics, X-Men
+
+Sat, 05 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/x-men-redesign-new-costume-shatterstar-xforce/
+
+He's come a long, long way since 1991.
+---------
+
+# 8 Overlooked Serial Killer Thrillers To Watch If You Love Se7en And The Silence Of The Lambs
+
+Movies, Se7en
+
+Sat, 05 Sep 2026 22:25:14 GMT
+
+https://screenrant.com/overlooked-serial-killer-thrillers-se7en-the-silence-of-the-lambs/
+
+Se7en and The Silence of Lambs are far from the only serial killer thriller movies worthy of your attention.
+---------
+
+# Batman Meets The Umbrella Academy In The '90s Cult Classic That Was Ahead Of Its Time
+
+Movies, Masked Recs
+
+Sat, 05 Sep 2026 22:15:14 GMT
+
+https://screenrant.com/mystery-men-superhero-movie-ahead-of-its-time/
+
+Mystery Men broke the mould of what it means to be a comic book movie decades before subversive superhero stories became popular on the small screen.
+---------
+
+# Lanterns Gives Me Hope That HBO's 7-Year-Old Superhero Masterpiece Is DCU Canon
+
+Streaming TV, Lanterns
+
+Sat, 05 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/lanterns-spiritual-successor-watchmen-canon-dcu/
+
+Lanterns is a spiritual successor to Damon Lindelof's last HBO superhero show, Watchmen, and hopefully it'll be canonized in the DC multiverse.
+---------
+
+# 10 Best Ryan Reynolds Movies, Ranked
+
+Classic Movies, Ryan Reynolds
+
+Sat, 05 Sep 2026 21:55:14 GMT
+
+https://screenrant.com/ryan-reynolds-best-movies-ranked/
+
+Ryan Reynolds has developed a massively popular career in several genres, from comedies and action movies to horror, and here are his best movies.
+---------
+
+# Silo Season 3’s Ending Teases The Biggest Lie About The Outside World
+
+Streaming TV, Silo, Silo - Season 3
+
+Sat, 05 Sep 2026 21:45:14 GMT
+
+https://screenrant.com/silo-season-3-ending-external-world-safe/
+
+Silo is yet to unravel many mysteries about the outside world, but the show’s season 3 has teased one of the biggest lies about the central apocalypse
+---------
+
+# Aaron Taylor-Johnson's New Riveting 97-Minute Crime Thriller Is Officially HBO Max #1 Movie In Just One Day
+
+Movies, Masked Recs, Aaron Taylor-Johnson
+
+Sat, 05 Sep 2026 21:33:25 GMT
+
+https://screenrant.com/aaron-taylor-johnson-fuze-hbo-max-streaming-charts-september-2026/
+
+In just one day, Aaron Taylor-Johnson's new riveting crime thriller is officially the #1 movie on HBO Max, and the suspense runs for only 97 minutes.
+---------
+
+# Project Hail Mary Meets The X-Files In New Sci-Fi Thriller
+
+Gaming, Project Hail Mary, The X-Files, PC, Ontos
+
+Sat, 05 Sep 2026 21:30:14 GMT
+
+https://screenrant.com/project-hail-mary-meets-x-files-sci-fi-thriller/
+
+Fans of the incredible Project Hail Mary who are looking for an X-Files-esque sci-fi thriller should check out this new release.
+---------
+
+# 5 Best Star Trek Games For Fans Of The Next Generation
+
+Gaming, Star Trek, Triple-A Games, PC
+
+Sat, 05 Sep 2026 21:13:10 GMT
+
+https://screenrant.com/best-star-trek-games-next-generation-fans/
+
+These 5 games for fans of Star Trek: The Next Generation are the perfect way to capture the essence of the USS Enterprise under Jean-Luc Picard.
+---------
+
+# Netflix's Steamy Drama Based on Popular Bestselling Book Is the Most-Watched Show on Streaming
+
+TV, My Life with the Walter Boys
+
+Sat, 05 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/my-life-with-the-walter-boys-netflix-success-nielsen-august-2026/
+
+The series also scored its best rating yet.
+---------
+
+# 5 Overrated PS2 Classics (& 5 Underrated Games to Play Instead)
+
+Games, God of War, Grand Theft Auto, Final Fantasy
+
+Sat, 05 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/overrated-ps2-classics-must-play-underrated-games/
+
+The PS2 was home to some of the most immersive experiences in gaming history, and for every overrated game, there's an underrated equivalent.
+---------
+
+# James Bond Frontrunner's Stealth 8-Part Thriller Masterpiece Gets Redemption on Streaming
+
+Movies, Prime Target, James Bond
+
+Sat, 05 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/prime-target-apple-tv-amazon-channels-success-september-2026/
+
+One of Apple TV's most underrated thrillers is lighting up the streaming charts as its star continues to stand as the frontrunner for the next 007.
+---------
+
+# Avengers: Doomsday's Western Inspiration Will Reinvent the Superhero Genre
+
+Movies, Avengers: Doomsday, Once Upon a Time in the West, Western
+
+Sat, 05 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/avengers-doomsday-reinvent-genre-once-upon-a-time-in-the-west/
+
+Joe and Anthony Russo's latest comments prove that Avengers: Endgame will begin a new era of superhero films.
+---------
+
+# Taylor Sheridan's 10-Episode Western Is Even Better Than Yellowstone
+
+TV, 1883, Yellowstone, Western
+
+Sat, 05 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/taylor-sheridan-1883-better-western-than-yellowstone/
+
+Tayler Sheridan's underrated series took viewers on a wild journey across America in an even better Western than Yellowstone that shouldn't be missed.
+---------
+
+# Marvel's X-Men Could Become Bigger Than the Midnight Universe
+
+Comics, X-Men
+
+Sat, 05 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/x-men-more-potential-marvel-midnights/
+
+Marvel's Midnight Universe is set to debut very soon and it provides the X-Men with a new platform to perform on.
+---------
+
+# Berserk Gives Guts' Berserker Armor a Brutal New Redesign
+
+Anime, Berserk, merchandise, Good Smile Company
+
+Sat, 05 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/berserk-guts-berserker-armor-redesign/
+
+A re-release of the most popular Berserk figurine from Good Smile Company showcases the bloody nature of the dark franchise's Black Swordsman.
+---------
+
+# Quentin Tarantino's Long-Awaited Kill Bill Cut Confirms Physical Release Date
+
+Movies, Kill Bill: The Whole Bloody Affair
+
+Sat, 05 Sep 2026 21:46:32 GMT
+
+https://www.cbr.com/kill-bill-the-whole-bloody-affair-physical-media-release/
+
+The ultimate Kill Bill cut is finally going physical.
+---------
+
+# Universal & Glen Powell Team Up for First American Remake of 14-Year-Old Action Thriller
+
+Movies, universal pictures, Confession of Murder
+
+Sat, 05 Sep 2026 21:27:58 GMT
+
+https://www.cbr.com/universal-glen-powell-confessions-of-murder-action-thriller-remake/
+
+Glen Powell is helping to helm the upcoming American remake of a fan-favorite Korean action thriller along with Universal Pictures.
+---------
+
+# 5 Masterpiece Action Anime That Make Demon Slayer Look Mid
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Attack on Titan
+
+Sat, 05 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/masterpiece-action-anime-make-demon-slayer-look-mid/
+
+Demon Slayer might have stellar action, but action anime like Jujutsu Kaisen and Attack on Titan easily surpass it.
+---------
+
+# Leonardo DiCaprio's Rare Horror Movie Officially Haunts a New Streaming Home
+
+Movie News, Shutter Island, Martin Scorsese, Leonardo DiCaprio, Horror
+
+Sat, 05 Sep 2026 22:30:11 GMT
+
+https://collider.com/leonardo-dicaprio-shutter-island-streaming-paramount-plus-september-2026/
+
+Martin Scorsese’s $295 million psychological thriller starring Leonardo DiCaprio and Mark Ruffalo is now streaming on Paramount+. Find out more here.
+---------
+
+# Cillian Murphy's Non-Stop 85-Minute Thriller Scores New Streaming Home
+
+Movie News, Red Eye, Cillian Murphy, Rachel McAdams, Paramount Plus
+
+Sat, 05 Sep 2026 22:15:11 GMT
+
+https://collider.com/cillian-murphy-red-eye-streaming-paramount-plus-september-2026/
+
+Cillian Murphy's 85-minute thriller with shades of Panic Room and Jason Bourne is officially streaming on Paramount Plus.
+---------
+
+# The 6 Best Books Released Since 2020, Ranked
+
+Books and Comics, Books, Drama, Saga, Romance
+
+Sat, 05 Sep 2026 22:05:11 GMT
+
+https://collider.com/best-books-since-2020-ranked/
+
+From Piranesi to Demon Copperhead, these standout modern novels deliver unforgettable characters, ideas, and worlds.
+---------
+
+# Michael Bay's Sci-Fi Franchise-Starter Is Officially Taking Over Paramount+
+
+Movie News, Transformers, Sci-Fi, Paramount Plus, Streaming
+
+Sat, 05 Sep 2026 22:00:11 GMT
+
+https://collider.com/michael-bay-transformers-streaming-hit-paramount-plus-september-2026/
+
+19 years later, this $5.3 billion sci-fi franchise-starter starring Megan Fox and Josh Duhamel is a streaming hit. Find out more here.
+---------
+
+# Hulu's 98% RT Serial Killer Thriller Just Set Up an Even Darker Story for Season 2
+
+TV Features, Furious, Hulu, Emmy Rossum, Liz Meriwether
+
+Sat, 05 Sep 2026 21:47:11 GMT
+
+https://collider.com/furious-hulu-season-2-alice-darker-storyline/
+
+The finale of Hulu's Furious sets up an even darker story, particularly for Emmy Rossum's FBI agent Alice Black, heading into Season 2.
+---------
+
+# The 10 Best Strategy Video Games of All Time, Ranked
+
+TV, Video Game, World of Warcraft, Baldur's Gate, Warcraft
+
+Sat, 05 Sep 2026 21:41:11 GMT
+
+https://collider.com/best-strategy-games-all-time-ranked/
+
+Explore the best strategy video games ever made, ranked by gameplay, design, and acclaim, from Baldur's Gate 3 to StarCraft.
+---------
+
+# Brad Pitt’s $327M Serial Killer Masterpiece Officially Hits a New Streaming Platform
+
+Movie News, Se7en, Brad Pitt, Morgan Freeman, David Fincher
+
+Sat, 05 Sep 2026 21:30:11 GMT
+
+https://collider.com/david-fincher-brad-pitt-seven-streaming-paramount-plus-september-2026/
+
+David Fincher’s $327 million serial killer masterpiece starring Brad Pitt and Morgan Freeman has officially found a new streaming home.
+---------
+
+# The Return of Hulu's 9/10 Modern Classic Officially Scores Big on Streaming
+
+TV News, Adults, Comedy, Streaming, Hulu
+
+Sat, 05 Sep 2026 21:15:11 GMT
+
+https://collider.com/adults-streaming-hit-hulu-september-2026/
+
+The return of one of Hulu's best comedy series instantly shoots up the streaming charts. Here's everything you should know about Adults.
+---------
+
+# 'X-Files' Meets 'Parks and Rec' in This Stellar 5-Part Sci-Fi Series
+
+TV Features, Eureka, Sci-Fi, Apple, SyFy
+
+Sat, 05 Sep 2026 21:10:11 GMT
+
+https://collider.com/eureka-tv-show-sci-fi-x-files-meets-parks-and-rec/
+
+Eureka is a quirky sci-fi series that blends humor with a hidden town of advanced technology, and it's currently climbing the streaming charts.
+---------
+
+# Ridley Scott’s Divisive True Crime Epic Is Officially Getting a New Streaming Home
+
+Movie News, Ridley Scott, House of Gucci, Lady Gaga, Peacock
+
+Sat, 05 Sep 2026 21:00:11 GMT
+
+https://collider.com/ridley-scott-house-of-gucci-streaming-peacock-september-2026/
+
+Ridley Scott's most unlikely recent hit, which featured performances that rarely gelled together, is now streaming on Peacock.
+---------
+
+# The Most Iconic Action Thriller Franchise of the 21st Century Returns to Dominate Free Streaming
+
+Movie News, John Wick, Hot on Streaming
+
+Sat, 05 Sep 2026 22:31:13 GMT
+
+https://movieweb.com/john-wick-franchise-free-streaming-success-pluto-tv-september-2026/
+
+Forget Jason Statham and Liam Neeson. This is the real deal.
+---------
+
+# Harlan Coben's Overlooked 5-Part Netflix Thriller Remains a Perfect One-Night Binge
+
+Features, Missing You, Netflix, Thriller, Harlan Coben
+
+Sat, 05 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/missing-you-harlan-coben-netflix-thriller-binge/
+
+Harlan Coben's books have been adapted into many thriller TV shows on Netflix, and this five-episode series is memorable.
+---------
+
+# 10 Medieval History War Movies With Historical Accuracy Praised by Experts
+
+Movie Lists, War
+
+Sat, 05 Sep 2026 21:30:13 GMT
+
+https://movieweb.com/historically-accurate-medieval-war-movies/
+
+From the costumes to the battlefield tactics, these medieval history war movies are lauded for staying faithful to the eras they represent.
+---------
+
+# Anne Hathaway’s New Sci-Fi Hit Dethrones Matt Damon’s Forgotten Supernatural Thriller at the Box Office
+
+Movie News, Box Office Milestones, The End of Oak Street, Sci-Fi
+
+Sat, 05 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/anne-hathaway-end-of-oak-street-box-office/
+
+'The End of Oak Street' is still climbing, and has now moved ahead of a forgotten Matt Damon title.
+---------
+
+# 48 Years Later, John Carpenter’s ‘Halloween’ Still Has the Greatest Quote in the Genre
+
+Features, Horror, Halloween, Great Line
+
+Sat, 05 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/halloween-best-quote-horror-genre/
+
+'Halloween,' the horror movie co-written and directed by John Carpenter, stars Jamie Lee Curtis as iconic final girl Laurie Strode.
+---------
+
 # Glen Powell's 12-Part R-Rated Series That Switches Genres Becomes Major Streaming Hit
 
 TV, Masked Recs
