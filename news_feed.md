@@ -1,3 +1,333 @@
+# Star Trek Ascendancy: The Final Frontier Officially Arrives In 2026
+
+Gaming, Star Trek
+
+Sun, 06 Sep 2026 04:30:14 GMT
+
+https://screenrant.com/star-trek-ascendancy-2026-release-date/
+
+Explore Star Trek Ascendancy: The Final Frontier, launching in 2026 for epic TTRPG adventures!
+---------
+
+# 8 Superheroes Stan Lee Considered Absolutely Perfect
+
+Comics, Stan Lee
+
+Sun, 06 Sep 2026 04:26:46 GMT
+
+https://screenrant.com/stan-lee-favorite-superheroes/
+
+Explore the superheroes Stan Lee loved, from Spider-Man to Silver Surfer, celebrating their relatable flaws and complexities.
+---------
+
+# Official Baldur's Gate 3 Follow-Up Is A "Risk"
+
+Gaming, Baldur's Gate 3, RPG, PC
+
+Sun, 06 Sep 2026 04:00:19 GMT
+
+https://screenrant.com/official-baldurs-gate-3-follow-up-is-a-risk/
+
+The follow-up to Baldur's Gate 3 has been branded as a "risk", leading fans to worry about its future.
+---------
+
+# 43 Years Ago, Alan Moore Created Marvel's Strongest Villain, And It's Not Close
+
+Comics, Alan Moore, Marvel
+
+Sun, 06 Sep 2026 03:58:14 GMT
+
+https://screenrant.com/alan-moore-marvel-strongest-villain-mad-jim-jaspers/
+
+During Alan Moore's short Marvel run for Captain Britain, his sensibilities wrought a chillingly unreal character unlike any supervillain seen before.
+---------
+
+# Mark Wahlberg's New R-Rated Crime Thriller Officially Rebounds With Strong Rotten Tomatoes Audience Score
+
+Movies, Masked Recs, Mark Wahlberg
+
+Sun, 06 Sep 2026 03:58:04 GMT
+
+https://screenrant.com/mark-wahlberg-by-any-means-rotten-tomatoes-audience-score/
+
+Mark Wahlberg has his most transformative role yet in a new crime thriller that officially clinched a strong Rotten Tomatoes audience score.
+---------
+
+# After 62 Years, Marvel Teases The One Death That Could Break Its Most Iconic Hero
+
+Comics, Spider-Man
+
+Sun, 06 Sep 2026 03:45:14 GMT
+
+https://screenrant.com/marvel-aunt-may-death-spider-man/
+
+Will Marvel Comics kill off one of its most beloved and iconic characters in Amazing Spider-Man No. 1000, or will something even bolder happen?
+---------
+
+# After 58 Years, One Peanuts Character Proves M. Charles Schulz Was Ahead Of His Time
+
+Comics, Peanuts
+
+Sun, 06 Sep 2026 03:30:15 GMT
+
+https://screenrant.com/peanuts-franklin-schulz-first-black-character/
+
+In a story of perseverance very much in keeping with Peanuts itself, Charles Schulz stood his ground once he included this new character in 1968.
+---------
+
+# Paramount's 29-Episode Gangster Series Is Pretty Much Taylor Sheridan's The Godfather Sequel
+
+Streaming TV, Masked Recs
+
+Sun, 06 Sep 2026 03:02:29 GMT
+
+https://screenrant.com/tulsa-king-taylor-sheridan-the-godfather/
+
+Paramount is the home of an incredible 29-episode gangster crime thriller series that comes off as Taylor Sheridan’s sequel to The Godfather movies.
+---------
+
+# Is Dave Filoni's Mandoverse Thrawn Movie Still Happening? What We Know After The Mandalorian & Grogu
+
+Star Wars, Dave Filoni, Star Wars: Heir to the Empire, Ahsoka, The Mandalorian and Grogu
+
+Sun, 06 Sep 2026 03:01:57 GMT
+
+https://screenrant.com/star-wars-mandalorian-thrawn-heir-to-the-empire-movie-updates-future/
+
+Dave Filoni's major Mandoverse/Thrawn movie was announced YEARS ago, so here's everything we know about it's current status and Star Wars future.
+---------
+
+# 10 Strongest Magic Users In DC History
+
+Comics, DC Comics
+
+Sun, 06 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/dc-strongest-magic-users/
+
+The DC Universe has no shortage of arcane powerhouses, but these supreme spellcasters stand at the top of the magical hierarchy.
+---------
+
+# 10 Most Rewatchable Shonen Anime Series, Ranked
+
+Anime, The Disastrous Life of Saiki K., Jujutsu Kaisen
+
+Sun, 06 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/most-rewatchable-shonen-anime-series-ranked-list/
+
+Shonen anime represent some of the medium's most popular titles, with series like Yu Yu Hakusho, Saiki K., and Haikyu!! being incredibly rewatchable!
+---------
+
+# 5 Stephen King Books Better Than Salem's Lot
+
+TV, Stephen King, Salem's Lot, Horror
+
+Sun, 06 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/stephen-king-books-vs-salems-lot-list/
+
+Salem's Lot is without a doubt one of Stephen King's defining works, but the prolific author's catalog is filled with unforgettable classics.
+---------
+
+# The Best Far Side Stick Figure Comics, Ranked
+
+Comics, The Far Side
+
+Sun, 06 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/best-far-side-stick-figure-comics-ranked/
+
+Gary Larson is an amazing artist, but some of the funniest The Far Side comics involved stick figures.
+---------
+
+# Netflix Reverses Course on JoJo's Bizarre Adventure
+
+Anime, Jojo's Bizarre Adventure, Netflix, JoJo's Bizarre Adventure
+
+Sun, 06 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/netflix-jojos-bizarre-adventure-steel-ball-run-weekly-release/
+
+After major fan backlash, Netflix appears to have a change of heart when it comes to JoJo's Bizarre Adventure: Steel Ball Run.
+---------
+
+# SCAD AnimationFest 2026 Lineup Includes Avatar, Batman and X-Men '97
+
+Anime
+
+Sun, 06 Sep 2026 03:29:16 GMT
+
+https://www.cbr.com/scad-animationfest-2026-lineup-avatar-batman-x-men-97/
+
+SCAD AnimationFest 2026 reveals its Sept. 23-25 lineup, including Avatar Aang, Batman: Knightfall, X-Men '97, Sekiro and more.
+---------
+
+# Onslaught Review: Adam Wingard’s A24 Horror Comeback Is a Bloody Blast
+
+Movies, Onslaught
+
+Sun, 06 Sep 2026 03:25:45 GMT
+
+https://www.cbr.com/onslaught-review/
+
+Adam Wingard returns to his genre roots with a vicious A24 thriller that reconnects with The Guest and unleashes three super soldiers.
+---------
+
+# Only 5 Action RPGs Are Better Than Dark Souls
+
+Games, Role Playing Game, Innovation
+
+Sun, 06 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/action-rpgs-better-than-dark-souls-list/
+
+Few action RPGs can compete with Dark Souls, but games like Elden Ring have managed to surpass it.
+---------
+
+# The Boys Star Remembers Being Killed Off in Forgotten Marvel Role: 'Really Traumatic'
+
+TV, The Boys, Jessica Jones
+
+Sun, 06 Sep 2026 02:51:22 GMT
+
+https://www.cbr.com/erin-moriarty-marvel-role-jessica-jones/
+
+Landing a major role on The Boys came after being killed off by Marvel.
+---------
+
+# 10 Hardest NES Platformers, Officially Ranked
+
+Games, Nintendo, Innovation
+
+Sun, 06 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/official-hardest-nes-platformers-of-all-time-ranked-list/
+
+NES games like Ghosts 'n Goblins prove how hard retro platformers can be.
+---------
+
+# 10 Strongest Superheroes in Anime History, Ranked
+
+Anime, superheroes, My Hero Academia, One-Punch Man
+
+Sun, 06 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/most-powerful-anime-superheroes-ever-ranked-list/
+
+Anime heroes like and All Might and Saitama find strength in discipline, strategy, community, and of course, sheer power.
+---------
+
+# The MCU May Have Already Spoiled One Character's Future in Secret Wars
+
+Movie Features, Avengers: Secret Wars, Avengers: Doomsday, Avengers: Endgame, Noah Jupe
+
+Sun, 06 Sep 2026 04:21:11 GMT
+
+https://collider.com/avengers-secret-wars-noah-jupe-casting-spoiler-meaning/
+
+'Avengers: Secret Wars' cast Noah Jupe in a mysterious role, but the comics might shed light on who he's playing.
+---------
+
+# One of the Best Folk Horror Movies of the Decade Has Been Hiding Out on Streaming
+
+Movie Features, Starve Acre, Morfydd Clark, Matt Smith, Horror
+
+Sun, 06 Sep 2026 03:41:11 GMT
+
+https://collider.com/starve-acre-best-folk-horror-movie/
+
+British folk horror Starve Acre's greatest strength is its establishment of dread, which forces the audience on a compelling yet unnerving journey.
+---------
+
+# Netflix’s Newest Spy Thriller Is So Good, 6 Episodes Aren’t Nearly Enough
+
+TV Features, Netflix, Unfamiliar, Series, Streaming
+
+Sun, 06 Sep 2026 03:07:11 GMT
+
+https://collider.com/unfamiliar-netflix-german-spy-thriller-series/
+
+Unfamiliar is Netflix’s gripping German spy thriller about former BND agents whose carefully hidden past threatens to destroy their family.
+---------
+
+# 8 Action Movies That Are Perfect From Start To Finish
+
+Movie, Action, Speed, Mad Max: Fury Road, Terminator 2: Judgment Day
+
+Sun, 06 Sep 2026 01:33:12 GMT
+
+https://collider.com/action-movies-perfect-start-to-finish/
+
+Die Hard, Terminator 2: Judgment Day, Aliens, Mad Max: Fury Road, and more make up our list of action movies that are perfect from start to finish.
+---------
+
+# 18 Years Later, This Sleeper Hit Sci-Fi Series Is Quietly Climbing the Streaming Charts
+
+TV Features, Terminator: The Sarah Connor Chronicles, Lena Headey, Thomas Dekker, Sci-Fi
+
+Sun, 06 Sep 2026 01:01:11 GMT
+
+https://collider.com/terminator-the-sarah-connor-chronicles-sci-fi-sleeper-hit-streaming-charts/
+
+Terminator: The Sarah Connor Chronicles is the perfect sci-fi series for lovers of the franchise and is currently climbing the Apple TV Store charts.
+---------
+
+# 'Harry Potter' Star's 101-Minute Stephen King Reboot Officially Heads to Free Streaming
+
+Movie News, Harry Potter, John Lithgow, Pet Sematary
+
+Sun, 06 Sep 2026 00:45:11 GMT
+
+https://collider.com/john-lithgow-stephen-king-pet-sematary-remake-kanopy-free-streaming-september-2026/
+
+Harry Potter star's supernatural horror film, based on an acclaimed book, begins streaming free on Kanopy later this month. Read on for details.
+---------
+
+# 10 Essential Agatha Christie Books for Beginners
+
+Books and Comics, Agatha Christie, Murder on the Orient Express, And Then There Were None, Mystery
+
+Sun, 06 Sep 2026 00:34:11 GMT
+
+https://collider.com/essential-agatha-christie-books-beginners/
+
+For readers exploring Agatha Christie for the first time, books like And Then There Were None and The A.B.C. Murders are a great place to start.
+---------
+
+# New Batsuit Revealed in 'The Batman Part II' Set Footage
+
+Movie News, Robert Pattinson, The Batman Part II, Superhero
+
+Sun, 06 Sep 2026 02:52:26 GMT
+
+https://movieweb.com/the-batman-part-2-robert-pattinson-new-costume/
+
+Robert Pattinson's new Batsuit took center stage in a video taken from the set of Warner Bros and DC Studios' 'The Batman — Part II.'
+---------
+
+# 'Evil Dead' Legend Bruce Campbell Shares Grim Prognosis During Cancer Battle
+
+Movie News, Bruce Campbell, Evil Dead
+
+Sun, 06 Sep 2026 02:01:35 GMT
+
+https://movieweb.com/evil-dead-bruce-campbell-cancer-update/
+
+Bruce Campbell provided new information about his battle with cancer, explaining what he is going through from a health perspective.
+---------
+
+# Luffy's 10 Most Inspiring 'One Piece' Quotes That Live Rent-Free in Our Heads
+
+TV Lists, One Piece, Anime, Action
+
+Sun, 06 Sep 2026 02:00:23 GMT
+
+https://movieweb.com/one-piece-anime-luffy-best-inspiring-quotes/
+
+The most inspirational quotes from Monkey D. Luffy in One Piece offer hope, encouragement, and perseverance in the face of danger.
+---------
+
 # Jake Gyllenhaal & Jamie Foxx's True Story War Movie With Near-Perfect Score From Roger Ebert Is Now On Streaming
 
 Classic Movies, Jarhead
