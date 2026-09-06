@@ -1,3 +1,410 @@
+# NBC Is Lying About Chicago Fire Season 15’s Official New Release
+
+Network TV, Chicago Fire
+
+Sun, 06 Sep 2026 22:33:22 GMT
+
+https://screenrant.com/chicago-fire-season-15-poster-cast-lie/
+
+Chicago Fire is officially losing two key characters in the upcoming fifteenth season, but NBC is misleadingly advertising them as part of the cast.
+---------
+
+# 1994's Best Graphic Novel Was So Good, Even Stan Lee Called It A Leap Forward For Comics
+
+Comics, Stan Lee
+
+Sun, 06 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/stan-lee-best-comic-90s-marvels-busiek-ross/
+
+The undisputed GOAT.
+---------
+
+# Mad Men Meets Seinfeld In Prime Video's 5-Part Period Drama Masterpiece
+
+Classic TV, Masked Recs
+
+Sun, 06 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/the-marvelous-mrs-maisel-prime-video-mad-men-meets-seinfeld/
+
+Prime Video's The Marvelous Mrs. Maisel combines the backstage standup drama of Seinfeld with the late '50s/early '60s historical milieu of Mad Men.
+---------
+
+# Project Zomboid Meets Bloodborne In Huge Free Open-World RPG
+
+Gaming, Project Zomboid, Bloodborne, Once Human
+
+Sun, 06 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/project-zomboid-meets-bloodborne-free-open-world-game/
+
+Explore Once Human, a free RPG blending survival mechanics and eldritch horror. Join the fight on Steam for absolutely free!
+---------
+
+# Chris Pratt’s Reacher Replacement Franchise Is Already Losing Steam Ahead Of 2026 Return
+
+TV, Masked Recs, Chris Pratt, Prime Video
+
+Sun, 06 Sep 2026 22:27:43 GMT
+
+https://screenrant.com/chris-pratt-terminal-list-franchise-reacher-replacement-prime-video-streaming-drop-september-2026/
+
+Chris Pratt's Reacher-esque franchise is facing issues in the world of streaming as the major action property has now started to lose momentum.
+---------
+
+# The Biggest Things The Odyssey Leaves Out: 4 Nolan Should've Kept & 4 He Was Right To Cut
+
+Movies, The Odyssey
+
+Sun, 06 Sep 2026 22:25:14 GMT
+
+https://screenrant.com/the-odyssey-movie-biggest-missing-details-story-left-out/
+
+Christopher Nolan made some big changes to The Odyssey when he made his movie, and here are four good and four bad changes that he made.
+---------
+
+# 10 Jokes From The Simpsons That Have Aged Very Badly
+
+Classic TV, The Simpsons
+
+Sun, 06 Sep 2026 22:03:14 GMT
+
+https://screenrant.com/the-simpsons-jokes-aged-badly/
+
+After so much time on the air, not all of The Simpsons' jokes land as well as they used to, and some have aged very poorly over the years.
+---------
+
+# Ranking The 7 Best Ways To Play The Original Resident Evil Game
+
+Gaming, Resident Evil, Triple-A Games, PC, Ranking
+
+Sun, 06 Sep 2026 22:00:15 GMT
+
+https://screenrant.com/resident-evil-1-all-versions-ranked/
+
+With Resident Evil's 30th Anniversary coming up, many will want to try out the original game, but which version should you play out of the bunch?
+---------
+
+# Pacific Rim: Extinction Is An Incredible Extension Of The Movie’s Universe
+
+Gaming, Pacific Rim
+
+Sun, 06 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/pacific-rim-extinction-movie-universe-expanded/
+
+Explore Pacific Rim: Extinction, the thrilling new tabletop game inspired by the movie's epic battles.
+---------
+
+# Alien Returns To Its Horror Roots In The Best Release Since James Cameron's Sequel
+
+Streaming TV, Alien
+
+Sun, 06 Sep 2026 21:45:14 GMT
+
+https://screenrant.com/alien-earth-horror-roots-return/
+
+The Alien: Earth TV series is taking the iconic sci-fi horror franchise toward the future by bringing back the best elements of its past.
+---------
+
+# ABC's 98% RT Crime Hit Is 1 of the World’s Biggest Shows After Historic Season 3 Format Change
+
+TV, High Potential, ABC, Crime
+
+Sun, 06 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/high-potential-procedural-crime-drama-abc-success-september-2026/
+
+ABC's hit police procedural drama, High Potential, is a global streaming hit after surprising Season 3 update.
+---------
+
+# 10 Greatest Video Games From 2016 to 2026
+
+Games, Elden Ring, Cyberpunk 2077, God of War, Video Games
+
+Sun, 06 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/greatest-video-games-2016-to-2026/
+
+Over the last decade and change, the video game medium has seen a myriad of amazing experiences, headlined by these 10 undisputed classics.
+---------
+
+# CBS 279-Episode Sitcom Masterpiece Dominates Streaming for Third Week in a Row
+
+TV, CBS, Paramount Plus, HBO Max, The Big Bang Theory
+
+Sun, 06 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/cbs-the-big-bang-theory-dominates-streaming-for-hbo-max/
+
+Seven years after its finale, the CBS masterpiece refuses to be dethroned on streaming.
+---------
+
+# 7 Greatest Cozy Movies of All Time, Ranked
+
+Movies
+
+Sun, 06 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/greatest-cozy-movies-of-all-time-list/
+
+These seven cozy movies have everything from unforgettable characters to delightful moments, making them perfect picks for a comforting movie night.
+---------
+
+# Transformers Officially Return in Massive New Manga Crossover Event
+
+Comics, Transformers, G.I. Joe, Skybound Entertainment
+
+Sun, 06 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/transformers-energon-universe-manga-crossover-covers/
+
+New manga artwork has been unveiled for a massive Energon Universe crossover featuring Transformers, G.I. Joe and more.
+---------
+
+# One Piece Officially Returns October 20 With New Elbaph Arc Release
+
+Anime, One Piece
+
+Sun, 06 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/one-piece-elbaph-arc-english-dub-release/
+
+Unlike previous releases, fans will be able to tune in to the latest One Piece release weekly on Crunchyroll.
+---------
+
+# 6 Best Low Fantasy TV Shows You Can Watch in a Weekend
+
+TV, Fantasy, Percy Jackson & the Olympians, Innovation, Wednesday
+
+Sun, 06 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/best-low-fantasy-tv-shows-list/
+
+From Wednesday to Percy Jackson, these low fantasy shows are just as immersive as their high fantasy counterparts.
+---------
+
+# Seinfeld Vet Unveils Full List of 'Stolen' Jokes for Adults Season 2
+
+TV, Adults, Seinfeld
+
+Sun, 06 Sep 2026 21:28:47 GMT
+
+https://www.cbr.com/seinfeld-adults-season-2-stolen-jokes/
+
+All of the jokes allegedly sampled from Seinfeld for Adults Season 2 were called out in a complete list.
+---------
+
+# 8 Greatest Anime Movies Worth Watching Again and Again, Ranked
+
+Anime
+
+Sun, 06 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/greatest-anime-movies-worth-watching-again/
+
+The best anime movies become a part of their viewers' lives and are fun to rewatch again and again.
+---------
+
+# It's Officially a New Era for The Mummy
+
+Movies, The Mummy 4
+
+Sun, 06 Sep 2026 21:12:44 GMT
+
+https://www.cbr.com/the-mummy-4-brendan-fraser-rachel-weisz-starts-filming/
+
+It's an exciting time for fans of Brendan Fraser and Rachel Weisz's The Mummy.
+---------
+
+# Tom Cruise and Jason Statham’s 10/10 Crime Thriller Officially Takes Over Free Streaming
+
+Movie News, Collateral, Tom Cruise, Jason Statham, Jamie Foxx
+
+Sun, 06 Sep 2026 22:30:11 GMT
+
+https://collider.com/tom-cruise-collateral-free-streaming-success-pluto-tv-september-2026/
+
+One of Tom Cruise's best action thrillers, Collateral, is enjoying a free streaming resurgence 22 years after its theatrical release.
+---------
+
+# Paramount+'s Masterpiece Spy Thriller Is an Undisputed Sleeper Hit
+
+TV News, The Agency, Thriller, Paramount+ with Showtime, Drama
+
+Sun, 06 Sep 2026 22:15:11 GMT
+
+https://collider.com/the-agency-paramount-plus-streaming-success-september-2026/
+
+Over two months after its release, the Paramount+ spy thriller is still dominating the charts. Get all the details here.
+---------
+
+# Alexander Skarsgård's Frankenstein Replacement Proves Monster Movies Are Officially Back
+
+Movie Features, Wicker, Monsters, Fantasy, Olivia Colman
+
+Sun, 06 Sep 2026 22:05:11 GMT
+
+https://collider.com/wicker-fantasy-monster-movies-alexander-skarsgard/
+
+Monster movies have been popular for decades, but Olivia Colman and Alexander Skarsgard's new fantasy 'Wicker' proves that monsters are here to stay.
+---------
+
+# 'Interstellar' Meets 'A Quiet Place' in Paranoid Sci-Fi Thriller Taking Over Free Streaming
+
+Movie News, Constance Wu, Pluto TV, Mark O'Brien, Sci-Fi
+
+Sun, 06 Sep 2026 22:00:11 GMT
+
+https://collider.com/constance-wu-the-outer-threat-free-streaming-success-pluto-tv-september-2026/
+
+Starring Constance Wu and Mark O'Brien, The Outer Threat is a thrilling sci-fi film surging on Pluto TV charts in the U.S. Here's all to know.
+---------
+
+# HBO’s New Superhero Series Could Finally Pull Off What ‘She-Hulk’ Couldn’t
+
+TV Features, She-Hulk: Attorney at Law, HBO Max, Disney Plus, Superman
+
+Sun, 06 Sep 2026 21:46:11 GMT
+
+https://collider.com/hbo-the-people-vs-gorilla-grodd-she-hulk-superhero-legal-thriller/
+
+The People vs. Gorilla Grodd might find the blend of humor, law, and superheroics that She-Hulk: Attorney at Law lacked.
+---------
+
+# Every Spider-Man Home Trilogy Movie, Ranked
+
+Movie, Spider-Man, Spider-Man: No Way Home, Spider-Man: Homecoming, Spider-Man: Far from Home
+
+Sun, 06 Sep 2026 21:42:11 GMT
+
+https://collider.com/spider-man-home-trilogy-movies-ranked/
+
+From neighborhood heroics to multiversal chaos, every Spider-Man Home Trilogy entry ranked as the franchise’s biggest saga evolves.
+---------
+
+# 2024's Horror Cult Favorite Is Officially Rising From the Dead on Streaming
+
+Movie News, Lisa Frankenstein, Kathryn Newton, Cole Sprouse, Diablo Cody
+
+Sun, 06 Sep 2026 21:30:11 GMT
+
+https://collider.com/kathryn-newton-lisa-frankenstein-streaming-peacock-september-2026/
+
+Kathryn Newton brings Cole Sprouse to life in the horror-comedy Lisa Frankenstein, and it's been resurrected on streaming for Halloween.
+---------
+
+# 'Tombstone's Final Quote Gave Us the Most Unforgettable 3 Words in Western Cinema
+
+Movie Features, Tombstone, Kurt Russell, Sam Elliott, Bill Paxton, Dana Delany
+
+Sun, 06 Sep 2026 21:23:11 GMT
+
+https://collider.com/tombstone-greatest-final-quote-tom-mix-wept/
+
+Tombstone has the perfect ending that encapsulates what makes Wyatt Earp such a fascinating figure in American history.
+---------
+
+# The New 'Captain America's Answer to 'Mad Max' Is a Surprise Hulu Hit
+
+Movie News, Hulu, Desert Warrior, Anthony Mackie, Ben Kingsley
+
+Sun, 06 Sep 2026 21:15:11 GMT
+
+https://collider.com/anthony-mackie-desert-warrior-streaming-hit-hulu-september-2026/
+
+The new Captain America's answer to Mad Max is a surprise Hulu hit. Read on for more about Desert Warrior.
+---------
+
+# Why Is It So Hard to Watch 'Friends' Now?
+
+TV Features, Friends, NBC, Sitcom, Comedy
+
+Sun, 06 Sep 2026 21:14:11 GMT
+
+https://collider.com/friends-sitcom-unwatchable-problem/
+
+It's been decades since Friends first premiered, but the series might not be as beloved if it premiered these days.
+---------
+
+# 17 Years Later, a 5-Part 10/10 Sci-Fi Classic Returns To Dominate Streaming
+
+TV News, Hot on Streaming, Stargate: Atlantis, Sci-Fi
+
+Sun, 06 Sep 2026 22:30:13 GMT
+
+https://movieweb.com/stargate-atlantis-streaming-hit/
+
+'Stargate Atlantis' is back in the spotlight and climbing the charts on Amazon MGM.
+---------
+
+# 10 'Calvin and Hobbes' Quotes That Prove It’s the Greatest Comic Strip of All Time
+
+Movie Lists, comics
+
+Sun, 06 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/best-calvin-and-hobbes-quotes/
+
+The sheer number of great quotes from Calvin and Hobbes prove it may just be the greatest comic strip of all time.
+---------
+
+# Canceled Adventure Reboot With a 96% RT Score Officially Returns with New Release in Two Months
+
+Movie News, Blu-ray, Coyote Vs. Acme, Animation
+
+Sun, 06 Sep 2026 21:30:13 GMT
+
+https://movieweb.com/coyote-vs-acme-physical-media-release/
+
+After opening in theaters on August 28, 'Coyote vs. Acme' is now headed to physical media.
+---------
+
+# Zach Cregger Reveals His Future With Franchise Films After 'Resident Evil'
+
+Movie News, Resident Evil, Zach Cregger, Horror
+
+Sun, 06 Sep 2026 21:30:13 GMT
+
+https://movieweb.com/zach-cregger-resident-evil-franchise-future/
+
+Zach Cregger's 'Resident Evil' is the director's first foray into big-budget franchises. Will it be his last?
+---------
+
+# 3 Years Later, the Best Time Travel Sci-Fi Show of the 2020s Is More Essential Than Ever
+
+Features, Loki, Sci-Fi, Avengers: Doomsday
+
+Sun, 06 Sep 2026 21:30:13 GMT
+
+https://movieweb.com/loki-essential-watch-before-avengers-doomsday/
+
+The best sci-fi time travel show of the 2020s came to a close three years ago, but watching it is more essential than ever in 2026.
+---------
+
+# Glen Powell's New 10/10 Series Debuts to 100% on RT and Officially Becomes a Streaming Smash Hit
+
+TV News, Chad Powers, Glen Powell, Hot on Streaming
+
+Sun, 06 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/chad-powers-season-2-glen-powell-streaming-hit-hulu-september-2026/
+
+TV's favorite quarterback is back, and he has conquered streaming.
+---------
+
+# 10 Spy Thriller Series That Outshine Most Movies
+
+TV Lists, Thriller
+
+Sun, 06 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/spy-thriller-shows-better-than-movies/
+
+Let's face it: TV is usually king when it comes to this genre.
+---------
+
 # Zach Cregger Clarifies Involvement In Weapons Prequel
 
 Movies, Weapons
