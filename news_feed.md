@@ -1,3 +1,421 @@
+# Fast Forever: Can Brian Return Without Hurting the Ending?
+
+Movies, Originals, Fast & Furious
+
+Sun, 06 Sep 2026 16:00:15 GMT
+
+https://screenrant.com/video/fast-forever-can-brian-return-without-hurting-the-ending/
+
+Brian O’Conner’s Furious 7 farewell remains one of the most emotional moments in the entire Fast & Furious franchise. But as the Fast Saga races toward its definitive finale, keeping Brian alive off-screen has created a storytelling problem that gets harder to explain with every movie.
+---------
+
+# Captain Pike’s Alternate Future & Star Trek: The Original Series Destiny Explained
+
+TV, Star Trek: Strange New Worlds, Star Trek
+
+Sun, 06 Sep 2026 16:00:15 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-captain-pike-alternate-future-tos-destiny/
+
+Star Trek: Strange New Worlds has explored alternate futures for Captain Pike, but he has one inescapable destiny, as seen in The Original Series.
+---------
+
+# 10 Pokémon Mega Evolutions That Are 10/10 Changes
+
+Gaming, Pokemon, Triple-A Games
+
+Sun, 06 Sep 2026 16:00:15 GMT
+
+https://screenrant.com/best-pokemon-mega-evolutions/
+
+There are currently 96 Mega Evolution forms in the Pokémon franchise, but some of them stand out due to the remarkable changes that they bring.
+---------
+
+# Gerard Butler's The Night Agent Meets Jack Ryan Thriller Series Is So Good, It's Already Renewed For Season 3
+
+TV, Apollo Has Fallen, Has Fallen
+
+Sun, 06 Sep 2026 15:55:14 GMT
+
+https://screenrant.com/has-fallen-series-season-3-renewed-jack-ryan-night-agent/
+
+Gerard Butler's hit thriller show mixes Jack Ryan with The Night Agent, and it's such a hit that season three has already been greenlit.
+---------
+
+# Michael Keaton's Oscar-Nominated Classic Hits Huge Box Office Milestone 20 Years Later
+
+Movies, Box Office, Cars, Pixar
+
+Sun, 06 Sep 2026 15:48:08 GMT
+
+https://screenrant.com/cars-2006-box-office-250-million-domestic-milestone/
+
+A classic 2006 Michael Keaton movie that was nominated for two Oscars has returned to theaters two decades later, passing a huge box office milestone.
+---------
+
+# 8 TV Shows You Need To Watch, According To Stephen King
+
+Classic TV, Stephen King
+
+Sun, 06 Sep 2026 15:45:14 GMT
+
+https://screenrant.com/tv-shows-need-to-watch-stephen-king/
+
+Stephen King has his finger on the pulse when it comes to TV, and has highly recommended numerous shows, including these, on social media.
+---------
+
+# Guy Ritchie's The Gentlemen Season 2 Gets Official Audience Verdict
+
+TV, The Gentlemen
+
+Sun, 06 Sep 2026 15:41:56 GMT
+
+https://screenrant.com/the-gentlemen-season-2-rotten-tomatoes-audience-score/
+
+The Gentlemen season 2 is turning heads, as Guy Ritchie's gritty crime drama gets its official audience verdict after the dramatic series' conclusion.
+---------
+
+# The Boys Meets Fleabag In 16-Part Hulu Fantasy Series With Rare Rotten Tomatoes Score
+
+Classic TV, Masked Recs
+
+Sun, 06 Sep 2026 15:30:14 GMT
+
+https://screenrant.com/extraordinary-hulu-series-the-boys-fleabag/
+
+Hulu’s comedy series Extraordinary has the irreverent, original superhero world of The Boys but with the grounded, cynical humor of Fleabag.
+---------
+
+# The MCU’s Next Release Is Just A Month Away Thanks To VisionQuest's Debut
+
+Movies, VisionQuest, Marvel Cinematic Universe
+
+Sun, 06 Sep 2026 15:30:14 GMT
+
+https://screenrant.com/mcu-visionquest-october-show-debut/
+
+The final major release in the Marvel Cinematic Universe prior to Avengers: Doomsday is just a matter of weeks away from its 2026 debut.
+---------
+
+# The Mandalorian's New Episode Debuts To Solid Rotten Tomatoes Score Despite Major Recasts
+
+TV, LEGO Star Wars: The Mandalorian, The Mandalorian, Star Wars
+
+Sun, 06 Sep 2026 14:56:52 GMT
+
+https://screenrant.com/lego-star-wars-the-mandalorian-rotten-tomatoes-score-debut/
+
+Despite featuring a new actor as Din Djarin, The Mandalorian's new episode on Disney+ has debuted to a solid score from critics on Rotten Tomatoes.
+---------
+
+# Paramount+'s Crime Drama Masterpiece Explodes on Streaming After Season Finale
+
+TV, Criminal Minds, CBS, Paramount Plus
+
+Sun, 06 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/paramount-crime-drama-criminal-minds-nielsen-success-august-2026/
+
+This crime drama has been running for twenty years and is still going strong - with over 470 million minutes viewed after the latest season finale.
+---------
+
+# Yu-Gi-Oh! x Crocs Officially Summons New Fall Collection Releasing September 10
+
+Anime, Yu-Gi-Oh!, merchandise
+
+Sun, 06 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/yu-gi-oh-crocs-fall-collection-september-2026/
+
+As part of the franchise's 30th anniversary, Yu-Gi-Oh! is teaming up with Crocs for a set of nostalgic clogs based on the brand's classic characters.
+---------
+
+# Lioness Star’s Blunt Reaction to ‘Intense’ Episode 6 Moment
+
+TV, Lioness, Paramount Plus
+
+Sun, 06 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/lioness-season-3-episode-6-laysla-de-oliveira-cruz-reaction/
+
+Laysla De Oliveira breaks down Cruz’s reaction to a shocking Lioness Season 3, Episode 6 moment and her evolving bond with Joe.
+---------
+
+# Lioness Star Analyzes Cruz’s Reaction to the Possibility of Joe’s Death in Season 3
+
+CBR Exclusives, Lioness, Paramount Plus
+
+Sun, 06 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/lioness-season-3-cruz-joe-death-laysla-de-oliveira/
+
+Laysla De Oliveira breaks down Cruz’s reaction to Joe’s possible death in Lioness Season 3 and how their relationship has changed.
+---------
+
+# 10 Greatest Movies Recommended by George R. R. Martin
+
+Movies, George R.R. Martin
+
+Sun, 06 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/best-george-r-r-martin-movies-recommendations-list/
+
+George R.R. Martin has left a permanent mark on the world of pop culture, and that includes his lists of must-watch movies.
+---------
+
+# Anya Taylor-Joy's $1B Sequel Misses No. 1 for Second Week in a Row
+
+Movies, The Super Mario Galaxy Movie
+
+Sun, 06 Sep 2026 15:48:08 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-super-mario-galaxy-nielsen-august-2026/
+
+The biggest animated sequel of the year is still making major waves in the world of streaming, it just isn't making its way to the top of the charts.
+---------
+
+# 5 Forgotten Cartoon Network Anime That Have Aged Like Milk
+
+Anime, Gundam
+
+Sun, 06 Sep 2026 15:18:11 GMT
+
+https://www.cbr.com/forgotten-cartoon-network-anime-aged-like-milk/
+
+Toonami relics wear their era on their sleeves with dated gags, unfinished arcs, awkward CGI and forced localization.
+---------
+
+# Scott Caan Confirms Why He Broke His Own NCIS Rule: 'Took Me 3 Seconds'
+
+TV, NCIS: New York, CBS
+
+Sun, 06 Sep 2026 15:12:21 GMT
+
+https://www.cbr.com/scott-caan-ncis-return-new-role-explained/
+
+Scott Caan is back in the NCIS universe for the new spinoff, and he's sharing just who convinced him to get on board.
+---------
+
+# Tina Fey's Remake of Iconic 22-Year-Old Classic Is Now Streaming for Free
+
+Movies, Mean Girls
+
+Sun, 06 Sep 2026 15:00:11 GMT
+
+https://www.cbr.com/tina-fey-mean-girls-remake-streaming-free-pluto-tv/
+
+The first film was a iconic, but the remake managed to hold its own.
+---------
+
+# Tracker’s Season 4 Strategy Makes CBS History for Justin Hartley’s Show
+
+TV, Tracker, Crime
+
+Sun, 06 Sep 2026 15:00:11 GMT
+
+https://www.cbr.com/cbs-tracker-season-4-location-change/
+
+Tracker Season 4's strategy will make history for Justin Hartley's CBS show, which he executive produces and leads as Colter Shaw.
+---------
+
+# Jason Statham’s ‘Die Hard’ Replacement Officially Hits Final Box-Office Milestone
+
+Movie News, Mutiny, Jason Statham, Action, Box Office
+
+Sun, 06 Sep 2026 15:30:11 GMT
+
+https://collider.com/mutiny-jason-statham-final-box-office-milestone/
+
+Jason Statham’s Die Hard-style action thriller Mutiny reaches one final box-office milestone before completing its theatrical run.
+---------
+
+# 9 Must-Watch Movies if You Love 'Coyote vs. Acme'
+
+Movie, Coyote Vs. Acme, Scooby-Doo, Sonic the Hedgehog, Space Jam
+
+Sun, 06 Sep 2026 15:04:11 GMT
+
+https://collider.com/movies-like-coyote-vs-acme/
+
+From James Gunn's mystery Scooby-Doo to the fantasy comedy Who Framed Roger Rabbit, these movies are perfect to watch if you love Coyote vs. Acme.
+---------
+
+# Apple TV’s Longest-Running Spy Series Officially Returns in 10 Days
+
+TV News, Slow Horses, Apple TV, Jack Lowden, Gary Oldman
+
+Sun, 06 Sep 2026 14:45:11 GMT
+
+https://collider.com/slow-horses-season-6-apple-tv-release-date/
+
+Slow Horses is almost back, with Gary Oldman’s acclaimed spy drama returning to Apple TV for its newest season in two weeks.
+---------
+
+# 8 Books You Should Read If You Loved Stephen King's 'The Stand'
+
+Books and Comics, The Stand, The Long Walk, World War Z, The Road
+
+Sun, 06 Sep 2026 14:33:11 GMT
+
+https://collider.com/books-like-the-stand-by-stephen-king/
+
+There are a few great books out there that scratch the same itch as Stephen King's The Stand, including Swan Song, Lucifer's Hammer, and World War Z.
+---------
+
+# Star Wars’ Lowest-Grossing Movie Ever Officially Gets a Second Chance on Streaming
+
+Movie News, The Mandalorian and Grogu, Star Wars, Pedro Pascal, Disney Plus
+
+Sun, 06 Sep 2026 14:00:11 GMT
+
+https://collider.com/star-wars-the-mandalorian-and-grogu-streaming-redemption-disney-plus-september-2026/
+
+Star Wars’ failed return to the big screen is getting a second chance as fans finally tune in for The Mandalorian & Grogu on Disney+.
+---------
+
+# 'The Gentlemen's Giancarlo Esposito Confirms Mr. Johnston's "End Game" After Season 2's Darker Turn
+
+Exclusives, The Gentlemen, Ray Winstone, Giancarlo Esposito, Vinnie Jones
+
+Sun, 06 Sep 2026 14:00:11 GMT
+
+https://collider.com/the-gentlemen-season-2-giancarlo-esposito-ray-winstone-vinnie-jones/
+
+Ray Winstone, Giancarlo Esposito, and Vinnie Jones break down Season 2 of The Gentlemen and what's to come.
+---------
+
+# 8 Sci-Fi Shows With No Weak Episodes
+
+TV, Sci-Fi, Dark, Andor, The Expanse
+
+Sun, 06 Sep 2026 13:59:11 GMT
+
+https://collider.com/best-sci-fi-shows-no-weak-episodes/
+
+Discover flawless sci-fi shows that excel from start to finish, ranked based on their overall quality and storytelling, from Andor to Dark.
+---------
+
+# Alan Ritchson Officially Sets Prime Video Return After ‘Reacher’ Season 4
+
+TV News, Reacher, Neagley, Alan Ritchson, Prime Video
+
+Sun, 06 Sep 2026 13:15:11 GMT
+
+https://collider.com/neagley-reacher-spin-off-prime-video-release-date/
+
+The Reacher franchise expands on Prime Video with Neagley, the new spin-off centered on fan-favorite Frances Neagley.
+---------
+
+# Kit Harington Reveals His 'Tale of Two Cities' Remake Puts a Gen Z Twist on the 167-Year-Old Classic
+
+TV News, A Tale Of Two Cities, Kit Harington, Drama
+
+Sun, 06 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/a-tale-of-two-cities-kit-harington-modern-genz-twist/
+
+'A Tale of Two Cities' puts a bold spin on the Charles Dickens classic.
+---------
+
+# Walton Goggins's Best Western Since 'Justified' Is a Prime Video Masterpiece
+
+Features, Western, Justified, Fallout, Walton Goggins
+
+Sun, 06 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/fallout-walton-goggins-best-western-since-justified/
+
+Walton Goggins starred in the Western TV series 'Justified' alongside Timothy Olyphant, and this Prime Video series is just as good.
+---------
+
+# All 7 Comic Book Characters Played by Jeffrey Dean Morgan, Ranked
+
+Movie Lists, Jeffrey Dean Morgan, Superhero
+
+Sun, 06 Sep 2026 15:30:13 GMT
+
+https://movieweb.com/jeffrey-dean-morgan-comic-roles-ranked/
+
+Jeffrey Dean Morgan is best known for playing Negan in 'The Walking Dead' universe, but that's not the only comic role he has taken in his career.
+---------
+
+# 'Backrooms 2' Takes a Big Step Forward with Major New Update
+
+Movie News, Backrooms, Horror, Kane Parsons
+
+Sun, 06 Sep 2026 15:06:40 GMT
+
+https://movieweb.com/backrooms-2-director-kane-parsons-returns/
+
+The team for 'Backrooms 2' is coming together.
+---------
+
+# Stephen King Breaks His Own Rule for "Special" New Straight-To-Streaming Horror Movie
+
+Movie News, Stephen King, The Cycle
+
+Sun, 06 Sep 2026 15:00:13 GMT
+
+https://movieweb.com/stephen-king-the-cycle-shudder-horror-movie/
+
+Stephen King is already urging horror fans to mark their calendars for 'The Cycle,' a new Shudder release he says is “special.”
+---------
+
+# The 10 Best Jack Ryan Novels, Ranked
+
+Movie Lists, Jack Ryan, Thriller, Action
+
+Sun, 06 Sep 2026 15:00:13 GMT
+
+https://movieweb.com/best-jack-ryan-books-ranked/
+
+These Jack Ryan books are more memorable and entertaining than the rest, and they're the best ones for fans of the character to start with.
+---------
+
+# Gerard Butler's 140-Minute Action Thriller Epic Is Officially a Must-Watch on Free Streaming
+
+Movie News, Den of Thieves, Gerard Butler, Action, Thriller
+
+Sun, 06 Sep 2026 15:00:13 GMT
+
+https://movieweb.com/gerard-butler-den-of-thieves-tubi-september-tubi-streaming/
+
+Gerard Butler's 2018 action thriller 'Den of Thieves' is officially available to stream for free this month.
+---------
+
+# 'Lioness' Star Addresses Biggest Season 3 Rumor About Her Taylor Sheridan Character
+
+TV News, Lioness, Action
+
+Sun, 06 Sep 2026 14:30:13 GMT
+
+https://movieweb.com/lioness-season-3-jill-wagner-bobby-character-rumor/
+
+This 'Lioness' star sets the record straight on their character's Season 3 story arc.
+---------
+
+# 'Death Stranding' Director Offers Pivotal Update for Live-Action Adaptation
+
+Movie News, Death Stranding, Michael Sarnoski, Sci-Fi, Norman Reedus
+
+Sun, 06 Sep 2026 14:14:08 GMT
+
+https://movieweb.com/death-stranding-pre-production-scouting/
+
+The 'Death Stranding' movie is closer than ever to becoming a reality.
+---------
+
+# 7 Biggest Questions After 'The Gentlemen' Season 2
+
+TV Lists, Kaya Scodelario, Theo James, Guy Ritchie, The Gentlemen, Netflix, Comedy, Thriller, Action, Ray Winstone
+
+Sun, 06 Sep 2026 14:00:13 GMT
+
+https://movieweb.com/the-gentlemen-season-2-guy-ritchie-questions/
+
+Guy Ritchie and Netflix's 'The Gentlemen' Season 2 has been just as wild a ride as Season 1, but there are questions that Season 3 needs to answer.
+---------
+
 # 5 Years Later, Tom Holland's Sci-Fi Movie That Should've Started A Franchise Is Free On YouTube
 
 Classic Movies, Masked Recs
