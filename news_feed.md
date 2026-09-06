@@ -1,3 +1,388 @@
+# Zach Cregger Clarifies Involvement In Weapons Prequel
+
+Movies, Weapons
+
+Sun, 06 Sep 2026 20:32:19 GMT
+
+https://screenrant.com/aunt-gladys-weapons-prequel-zach-cregger-role-explained/
+
+Zach Cregger reveals his current role regarding the development of Weapons' highly anticipated prequel Gladys and the reasoning behind it.
+---------
+
+# Law & Order: SVU Is Running Out Of Time For The Perfect Payoff To Its 27-Year Storyline
+
+Network TV, Law & Order: Special Victims Unit
+
+Sun, 06 Sep 2026 20:30:14 GMT
+
+https://screenrant.com/law-and-order-svu-benson-stabler-romance-perfect-payoff-600th-episode/
+
+As it approaches its 600th episode, SVU is running out of time to give Benson and Stabler the romantic payoff their 27-year story deserves.
+---------
+
+# How This Star Wars Meets Magnificent Seven Space Opera Led To Terminator, Aliens & Avatar
+
+Movies, Battle Beyond the Stars
+
+Sun, 06 Sep 2026 20:15:14 GMT
+
+https://screenrant.com/how-this-star-wars-meets-magnificent-seven-space-opera-led-to-terminator-aliens-avatar/
+
+Some of the greatest science fiction films of all time may not have ever been made if it were not for this campy B-movie classic from 1980.
+---------
+
+# X-Men's New Leader Officially Announced By Marvel
+
+Marvel Comics, X-Men
+
+Sun, 06 Sep 2026 20:00:14 GMT
+
+https://screenrant.com/x-men-new-leader-boom-boom-marvel/
+
+Marvel's most underrated mutant takes charge of a major X-Men team in their upcoming reboot, where the squad's original commander disappears.
+---------
+
+# 10 Best Action Games For Game Of Thrones Fans
+
+Gaming, Game of Thrones, Game Of Thrones, God of War: Ragnarok, For Honor, Middle-Earth: Shadow of War, The Blood of Dawnwalker, Final Fantasy 16, Assassin's Creed Valhalla, Chivalry 2, Elden Ring, Senua's Saga: Hellblade 2, PC
+
+Sun, 06 Sep 2026 20:00:14 GMT
+
+https://screenrant.com/best-game-of-thrones-action-games/
+
+Game of Thrones fans looking for critically acclaimed action games with medieval dark fantasy vibes have quite a few top-tier titles on offer.
+---------
+
+# Forget Daniel Radcliffe's Harry Potter Comeback, I Need A Sequel To His 7-Year-Old Cyberpunk Movie
+
+Movies, Masked Recs
+
+Sun, 06 Sep 2026 19:59:14 GMT
+
+https://screenrant.com/daniel-radcliffe-guns-akimbo-sequel-need/
+
+Radcliffe's most underrated sci-fi thriller remains a neon-soaked, chaotic thrill cyberpunk thrill ride that rewired the action comedy genre.
+---------
+
+# True Detective Meets Sharp Objects In Netflix's 12-Part Crime Thriller Series With 100% RT Score
+
+Streaming TV, Masked Recs
+
+Sun, 06 Sep 2026 19:58:22 GMT
+
+https://screenrant.com/the-chestnut-man-netflix-true-detective-sharp-objects/
+
+Netflix's masterpiece crime thriller series with 100% on Rotten Tomatoes is the perfect mix of HBO's hit shows True Detective and Sharp Objects.
+---------
+
+# Robert Pattinson's New A24 Thriller Sets Rotten Tomatoes Record With Debut Score
+
+Movies, Masked Recs, Robert Pattinson, A24
+
+Sun, 06 Sep 2026 19:45:08 GMT
+
+https://screenrant.com/robert-pattinson-primetime-movie-rotten-tomatoes-score/
+
+Robert Pattinson's new A24 crime thriller debuts to a Rotten Tomatoes record, as the first reviews are in ahead of its September release.
+---------
+
+# Mayor Of Kingstown: Taylor Sheridan’s 4-Season Thriller Deserves To Be As Big As Landman
+
+Streaming TV, Masked Recs
+
+Sun, 06 Sep 2026 19:32:14 GMT
+
+https://screenrant.com/mayor-of-kingstown-landman-taylor-sheridan-thriller/
+
+Mayor of Kingstown, Taylor Sheridan's 4-season crime thriller, deserves to be as big as Landman, especially with its fifth & final season on the way.
+---------
+
+# Reacher's Biggest Weakness Has Become Its Greatest Strength
+
+Streaming TV, Reacher
+
+Sun, 06 Sep 2026 19:30:14 GMT
+
+https://screenrant.com/reacher-new-characters-evolve-strength/
+
+Despite being one of the best action shows on TV, Reacher has been criticized for its lack of character development. Season 4 has just changed this.
+---------
+
+# 28 Years Later, Star Trek's Best Time Travel Episode Remains a Sci-Fi Masterpiece
+
+TV, Star Trek: Voyager, Sci-Fi, Paramount
+
+Sun, 06 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/star-trek-voyager-best-time-travel-sci-fi-episode-timeless/
+
+Star Trek: Voyager's best time-travel episode sees the Voyager crew's fate hanging in the balance, and it's a sci-fi masterpiece.
+---------
+
+# 3 Anime Series Where the Strongest Character Dies
+
+Anime, One Piece, Assassination Classroom, Attack On Titan
+
+Sun, 06 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/anime-series-strongest-character-dies/
+
+Anime is quick to establish the strongest character, but these series show that they aren't always unbeatable.
+---------
+
+# Final Fantasy 7, Metal Gear Solid, and 5 More PS1 Games Return in New Collection Available Now
+
+Games, PlayStation (Original), retro games, Innovation
+
+Sun, 06 Sep 2026 20:05:11 GMT
+
+https://www.cbr.com/ps1-console-heroes-collection-ff7-mgs-out-now/
+
+Wilder Toys' new PS1 Console Hero collection lets gamers display their favorite PS1 games.
+---------
+
+# Sung Jinwoo Officially Returns September 20 for Major Solo Leveling Update
+
+Anime, Solo Leveling
+
+Sun, 06 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/solo-leveling-karma-sung-jinwoo-tokyo-game-show-2026/
+
+September 20 will be a big day for Solo Leveling fans as Sung Jinwoo finally returns for a major new update.
+---------
+
+# Mary-Louise Parker's R-Rated 8-Season Crime Drama Turns Into Paramount+ Streaming Hit
+
+TV, Weeds
+
+Sun, 06 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/mary-louise-parker-weeds-crime-drama-paramount-plus-success-september-2026/
+
+One of the most beloved (and controversial) dramedies of the past two decades is lighting up the streaming charts more than ten years after it ended.
+---------
+
+# The Evilest Member of Every LOTR Race
+
+Movies, The Lord of the Rings, Fantasy
+
+Sun, 06 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/lotr-fantasy-races-evil-characters-list/
+
+From the graceful Elves to the monstrous Orcs, every group in The Lord of the Rings included some particularly malicious characters.
+---------
+
+# 10 DC Characters Who Could Change the Entire DC Universe, Ranked
+
+Comics, DC Comics
+
+Sun, 06 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/dc-characters-who-could-completely-change-the-dcu-ranked/
+
+James Gunn and Peter Safran have chance to redefine classic DC characters in live action, and a specific few could make a big difference.
+---------
+
+# Halloween: The Game Removes Controversial Minigame Just Ahead of Launch
+
+Games, Halloween
+
+Sun, 06 Sep 2026 19:55:39 GMT
+
+https://www.cbr.com/halloween-game-removes-sex-feature/
+
+The controversial feature was quietly removed, and fans on social media are not happy.
+---------
+
+# Game of Thrones: War for Westeros Officially Drops New Trailer
+
+Games, Game Of Thrones
+
+Sun, 06 Sep 2026 19:35:11 GMT
+
+https://www.cbr.com/game-of-thrones-war-for-westeros-officially-releases-new-trailer/
+
+Game of Thrones: War for Westeros has finally gotten a major update thanks to a new gameplay reveal trailer.
+---------
+
+# 5 Best Vegeta Quotes in Dragon Ball Z, Officially Ranked
+
+Anime, dragonball z, shonen anime, Shonen, Dragon Ball, Vegeta
+
+Sun, 06 Sep 2026 19:15:11 GMT
+
+https://www.cbr.com/best-vegeta-quotes-in-dragon-ball-z/
+
+Iconic smack talk and rare introspection mark Vegeta’s evolution from ruthless rival to complicated antihero on screen.
+---------
+
+# Dave Bautista's 'Fallout' Replacement Officially Hits Streaming Ahead of 'God of War' Debut
+
+Movie News, Afterburn, Fallout, MGM, Streaming
+
+Sun, 06 Sep 2026 20:30:11 GMT
+
+https://collider.com/dave-bautista-afterburn-streaming-hit-mgm-plus-september-2026/
+
+A 105-minute Fallout alternative starring Dave Bautista is a quiet streaming sensation. Here's everything to know about Afterburn.
+---------
+
+# Legendary Singer Frank Sinatra Called This Beatles Song the Greatest Love Song Ever Written
+
+Music Features, The Beatles, Music, Frank Sinatra, Elvis Presley
+
+Sun, 06 Sep 2026 20:13:34 GMT
+
+https://collider.com/frank-sinatra-said-the-beatles-something-greatest-love-song/
+
+Despite his criticisms, Frank Sinatra called The Beatles' Something the greatest love song of the past 50 years and recorded two versions of it.
+---------
+
+# 'Doctor Who' Is Officially Free to Stream This Month
+
+TV News, Doctor Who / Whoniverse, Doctor Who, Kanopy
+
+Sun, 06 Sep 2026 20:00:11 GMT
+
+https://collider.com/doctor-who-free-streaming-kanopy-september-2026/
+
+The Doctor Who revival series is now streaming for free, with the first four seasons available weekly this month. Find out more here.
+---------
+
+# HBO's 8-Part Gangster Crime Drama Completely Changes How You Watch 'The Batman'
+
+TV Features, The Penguin, The Batman, Rhenzy Feliz, HBO
+
+Sun, 06 Sep 2026 19:41:11 GMT
+
+https://collider.com/the-penguin-hbo-victor-storyline-changes-the-batman/
+
+In just 1 episode, The Penguin completely changes a rewatch of Matt Reeves' The Batman.
+---------
+
+# 44 Years Later, Steven Spielberg’s Sci-Fi Classic Is Officially an Apple TV Hit
+
+Movie News, Steven Spielberg, Sci-Fi, E.T. the Extra-Terrestrial, Apple TV
+
+Sun, 06 Sep 2026 19:00:11 GMT
+
+https://collider.com/steven-spielberg-sci-fi-et-the-extra-terrestrial-streaming-hit-apple-tv-september-2026/
+
+Steven Spielberg's beloved sci-fi masterpiece starring Drew Barrymore is Apple TV's latest hit. Here's everything you should know.
+---------
+
+# 24 Years Ago, ‘Buffy the Vampire Slayer’ Made Internet History With One Line
+
+TV Features, Buffy The Vampire Slayer, Sarah Michelle Gellar, Vampire, Joss Whedon
+
+Sun, 06 Sep 2026 18:55:11 GMT
+
+https://collider.com/buffy-the-vampire-slayer-tv-show-internet-history/
+
+Buffy the Vampire Slayer was an iconic show, but one line of dialogue changed our current world in a small but powerful way.
+---------
+
+# 7 Sci-Fi Books That Are 10/10 Masterpieces
+
+Books and Comics, 3 Body Problem, The Handmaid's Tale, The Man in the High Castle, Sci-Fi
+
+Sun, 06 Sep 2026 18:49:11 GMT
+
+https://collider.com/sci-fi-books-perfect-masterpieces/
+
+The Handmaid's Tale, Project Hail Mary, Fahrenheit 451, and more make up our list of sci-fi books that are perfect masterpieces.
+---------
+
+# Ridley Scott's Greatest War Epic Still Beats Every Sci-Fi Movie He Ever Made
+
+Features, War, Sci-Fi, Gladiator, Ridley Scott
+
+Sun, 06 Sep 2026 20:30:13 GMT
+
+https://movieweb.com/gladiator-ridley-scott-best-war-movie/
+
+Ridley Scott is known for some of the greatest sci-fi movies ever made, but his 2000 war epic is still the best among his offerings.
+---------
+
+# 'Insidious' Movies in Order Chronologically and by Release Date
+
+Movie Lists, Insidious, Horror
+
+Sun, 06 Sep 2026 20:00:14 GMT
+
+https://movieweb.com/insidious-movies-in-order-how-to-watch/
+
+The 'Insidious' franchise is still haunting us, and with new titles on the way, let's look at the whole series and how to watch it.
+---------
+
+# Ridley Scott's 'Dog Stars' Cemented as Historic Flop After Disastrous Second Weekend
+
+Movie News, Ridley Scott, The Dog Stars, Sci-Fi
+
+Sun, 06 Sep 2026 20:00:13 GMT
+
+https://movieweb.com/ridley-scotts-dog-stars-box-office-flop/
+
+Despite high expectations, a veteran director at the helm, and a star-studded cast, the film has failed to draw crowds.
+---------
+
+# HBO's Most Watched Show of 2020 Was a 6-Part Psychological Thriller That Remains a Perfect Weekend Binge
+
+Features, The Undoing, HBO Max, Thriller
+
+Sun, 06 Sep 2026 20:00:13 GMT
+
+https://movieweb.com/the-undoing-hbo-thriller-binge/
+
+HBO has produced many memorable TV shows over the past few decades, including one psychological thriller that was released in 2020.
+---------
+
+# Sylvester Stallone's 101-Minute Gritty Action Film Lands on Free Streaming Ahead of Sequel
+
+Movie News, Sylvester Stallone, Samaritan, Superhero, Coming/Leaving Streaming
+
+Sun, 06 Sep 2026 19:30:13 GMT
+
+https://movieweb.com/samaritan-sylvester-stallone-tubi-free-streaming-september-2026/
+
+It's still hard to understand how this one flew so far under the radar with fans of superhero movies.
+---------
+
+# New 'Harry Potter' TV Series Trailer Prompts Passionate Reactions from Fans
+
+TV News, Harry Potter, Fantasy
+
+Sun, 06 Sep 2026 19:30:13 GMT
+
+https://movieweb.com/harry-potter-series-trailer-reactions/
+
+The cast of HBO’s Harry Potter series faces the daunting task of living up to the original ensemble.
+---------
+
+# 8 Years Later, HBO’s Gritty Star-Studded Thriller Masterpiece Is Still a Perfect Book Adaptation You Can Binge in One Night
+
+Features, Crime, HBO Max, Thriller, Sharp Objects
+
+Sun, 06 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/sharp-objects-hbo-thriller-adaptation/
+
+HBO has many impressive thriller TV series, but there is one adaptation of a popular novel that is worth binge-watching.
+---------
+
+# '28 Days Later' Director Admits Using AI to Make His New Film
+
+Movie News, Danny Boyle, Ink, Drama
+
+Sun, 06 Sep 2026 18:30:13 GMT
+
+https://movieweb.com/danny-boyle-ink-ai/
+
+Danny Boyle's newest film, 'Ink,' premiered at the Venice Film Festival this week.
+---------
+
 # Glen Powell’s R-Rated Series Nearly Doubles Season 1’s Rotten Tomatoes Score
 
 Movies, Masked Recs
