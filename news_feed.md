@@ -1,3 +1,377 @@
+# Glen Powell’s R-Rated Series Nearly Doubles Season 1’s Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Sun, 06 Sep 2026 18:20:50 GMT
+
+https://screenrant.com/chad-powers-season-2-rotten-tomatoes-score-debut/
+
+After a lukewarm reception for season 1, Glen Powell's R-rated show has nearly doubled that score for season 2, which just released all its episodes.
+---------
+
+# Squid Game Meets Jumanji In Netflix's 3-Part Sci-Fi Series
+
+TV, Masked Recs
+
+Sun, 06 Sep 2026 18:01:14 GMT
+
+https://screenrant.com/alice-in-borderland-netflix-squid-game-meets-jumanji-sci-fi/
+
+Tokyo becomes a deadly abandoned city of surreal games in Netflix's unforgettable, eerie blend of Lewis Carroll weirdness and R rated violence.
+---------
+
+# Official Batman: The Dark Knight Returns Game Is Perfect For Fans Frank Miller's Classic
+
+Gaming, Batman, tabletop games
+
+Sun, 06 Sep 2026 18:00:14 GMT
+
+https://screenrant.com/batman-dark-knight-returns-game-frank-miller/
+
+Batman fans have a lot to look forward to at nearly any given time, but this particular release is a must-see for fans of The Dark Knight Returns.
+---------
+
+# 5 NES Games That Have Actually Aged Beautifully
+
+Gaming, nes, Triple-A Games
+
+Sun, 06 Sep 2026 18:00:14 GMT
+
+https://screenrant.com/nintendo-nes-games-aged-beautifully/
+
+The Nintendo Entertainment System (NES), which turned 43 this year, has a ton of classic games, and many of them still hold up.
+---------
+
+# The Complete Evolution Of The Punisher's Live-Action On Screen Appearances
+
+Movies, Marvel Cinematic Universe, The Punisher, Punisher: War Zone, The Punisher: One Last Kill
+
+Sun, 06 Sep 2026 18:00:14 GMT
+
+https://screenrant.com/punisher-live-action-appearances-evolution/
+
+Frank Castle has evolved dramatically on screen, from Dolph Lundgren's skull-less vigilante to Jon Bernthal's layered antihero in Brand New Day.
+---------
+
+# Tom Hardy’s Gritty Western Epic Is One Of The Biggest Movies In The World
+
+Movies, Masked Recs
+
+Sun, 06 Sep 2026 17:50:16 GMT
+
+https://screenrant.com/tom-hardy-the-revenant-hbo-max-global-streaming-success-september-2026/
+
+Tom Hardy's gritty Western epic has come to dominate streaming charts around the world, with the dark film becoming a global sensation on HBO Max.
+---------
+
+# The Odyssey & Spider-Man Crush New Labor Day Weekend Releases On U.S. Box Office Chart
+
+Movies, Box Office, The Odyssey, Spider-Man: Brand New Day
+
+Sun, 06 Sep 2026 17:36:02 GMT
+
+https://screenrant.com/domestic-box-office-chart-report-spider-man-brand-new-day-the-odyssey-by-any-means/
+
+Labor Day weekend's new releases, such as Fall 2 and By Any Means, were conquered on the U.S. box office chart by Spider-Man and The Odyssey.
+---------
+
+# Peaky Blinders Meets Breaking Bad In Guy Ritchie's Netflix Hit Returning For Season 2
+
+Streaming TV, Masked Recs
+
+Sun, 06 Sep 2026 17:30:15 GMT
+
+https://screenrant.com/the-gentlemen-season-2-netflix-return-peaky-blinders-breaking-bad/
+
+Peaky Blinders and Breaking Bad are two of the greatest crime shows of the 21st century, and Guy Ritchie's Netflix series combines elements from both.
+---------
+
+# Iconic Fantasy Franchise Is So Good, It's Getting More Than 50 Additional Hours Of Content
+
+Streaming TV, Masked Recs
+
+Sun, 06 Sep 2026 17:15:14 GMT
+
+https://screenrant.com/harry-potter-fantasy-franchise-50-hours-new-content/
+
+It takes a lot for a company to commit itself to several dozen hours of content for a fantasy franchise. The big question is whether it will pay off.
+---------
+
+# 27 Years Later, Denzel Washington's Underrated 118-Minute Psychological Thriller Hits Prime Video
+
+Movies, Masked Recs, The Bone Collector, Denzel Washington
+
+Sun, 06 Sep 2026 17:09:55 GMT
+
+https://screenrant.com/denzel-washington-the-bone-collector-movie-prime-video-streaming-september-2026/
+
+A brutal New York serial killer torments Denzel Washington in an underrated gem that's perfect for fans of Se7en and deserves way more praise.
+---------
+
+# 10 Forgotten Mecha Anime That Have Aged Like Fine Wine
+
+Anime, RahXephon, Martian Successor Nadesico, mecha
+
+Sun, 06 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/forgotten-mecha-anime-that-aged-like-fine-wine/
+
+Mecha anime represent one of the industry's most popular genres, but titles like Panzer World Galient and Detonator Orgun have faded into obscurity.
+---------
+
+# Hit 10/10 Sci-Fi Series Returns as the Most-Watched Show on Streaming
+
+TV, Silo, Apple TV
+
+Sun, 06 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/silo-sci-fi-apple-tv-no-1-september-2026/
+
+The sci-fi show's big success comes on the heels of the Season 3 finale.
+---------
+
+# Official New Beyblade-Inspired Release Hits Steam Soon
+
+Anime, beyblade, Steam
+
+Sun, 06 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/steelblade-shop-simulator-beyblade-steam-release/
+
+A Beyblade-inspired indie game is about to make its debut on Steam, and it is already setting itself up to be a resounding success.
+---------
+
+# Absolute Batman Debuts His Boldest Look Yet—and Collectors Need It
+
+Comics, Absolute Batman
+
+Sun, 06 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/absolute-batman-bold-collectible/
+
+New collectible presents Absolute Batman as you've never seen him before.
+---------
+
+# Mark Wahlberg's Mississippi Burning Meets The Sopranos Crime Thriller Sparks RT Disagreement
+
+Movies, Rotten Tomatoes, By Any Means
+
+Sun, 06 Sep 2026 17:59:44 GMT
+
+https://www.cbr.com/mark-wahlberg-by-any-means-rotten-tomatoes-score/
+
+The new historical crime thriller just hit theaters and critics and audiences are divided.
+---------
+
+# Netflix's Overlooked Robert Downey Jr. Fantasy Show Is a Sleeping Giant
+
+TV, Sweet Tooth, Netflix
+
+Sun, 06 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/netflix-sweet-tooth-forgotten-fantasy-show/
+
+This Robert Downey Jr.-produced series should've been Netflix's next big hit, but years later, it has faded into relative obscurity.
+---------
+
+# Watching The Bleach Anime Without All The Filler
+
+Anime, Bleach
+
+Sun, 06 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/bleach-guide-how-to-watch-without-filler-episodes/
+
+Anyone who wants the core Bleach anime experience is encouraged to pick and choose their episodes to dodge fillers.
+---------
+
+# 5 Greatest '90s RPGs, Officially Ranked
+
+Games, Final Fantasy, RPG
+
+Sun, 06 Sep 2026 17:15:11 GMT
+
+https://www.cbr.com/greatest-90s-rpgs-officially-ranked/
+
+The '90s were a golden age for RPGs, with masterpiece after masterpiece releasing on the SNES, Sega Genesis and, most especially, the PS1.
+---------
+
+# 2026's Most Mind-Bending Horror Film Moves Forward With New Installment
+
+Movies, Backrooms
+
+Sun, 06 Sep 2026 17:09:20 GMT
+
+https://www.cbr.com/backrooms-2-kane-parsons-returning/
+
+One of the biggest horror sensations of the year is officially getting the feature film sequel it deserves with the franchise's creator at the helm.
+---------
+
+# One Piece Chapter 1192 Changes Usopp Forever
+
+Anime, One Piece, Manga, Reviews
+
+Sun, 06 Sep 2026 16:48:18 GMT
+
+https://www.cbr.com/one-piece-1192-luffy-usopp-elbaph/
+
+Usopp shines as bright as Luffy against Imu's overwhelming darkness
+---------
+
+# Lanterns: Hal’s Harsh Treatment of John Hides Respect and Fear | Collider BTS
+
+TV, Lanterns
+
+Sun, 06 Sep 2026 18:15:11 GMT
+
+https://collider.com/video/lanterns-hal-s-harsh-treatment-of-john-hides-respect-and-fear-collider-bts/
+
+Chris Mundy and Vikash Patel break down how Lanterns grounds its Green Lantern mythology in the rhythms of a buddy-cop drama, drawing inspiration from films like Lethal Weapon, 48 Hrs., Training Day, and Midnight Run.
+---------
+
+# Netflix's Best Political Thriller Since 'House of Cards' Officially Returns Next Month
+
+TV News, The Diplomat, Netflix, Thriller, Keri Russell
+
+Sun, 06 Sep 2026 18:00:11 GMT
+
+https://collider.com/keri-russell-the-diplomat-season-4-netflix-release-date-october-2026/
+
+Netflix's hit political thriller with a 92% RT score is officially returning next month. Get all the details here.
+---------
+
+# Starz’s Gritty 4-Part Action-Adventure Series Has Quietly Returned to Streaming Charts
+
+TV Features, Black Sails, Starz, Toby Stephens, Luke Arnold
+
+Sun, 06 Sep 2026 17:58:11 GMT
+
+https://collider.com/black-sails-starz-best-action-adventure-series-streaming/
+
+One of Starz's best original shows, Black Sails, has returned to streaming charts, with more viewers embracing the pirate adventure series.
+---------
+
+# Forget ‘Reacher,’ Alan Ritchson Is Officially Back on the Big Screen This Week
+
+Movie News, Runner, Alan Ritchson, Owen Wilson, Reacher
+
+Sun, 06 Sep 2026 17:00:11 GMT
+
+https://collider.com/runner-alan-ritchson-theatrical-release-date-this-week-how-to-watch/
+
+Alan Ritchson returns to theaters with Runner, giving the Reacher star another major big-screen action role.
+---------
+
+# Henry Cavill’s Failed Action Movie Officially Finds an Audience on Prime Video
+
+Movie News, Henry Cavill, In the Grey, Prime Video, Guy Ritchie
+
+Sun, 06 Sep 2026 16:15:11 GMT
+
+https://collider.com/in-the-grey-henry-cavill-prime-video-streaming-hit-september-2026/
+
+Henry Cavill’s action movie In the Grey is getting a second life on Prime Video following its disappointing box office performance.
+---------
+
+# Robert Pattinson Confirms "Radical Change" for 'The Batman Part II'
+
+Movie News, The Batman Part II, Robert Pattinson, The Batman, Superhero
+
+Sun, 06 Sep 2026 18:07:05 GMT
+
+https://movieweb.com/robert-pattinson-the-batman-part-ii-radical-change/
+
+'The Batman: Part II' will be a very different sort of superhero movie.
+---------
+
+# Netflix's New 119-Minute David Fincher-Esque Thriller Is One of the Biggest Streaming Hits in the World
+
+Movie News, Hot on Streaming, Thriller
+
+Sun, 06 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/netflix-the-secret-woman-global-hit/
+
+Netflix’s latest Danish thriller, 'The Secret Woman,' is quietly becoming one of the platform’s biggest global movie hits.
+---------
+
+# 66 Years Later, the Greatest Peanuts Comic Panel of All Time Still Remains Unbeaten
+
+Features, Peanuts, comics
+
+Sun, 06 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/greatest-peanuts-comic-panel-all-time/
+
+Although narrowing down Schulz’s best work is no easy task, one moment from Peanuts stands above every Sunday page and animated special.
+---------
+
+# Netflix's New High Fantasy Franchise Is Already Bigger Than 'Game of Thrones' at Its Peak
+
+Features, Magic: The Gathering, Netflix, Game Of Thrones, Game of Thrones, Fantasy
+
+Sun, 06 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/netflix-magic-the-gathering-game-of-thrones/
+
+'Game of Thrones' was built on the back of a lot of great source material, but Netflix has an upcoming project with an even bigger advantage. Read on.
+---------
+
+# 17 Years Later, Mark Wahlberg's Underrated Supernatural Revenge Thriller Scores New Release
+
+Movie News, Blu-ray, The Lovely Bones, Thriller
+
+Sun, 06 Sep 2026 17:30:14 GMT
+
+https://movieweb.com/mark-wahlberg-supernatural-drama-new-release/
+
+Peter Jackson's 'The Lovely Bones' is getting another release, giving one of Mark Wahlberg’s most unusual films a fresh shot at finding an audience.
+---------
+
+# New "Mindhunter Meets Dexter" 8-Part Thriller Is Officially Streaming's Biggest Series
+
+Movie News, Hot on Streaming, Furious, Thriller
+
+Sun, 06 Sep 2026 17:00:13 GMT
+
+https://movieweb.com/furious-hulu-emmy-rossum-streaming-hit/
+
+Hulu's 'Furious' is dominating streaming charts and drawing comparisons to Dexter.
+---------
+
+# 8 Classic Martial Arts Movies of the ‘80s That Are Free To Stream
+
+Movie Lists, Martial Arts, Action, Thriller, 1980s, Streaming
+
+Sun, 06 Sep 2026 17:00:13 GMT
+
+https://movieweb.com/classic-80s-martial-arts-movies-free-stream/
+
+These 1980s action-packed martial arts classics are the perfect way to add some thrills to your day, and they are 100% free to stream
+---------
+
+# Gal Gadot's New 84-Minute Prime Video Action Thriller Is Officially the Biggest Movie on Streaming
+
+Movie News, The Runner, Gal Gadot, Hot on Streaming, Action, Prime Video
+
+Sun, 06 Sep 2026 16:30:14 GMT
+
+https://movieweb.com/gal-gadot-the-runner-action-streaming-prime-video-september-2026/
+
+Despite being blasted by critics, it didn't take long for Gal Gadot's latest action thriller to make a big impact on streaming.
+---------
+
+# Robert Pattinson's 'Primetime' Thriller Provokes Strong Reactions in Festival Debut
+
+Movie Reviews, Robert Pattinson, Biography, Primetime
+
+Sun, 06 Sep 2026 16:13:28 GMT
+
+https://movieweb.com/robert-pattinson-primetime-reviews/
+
+Critics rave over Robert Pattinson's performance as Chris Hansen (even if Hansen himself isn't a fan).
+---------
+
 # Fast Forever: Can Brian Return Without Hurting the Ending?
 
 Movies, Originals, Fast & Furious
