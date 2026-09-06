@@ -1,3 +1,366 @@
+# Jake Gyllenhaal & Jamie Foxx's True Story War Movie With Near-Perfect Score From Roger Ebert Is Now On Streaming
+
+Classic Movies, Jarhead
+
+Sun, 06 Sep 2026 00:10:14 GMT
+
+https://screenrant.com/jarhead-movie-netflix-streaming-release-september-2026/
+
+Jake Gyllenhaal and Jamie Foxx starred in a great war movie that is unlike anything in the genre and here is what you need to know about it.
+---------
+
+# Casting Saved By The Bell If It Was Made In 2026: All 7 Main Roles
+
+Classic TV, Saved By the Bell
+
+Sun, 06 Sep 2026 00:00:15 GMT
+
+https://screenrant.com/saved-by-the-bell-casting-2026-actors/
+
+Saved by the Bell is one of the most iconic teen sitcoms of all time, but there's more than enough up-and-coming stars to create a modern iteration.
+---------
+
+# PlayStation Gamers Can Check Out Remake Of Classic 2006 JRPG For Free Right Now
+
+Gaming, PlayStation
+
+Sun, 06 Sep 2026 00:00:15 GMT
+
+https://screenrant.com/playstation-free-jrpg-demo-ps2-remake/
+
+PlayStation offers a free demo of the Trails in the Sky 2nd Chapter remake. Experience the epic JRPG journey now!
+---------
+
+# Ryan Reynolds' New Thriller Mayday Rotten Tomatoes Score Gets Official Audience Verdict
+
+Movies, Mayday, Ryan Reynolds, Apple TV
+
+Sat, 05 Sep 2026 23:53:15 GMT
+
+https://screenrant.com/ryan-reynolds-mayday-apple-tv-movie-rotten-tomatoes-audience-score/
+
+Ryan Reynolds' new thriller Mayday is finally streaming on Apple TV, and now the movie gets an official audience verdict on Rotten Tomatoes.
+---------
+
+# Netflix's New High Fantasy Series Is What Dungeons & Dragons Fans Have Been Waiting For
+
+Streaming TV, Masked Recs
+
+Sat, 05 Sep 2026 23:45:14 GMT
+
+https://screenrant.com/netflix-ravenloft-dungeons-and-dragons-series-waiting-for/
+
+Dungeons & Dragons fans have been extremely patient. Now, after several big disappointments, Netflix finally has something worthwhile in store for us.
+---------
+
+# Creative Arts Emmy Awards 2026 Winners List (Live Update)
+
+TV, Emmy Awards
+
+Sat, 05 Sep 2026 23:43:37 GMT
+
+https://screenrant.com/creative-arts-emmy-awards-2026-winners-list/
+
+Join ScreenRant for the 78th Creative Arts Emmys' awards ceremony with live updates honoring this year's talented creators.
+---------
+
+# 42 Years Later, Dolly Parton’s Ultimate Movie Reunion Was The Perfect Ending To Her Screen Career
+
+Classic TV, Masked Recs
+
+Sat, 05 Sep 2026 23:30:14 GMT
+
+https://screenrant.com/grace-and-frankie-dolly-parton-9-to-5-reunion-perfect-end/
+
+42 years after her big-screen debut, the late Dolly Parton starred in what would be her final character acting role, and it was the perfect sendoff.
+---------
+
+# Jason Statham’s $760M Action Hit Still Waiting On A Sequel Is Finally Back On Streaming Next Week
+
+Movies, Masked Recs
+
+Sat, 05 Sep 2026 23:24:10 GMT
+
+https://screenrant.com/jason-statham-fast-furious-hobbs-shaw-hulu-streaming-release-date-september-2026/
+
+One of Jason Statham's most commercially successful movies is heading back to streaming soon as the wait continues for a sequel to this blockbuster.
+---------
+
+# After 29 Years, Pokemon Is Making A Major New Addition To Canon
+
+Movies, Pokémon: Wild Card
+
+Sat, 05 Sep 2026 23:15:14 GMT
+
+https://screenrant.com/pokemon-new-movie-trading-card-game-canon/
+
+Pokemon: Wild Card is set to shake up the world of Pokemon in a massive way, with the company crossing the streams between its most viral successes.
+---------
+
+# 1 Year Later, I Wish The Conjuring's Last Movie Had Fulfilled Its End Of An Era Promise
+
+Movies, The Conjuring, The Conjuring: Last Rites, The Nun, Annabelle, Annabelle: Creation, The Nun II, The Conjuring: The Devil Made Me Do It
+
+Sat, 05 Sep 2026 23:15:14 GMT
+
+https://screenrant.com/the-conjuring-last-rites-end-era-new-movie/
+
+Many horror fans expected The Conjuring to conclude with Last Rites in 2025, but a new movie will explore the Warrens in a new light.
+---------
+
+# Resident Evil Reboot Director Swears Off Making Any More Franchise Films
+
+Movies, Resident Evil
+
+Sun, 06 Sep 2026 00:24:04 GMT
+
+https://www.cbr.com/resident-evil-zach-cregger-no-more-ip/
+
+Dipping his toes into Resident Evil is all the work with franchise films Zach Cregger is ever going to do.
+---------
+
+# This Forgotten Grimdark Anime Classic Helped Save Transformers
+
+Anime, Transformers, mecha, Beast Wars, Beast Wars: Transformers
+
+Sun, 06 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/transformers-forgotten-grimdark-anime-classic-guyver/
+
+Beast Wars actually saved Transformers back in the 1990s, but its once controversial aesthetic was inspired by a formerly iconic anime: Guyver.
+---------
+
+# 3 Years Later, HBO Max Returns With Succession-esque International Drama
+
+TV, Succession, HBO Max, Drama
+
+Sun, 06 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/colision-drama-hbo-release-date/
+
+HBO Max has a new international show perfect for Succession fans: Colisión.
+---------
+
+# 8 90s Action Movies That Can Be Called Masterpieces
+
+Movies, Action, Terminator 2: Judgment Day, Face/Off
+
+Sun, 06 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/perfect-90s-action-movies-list/
+
+These 8 unforgettable action movies from the 1990s are perfect in just about every way.
+---------
+
+# Dragon Ball Unearths Akira Toriyama's Original Shenron Design After 41 Years
+
+Anime, Dragon Ball, weekly shonen jump
+
+Sun, 06 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/dragon-ball-akira-shenron-original-design/
+
+A fan-favorite franchise feature just unveiled the late, great Akira Toriyama's original design for one of Dragon Ball's most important characters.
+---------
+
+# Steven Spielberg's All the Sinners Bleed Adaptation Best Netflix Thriller
+
+TV, Netflix, Thriller, steven spielberg
+
+Sun, 06 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/netflix-steven-spielberg-all-the-sinners-bleed-crime-thriller/
+
+Steven Spielberg's Amblin Television is producing All the Sinners Bleed, which might become one of the best crime thrillers on Netflix.
+---------
+
+# 34 Years After Unforgiven, Morgan Freeman Returns to Westerns for Michael Keaton Movie
+
+Movies, Western
+
+Sat, 05 Sep 2026 23:46:20 GMT
+
+https://www.cbr.com/michael-keaton-morgan-freeman-western-movie-picked-up/
+
+Morgan Freeman finally returns to the Old West over three decades after shining in one of the greatest Westerns of all time.
+---------
+
+# Anime Mecha Stronger Than Optimus Prime
+
+Anime, Gurren Lagann, Turn A Gundam, mecha, Transformers
+
+Sat, 05 Sep 2026 23:45:11 GMT
+
+https://www.cbr.com/anime-mecha-stronger-than-optimus-prime/
+
+Few mecha can match Optimus Prime, but these five anime machines possess overwhelming power and devastating abilities.
+---------
+
+# The Generation-Defining Horror Classic Finds With 57% RT Finds a Second Life on Streaming
+
+Movies, The Craft
+
+Sat, 05 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/the-craft-horror-hbo-max-success-september-2026/
+
+One of the most beloved horror films of the '90s is making major waves in the world of streaming while fans continue to wait for the threequel.
+---------
+
+# 5 Greatest Time Travel Anime of All Time, Ranked
+
+Anime, Takopi's Original Sin, Steins;Gate, Erased
+
+Sat, 05 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/greatest-time-travel-anime-of-all-time-ranked/
+
+The best time travel anime of all time mastered the art of messing with timelines and telling heartbreaking stories in the process.
+---------
+
+# 13 Years Later, Mike Flanagan’s Horror Gem Is Officially Heading to Netflix
+
+Movie News, Oculus, Mike Flanagan, Netflix, Carrie
+
+Sun, 06 Sep 2026 00:15:11 GMT
+
+https://collider.com/mike-flanagan-horror-movie-oculus-streaming-netflix-september-2026/
+
+Mike Flanagan's horror masterpiece, released more than a decade ago, arrives on Netflix this month, just weeks before the Carrie reboot premieres.
+---------
+
+# Harrison Ford's Apple TV Triumph Passes a Major Streaming Milestone
+
+TV News, Harrison Ford, Apple TV, Shrinking, Streaming
+
+Sun, 06 Sep 2026 00:00:11 GMT
+
+https://collider.com/harrison-ford-shrinking-apple-tv-streaming-milestone-800-days-september-2026/
+
+Harrison Ford and Jason Segel's Apple TV triumph passes a major streaming milestone. Here's everything you should know about Shrinking.
+---------
+
+# Prime Video's “Bourne Meets Statham” Action Thriller Series Is One of the Biggest Streaming Hits in the World
+
+TV Features, Reacher, Alan Ritchson, Prime Video, Action
+
+Sat, 05 Sep 2026 23:52:11 GMT
+
+https://collider.com/reacher-prime-video-action-thriller-series-streaming-hit/
+
+Prime Video's Reacher, which recently returned for Season 4, has once again become a global hit on streaming.
+---------
+
+# Prime Video’s ‘James Bond’-Style Spy Thriller Is Officially a Streaming Sensation
+
+TV News, The Night Manager, Prime Video, Tom Hiddleston, John Wick
+
+Sat, 05 Sep 2026 23:45:11 GMT
+
+https://collider.com/prime-video-thriller-series-the-night-manager-streaming-success-september-2026-tom-hiddleston/
+
+Tom Hiddleston's hit thriller series with shades of John Wick and James Bond has become a must-watch hit on Prime Video.
+---------
+
+# The Sci-Fi Reboot That Launched the MonsterVerse Officially Finds a New Streaming Home
+
+Movie News, Godzilla, Sci-Fi, Gareth Edwards
+
+Sat, 05 Sep 2026 23:30:11 GMT
+
+https://collider.com/aaron-taylor-johnson-godzilla-2014-streaming-paramount-plus-september-2026/
+
+Gareth Edwards' $530 million monster movie reboot that launched the MonsterVerse is now streaming on Paramount+. Read on for more.
+---------
+
+# 32 Years Later, Kevin Costner's Greatest Western Is Officially Streaming for Free
+
+Movie News, Kevin Costner, Wyatt Earp, Western, Tombstone
+
+Sat, 05 Sep 2026 23:15:11 GMT
+
+https://collider.com/kevin-costner-western-wyatt-earp-streaming-free-tubi-september-2026/
+
+Kevin Costner's passion project from the 1990s, a Western epic about one of the era's biggest icons, is streaming for free this month.
+---------
+
+# The Spy Thriller That Spawned ‘Reacher’ Officially Returns With New Episodes in 2027
+
+TV News, The Day of the Jackal, Peacock, Reacher, Eddie Redmayne
+
+Sat, 05 Sep 2026 23:00:11 GMT
+
+https://collider.com/eddie-redmayne-spy-thriller-day-of-the-jackal-season-2-release-date-2027/
+
+The Peacock spy thriller that inspired the creation of Jack Reacher officially returns for Season 2 in 2027.
+---------
+
+# The 10 Saddest Books of All Time, Ranked
+
+Books and Comics, A Little Life, Pet Sematary, Harry Potter and the Deathly Hallows - Part 2, The Dark Tower
+
+Sat, 05 Sep 2026 22:51:11 GMT
+
+https://collider.com/saddest-books-all-time-ranked/
+
+The saddest and most emotional books ever published include classics like Pet Sematary, Of Mice and Men, and Harry Potter and the Deathly Hallows.
+---------
+
+# 2026’s Biggest Fantasy Disappointment Officially Redeems Itself on Streaming
+
+Movie News, Masters of the Universe, Fantasy, Prime Video, Streaming
+
+Sat, 05 Sep 2026 22:45:12 GMT
+
+https://collider.com/masters-of-the-universe-streaming-hit-prime-video-september-2026/
+
+Masters of the Universe, starring an A-list cast led by Nicholas Galitzine, has the power on streaming as it redeems its box office disappointment.
+---------
+
+# 10 Classic Western Movies of the '70s That Still Hold Up
+
+Features, Western
+
+Sun, 06 Sep 2026 00:00:13 GMT
+
+https://movieweb.com/classic-70s-western-movies-hold-up/
+
+Classic Westerns may have been on the decline after the heights of the 1950s and 1960s, but the 1970s still boasts some of the all-time best.
+---------
+
+# 'The Expanse Meets Lost' In This 3-Part Sci-Fi Thriller That's Blowing Up on Streaming
+
+TV News, The Ark, Hot on Streaming, Sci-Fi
+
+Sun, 06 Sep 2026 00:00:13 GMT
+
+https://movieweb.com/the-ark-scifi-stream-vudu-sept-2026/
+
+This three-season sci-fi thriller is one of the most underrated shows on TV.
+---------
+
+# 40 Years Later, 107-Minute Buddy Cop Adventure Classic Getting New Release
+
+Movie News, Running Scared, Blu-ray, Action
+
+Sat, 05 Sep 2026 23:30:13 GMT
+
+https://movieweb.com/1986-running-scared-4k-blu-ray-release/
+
+'Die Hard' owes its success to this underrated buddy cop classic.
+---------
+
+# 'Silo' Officially Confirms Its Bernard Replacement After Just 1 Episode
+
+Features, Silo, Sci-Fi
+
+Sat, 05 Sep 2026 23:00:13 GMT
+
+https://movieweb.com/silo-daniel-bernard-replacement/
+
+Bernard occupied a very specific place in 'Silo's story, and the writers have recognized the need to replace him. Read on for more.
+---------
+
 # 16 Years Before Supernatural, Crowley's Actor Played An Eerily Similar Villain
 
 Classic TV, Supernatural, Mark Sheppard
