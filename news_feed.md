@@ -1,3 +1,443 @@
+# The Perfect Actor To Play Kirk’s First Star Trek Enemy Is Paul Wesley’s TVD Brother
+
+TV, Op-Ed, Star Trek, Star Trek: Strange New Worlds
+
+Mon, 07 Sep 2026 16:30:14 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-ian-somerhalder-gary-mitchell/
+
+Captain Kirk's first enemy in Star Trek was Lt. Gary Mitchell. The right actor for Mitchell in Strange New Worlds already has a past with Paul Wesley.
+---------
+
+# Ryan Reynolds' New 111-Minute Action Movie That's Dominating Streaming Is One Of The Year's Best
+
+Movies, Masked Recs, Mayday, Ryan Reynolds
+
+Mon, 07 Sep 2026 16:15:14 GMT
+
+https://screenrant.com/ryan-reynolds-mayday-movie-apple-streaming-hit-best-2026-action-comedy/
+
+A lean 111-minute Cold War caper that blends Top Gun bravado with Ryan Reynolds’ witty buddy chemistry and kinetic set pieces is on streaming.
+---------
+
+# After 47 Years, A Classic Marvel Hero Is Officially Joining The X-Men As A Mutant
+
+Comics, X-Men
+
+Mon, 07 Sep 2026 16:02:56 GMT
+
+https://screenrant.com/black-cat-join-x-men-mutant-marvel/
+
+After 47 years, a classic Marvel character is officially joining the X-Men as their newest recruit, but their arrival comes with a wild twist.
+---------
+
+# Legend Of Zelda: Ocarina Of Time Remake Gameplay Details Leak Ahead Of Nintendo Direct
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Mon, 07 Sep 2026 16:02:37 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-gameplay-leaks/
+
+Gameplay details for the upcoming remake of The Legend of Zelda: Ocarina of Time may have leaked online ahead of their official reveal.
+---------
+
+# CBS Issues Death Sentence To Network TV’s Undisputed Best Show
+
+Network TV, Matlock
+
+Mon, 07 Sep 2026 16:01:37 GMT
+
+https://screenrant.com/matlock-season-3-death-sentence-cbs/
+
+An unexpected move from CBS effectively awards network TV's undisputed best ongoing series a death sentence that it truly doesn't deserve.
+---------
+
+# New Dungeon Crawler Carl Game Officially Announced
+
+Gaming, Dungeon Crawler Carl, PC
+
+Mon, 07 Sep 2026 16:01:15 GMT
+
+https://screenrant.com/dungeon-crawler-carl-new-game-announced/
+
+Dungeon Crawler Carl has taken the world by storm, and the unique LitRPG is officially getting a brand-new game later this year.
+---------
+
+# Star Trek Finally Confirms The One Captain With More Willpower Than Kirk
+
+Comics, Star Trek
+
+Mon, 07 Sep 2026 16:01:15 GMT
+
+https://screenrant.com/star-trek-willpower-kirk-pike/
+
+Much stronger
+---------
+
+# Lanterns Producer Confirms Sinestro's Manipulation Over Hal Jordan In Search For The Manhunter
+
+TV, Lanterns, DC Universe
+
+Mon, 07 Sep 2026 15:57:05 GMT
+
+https://screenrant.com/lanterns-episode-4-sinestro-escape-plan-hal-jordan-manipulation-breannah-gibson/
+
+Following the latest revelation about Sinestro in Lanterns season 1, one of the producers of the HBO drama breaks down the comic book villain's plan.
+---------
+
+# Breaking Bad Creator Finally Ends Winless Emmy Curse With Apple TV’s Hit Sci-Fi Series
+
+TV, Pluribus
+
+Mon, 07 Sep 2026 15:45:16 GMT
+
+https://screenrant.com/pluribus-wins-creative-arts-emmy-win-better-call-saul-curse/
+
+Breaking Bad's creator has finally broken the Emmy curse, as the Creative Arts Emmys show gave Vince Gilligan a major boost after a winless streak.
+---------
+
+# Disney+’s $1.5 Billion Space Opera Soaring Past Marvel Classics As A Streaming Hit
+
+Movies, Masked Recs
+
+Mon, 07 Sep 2026 15:44:58 GMT
+
+https://screenrant.com/avatar-fire-ash-disney-plus-streaming-success-september-2026/
+
+Disney+'s $1.5 billion space opera leaves behind one of Marvel's biggest movies and targets more MCU films as it returns as a streaming hit.
+---------
+
+# Long-Dormant PlayStation Series Finally Making a Comeback, Says Report
+
+Games, Killzone, PlayStation 5
+
+Mon, 07 Sep 2026 16:17:19 GMT
+
+https://www.cbr.com/killzone-new-game-remake-playstation-exclusive/
+
+As PlayStation's stable of dormant exclusive series' only grows, and external studio has been enlisted to help one make a comeback in the near future.
+---------
+
+# The Paper Season 2: Why Ned’s “Boy Scout” Side Works
+
+TV, The Paper
+
+Mon, 07 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/video/the-paper-season-2-why-ned-s-boy-scout-side-works/
+
+Domhnall Gleeson breaks down Ned and Mare’s complicated relationship in The Paper Season 2, including the workplace power dynamic at the heart of their romance.
+---------
+
+# 5 Gundam Anime Series That Are 10/10 Masterpieces
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam 00, Mobile Suit Gundam: Iron-Blooded Orphans
+
+Mon, 07 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/masterpiece-gundam-anime-series-1010/
+
+Mobile Suit Gundam is a totemic franchise that's been around for over 45 years, yet there are specific titles that truly represent mecha excellence.
+---------
+
+# New Final Fantasy 10 25th Anniversary Release Confirmed for November 2026
+
+Games, Final Fantasy
+
+Mon, 07 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/final-fantasy-10-new-25th-anniversary-release-confirmed-november-2026/
+
+Final Fantasy 10 continues to celebrate the classic PS2 RPG adventure's 25th anniversary, with a new release confirmed for November 2026.
+---------
+
+# Chris Pratt's 7-Episode Prime Video Action Prequel Is Starting to Collapse on Streaming
+
+TV, The Terminal List: Dark Wolf, Prime Video
+
+Mon, 07 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/chris-pratt-the-terminal-list-dark-wolf-september-2026/
+
+Prime Video's action prequel is dropping down the U.S. charts a year after its premiere.
+---------
+
+# Disney+ Finally Has a New Cinematic Universe & It's a Game-Changer for Fantasy Fans
+
+TV, Percy Jackson & The Olympians, Fantasy, Disney+
+
+Mon, 07 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/percy-jackson-kane-chronicles-rick-riordan-fantasy-universe-disney-plus/
+
+A new series is coming to Disney+, and it fleshes out one of the platform's most exciting television universes (which returns later this year).
+---------
+
+# All 11 DC Villains In Batman: Knightfall Part 1, Ranked By Power Level
+
+Movies, Batman: Knightfall Part 1: Knightfall, DCU, Batman
+
+Mon, 07 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/dc-villains-batman-knightfall-ranked-by-power-list/
+
+DC's animated Batman: Knightfall debut features some of Gotham's worst villains, from petty crooks to unstoppable menaces.
+---------
+
+# Star Wars’ Dark Horse Comics Run Could Be Coming to an End
+
+Comics, Star Wars
+
+Mon, 07 Sep 2026 15:58:40 GMT
+
+https://www.cbr.com/dark-horse-star-wars-comics-mad-cave-report/
+
+Big changes could be happening in a galaxy that isn't so far, far away.
+---------
+
+# Netflix Abandoning Its 2-Season Crime Thriller With 97% RT Is TV's Most Legendary Fumble
+
+TV, Mindhunter, Netflix, Crime
+
+Mon, 07 Sep 2026 15:30:11 GMT
+
+https://www.cbr.com/mindhunter-canceled-netflix-tv-mistake/
+
+Fans are still hurting from the demise of one of the best television series to ever grace Netflix, as Mindhunter's loss still feels infamous.
+---------
+
+# Nicolas Cage Seals the Fate of His 5-Time Emmy-Winning Prime Video Show
+
+TV, Spider-Noir, Nicolas Cage, Innovation
+
+Mon, 07 Sep 2026 15:22:23 GMT
+
+https://www.cbr.com/nicolas-cage-reacts-spider-noir-cancellation/
+
+Nicolas Cage confirms the fate of his Prime Video series that recently took home five Emmy awards.
+---------
+
+# The Apple TV Masterpiece That Dolly Parton Loved Officially Smashes a Jaw-Dropping Milestone
+
+TV News, Apple TV, Ted Lasso, Dolly Parton, Streaming
+
+Mon, 07 Sep 2026 16:30:11 GMT
+
+https://collider.com/ted-lasso-950-day-streaming-hit-apple-tv-september-2026/
+
+Ted Lasso passes 950 days in Apple TV’s U.S. Top 10 as Jason Sudeikis’ hit comedy continues its record-breaking Season 4 run.
+---------
+
+# Ridley Scott’s Sci-Fi Epic Is Officially One of His Biggest Box Office Misses in 26 Years
+
+Movie News, Ridley Scott, The Dog Stars, Josh Brolin, Jacob Elordi
+
+Mon, 07 Sep 2026 16:15:11 GMT
+
+https://collider.com/the-dog-stars-ridley-scott-lowest-grossing-flop-box-office/
+
+Ridley Scott's first sci-fi movie in nearly a decade, The Dog Stars, is poised to become one of his biggest box-office flops. Find out more.
+---------
+
+# The 10 Most Overrated Movies of All Time, Ranked
+
+Movie, Shutter Island, The Sting, Paris, Texas, The Sound of Music
+
+Mon, 07 Sep 2026 16:11:11 GMT
+
+https://collider.com/most-overrated-movies-all-time-ranked/
+
+Movies like Jeanne Dielman, 23, quai du Commerce, 1080 Bruxelles, The Leopard, and The Sound of Music are among the most overrated of all time.
+---------
+
+# John Cena Officially Reveals His Secret WWE Heel Name That Vince McMahon Scrapped
+
+Wrestling News, WWE, John Cena, Dwayne Johnson, Fan Expo
+
+Mon, 07 Sep 2026 16:00:11 GMT
+
+https://collider.com/john-cena-wwe-heel-name-fear-my-name-vince-mcmahon/
+
+John Cena reveals WWE’s scrapped “Fear My Name” heel persona, including new music, 10 outfits, and plans that Vince McMahon scrapped.
+---------
+
+# HBO’s ‘IT: Welcome to Derry’ Is Making a Major Genre Shift in Season 2
+
+TV Features, It: Welcome to Derry, HBO Max, Andy Muschietti, Bill Skarsgård
+
+Mon, 07 Sep 2026 15:28:11 GMT
+
+https://collider.com/hbo-it-welcome-to-derry-season-2-genre-shift-time-jump/
+
+HBO's IT: Welcome to Derry Season 2 is set to shift to a 1930s gangster drama with the story of the Bradley Gang.
+---------
+
+# ‘Harry Potter’ Season 2 Could Be the Real Problem in HBO’s Entire Reboot
+
+TV Features, Harry Potter, HBO, Series, Harry Potter and the Sorcerer's Stone
+
+Mon, 07 Sep 2026 15:28:11 GMT
+
+https://collider.com/harry-potter-season-2-delays-hbo-reboot-problem/
+
+HBO’s Harry Potter reboot faces reported Season 2 delays, raising questions about whether its ambitious approach could become a burden.
+---------
+
+# ‘Lost’s Worst Episode of All Time Changed the Colossal Sci-Fi Hit Forever
+
+TV Features, Lost, ABC, Sci-Fi, Matthew Fox
+
+Mon, 07 Sep 2026 15:11:11 GMT
+
+https://collider.com/lost-worst-episode-season-3-stranger-in-a-strange-land/
+
+Lost’s “Stranger in a Strange Land” nearly derailed the ABC sci-fi hit and helped prove why the series desperately needed an end date.
+---------
+
+# Disturbing New Horror Movie Shot Entirely on VHS Reveals Official First Look [Exclusive]
+
+Exclusives, Fantastic Fest, Collider Exclusive Preview, Ford v Ferrari, Horror
+
+Mon, 07 Sep 2026 15:00:11 GMT
+
+https://collider.com/i-have-proof-image-larsen-deane-fantastic-fest/
+
+A new look at the horror movie I Have Proof finds Larsen Deane desperately seeking someone who will believe the terrors he's seen.
+---------
+
+# ‘Saturday Night Live UK’ Season 2 Just Added Its Most Unexpected Secret Weapon
+
+TV Features, Saturday Night Live UK, Saturday Night Live, Peacock, Sketch comedy
+
+Mon, 07 Sep 2026 14:40:14 GMT
+
+https://collider.com/snl-uk-saturday-night-live-season-2-freddie-meredith/
+
+Freddie Meredith brings an unusually broad comedy skill set to SNL UK Season 2, making him one of its most intriguing additions.
+---------
+
+# The 10 Best Epic TV Shows of All Time, Ranked
+
+TV, Game Of Thrones, The Wire, Lost, Andor
+
+Mon, 07 Sep 2026 12:29:11 GMT
+
+https://collider.com/best-epic-tv-shows-all-time-ranked/
+
+The best epic TV shows ever include classics like Lonesome Dove and I, Claudius, alongside newer ones like Andor and Fullmetal Alchemist: Brotherhood.
+---------
+
+# Brendan Fraser Confirms 'The Mummy 4' Status as Long-Awaited Sequel Crosses Major Milestone
+
+Movie News, The Mummy 4, Brendan Fraser
+
+Mon, 07 Sep 2026 16:15:58 GMT
+
+https://movieweb.com/the-mummy-4-brendan-fraser-starts-filming/
+
+Brendan Fraser has an exciting update on the long-anticipated 'The Mummy' sequel.
+---------
+
+# James Gunn's New 96% RT Movie Is a Stealth Sequel to a Groundbreaking 38-Year-Old Masterpiece
+
+Features, Coyote Vs. Acme, Who Framed Roger Rabbit, James Gunn, Comedy
+
+Mon, 07 Sep 2026 16:01:14 GMT
+
+https://movieweb.com/coyote-vs-acme-roger-rabbit-stealth-sequel/
+
+'Coyote vs. Acme' is a great spiritual successor to 'Who Framed Roger Rabbit,' but does the connection go deeper than that? Read on for more.
+---------
+
+# Gal Gadot's 84-Minute Action Thriller Fails To Topple Prime Video's Biggest Streaming Smash
+
+TV News, Reacher, The Runner, Streamer Comparisons, Alan Ritchson, Gal Gadot, Action, Prime Video
+
+Mon, 07 Sep 2026 16:01:14 GMT
+
+https://movieweb.com/reacher-beats-the-runner-streaming-action-september-2026/
+
+Not even the former Wonder Woman can take down one of Prime Video's biggest streaming hits ever.
+---------
+
+# The Best Years in Movie History, Ranked
+
+Movie Lists
+
+Mon, 07 Sep 2026 16:01:14 GMT
+
+https://movieweb.com/best-years-in-movie-history-ranked/
+
+There have been a lot of strong years for movie releases, but here are the best.
+---------
+
+# Veteran Sci-Fi Director Issues a Bizarre Warning as He Plots "Crazy" Return
+
+Movie News, Luc Besson, Sci-Fi
+
+Mon, 07 Sep 2026 16:00:22 GMT
+
+https://movieweb.com/luc-besson-sci-fi-return-crazy-new-film/
+
+Director Luc Besson is officially making his highly anticipated return to the sci-fi genre with a "crazy" new film that comes with a bizarre warning.
+---------
+
+# 'Lioness' Star Reveals Most Important Thing Taylor Sheridan Got Right About Her Story
+
+TV News, Lioness
+
+Mon, 07 Sep 2026 15:32:23 GMT
+
+https://movieweb.com/lioness-jill-wagner-bobby-taylor-sheridan/
+
+Jill Wagner said Season 3 revealed what 'Lioness' is all about in a short and meaningful line.
+---------
+
+# 'Lanterns' Writer Officially Explains Episode 4's Shocking Ending: "The Final Straw"
+
+TV News, Lanterns, DCU, Superhero
+
+Mon, 07 Sep 2026 15:18:46 GMT
+
+https://movieweb.com/lanterns-episode-4-shocking-ending-explained/
+
+Has Hal Jordan gone full villain?
+---------
+
+# Kiefer Sutherland Is "Catholic Batman" in Explosive First Reviews for New Action Thriller
+
+Movie Reviews, Action, Kiefer Sutherland, Al Pacino
+
+Mon, 07 Sep 2026 14:25:22 GMT
+
+https://movieweb.com/father-joe-kiefer-sutherland-al-pacino-reviews/
+
+Kiefer Sutherland and Al Pacino go to war in a new mob drama written by Luc Besson.
+---------
+
+# 'Alien: Earth' Finally Returns With Season 2 Teaser as Sci-Fi Series Reaches Major Milestone
+
+TV News, Alien: Earth, Alien
+
+Mon, 07 Sep 2026 14:12:56 GMT
+
+https://movieweb.com/alien-earth-season-2-filming-video/
+
+'Alien: Earth' Season 2 is now filming, and the series has unveiled a first look at the production.
+---------
+
+# Netflix's "Taken Meets Bourne" Action Thriller Is Officially One of the Biggest Streaming Hits Ever
+
+Movie News, Ad Vitam, Hot on Streaming, Action, Netflix
+
+Mon, 07 Sep 2026 14:00:14 GMT
+
+https://movieweb.com/ad-vitam-netflix-most-watched-ever-streaming-action/
+
+The 98-minute action thriller starring Guillaume Canet has defied the odds to become one of the biggest streaming hits in history.
+---------
+
 # Star Trek: The Next Generation Officially Returns October 2026 With The Ultimate Guard
 
 Gaming, Star Trek, Star Trek: The Next Generation, Magic: The Gathering
