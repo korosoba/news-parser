@@ -1,3 +1,366 @@
+# James Bond Meets Hot Fuzz In Prime Video's Spy Action Series With 8 High-Octane Episodes
+
+Streaming TV, Masked Recs
+
+Mon, 07 Sep 2026 22:45:14 GMT
+
+https://screenrant.com/ride-or-die-prime-video-spy-series-james-bond-meets-hot-fuzz/
+
+Ride or Die puts an international assassin like James Bond into the buddy cop world of Hot Fuzz, with hilarious results and surprisingly fun stunts.
+---------
+
+# Dick Wolf's Latest Procedural Defies His Tried & Tested Formula
+
+TV, Dick Wolf, CIA, Law & Order
+
+Mon, 07 Sep 2026 22:31:14 GMT
+
+https://screenrant.com/cia-defies-dick-wolf-formula-cbs/
+
+Two opposing agents carry the narrative with sharp banter, uneasy trust, and morally messy investigations in Dick Wolf's formula-breaking hit.
+---------
+
+# The Mandalorian & Grogu Confirms Star Wars' Timeline Is Broken (Again)
+
+Star Wars, The Mandalorian and Grogu
+
+Mon, 07 Sep 2026 22:30:30 GMT
+
+https://screenrant.com/star-wars-the-mandalorian-and-grogu-movie-timeline-broken/
+
+Following some new comments from The Mandalorian creator Jon Favreau, the overall Mandoverse timeline just got all kinds of confusing (again).
+---------
+
+# Cyclops Assembles X-Men Heroes & Villains for Historic Team, All Members and Powers
+
+Comics, X-Men
+
+Mon, 07 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/x-men-new-team-cyclops-heroes-villains-mystique/
+
+Cyclops is paying Mystique, Deadpool and more to join the X-Men.
+---------
+
+# Prime Video’s New 8-Episode Mystery Series Secures Vital Streaming Milestone Ahead Of Season 2 Return
+
+TV, Masked Recs
+
+Mon, 07 Sep 2026 22:27:01 GMT
+
+https://screenrant.com/sterling-point-prime-video-streaming-milestone-september-2026/
+
+Prime Video's new 8-episode mystery series is one of the streaming service's biggest global hits, passing a vital milestone ahead of season 2.
+---------
+
+# 5 Best HBO Max Series To Binge-Watch This Week (Sept 7–11, 2026)
+
+Streaming TV, What to Watch on Max, HBO Max
+
+Mon, 07 Sep 2026 22:24:14 GMT
+
+https://screenrant.com/best-hbo-max-shows-to-binge-week-september-7-2026/
+
+The 5 best new HBO Max shows to watch this week, Sept 7–11, 2026 are Conan O'Brien Must Go, Monsters of God, Hard Knocks, Lanterns & President Curtis.
+---------
+
+# The Future Of Dragon Ball Officially Unveiled As New Era Begins
+
+Gaming, Dragon Ball, Triple-A Games
+
+Mon, 07 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/dragon-ball-future-new-era-confirmed/
+
+Dragon Ball may never go away, partially because it manages to evolve constantly, including the new revelations that help usher in a new era.
+---------
+
+# 5 Disney Sidekicks Who Aged Well, And 5 Who Are Unbearable
+
+Movies, Disney
+
+Mon, 07 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/best-worst-disney-sidekicks/
+
+Some classic Disney sidekicks have aged well, while others are now hard to even watch. Here are 5 that are still favorites and 5 that are unbearable.
+---------
+
+# Alan Ritchson’s New Netflix Sci-Fi Thriller Is So Good He Is Never Leaving The Streamer
+
+Movies, Masked Recs
+
+Mon, 07 Sep 2026 21:50:14 GMT
+
+https://screenrant.com/alan-ritchson-war-machine-netflix-deal-future/
+
+Reacher's Alan Ritchson made history with Netflix's new sci-fi thriller, and the movie is so good that a major update teases how he is not leaving.
+---------
+
+# Coyote Vs. Acme’s Box Office Officially Puts Warner Bros. To Shame
+
+Movies, Coyote Vs. Acme, Box Office
+
+Mon, 07 Sep 2026 21:47:00 GMT
+
+https://screenrant.com/coyote-vs-acme-box-office-surpass-warner-bros-tax-write-off/
+
+Coyote vs. Acme's box office officially puts Warner Bros. to shame, which initially planned to shelve the film to obtain a tax write-off.
+---------
+
+# Gundam's New RX-78-2 Release Sells Out in 1 Hour, Restock Confirmed
+
+Anime, Mobile Suit Gundam, merchandise, bandai
+
+Mon, 07 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/gundam-exceed-model-trinity-rx-78-2-bandai-restock/
+
+A new line of Gundam collectibles instantly sold out when made available for pre-order, with a second wave of orders now hitting Bandai.
+---------
+
+# CBS' Franchise-Starting Crime Masterpiece Returns as the Most-Watched Show on Streaming
+
+TV, CSI, CSI: Crime Scene Investigation, Crime
+
+Mon, 07 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/csi-police-procedural-pvod-success-september-2026/
+
+CBS's hit procedural crime drama CSI: Crime Scene Investigation is the most-watched show in the United States.
+---------
+
+# Nicolas Cage's Spider-Noir Gets Some Good News After Surprising Cancellation
+
+TV, Spider-Noir
+
+Mon, 07 Sep 2026 22:15:40 GMT
+
+https://www.cbr.com/nicolas-cage-spider-noir-emmy-wins/
+
+Spider-Noir gets the last laugh after Amazon MGM Studios pulls the plug on its future.
+---------
+
+# 7 Anime Series Where the Main Character Turns Evil
+
+Anime
+
+Mon, 07 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/anime-where-main-character-turns-evil/
+
+It doesn't happen often, but occasionally anime main characters turn their backs on good and embraced evil like true villains.
+---------
+
+# ABC's Longest-Running Scripted Show Gets Fantastic Streaming News Ahead of New Episodes
+
+TV, Grey's Anatomy, ABC
+
+Mon, 07 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/abc-greys-anatomy-streaming-news-ahead-of-new-episodes/
+
+There is simply no stopping this legendary series as it refuses to lose the streaming wars.
+---------
+
+# Russell Crowe's Master and Commander Rivals The Odyssey
+
+Movies, Master and Commander: The Far Side of the World, Adventure, Russell Crowe
+
+Mon, 07 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/russell-crowe-master-and-commander-adventure-movie-rivals-the-odyssey/
+
+Russell Crowe headlined some of the greatest historical epics ever made, but his 2003 film stands out as an even better adventure than The Odyssey.
+---------
+
+# 10 Most Valuable Pokémon Cards From the 2000s, Ranked by Price
+
+Games, Pokemon, Pokemon TCG, TCG, Tabletop
+
+Mon, 07 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/most-valuable-2000s-pokedmon-cards-ranked-by-price/
+
+Since the turn of the millennium, these 10 cards from the Pokémon Trading Card Game have become the highest-prized units that collectors chase for.
+---------
+
+# NBC's New Blue Bloods Replacement Show Is Creating a New Procedural Formula
+
+TV, Blue Bloods, Line of Fire, NBC
+
+Mon, 07 Sep 2026 21:13:07 GMT
+
+https://www.cbr.com/line-of-fire-nbc-procedural-formula-change/
+
+NBC's Blue Bloods replacement, Line of Fire, won't just be focusing on the procedural element but on other aspects as well.
+---------
+
+# 6 Best Military Sci-Fi Movies To Watch If You Love Netflix's War Machine
+
+Movies, War Machine, Sci-Fi, War
+
+Mon, 07 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/best-military-sci-fi-for-war-machine-fans-list/
+
+Netflix's War Machine took action and sci-fi fans by storm, and there are some classic masterpieces every fan of the movie must watch.
+---------
+
+# Delicious in Dungeon Gets 6 New Designs for Laios, Marcille & More Ahead of Season 2 Release
+
+Anime, Delicious in Dungeon, merchandise
+
+Mon, 07 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/delicious-in-dungeon-kujico-new-chess-design-release/
+
+Delicious in Dungeon transforms Laios, Marcille, Falin and more into a royal chess court for a new limited-edition collection agead of Season 2.
+---------
+
+# Data's Best Star Trek Quote Is Still the Greatest in Sci-Fi History 36 Years Later
+
+TV Features, Star Trek: The Next Generation, Brent Spiner, Sci-Fi, Paramount Plus
+
+Mon, 07 Sep 2026 22:52:11 GMT
+
+https://collider.com/star-trek-the-next-generation-greatest-data-quote-sci-fi/
+
+Data's best quote from Star Trek: The Next Generation proves that the android is so much more than just a crew member — he's the heart of the show.
+---------
+
+# 'Slow Horses' Star Officially Claims the Next James Bond Has Already Been Chosen
+
+Movie News, Gary Oldman, James Bond, Slow Horses, Jack Lowden
+
+Mon, 07 Sep 2026 22:45:11 GMT
+
+https://collider.com/james-bond-already-chosen-jack-lowden-gary-oldman-comments/
+
+Gary Oldman says the next James Bond has already been chosen and backs Jack Lowden for 007 as the long-running casting search nears its end.
+---------
+
+# ‘Silo’ Season 3 Officially Rewrites Rebecca Ferguson’s Juliette Ahead of the Final Season
+
+TV Features, Silo, Rebecca Ferguson, Apple TV, Graham Yost
+
+Mon, 07 Sep 2026 22:41:11 GMT
+
+https://collider.com/silo-season-3-finale-juliette-rebecca-ferguson-rewrite/
+
+Silo Season 3 wraps up with a thrilling comeback for Rebecca Ferguson's Juliette, but what does it mean for the Apple TV sci-fi's final season?
+---------
+
+# Capcom's Samurai Fantasy Reboot Officially Nears Franchise Record After Just 1 Day
+
+Gaming News, Capcom, Onimusha, Fantasy, Action
+
+Mon, 07 Sep 2026 22:38:07 GMT
+
+https://collider.com/onimusha-way-of-the-sword-one-million-sales-launch-day/
+
+Capcom’s biggest fantasy reboot sold more than 1M copies in its first day, marking a huge comeback for the franchise after 20 years.
+---------
+
+# 3 Greatest Movies to Stream on Prime Video This Week (Sept 7-11)
+
+Movie, Prime Video, The Visit, Raging Bull, How to Lose A Guy In 10 Days
+
+Mon, 07 Sep 2026 22:34:11 GMT
+
+https://collider.com/best-movies-prime-video-september-7-2026/
+
+The Visit, Raging Bull, and How to Lose a Guy in 10 Days make up our list of the best movies to watch on Prime Video the week of September 7.
+---------
+
+# Apple TV Officially Crowns the Best Sherlock Holmes Movie
+
+Movie News, Guy Ritchie, Robert Downey Jr, Sherlock Holmes, Jude Law
+
+Mon, 07 Sep 2026 22:15:11 GMT
+
+https://collider.com/sherlock-holmes-robert-downey-jr-apple-tv-top-10/
+
+Robert Downey Jr.’s $524 million mystery thriller is back in the spotlight after climbing up Apple TV’s global Top 10 chart.
+---------
+
+# 10 Hard Sci-Fi Movies That Are Perfectly Written
+
+Movie, Science Fiction, Gravity, 2001: A Space Odyssey, Contact, Her
+
+Mon, 07 Sep 2026 22:15:11 GMT
+
+https://collider.com/hard-sci-fi-movies-perfectly-written/
+
+Hard sci-fi movies like The Martian and Gattaca do the most with their fascinating premises, thanks to a clever, well-written, and engaging script.
+---------
+
+# Near-Perfect Dark Fantasy That Rivals 'Game of Thrones' Is Officially a Streaming Hit
+
+Movie News, The Green Knight, David Lowery, Dev Patel, A24
+
+Mon, 07 Sep 2026 22:00:11 GMT
+
+https://collider.com/dev-patel-the-green-knight-streaming-september-2026/
+
+Dev Patel’s acclaimed Arthurian fantasy The Green Knight is now available to stream for free five years after its theatrical release.
+---------
+
+# The 6 Best Books Released Since 2010, Ranked
+
+Books and Comics, Books, Richard Powers, Station Eleven, The Goldfinch
+
+Mon, 07 Sep 2026 21:53:11 GMT
+
+https://collider.com/best-books-since-2010-ranked/
+
+From Station Eleven to Pachinko, these modern novels deliver unforgettable stories, bold ideas, and characters that linger.
+---------
+
+# The 10 Best Rock Music Videos of the '80s, Ranked
+
+Music Features, 80s, Music, Rock, Metallica
+
+Mon, 07 Sep 2026 21:46:11 GMT
+
+https://collider.com/best-rock-music-videos-80s-ranked/
+
+"Money for Nothing" by Dire Straits, "One" by Metallica, and "Here I Go Again" by Whitesnake are among the best rock music videos of the 1980s.
+---------
+
+# 7 Great War Miniseries With 5 Episodes or Less That Are a Perfect Weekend Binge
+
+TV Lists, War
+
+Mon, 07 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/war-miniseries-weekend-binge/
+
+While there are plenty of great war movies and longer-running TV shows, these miniseries are impressive.
+---------
+
+# 53 Years Later, One of the Best Detective Masterpieces of All Time Returns With New Release
+
+Movie News, The Long Goodbye, Blu-ray, Mystery, Thriller, Crime
+
+Mon, 07 Sep 2026 21:00:13 GMT
+
+https://movieweb.com/the-long-goodbye-4k-blu-ray-release/
+
+Kino Lorber is preparing a 4K Blu-ray release of Robert Altman's 1973 neo-noir detective masterpiece 'The Long Goodbye.'
+---------
+
+# Netflix's Deeply Controversial Psychological Thriller Series Officially Returns in 10 Days
+
+Features, Monster, Thriller, Ryan Murphy, Netflix
+
+Mon, 07 Sep 2026 21:00:13 GMT
+
+https://movieweb.com/monster-netflix-season-4-controversy/
+
+Netflix's controversial thriller series is coming back to the streaming service with a new season on September 17, 2026.
+---------
+
 # Tom Holland’s Potential DCU Debut Officially Addressed By James Gunn
 
 Movies, DC Universe, Tom Holland
