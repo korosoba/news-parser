@@ -1,3 +1,377 @@
+# After 65 Years, DC Finally Gives A Classic Hero Their Best Comic Cover Of All Time
+
+DC Comics, DC, Batgirl
+
+Mon, 07 Sep 2026 00:31:03 GMT
+
+https://screenrant.com/batgirl-best-comic-cover-all-time-dc/
+
+A DC Comics character is receiving what is undeniably one of their best covers ever for her debut as a brand-new iteration in a fresh universe.
+---------
+
+# Why The Sopranos Ended After Season 6
+
+Classic TV, The Sopranos
+
+Mon, 07 Sep 2026 00:30:15 GMT
+
+https://screenrant.com/sopranos-ended-season-6-cancelled-why/
+
+The Sopranos ended after an extended sixth season - at the height of its popularity - and here's why HBO and David Chase decided to wrap it up.
+---------
+
+# 7 Ways Gary Larson’s The Far Side Pushed Boundaries
+
+Comics
+
+Mon, 07 Sep 2026 00:30:14 GMT
+
+https://screenrant.com/far-side-gary-larson-pushed-boundaries/
+
+The comic strip had a rather strict traditional expectation before Gary Larson came along with The Far Side, and comics have never been the same since
+---------
+
+# 75 Years Ago Today, A 180-Episode Comedy Masterpiece Invented Modern Television
+
+Classic TV, Masked Recs
+
+Mon, 07 Sep 2026 00:15:15 GMT
+
+https://screenrant.com/i-love-lucy-changed-television-75-years-anniversary/
+
+Some may know that Lucille Ball's TV show I Love Lucy revolutionized the TV landscape, but the show is also responsible for influencing later series.
+---------
+
+# After Dungeon Crawler Carl, These 7 Royal Road Series Are Hollywood’s Next Targets
+
+Comics
+
+Mon, 07 Sep 2026 00:10:01 GMT
+
+https://screenrant.com/dungeon-crawler-carl-royal-7-hollywood/
+
+The success of Dungeon Crawler Carl came as a pleasant surprise to Hollywood. Now, the industry seems set to expect more Royal Road LitRPG surprises.
+---------
+
+# Beloved Star Wars Legend Makes Surprise Return One More Time
+
+Movies, Star Wars
+
+Mon, 07 Sep 2026 00:08:19 GMT
+
+https://screenrant.com/star-wars-john-williams-surprise-performance/
+
+A beloved Star Wars icon who has been with the franchise since the very beginning surprised fans with an unexpected return decades later.
+---------
+
+# Why Glenn Strange Left Gunsmoke Explained
+
+Classic TV, Gunsmoke
+
+Mon, 07 Sep 2026 00:00:15 GMT
+
+https://screenrant.com/why-glenn-strange-left-gunsmoke/
+
+Veteran character actor Glenn Strange left a mark on the wildly popular Western series Gunsmoke, and his absence left a hole that was never filled.
+---------
+
+# 10 Must-Watch Office Romance K-Dramas
+
+TV, K-Drama
+
+Mon, 07 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/best-office-workplace-romance-k-drama-ranked/
+
+From tailored suits and secret elevator trysts to office rivalries that evolve into something more, office romance K-dramas are simply unbeatable.
+---------
+
+# 8 Forgotten Horror Shows From The '90s That Deserved Better
+
+Classic TV, Horror
+
+Mon, 07 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/forgotten-90s-horror-shows-deserved-better/
+
+You might not remember these terrifying '90s horror shows, but they all had cool ideas and solid scares and deserved more time on the air.
+---------
+
+# 15 Dark SpongeBob SquarePants Fan Theories
+
+Classic TV, SpongeBob SquarePants
+
+Sun, 06 Sep 2026 23:45:15 GMT
+
+https://screenrant.com/spongebob-10-dark-fan-theories/
+
+Fans love to come up with outlandish, disturbing theories about the true nature of Spongebob Squarepants, but could any of them be true?
+---------
+
+# Paramount's Canceled D&D Sequel Is the Biggest Fumble In Fantasy History
+
+Movies, Dungeons & Dragons: Honor Among Thieves, The Lord of the Rings, Fantasy
+
+Mon, 07 Sep 2026 00:30:11 GMT
+
+https://www.cbr.com/paramount-reject-dungeons-and-dragons-sequel-mistake/
+
+Paramount Pictures has officially abandoned a beloved film franchise that could have become the next fantasy sensation.
+---------
+
+# 10 Classic PS2 Games That Hold Up As 10/10 Masterpieces
+
+Games, PlayStation 2
+
+Mon, 07 Sep 2026 00:30:11 GMT
+
+https://www.cbr.com/classic-masterpiece-ps2-games-that-hold-up/
+
+These PlayStation 2 games were classics at the time of their release and still hold up today.
+---------
+
+# 5 Shonen Anime Series With No Weak Arcs
+
+Anime, Jujutsu Kaisen, Hunter X Hunter, Attack on Titan
+
+Mon, 07 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/shonen-anime-series-with-no-weak-arcs/
+
+It's almost impossible for a shonen series to have strong arcs from beginning to end, but these series shine with nothing but stellar arcs.
+---------
+
+# HBO’s 4-Season Crime Masterpiece Is Suddenly Surging Again
+
+TV, HBO Max, True Detective
+
+Mon, 07 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/hbo-true-detective-crime-masterpiece-surging-on-streaming/
+
+Few crime shows will ever be able to touch this HBO Max masterpiece that is taking over streaming — again.
+---------
+
+# Square Enix Reveals First Look at 7 New Fullmetal Alchemist Designs Straight Out of Final Fantasy
+
+Anime, Fullmetal Alchemist, Fullmetal Alchemist Brotherhood, Final Fantasy
+
+Mon, 07 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/fullmetal-alchemist-final-fantasy-new-designs/
+
+Edward Elric, Roy Mustang and more enter the pixelated world of Final Fantasy in a new collection certain to delight anime fans and gamers alike.
+---------
+
+# The 2-Season Netflix Thriller Stephen King Called a 10/10 Masterpiece: ‘A Breath of Fresh Air’
+
+TV, Kleo, Netflix, Thriller
+
+Mon, 07 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/netflix-kleo-stephen-king-praise/
+
+Netflix’s German spy thriller, Kleo, earned high praise from Stephen King for its suspense, dark comedy, and retro style.
+---------
+
+# Dragon Ball Super Is Finally Fixing Goku's Personality After 11 Years
+
+Anime, Dragon Ball, Dragon Ball Super: Beerus, Dragon Ball Super, Dragon Ball Z
+
+Sun, 06 Sep 2026 23:45:11 GMT
+
+https://www.cbr.com/dragon-ball-super-goku-dbz-personality-changes/
+
+Dragon Ball Super: Beerus' new trailer shows some big changes that indicate a turnaround for Goku's character, finally restoring his DBZ-era attitude.
+---------
+
+# Theo James' New Non-Stop Action Thriller Instantly Gets Avenged on Streaming
+
+Movies, Fuze, Action, HBO Max
+
+Sun, 06 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/theo-james-fuze-action-hbo-max-success-september-2026/
+
+The British thriller is the perfect holiday weekend watch.
+---------
+
+# 10 Anime to Watch If You Miss Demon Slayer
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Dororo, Jujutsu Kaisen
+
+Sun, 06 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-miss-demon-slayer/
+
+Demon Slayer is one of the decade's biggest anime, but titles like Dororo and Claymore can leave fans satisfied until the next Infinity Castle entry.
+---------
+
+# Jason Statham's $529M Creature Feature Finds New Streaming Home Amid Uncertain Future
+
+Movies, The Meg
+
+Sun, 06 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/jason-statham-the-meg-creature-feature-hbo-max-september-2026/
+
+The creature feature was a resounding success and it sails to a new home.
+---------
+
+# 'The X-Files' Creator Officially Breaks His Silence on Mulder and Scully's Return
+
+TV News, The X-Files, Chris Carter, Gillian Anderson, David Duchovny
+
+Mon, 07 Sep 2026 00:30:11 GMT
+
+https://collider.com/the-x-files-season-12-mulder-scully-return/
+
+The X-Files creator Chris Carter reveals his plans to bring back David Duchovny and Gillian Anderson for a potential Season 12.
+---------
+
+# Robert De Niro's New Crime Thriller Officially Steals 'GTA 6's Netflix Crown
+
+Music News, The Whisper Man, Grand Theft Auto, Netflix, Robert De Niro
+
+Mon, 07 Sep 2026 00:15:11 GMT
+
+https://collider.com/robert-de-niro-the-whisper-man-overtakes-gta-6-netflix-streaming-success/
+
+Adam Scott and Robert De Niro's crime thriller, The Whisper Man, dominates Netflix charts, overtaking the special GTA 6 preview. Read on for more.
+---------
+
+# 5 HBO Crime Shows Where Every Episode Is a Masterpiece
+
+TV, HBO, Crime, The Sopranos, The Wire
+
+Mon, 07 Sep 2026 00:02:11 GMT
+
+https://collider.com/hbo-crime-shows-every-episode-masterpiece/
+
+Explore HBO's finest crime shows that deliver flawless storytelling across every episode, from The Sopranos to The Wire.
+---------
+
+# Alan Ritchson’s ‘Reacher’ Is Officially the #1 Action Series in the World
+
+TV News, Reacher, Prime Video, Alan Ritchson, Jack Reacher
+
+Mon, 07 Sep 2026 00:00:11 GMT
+
+https://collider.com/alan-ritchson-reacher-season-4-streaming-success-prime-video-september-2026/
+
+The thrilling fourth season of Alan Ritchson's iconic series is doing wonders on streaming. Read on for all the details.
+---------
+
+# Tim Burton's Horror Classic Is Officially Free to Stream Before Sydney Sweeney's Remake
+
+Movie News, Sleepy Hollow, Tim Burton, Johnny Depp, Tubi
+
+Sun, 06 Sep 2026 23:45:11 GMT
+
+https://collider.com/johnny-depp-tim-burton-sleepy-hollow-1999-streaming-tubi-september-2026/
+
+Sleepy Hollow has a new streaming home, and it won't cost you a thing to watch...not even your head. Read on for more.
+---------
+
+# ‘Band of Brothers’ New Release Shows What the HBO Classic Got Right 25 Years Ago
+
+TV Features, Band of Brothers, HBO, HBO Max, Steven Spielberg
+
+Sun, 06 Sep 2026 23:43:11 GMT
+
+https://collider.com/band-of-brothers-25th-anniversary-mental-health-meaning/
+
+As Band of Brothers turns 25, its depiction of soldiers’ mental health proves just how far ahead of its time the HBO series was.
+---------
+
+# 17 Years Later, Gerard Butler’s Twisted Sci-Fi Thriller Is Officially Free to Stream
+
+Movie News, Gamer, Gerard Butler, Logan Lerman, Michael C. Hall
+
+Sun, 06 Sep 2026 23:30:11 GMT
+
+https://collider.com/gerard-butler-gamer-streaming-free-tubi-september-2026/
+
+A Gerard Butler movie set in a dystopian future where humans physically compete in online games is streaming for free this month. Find out more.
+---------
+
+# Forget 'Band of Brothers,' This Explosive 12-Episode WWII Epic Is the Perfect Replacement
+
+TV Features, Steven Knight, SAS: Rogue Heroes, Jack O'Connell, MGM
+
+Sun, 06 Sep 2026 23:27:11 GMT
+
+https://collider.com/sas-rogue-heroes-war-drama-steven-knight-band-of-brothers-replacement/
+
+SAS: Rogue Heroes, from the creator of Peaky Blinders, is a thrilling WWII series that redefines war dramas with both style and grit.
+---------
+
+# 10 Essential Fantasy Books You Must Read at Least Once
+
+Books and Comics, Fantasy, One Hundred Years of Solitude, Fourth Wing, J.R.R. Tolkien
+
+Sun, 06 Sep 2026 23:21:11 GMT
+
+https://collider.com/essential-fantasy-books/
+
+From the classic One Hundred Years of Solitude to the modern hit Fourth Wing, these fantasy books are essential and are worth reading at least once.
+---------
+
+# George R. R. Martin Is Right About Daemon Targaryen
+
+TV Features, House of the Dragon, George R.R. Martin, A Song of Ice and Fire, Matt Smith
+
+Sun, 06 Sep 2026 23:20:11 GMT
+
+https://collider.com/george-r-r-martin-house-of-the-dragon-daemon-targaryen-best-character/
+
+George R.R. Martin and Game of Thrones fans can agree on one thing, and that's about Daemon Targaryen, the Rogue Prince.
+---------
+
+# 10 Modern Crime Thriller Series Better Than 'The Beast in Me'
+
+TV Lists, The Beast in Me, Crime, Thriller
+
+Mon, 07 Sep 2026 00:15:13 GMT
+
+https://movieweb.com/crime-thriller-series-better-than-the-beast-in-me/
+
+If you're finished with 'The Beast in Me' and still itching for another crime thriller like it, these modern TV series are the perfect next binge.
+---------
+
+# The 12-Part Hard R-Rated Thriller That's Officially One of the Biggest Shows on Streaming
+
+TV News, The Couple Next Door, STARZ, Hot on Streaming
+
+Mon, 07 Sep 2026 00:00:13 GMT
+
+https://movieweb.com/the-couple-next-door-rrated-stream-starz-sept-2026/
+
+One of the most tense and steamiest erotic thrillers in years is your next binge-watch on streaming.
+---------
+
+# 8 Great Sci-Fi Miniseries With 3 Episodes or Less
+
+TV Lists, Sci-Fi, Battlestar Galactica, The Triangle
+
+Sun, 06 Sep 2026 23:00:13 GMT
+
+https://movieweb.com/sci-fi-miniseries-3-episodes-or-less/
+
+These brief but outstanding science fiction miniseries explore alien invasions, intergalactic wars, and everything in between in under three episodes.
+---------
+
+# Scarlett Johansson's (Very) R-Rated 108-Minute Sci-Fi Thriller Arrives on Free Streaming
+
+Movie News, Scarlett Johansson, Under the Skin, Coming/Leaving Streaming
+
+Sun, 06 Sep 2026 23:00:13 GMT
+
+https://movieweb.com/under-the-skin-streaming-free-tubi-september-2026/
+
+Trust us when we say you have never seen an alien movie like this one.
+---------
+
 # NBC Is Lying About Chicago Fire Season 15’s Official New Release
 
 Network TV, Chicago Fire
