@@ -1,3 +1,421 @@
+# Tom Holland’s Potential DCU Debut Officially Addressed By James Gunn
+
+Movies, DC Universe, Tom Holland
+
+Mon, 07 Sep 2026 20:17:39 GMT
+
+https://screenrant.com/tom-holland-dcu-debut-aqualad-james-gunn-response/
+
+While Tom Holland has returned as Spider-Man, DC Studios co-CEO James Gunn addresses whether or not the Marvel star may one day appear in the DCU.
+---------
+
+# Prime Video Spider-Noir’s Fate Announcement Is Officially The Start Of An Era For Spider-Man
+
+Streaming TV, Spider-Noir, Marvel Cinematic Universe
+
+Mon, 07 Sep 2026 20:16:06 GMT
+
+https://screenrant.com/spider-noir-season-2-cancelled-prime-video-new-spiderman-series/
+
+Prime Video has officially decided the fate of Nicolas Cage's Spider-Noir, and the reveal came with an exciting tease for Spider-Man's TV future.
+---------
+
+# 5 Best Netflix Series To Binge-Watch This Week (Sept 7–11, 2026)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 07 Sep 2026 20:04:14 GMT
+
+https://screenrant.com/best-netflix-shows-to-binge-week-september-7-2026/
+
+Best new Netflix shows to watch this week, Sept 7–11, 2026: The Early Spring, Call the Midwife, Four Hands, Two Sonatas, The Perfect Lie & Crew Girl.
+---------
+
+# Review: NBA 2K27 - A Fine Time To Return To The Court
+
+Gaming, NBA 2K27, Triple-A Games
+
+Mon, 07 Sep 2026 20:00:14 GMT
+
+https://screenrant.com/nba-2k27-review/
+
+The NBA 2K series has been putting out games since the Dreamcast era, and although there are starts and stops, this time it's a win.
+---------
+
+# 17 Years Later, The Greatest Final Line In Sci-Fi TV Still Hasn't Been Decoded
+
+Classic TV, Masked Recs
+
+Mon, 07 Sep 2026 20:00:14 GMT
+
+https://screenrant.com/battlestar-galactica-final-line-not-solved/
+
+A cryptic, laughter-tinged final line between two angelic figures leaves viewers unsettled by its deliberate ambiguity in this iconic sci-fi epic.
+---------
+
+# 10 Movies To Watch If You Love Pirates Of The Caribbean
+
+Movies, Pirates of the Caribbean, Pirates of the Caribbean: The Curse of the Black Pearl, Cutthroat Island, The Princess Bride, The Mask of Zorro, Puss in Boots: The Last Wish, Dungeons & Dragons: Honor Among Thieves, Big Trouble in Little China, Jungle Cruise, Indiana Jones and the Temple of Doom, Robin Hood: Prince of Thieves, The Mummy
+
+Mon, 07 Sep 2026 20:00:14 GMT
+
+https://screenrant.com/movies-like-pirates-of-the-caribbean/
+
+It's tough to find similar movies to the Pirates of the Caribbean franchise, but some titles do offer elements that make the series so beloved.
+---------
+
+# After 28 Years, A Sci-Fi Masterpiece Proves Jim Carrey Was Way Ahead Of His Time
+
+Movies, Masked Recs
+
+Mon, 07 Sep 2026 19:55:14 GMT
+
+https://screenrant.com/jim-carrey-the-truman-show-predicted-future-reality-tv/
+
+Jim Carrey has an incredible filmography, and one of his 90s classics remains a masterpiece that's arguably more relevant today than ever.
+---------
+
+# The Harry Potter Franchise Isn't Spitting On Our Hopes After All
+
+Streaming TV, Harry Potter
+
+Mon, 07 Sep 2026 19:45:14 GMT
+
+https://screenrant.com/harry-potter-tv-show-hbo-flashbacks-prequel-hopes/
+
+It really looked as if the Harry Potter franchise was intent on ignoring our requests for the rest of time. Thankfully, we've been heard after all.
+---------
+
+# Andrew Garfield's New Movie Is Officially One Of His Longest Movies In The 21st Century
+
+Movies, Artificial, Andrew Garfield
+
+Mon, 07 Sep 2026 19:41:21 GMT
+
+https://screenrant.com/andrew-garfield-artificial-movie-runtime-record/
+
+Andrew Garfield's new biographical movie is officially one of the longest movies in his career, as it is set for the world premiere next month.
+---------
+
+# Supergirl Gets Surprisingly Candid Review From DCU Star Ahead Of Superman Sequel Return
+
+Movies, Supergirl, Man of Tomorrow, DC Universe, Superman
+
+Mon, 07 Sep 2026 19:32:56 GMT
+
+https://screenrant.com/supergirl-2026-review-candid-neva-howell-superman-return/
+
+While Milly Alcock's Kara Zor-El will be back in James Gunn's Man of Tomorrow, the Supergirl movie gets an honest review from a DC Universe star.
+---------
+
+# Greatest Sword-and-Sorcery Anime of All Time, Ranked
+
+Anime, Frieren: Beyond Journey's End, Berserk, Fantasy
+
+Mon, 07 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/best-sword-sorcery-anime-all-time-ranked-list/
+
+From legendary swordsmen to powerful magic users, these anime showcase the best of sword-and-sorcery fantasy.
+---------
+
+# Ahead of Harry Potter Return, Kit Harington's New 4-Part Classic Adaptation Is Climbing the Charts
+
+TV, A Tale Of Two Cities, Harry Potter
+
+Mon, 07 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/kit-harington-a-tale-of-two-cities-mgm-plus-debut-september-2026/
+
+The actor will return to the Harry Potter universe, but before that, he worked on a different adaptation.
+---------
+
+# Dirty Harry Gave Clint Eastwood His Greatest Movie Quote
+
+Movies, Clint Eastwood, Dirty Harry, Thriller
+
+Mon, 07 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/dirty-harry-clint-eastwood-best-movie-quote/
+
+Clint Eastwood has given cinema some of the greatest quotes ever spoken, but one stands out as the defining moment of his action career.
+---------
+
+# 10 Years Ago, Marvel Fumbled Mahershala Ali Even Worse Than Blade
+
+Movies, Luke Cage, Blade, Marvel Cinematic Universe
+
+Mon, 07 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/marvel-mahershala-ali-luke-cage-failure/
+
+Marvel's Blade reboot starring Mahershala Ali is officially dead, marking the second time the MCU has wasted him following Luke Cage.
+---------
+
+# 10 Batman Villains Who Could Transform the DCU, Ranked
+
+Comics, Batman, DCU, Joker
+
+Mon, 07 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/batman-villains-who-could-shake-up-the-dcu-ranked/
+
+With Andy Muschietti's Batman: The Brave and the Bold on the horizon, James Gunn's DCU is spoiled for choice with great villains.
+---------
+
+# Greatest Sci-Fi Sequel of the 21st Century Officially HBO Max’s Most-Watched Movie in the World
+
+Movies, Blade Runner 2049, Sci-Fi, HBO Max
+
+Mon, 07 Sep 2026 19:58:39 GMT
+
+https://www.cbr.com/blade-runner-2049-sci-fi-success-hbo-max-september-2026/
+
+The modern cyberpunk classic is dominating HBO Max ahead of its sequel.
+---------
+
+# Fallout Officially Drops New $13,999 Release Available Now
+
+Games, Fallout
+
+Mon, 07 Sep 2026 19:50:52 GMT
+
+https://www.cbr.com/fallout-stern-pinball-game/
+
+Fallout fans with $14K to spare will want to pick this up.
+---------
+
+# Kaiju No. 8 Creator Recommends the Next Hit Superpower Action Series
+
+Anime, Shinobi Undercover
+
+Mon, 07 Sep 2026 19:20:11 GMT
+
+https://www.cbr.com/kaiju-no-8-creator-naoya-matsumoto-shinobi-undercover-recommend/
+
+Kaiju No. 8 creator Naoya Matsumoto spotlights a next-gen Shonen Jump action manga about an anxiety-ridden ninja taking on the world of high school.
+---------
+
+# 10 Best Nathan Fillion TV Shows, Ranked
+
+TV, Nathan Fillion, Firefly, Castle
+
+Mon, 07 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/best-nathan-fillion-tv-shows-ranked-list/
+
+Nathan Fillion is an actor of many talents who has developed a cult fanbase with memorable TV appearances in beloved shows like Firefly and Castle.
+---------
+
+# 10 Most Universally Beloved Fantasy Books Of All Time, Ranked
+
+Movies, Fantasy
+
+Mon, 07 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/most-beloved-fantasy-books-list/
+
+Fantasy readers don't always agree on the genre's best books, but some titles have become favorites for almost everyone who reads them.
+---------
+
+# 10 Brilliant Anime With No Weak Characters
+
+TV, Anime, Neon Genesis Evangelion, Kizumonogatari -Koyomi Vamp-, Fullmetal Alchemist
+
+Mon, 07 Sep 2026 20:05:11 GMT
+
+https://collider.com/brilliant-anime-no-weak-characters/
+
+A few precious anime series, like Fullmetal Alchemist: Brotherhood, can take pride in knowing they have no weak links in their ensemble of characters.
+---------
+
+# George Lucas Has Officially Moved On From Disney’s Star Wars Era
+
+Movie News, George Lucas, Star Wars, Lucasfilm
+
+Mon, 07 Sep 2026 20:00:11 GMT
+
+https://collider.com/george-lucas-star-wars-museum-disney-era-grogu/
+
+George Lucas’ new Star Wars museum largely focuses on the pre-Disney era, with only one major character from Disney’s Star Wars generation.
+---------
+
+# The 10 Best Books About Revenge, Ranked
+
+Books and Comics, The Count of Monte Cristo, Carrie, Frankenstein, The Princess Bride
+
+Mon, 07 Sep 2026 19:42:11 GMT
+
+https://collider.com/best-books-about-revenge-ranked/
+
+The best books about revenge ever published include classics like The Count of Monte Cristo, True Grit, and Murder on the Orient Express.
+---------
+
+# 5 Years Later, Guy Ritchie’s 118-Minute Jason Statham Revenge Thriller Is Officially a Smash Hit
+
+Movie News, Wrath of Man, Action, Jason Statham, Guy Ritchie
+
+Mon, 07 Sep 2026 19:30:11 GMT
+
+https://collider.com/wrath-of-man-jason-statham-streaming-hit-september-2026/
+
+Jason Statham’s Guy Ritchie revenge thriller Wrath of Man is finding renewed streaming success five years after its original release.
+---------
+
+# ‘Spider-Noir’ Officially Gives Prime Video 5 Reasons To Regret Its Cancellation
+
+TV News, Spider-Noir, Prime Video, Nicolas Cage, Emmy Awards
+
+Mon, 07 Sep 2026 19:21:47 GMT
+
+https://collider.com/spider-noir-emmy-wins-prime-video-cancellation-nicolas-cage-marvel-series/
+
+Nicolas Cage’s Spider-Noir officially wins 5 Emmys just 2 days after Prime Video canceled the Marvel superhero series after 1 season.
+---------
+
+# Apple TV Officially Scores 2 Chart-Topping George R.R. Martin Series
+
+TV News, George R.R. Martin, Game Of Thrones, House of the Dragon, Apple TV
+
+Mon, 07 Sep 2026 19:20:11 GMT
+
+https://collider.com/house-of-the-dragon-game-of-thrones-apple-tv-store-top-10-september-2026/
+
+Discover how Game of Thrones and House of the Dragon top streaming charts and continue to captivate viewers worldwide.
+---------
+
+# 3 Perfect Movies to Watch on Netflix This Week (Sep 7-11)
+
+Movie, The Sixth Sense, Straight Outta Compton, Phantom Thread, Netflix
+
+Mon, 07 Sep 2026 19:19:11 GMT
+
+https://collider.com/best-netflix-movies-watch-september-7-2026/
+
+The Sixth Sense, Straight Outta Compton, and Phantom Thread make up our list of the best movies to stream on Netflix the week of September 7.
+---------
+
+# Keanu Reeves’ John Wick Franchise Is Officially Taking Over Free Streaming
+
+Movie News, Keanu Reeves, John Wick, John Wick 5, Chad Stahelski
+
+Mon, 07 Sep 2026 19:00:11 GMT
+
+https://collider.com/john-wick-movies-pluto-tv-top-4-streaming-success-september-2026/
+
+The John Wick franchise is topping Pluto TV's charts as fans return to check out the iconic action films.
+---------
+
+# HBO Max's Biggest Sci-Fi Spin-Off Approaches Massive Streaming Milestone
+
+TV News, Stuart Fails to Save the Universe, HBO Max, The Big Bang Theory, Kevin Sussman
+
+Mon, 07 Sep 2026 18:40:11 GMT
+
+https://collider.com/stuart-fails-to-save-the-universe-hbo-max-streaming-success-50-days/
+
+The Big Bang Theory's sci-fi spin-off, Stuart Fails to Save the Universe, is approaching 50 days at the top of HBO Max streaming charts.
+---------
+
+# ‘Doctor Who’ Could Officially Fix Its Latest Cliffhanger With This Classic TV Trick
+
+TV Features, Doctor Who, BBC, Dallas
+
+Mon, 07 Sep 2026 18:38:11 GMT
+
+https://collider.com/doctor-who-mark-gatiss-regeneration-mystery-solution/
+
+Former Doctor Who writer Mark Gatiss offered his thoughts on how to solve the sci-fi series' latest cliffhanger.
+---------
+
+# 'Lanterns' Latest Major DC Villain Introduction Repeats a Ryan Reynolds Green Lantern Problem
+
+Features, Lanterns, Green Lantern, DCU, Superhero
+
+Mon, 07 Sep 2026 20:00:13 GMT
+
+https://movieweb.com/lanterns-dcu-hector-hammond-explained/
+
+'Lanterns' Season 1 is currently airing on HBO and stars Aaron Pierre, Kyle Chandler, and Kelly Macdonald.
+---------
+
+# Hulu's New 4-Part Real-Life Crime Miniseries Officially Scores Big on Streaming
+
+TV News, Hot on Streaming, Hulu
+
+Mon, 07 Sep 2026 20:00:13 GMT
+
+https://movieweb.com/welcome-family-dan-markel-true-crime-streaming-hit-hulu-september-2026/
+
+Even the most chilling horror stories can become reality, and this is proof.
+---------
+
+# A24's Top-Secret 2026 Movie Officially Revealed as "One of the Most Jaw-Dropping Documentaries Ever"
+
+Movie News, You Can See Everything, Nathan Fielder, Documentary
+
+Mon, 07 Sep 2026 19:30:39 GMT
+
+https://movieweb.com/you-can-see-everything-nathan-fielder-reviews/
+
+Two titans of the documentary genre combine for a spellbinding new movie about Elizabeth Holmes.
+---------
+
+# 25 Years Later, Russell Crowe's 10/10 Psychological Hit Set to Be Toppled by Disney's Major Box Office Contender
+
+Movie News, A Beautiful Mind, Moana, Box Office Milestones
+
+Mon, 07 Sep 2026 18:15:35 GMT
+
+https://movieweb.com/moana-outgrosses-russell-crowe-beautiful-mind-box-office/
+
+Russell Crowe’s Oscar-nominated turn in 'A Beautiful Mind' is about to lose a box office spot to Disney’s live-action 'Moana.'
+---------
+
+# 12 Years Later, 'True Detective' Season 1 Finally Gets the Perfect Follow-up This Month
+
+Features, True Detective, Brothers, Comedy, Apple TV
+
+Mon, 07 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/brothers-comedy-apple-tv-true-detective-reunion/
+
+'True Detective' Season 1 stars Matthew McConaughey and Woody Harrelson, and a new release is perfect for fans of the HBO series.
+---------
+
+# Taylor Sheridan's 3-Part Action Thriller Masterpiece Officially Loses Streaming Crown Ahead of Finale
+
+TV News, Lioness, Prime Video, Streamer Comparisons, Taylor Sheridan, Action
+
+Mon, 07 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/lioness-taylor-sheridan-action-digital-streaming-revealed-secrets/
+
+Taylor Sheridan's hit action thriller was just killed on the streaming charts by an unlikely competitor.
+---------
+
+# Forget Taylor Sheridan: Paramount's Crime Thriller Series Everyone's Been Waiting for Returns This Month
+
+Features, Taylor Sheridan, MobLand, Crime, Thriller
+
+Mon, 07 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/mobland-season-3-returns-september-2026/
+
+Paramount's crime thriller series that everyone's been waiting for returns this September, and its cast alone should have made it a bigger deal.
+---------
+
+# 'Inside' (2023) Ending, Explained
+
+Features, Inside, Thriller
+
+Mon, 07 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/inside-2023-ending/
+
+'Inside' boasts heavy themes and unique storytelling, and forces viewers to think. That also means it's a movie with an ending open to interpretation.
+---------
+
 # The Perfect Actor To Play Kirk’s First Star Trek Enemy Is Paul Wesley’s TVD Brother
 
 TV, Op-Ed, Star Trek, Star Trek: Strange New Worlds
