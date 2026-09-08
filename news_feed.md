@@ -1,3 +1,355 @@
+# HBO's Masterpiece 8-Part Psychological Thriller Series Twist Is Repeated By New Global Hit Detective Show
+
+Streaming TV, Masked Recs
+
+Tue, 08 Sep 2026 00:48:21 GMT
+
+https://screenrant.com/lanterns-hbo-sharp-objects-thriller-series-twist-repeat/
+
+HBO's new 8-episode detective series has become a global streaming hit, and the dark show just repeated the perfect twist off another HBO masterpiece.
+---------
+
+# Lost Meets Six Feet Under In HBO's 3-Part Sci-Fi Masterpiece
+
+Classic TV, Masked Recs
+
+Tue, 08 Sep 2026 00:30:15 GMT
+
+https://screenrant.com/the-leftovers-hbo-lost-meets-six-feet-under-sci-fi-masterpiece/
+
+Arguably HBO's best TV series, The Leftovers is a perfect blend of Lost's strange surrealism and Six Feet Under's hard-hitting emotion.
+---------
+
+# 24 One Chicago Actor & Characters Coming Back To Fire, PD, & Med In 2026
+
+Network TV, One Chicago, Chicago Med, Chicago P.D., Chicago Fire
+
+Tue, 08 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/chicago-fire-pd-med-actors-characters-returning-2026/
+
+The major cast updates and character changes in the One Chicago franchise, including Fire, PD, and Med for their fall 2026 seasons.
+---------
+
+# Heat Ending Explained: Why De Niro's Neil Goes Back & Breaks His Own Rule
+
+Movies, Al Pacino, Val Kilmer, Robert De Niro, Heat
+
+Tue, 08 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/heat-movie-ending-explained-neil-mccauley-waingro/
+
+Heat is an exceptional 90s crime movie with an incredible cast. It also has an intense ending that audiences are still discussing today.
+---------
+
+# Assassin's Creed 2 Next Gen "Remaster" Is Pure Nightmare Fuel
+
+Gaming, Assassin's Creed 2, Assassin's Creed, PC
+
+Tue, 08 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/assassins-creed-2-dlss5-remaster-nightmare/
+
+Assassin's Creed 2 has been given the DLSS 5 treatment, and it looks about as nightmarish as one would expect.
+---------
+
+# Kit Harington’s New Adaptation Of 167-Year-Old Classic Is An Instant Streaming Sensation
+
+TV, Masked Recs
+
+Mon, 07 Sep 2026 23:45:52 GMT
+
+https://screenrant.com/kit-harington-a-tale-of-two-cities-mgm-plus-streaming-success-september-2026/
+
+Kit Harington breathes new life into a 167-year-old classic, leading a new global streaming sensation years after Game of Thrones ended.
+---------
+
+# If You Love These 10 Stephen King Books, Here Are The Next Books You Should Read
+
+Books, Stephen King
+
+Mon, 07 Sep 2026 23:43:12 GMT
+
+https://screenrant.com/stephen-king-books-new-horror-similar/
+
+Many of the best Stephen King books have spiritual successors that capture the spirit of the original while offering creative new ideas.
+---------
+
+# 3 Years After HBO Max Series Cancellation, DC Is Resurrecting Their Most Underrated Superhero Team
+
+Comics, Doom Patrol
+
+Mon, 07 Sep 2026 23:30:14 GMT
+
+https://screenrant.com/doom-patrol-new-series-2026/
+
+DC's strangest heroes are back for another outing as the world throws deadly premonitions, alien abductions, and the strange woman linked to it all.
+---------
+
+# Forgotten 25-Episode Horror Anthology Deserves To Be As Big As American Horror Story
+
+TV Guide, Masked Recs
+
+Mon, 07 Sep 2026 23:30:14 GMT
+
+https://screenrant.com/creepshow-deserves-american-horror-story-success/
+
+Shudder's must-see Stephen King anthology horror show blends campy gore and sharp twists with starry guest turns and unpredictable scares.
+---------
+
+# Apple TV's Most Ambitious Sci-Fi Series Debuts To Record-Breaking Rotten Tomatoes Audience Score
+
+TV, Masked Recs
+
+Mon, 07 Sep 2026 23:01:30 GMT
+
+https://screenrant.com/dark-matter-season-2-apple-tv-rotten-tomatoes-audience-score/
+
+In an even more ambitious second season, this Apple TV science-fiction series has debuted to a record-breaking Rotten Tomatoes audience score.
+---------
+
+# 5 Greatest NES RPGs of All Time, Ranked
+
+Games, Nintendo, Role Playing Game, Video Games
+
+Tue, 08 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/best-nes-rpgs-all-time/
+
+From Castlevania II to Zelda II, the best RPGs on NES blend the best elements of other popular game genres on the platform.
+---------
+
+# Forget Yellowstone, Timothy Olyphant's 6-Season Western Masterpiece Returns as a Streaming Hit
+
+TV, Justified, Yellowstone, Dutton Ranch
+
+Tue, 08 Sep 2026 00:30:11 GMT
+
+https://www.cbr.com/justified-timothy-olyphant-western-pvod-success-september-2026/
+
+Fans are returning to this neo-Western series.
+---------
+
+# The 5 Most Powerful Archers in The Lord of the Rings, Ranked
+
+Movies, The Lord of the Rings
+
+Tue, 08 Sep 2026 00:30:11 GMT
+
+https://www.cbr.com/lord-of-the-rings-most-powerful-archers-list/
+
+Many of Middle-earth's most famous warriors favored the bow and arrow, but which of these long-ranged combatants was the strongest in Tolkien's lore?
+---------
+
+# It’s Officially the End of Hololive EN as Major Restructuring Begins
+
+Anime, YouTube
+
+Tue, 08 Sep 2026 00:20:11 GMT
+
+https://www.cbr.com/hololive-en-english-branch-restructuring/
+
+As it nears its sixth anniversary, Hololive English is officially ending as part of a major global restructuring.
+---------
+
+# NBC's 236-Episode Sitcom Masterpiece Is 1 of the Most Popular Shows With 480M Minutes Viewed
+
+TV, Friends
+
+Tue, 08 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/nbc-friends-sitcom-nielsen-success-august-2026/
+
+The show was a smash hit, and it just resurfaced on streaming.
+---------
+
+# 10 Weirdest Marvel Hero Costumes That Somehow Actually Work
+
+Comics, Marvel
+
+Tue, 08 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/weirdest-marvel-hero-costumes-that-somehow-work/
+
+These costumes might seem iconic now but for a time they were just a strange choice all round.
+---------
+
+# Tom Cruise Failed To Reboot a 125-Minute Adventure Movie Masterpiece
+
+Movies, The Mummy, Adventure, tom cruise
+
+Tue, 08 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/tom-cruise-the-mummy-reboot-biggest-adventure-movie-failure/
+
+Tom Cruise might have headlined some of the best action movies of the 2010s, but his reboot of a Universal classic went down among his worst flops.
+---------
+
+# Hello Kitty’s Cinnamoroll Enters a Sweet New Era Fans Will Love
+
+Comics, Hello Kitty
+
+Tue, 08 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/hello-kitty-and-friends-cinnamoroll-1-release-date-confirmed/
+
+One of the most beloved Sanrio characters of all time is about to take center stage in his very first comic book anthology, and it is utterly adorable
+---------
+
+# Tom Cruise's 'Gripping' 113-Minute Sci-Fi Returns as a Streaming Hit
+
+Movies, Edge of Tomorrow, Sci-Fi, Paramount Plus
+
+Mon, 07 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/edge-of-tomorrow-sci-fi-success-paramount-plus-september-2026/
+
+Tom Cruise's sci-fi thriller is a streaming hit after a weak box-office run.
+---------
+
+# Netflix's 2-Season Cyberpunk Murder Mystery Based on a Bestselling Sci-Fi Novel
+
+TV, Altered Carbon, Netflix, Sci-Fi
+
+Mon, 07 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/netflix-altered-carbon-must-watch-cyberpunk-murder-mystery/
+
+Few live-action cyberpunk series have captured the essence of the sci-fi sub-genre as well as this two-season murder mystery show on Netflix.
+---------
+
+# ABC’s New 'The Rookie' Spin-Off Star Officially Eyes Tom Cruise Casting
+
+TV News, The Rookie, ABC, Tom Cruise, Jay Ellis
+
+Tue, 08 Sep 2026 00:45:11 GMT
+
+https://collider.com/jay-ellis-tom-cruise-the-rookie-north-guest-star/
+
+Jay Ellis wants Tom Cruise to guest-star on The Rookie: North and says he plans to recruit more of his famous former co-stars for the ABC spin-off.
+---------
+
+# Star Trek's Spock Actor Officially Confirms Dark Scrapped Episode [Exclusive]
+
+TV News, Ethan Peck, Star Trek: Strange New Worlds, Star Trek, Science Fiction
+
+Tue, 08 Sep 2026 00:30:11 GMT
+
+https://collider.com/star-trek-strange-new-worlds-scrapped-episode-ethan-peck-spock-blood-debt/
+
+Ethan Peck reveals his scrapped Star Trek: Strange New Worlds idea involving Spock’s past, a dangerous blood debt, and an ethically complicated favor.
+---------
+
+# Daniel Radcliffe’s Wild Post-Harry Potter Horror Movie Is Officially Streaming for Free
+
+Movie News, Harry Potter, Daniel Radcliffe, Horns, Tubi
+
+Tue, 08 Sep 2026 00:15:11 GMT
+
+https://collider.com/horns-streaming-on-tubi-september-2026/
+
+Daniel Radcliffe’s twisted post-Harry Potter horror movie Horns, with Juno Temple and Sabrina Carpenter, is now streaming for free.
+---------
+
+# The 10 Most Perfect Movie Endings of the 2020s, Ranked
+
+Movie, Anora, Perfect Days, Oppenheimer, Ending
+
+Tue, 08 Sep 2026 00:09:11 GMT
+
+https://collider.com/most-perfect-movie-endings-2020s-ranked/
+
+Modern movie classics like Anora, Oppenheimer, and Project Hail Mary have some of the best, near-perfect endings of the 2020s.
+---------
+
+# Ethan Peck Officially Crowns a New "Mayor of Star Trek" [Exclusive]
+
+TV News, Ethan Peck, Jonathan Frakes, Star Trek, Fan Expo
+
+Tue, 08 Sep 2026 00:00:11 GMT
+
+https://collider.com/ethan-peck-jonathan-frakes-star-trek-spock-strange-new-worlds/
+
+Ethan Peck reveals how Star Trek legend Jonathan Frakes helped guide him into playing Spock and navigating the franchise’s massive fandom.
+---------
+
+# Failed ‘Dracula’ Replacement Officially Gets a Second Chance on Streaming
+
+Movie News, The Last Voyage of The Demeter, Peacock, Corey Hawkins, Horror
+
+Mon, 07 Sep 2026 23:45:11 GMT
+
+https://collider.com/last-voyage-of-demeter-streaming-peacock-september-2026/
+
+An inventive horror spin on the Dracula mythos underperformed at the box office, but it's now seeking redemption at a new streamer. Find out more.
+---------
+
+# ‘X-Men ’97’ Star Officially Reveals Live-Action ‘X-Men’ Audition [Exclusive]
+
+Exclusives, X-Men, X-Men: The Animated Series, Gambit, Fan Expo
+
+Mon, 07 Sep 2026 23:30:11 GMT
+
+https://collider.com/x-men-chris-potter-cyclops-audition-gambit/
+
+X-Men: The Animated Series star Chris Potter recalled his audition to play Cyclops in live-action despite being so tied to Gambit.
+---------
+
+# Taylor Sheridan Alum’s 95-Minute Hitchcockian Thriller Officially Gets New Streaming Home
+
+Movie News, Brandon Sklenar, Drop, Thriller, Peacock
+
+Mon, 07 Sep 2026 23:15:11 GMT
+
+https://collider.com/yellowstone-star-brandon-sklenar-drop-streaming-peacock-september-2026/
+
+A Hitchcockian thriller featuring stars from The White Lotus and 1923 is now streaming on Peacock. Find out more.
+---------
+
+# 5 HBO Shows That Everyone Forgot About
+
+TV, HBO, Vice Principals, Rome, Mr. Show with Bob and David
+
+Mon, 07 Sep 2026 23:14:11 GMT
+
+https://collider.com/hbo-shows-everyone-forgot/
+
+From comedies like Vice Principals to historical miniseries like The Sympathizer, these great HBO series have been completely forgotten by audiences.
+---------
+
+# Marvel’s New Gambit Replacement Officially Gets a Major Endorsement From an ‘X-Men’ Veteran [Exclusive]
+
+TV News, X-Men '97, X-Men, Austin Butler, Fan Expo
+
+Mon, 07 Sep 2026 23:00:11 GMT
+
+https://collider.com/x-men-voice-actor-chris-potter-wants-austin-butler-gambit-marvel-x-men-movie/
+
+Legendary X-Men voice actor Chris Potter has the perfect pick of who should play Gambit in live-action, and it isn't Channing Tatum.
+---------
+
+# 'Lanterns' Theory Suggests the Manhunter Isn't the Most Dangerous Villain We've Met So Far
+
+Features, Lanterns, Superhero, Action, DCU
+
+Tue, 08 Sep 2026 00:00:13 GMT
+
+https://movieweb.com/lanterns-theory-black-hand-dangerous-villain/
+
+'Lanterns' might have laid the groundwork for the villain Black Hand to join the DC Universe, leading to an adaptation of 'Blackest Night.'
+---------
+
+# CBS's Canceled 8-Season Action Thriller Remake Gets Official Return This Month
+
+Features, S.W.A.T. Exiles, S.W.A.T., Thriller, Crime
+
+Mon, 07 Sep 2026 23:00:13 GMT
+
+https://movieweb.com/cbs-swat-exiles-action-thriller-returns-september-2026/
+
+Although S.W.A.T. was canceled in 2025, Hondo (Shemar Moore) is returning in the high-profile spin-off series, S.W.A.T. Exiles, this September.
+---------
+
 # James Bond Meets Hot Fuzz In Prime Video's Spy Action Series With 8 High-Octane Episodes
 
 Streaming TV, Masked Recs
