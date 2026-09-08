@@ -1,3 +1,443 @@
+# HBO's Euphoria Sets New Release This December With 3 Special Episodes
+
+TV, Euphoria
+
+Tue, 08 Sep 2026 21:15:40 GMT
+
+https://screenrant.com/hbo-euphoria-the-complete-series-dvd-bluray-release-date/
+
+Euphoria may have ended back in May after three seasons, but fans will soon be able to experience the hit HBO drama in a brand-new way.
+---------
+
+# Spider-Man: Brand New Day's Box Office Success Breaks All The Rules After Hitting The Rarest Milestone
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Tue, 08 Sep 2026 21:04:41 GMT
+
+https://screenrant.com/spider-man-brand-new-day-movie-box-office-900m-milestone-rules-break/
+
+Spider-Man: Brand New Day just hit the rarest box office milestone it could, and the Marvel Cinematic Universe movie is breaking all the rules.
+---------
+
+# After Mortal Kombat & Street Fighter, It's Time For Another 1990s Franchise To Get A Movie Reboot
+
+Movies, Tekken, Street Fighter, Mortal Kombat
+
+Tue, 08 Sep 2026 21:00:15 GMT
+
+https://screenrant.com/mortal-kombat-street-fighter-tekken-movie-reboot/
+
+After Mortal Kombat and Street Fighter's big-screen returns, it's time for another 1990s action franchise to get a movie reboot.
+---------
+
+# 60 Years Later, Star Trek Legend Leonard Nimoy Is Posthumously Returning As Spock
+
+Gaming, Star Trek, Star Trek - Season 1, Star Trek Online, Star Trek - Season 2, Star Trek - Season 3, PC
+
+Tue, 08 Sep 2026 21:00:15 GMT
+
+https://screenrant.com/star-trek-online-leonard-nimoy-return/
+
+Star Trek icon Leonard Nimoy is making a posthumous return in a massive new Star Trek release slated for September 22, 2026.
+---------
+
+# Alien: Earth Has Officially Set A Fandom-Splitting Franchise Record
+
+Streaming TV, Alien
+
+Tue, 08 Sep 2026 21:00:15 GMT
+
+https://screenrant.com/alien-earth-rotten-tomatoes-franchise-record/
+
+The first two movies in the Alien franchise stand the test of time even decades later, but Alien: Earth has surpassed them on Rotten Tomatoes.
+---------
+
+# Eleven’s Netflix Stranger Things Return This Fall Teases New Monster & Vecna Connection
+
+TV, Stranger Things: Tales from '85, Stranger Things
+
+Tue, 08 Sep 2026 20:59:27 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-episodes-6-7-titles/
+
+Netflix has revealed new episode titles for Stranger Things: Tales from '85 season 2 this fall, leading to speculation about Vecna's involvement.
+---------
+
+# It's Officially The End Of An Era For Star Wars: The Clone Wars
+
+Streaming TV, Star Wars: The Clone Wars, Star Wars, Ahsoka
+
+Tue, 08 Sep 2026 20:45:15 GMT
+
+https://screenrant.com/ahsoka-season-2-clone-wars-rebels-culmination-filoni-arc/
+
+The Clone Wars has defined Star Wars for over a decade now, but its era of dominating the franchise may be coming to an end in Ahsoka season 2.
+---------
+
+# Netflix's Biggest Movie Of All Time Reaches The End Of An Era
+
+Movies, Masked Recs, Netflix
+
+Tue, 08 Sep 2026 20:40:36 GMT
+
+https://screenrant.com/kpop-demon-hunters-end-of-an-era-netflix-streaming-charts-drop/
+
+After over a year straight as being Netflix's biggest movie of all time, a genre-bending hit is officially reaching the end of an era on streaming.
+---------
+
+# New 3 Body Problem Release Arrives Today As Season 2 Awaits Netflix Release
+
+Books, 3 Body Problem
+
+Tue, 08 Sep 2026 20:37:16 GMT
+
+https://screenrant.com/3-body-problem-book-trilogy-special-edition-release/
+
+As the wait continues for season 2's episodes to arrive on Netflix, a new 3 Body Problem has been revealed and has become available today.
+---------
+
+# Lanterns: HBO's New DC Thriller With 20M Viewers Is Officially Worth A Binge
+
+Streaming TV, Masked Recs
+
+Tue, 08 Sep 2026 20:35:15 GMT
+
+https://screenrant.com/lanterns-hbo-max-dc-thriller-viewership-watch/
+
+Now halfway through its first season, HBO's DC thriller Lanterns is officially a must-binge after its premiere accumulated more than 20 million views.
+---------
+
+# Digimon Officially Challenges Pokémon Winds & Waves In 2027
+
+Games, Digimon, Pokemon, Video Games
+
+Tue, 08 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/digimon-officially-challenges-pokemon-winds-waves-2027/
+
+Pokemon Winds & Waves are launching in 2027, but the Digimon franchise will be challenging it with a brand new release that could upstage Pikachu.
+---------
+
+# Disney's 60-Episode Sequel Series Rises on Streaming Ahead of Live-Action Remake
+
+TV, Rapunzel's Tangled Adventure, Tangled: Before Ever After, Tangled
+
+Tue, 08 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/rapunzels-tangled-adventure-disney-plus-success-september-2026/
+
+A wildly underrated animated sequel series is moving on up the streaming charts as fans await further updates on the live-action remake.
+---------
+
+# 5 Classic Disney Movies That Have Aged Like Milk
+
+Movies, Disney
+
+Tue, 08 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/disney-movies-aged-like-milk-list/
+
+Not every single classic Disney movie has stood the test of time, with some animated favorites showing their age more than others decades later.
+---------
+
+# Final Fantasy 7's Zack Fair Officially Returns With New Release Coming October 2026
+
+Games, Final Fantasy
+
+Tue, 08 Sep 2026 20:55:11 GMT
+
+https://www.cbr.com/final-fantasy-7-zack-fair-officially-returns-new-release-october-2026/
+
+Zack Fair is one of the most beloved characters in Final Fantasy 7, and the tragic hero is finally returning this October with a new release.
+---------
+
+# Iconic Comedy Central Series Returns With New Episodes After 7 Years, but There's a Catch
+
+TV, Drunk History, Comedy Central, Comedy
+
+Tue, 08 Sep 2026 20:38:40 GMT
+
+https://www.cbr.com/drunk-history-new-episodes-2026-youtube/
+
+A Comedy Central classic is back in a new form.
+---------
+
+# Transformers Turns Optimus Prime Into a Massive Light-Up 40th Anniversary Popcorn Bucket
+
+Anime, Transformers, The Transformers: The Movie, merchandise, optimus prime
+
+Tue, 08 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/transformers-the-movie-optimus-prime-popcorn-bucket-target-release/
+
+A new Optimus Prime popcorn bucket highlights the Autobots' passing in the animated movie that's now celebrating its 40th anniversary release.
+---------
+
+# Saruman's 5 Strongest Spells in The Lord of the Rings, Ranked
+
+Movies, The Lord of the Rings, Fantasy
+
+Tue, 08 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/lord-of-the-rings-strongest-saruman-spells-list/
+
+From elemental attacks to mental manipulation, these are the most powerful instances of Saruman the White's magic in The Lord of the Rings.
+---------
+
+# The Walking Dead Recruits Another Major Sons of Anarchy Star in First Look at Daryl Dixon's Final Season
+
+TV, The Walking Dead: Daryl Dixon, The Walking Dead
+
+Tue, 08 Sep 2026 20:20:11 GMT
+
+https://www.cbr.com/the-walking-dead-daryl-dixon-season-4-first-look-jimmy-smits/
+
+The next major player from Sons of Anarchy has officially joined the Walking Dead universe for what could be the end of the franchise.
+---------
+
+# 10 Anime With the Greatest Magic Systems, Ranked
+
+Anime, Frieren: Beyond Journey's End, Hunter X Hunter, Mushoku Tensei: Jobless Reincarnation
+
+Tue, 08 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/anime-with-greatest-magic-systems-ranked/
+
+Magic systems can bring the best out of an anime, highlighting who its characters are, and showcasing how the series itself works on a large scale.
+---------
+
+# Leonardo DiCaprio's Long-Awaited Crime Sequel Recasts Robert De Niro
+
+Movies, Heat, Heat 2
+
+Tue, 08 Sep 2026 20:05:45 GMT
+
+https://www.cbr.com/heat-2-stephen-graham-robert-de-niro-recast/
+
+Leonardo DiCaprio is going back to the crime genre in one of the most anticipated sequels.
+---------
+
+# Bruce Campbell Officially Seals Ash's Evil Dead Return Fate [Exclusive]
+
+Movie News, Bruce Campbell, The Evil Dead, Evil Dead Burn
+
+Tue, 08 Sep 2026 21:00:11 GMT
+
+https://collider.com/bruce-campbell-evil-dead-producing-step-back-evil-dead-burn/
+
+Bruce Campbell reveals he's stepping back from producing the Evil Dead franchise, though he isn't leaving the horror series completely behind.
+---------
+
+# ‘Harry Potter’ Season 2 Officially Hits Another Major Roadblock at HBO
+
+TV News, Harry Potter, HBO, HBO Max
+
+Tue, 08 Sep 2026 21:00:11 GMT
+
+https://collider.com/hbo-harry-potter-season-2-filming-delay/
+
+Ahead of the HBO adaptation's big premiere, Season 2 of HBO's Harry Potter reboot has reportedly been hit with a major filming delay.
+---------
+
+# Apple TV's New 10/10 British Fantasy Series Officially Scores Early Season 2 Renewal
+
+TV News, Apple TV, BBC, Small Prophets, Fantasy
+
+Tue, 08 Sep 2026 20:30:11 GMT
+
+https://collider.com/apple-tv-fantasy-series-small-prophets-season-2-renewed/
+
+Apple TV's new series premieres in a month, but it has already been renewed for Season 2. Get all the details here.
+---------
+
+# 'Will Trent' Is Officially Replacing Amanda Wagner
+
+TV News, Will Trent, ABC, The Pitt, Sonja Sohn
+
+Tue, 08 Sep 2026 20:19:45 GMT
+
+https://collider.com/will-trent-season-5-cast-amanda-wagner-replacement-alexandra-metz/
+
+ABC's Will Trent Season 5 has officially added a fan-favorite star from The Pitt to replace Amanda Wagner.
+---------
+
+# New Star Trek Series Officially Drops 5 Episodes With 'Next Gen' Legend Gates McFadden [Exclusive]
+
+Exclusives, Gates McFadden, Star Trek, Star Trek: The Next Generation, The Center Seat: 55 Years of Star Trek
+
+Tue, 08 Sep 2026 20:15:11 GMT
+
+https://collider.com/star-trek-center-seat-season-2-gates-mcfadden-first-contact-galaxy-quest/
+
+Star Trek legend Gates McFadden discusses First Contact, Galaxy Quest, and the BTS history she discovered while narrating The Center Seat Season 2.
+---------
+
+# Guy Ritchie's 9/10 Crime Thriller Is Officially Netflix's Biggest Hit Despite 45% Audience Drop Off
+
+TV News, The Gentlemen, Netflix, Guy Ritchie, Theo James
+
+Tue, 08 Sep 2026 20:00:36 GMT
+
+https://collider.com/netflix-guy-ritchie-the-gentlemen-season-2-streaming-drop-september-2026/
+
+Despite critical acclaim, Guy Ritchie's The Gentlemen Season 2 is struggling to keep viewers hooked. Read on for all the details.
+---------
+
+# 'Coyote vs. Acme' Officially Proves Warner Bros. Wrong at the Box Office
+
+Movie News, Coyote Vs. Acme, Looney Tunes, Animation, John Cena
+
+Tue, 08 Sep 2026 20:00:11 GMT
+
+https://collider.com/the-shelved-looney-tunes-movie-has-now-outgrossed-its-30-million-tax-write-off/
+
+John Cena's Coyote vs. Acme has officially proven Warner Bros. wrong, now out-grossing the once-shelved film's $30 million write-off.
+---------
+
+# 6 Thriller Books That Are Perfect From Start to Finish
+
+Books and Comics, Thriller, Stieg Larsson, Daphne du Maurier, Stephen King
+
+Tue, 08 Sep 2026 19:35:11 GMT
+
+https://collider.com/thriller-books-perfect-start-to-finish/
+
+From Before I Go to Sleep to Misery, these gripping thriller novels deliver suspense, mystery, and unforgettable twists from beginning to end.
+---------
+
+# 10 American Movies That Everyone Must Watch at Least Once
+
+Movie, The Godfather, The Wizard of Oz, Psycho, Do the Right Thing
+
+Tue, 08 Sep 2026 19:23:11 GMT
+
+https://collider.com/american-movies-everyone-must-watch-once/
+
+From silent classics like The General to proper masterpieces like The Godfather, these great American movies are required viewing for all cinema fans.
+---------
+
+# Agatha Christie Meets 'Knives Out' in Hulu’s 5-Part 95% on RT Murder Mystery
+
+TV Features, Only Murders in the Building, Steve Martin, Martin Short, Selena Gomez
+
+Tue, 08 Sep 2026 19:21:11 GMT
+
+https://collider.com/only-murders-in-the-building-hulu-agatha-christie-meets-knives-out/
+
+Hulu's Only Murders in the Building is perfect at blending humor and intrigue, delivering a fantastic murder mystery series worth the binge.
+---------
+
+# 'Mindhunter' Season 3: Everything We Know About Netflix's Psychological Thriller
+
+Features, Mindhunter, Netflix, Thriller, Everything We Know
+
+Tue, 08 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/mindhunter-season-3-everything-we-know/
+
+'Mindhunter,' the popular Netflix psychological thriller, stars Jonathan Groff, Anna Torv, and Holt McCallany.
+---------
+
+# New 'Lord of the Rings' Release Officially Set Ahead of 'Rings of Power' Season 3 Debut
+
+TV News, The Lord of the Rings: The Rings of Power, Blu-ray, Fantasy
+
+Tue, 08 Sep 2026 20:22:31 GMT
+
+https://movieweb.com/lord-of-the-rings-the-rings-of-power-blu-ray-release-date/
+
+One recent 'Lord of the Rings' story will get a new release before 'The Rings of Power' moves into its third season later this year.
+---------
+
+# Guy Ritchie's Hit Netflix Action Series Suffers Streaming Setback Despite Rave Reviews
+
+TV News, The Gentlemen, Netflix, Guy Ritchie, Crime, Thriller
+
+Tue, 08 Sep 2026 20:21:19 GMT
+
+https://movieweb.com/guy-ritchie-the-gentlemen-season-two-ratings-drop/
+
+'The Gentlemen' saw a 45% drop in viewers between Season 1 and 2, continuing a worrying trend among Netflix series.
+---------
+
+# Netflix's New "Lord of the Rings Meets Tim Burton" Series Is What Fantasy Fans Have Been Waiting For
+
+Features, Dungeons and Dragons, Tim Burton, The Lord of the Rings, Fantasy
+
+Tue, 08 Sep 2026 20:00:13 GMT
+
+https://movieweb.com/ravenloft-fantasy-netflix-dungeons-dragons/
+
+Anyone who enjoys 'Lord of the Rings' and Tim Burton's celebrated Gothic movies will want to watch this upcoming Netflix fantasy series.
+---------
+
+# Jon Bernthal's 10-Part World War II Action Masterpiece Remains Essential Viewing on Streaming
+
+TV News, Jon Bernthal, The Pacific, Hot on Streaming, War, Action
+
+Tue, 08 Sep 2026 20:00:13 GMT
+
+https://movieweb.com/the-pacific-jon-bernthal-war-action-streaming-apple-tv-september-2026/
+
+Jon Bernthal had a starring role in Steven Spielberg and Tom Hanks' epic follow-up to their HBO smash, 'Band of Brothers.'
+---------
+
+# 35 Years Later, James Cameron's $500M Sci-Fi Blockbuster Loses Its Crown to New Box Office Rival
+
+Movie News, Box Office Milestones, Terminator 2
+
+Tue, 08 Sep 2026 19:48:40 GMT
+
+https://movieweb.com/terminator-2-box-office-record-minions-monsters/
+
+James Cameron’s 'Terminator 2: Judgment Day' has been passed on the worldwide box office chart by 'Minions & Monsters.'
+---------
+
+# 27 Years Later, Mark Wahlberg's 110-Minute Action Thriller Scores New Release
+
+Movie News, The Corruptor, Blu-ray, Thriller
+
+Tue, 08 Sep 2026 19:10:27 GMT
+
+https://movieweb.com/mark-wahlberg-the-corruptor-4k-blu-ray-release/
+
+Mark Wahlberg's first buddy cop movie is getting an exciting new release.
+---------
+
+# 19 Years Ago, Walton Goggins Starred in a Forgotten Spin-Off of His All-Time Great Cop Thriller Series
+
+Features, The Shield, Walton Goggins, Thriller
+
+Tue, 08 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/walton-goggins-the-shield-thriller-video-game/
+
+Walton Goggins starred in a spin-off of his acclaimed cop thriller series that has fallen into obscurity since its release.
+---------
+
+# 'Dexter: Resurrection' Season 2 Trailer Officially Confirms Streaming Return Date
+
+TV News, Dexter: Resurrection, Horror
+
+Tue, 08 Sep 2026 18:34:56 GMT
+
+https://movieweb.com/dexter-resurrection-season-2-trailer/
+
+Dexter is back and sharper than ever in the new Season 2 teaser released by Paramount+, with Season 2 premiering next month.
+---------
+
+# Netflix Revives Fan-Favorite 105-Episode Crime Thriller to Find New Success on Streaming
+
+TV News, Major Crimes, Netflix, Hot on Streaming
+
+Tue, 08 Sep 2026 18:30:13 GMT
+
+https://movieweb.com/major-crimes-stream-netflix-september-2026/
+
+Netflix just brought back one of the best crime thrillers of the 2010s.
+---------
+
 # Will Ferrell’s Star-Studded Series Officially Returning With New Episodes 6 Years After Abrupt Cancellation
 
 TV, Drunk History
