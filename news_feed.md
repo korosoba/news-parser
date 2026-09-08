@@ -1,3 +1,366 @@
+# Godzilla Minus Zero Officially Confirms The Biggest Kaiju Theory & Explains The Movie's Title
+
+Movies, Godzilla Minus Zero
+
+Tue, 08 Sep 2026 23:15:14 GMT
+
+https://screenrant.com/godzilla-minus-zero-movie-king-ghidorah-confirmed-title-meaning/
+
+The new trailer for Godzilla Minus Zero confirms what many have long suspected, both about the story and the true meaning behind the title.
+---------
+
+# Firefly Meets Terry Pratchett In The BBC’s 74-Episode Sci-Fi Series Spanning 32 Years
+
+Classic TV, Masked Recs
+
+Tue, 08 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/red-dwarf-bbc-like-firefly-terry-pratchett/
+
+British absurdist humor and character-driven storytelling meet in the sci-fi comedy Red Dwarf, which resembles Firefly if written by Terry Pratchett.
+---------
+
+# Game Of Thrones: Ascendant Dragonrider Officially Announced
+
+Gaming, Game of Thrones: Conquest, Game Of Thrones, Game of Thrones, PC, House of the Dragon
+
+Tue, 08 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/game-of-thrones-legends-ascendant-dragonrider-champion/
+
+House of the Dragon's legendary Hugh Hammer makes an official return in Game of Thrones: Ascendant Dragonrider, available as part of Dragonseeds.
+---------
+
+# Netflix Officially Sets A Box Office First After 11 Years
+
+Movies, Netflix
+
+Tue, 08 Sep 2026 22:47:04 GMT
+
+https://screenrant.com/netflix-report-movies-box-office-first-time/
+
+Netflix is making a major box office change for the first time in 11 years ahead of Narnia: The Magician's Nephew and other theatrical releases.
+---------
+
+# Tracker’s Historic Win For CBS Already Makes Season 4 Better
+
+Network TV, Tracker, Tracker - Season 4
+
+Tue, 08 Sep 2026 22:45:14 GMT
+
+https://screenrant.com/tracker-season-4-location-change-better-cbs/
+
+Tracker season 4 will see a massive shift from previous seasons, which can be incredibly good for the show in addition to being historic for CBS.
+---------
+
+# Harlan Coben Meets Stephen King In Bruce Greenwood’s 25-Episode Cult-Classic Mystery Thriller
+
+TV, Masked Recs
+
+Tue, 08 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/nowhere-man-1995-classic-like-harlan-coben-stephen-king/
+
+Long before these two literary legends became streaming sensations, this thriller series synthesized so much of what's great about their writing.
+---------
+
+# Star-Lord's New Team Announced by Marvel Comics, All Members and Powers
+
+Comics, Star-Lord
+
+Tue, 08 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/star-lord-return-peter-quill-new-team/
+
+Star-Lord is back with some god-tier teammates.
+---------
+
+# The Wait Is Over, Miles Morales' New Era Is Finally Here
+
+Comics, Miles Morales, Marvel
+
+Tue, 08 Sep 2026 22:13:28 GMT
+
+https://screenrant.com/miles-morales-new-era-spiderman-marvel/
+
+Miles Morales: Spider-Man brilliantly begins with new dangers, while helping Miles become a more rounded superhero and character.
+---------
+
+# Netflix’s Dark New Crime Drama With Rare RT Score Is Finally Dethroned From #1
+
+TV, Masked Recs, Netflix
+
+Tue, 08 Sep 2026 22:08:44 GMT
+
+https://screenrant.com/death-of-the-pastors-wife-netflix-dethroned-streaming-charts-september-2026/
+
+Netflix's dark new crime drama that could be streamed in one swift sitting has found itself dethroned from its #1 spot on the global Top 10.
+---------
+
+# 43 Years Later, The Greatest Closing Line In Horror History Remains Undefeated
+
+Books, Horror
+
+Tue, 08 Sep 2026 22:06:26 GMT
+
+https://screenrant.com/pet-sematary-best-horror-closing-line-history/
+
+43 years later, horror fans still haven’t found a closing line capable of dethroning this chilling final sentence, which remains as haunting as ever.
+---------
+
+# Dexter: Resurrection Season 2 Is Reversing a 20-Year-Old Dexter Rule
+
+TV, Dexter: Resurrection, Dexter
+
+Tue, 08 Sep 2026 23:22:26 GMT
+
+https://www.cbr.com/dexter-resurrection-changes-franchise-rule/
+
+It's a big change for Dexter Morgan in the next season of the hit spinoff.
+---------
+
+# Apple's 97% RT Thriller That Returns Next Month Breaks the 1 Spy Rule Nobody Was Supposed to Touch
+
+TV, Slow Horses, Apple TV
+
+Tue, 08 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/apple-tv-slow-horses-underrated-spy-series/
+
+Gary Oldman leads a team of misfit spies in Apple TV's genre-defying series, but their flaws are their greatest strength.
+---------
+
+# Netflix's New Miniseries Based on a John Steinbeck Classic Is Already 1 of the World's Biggest Shows
+
+TV, East of Eden, Netflix, Drama
+
+Tue, 08 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/netflix-east-of-eden-john-steinbeck-miniseries-popularity-september-2026/
+
+Netflix's East of Eden is rising in popularity ahead of its release.
+---------
+
+# 10 Best Fantasy Books for People Who Don't Read Fantasy
+
+Movies, Fantasy
+
+Tue, 08 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/best-fantasy-books-people-who-dont-read-fantasy-list/
+
+Fantasy can be intimidating for newcomers, but the right books can make stepping into the genre much easier than it might initially seem.
+---------
+
+# KFC Makes Hello Kitty the Secret Design in New Official Sanrio Collection
+
+Anime, Hello Kitty, kfc, merchandise, collectibles
+
+Tue, 08 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/hello-kitty-secret-design-kfc-collection/
+
+Sanrio's latest fast food collaboration combines Hello Kitty and friends with the iconic red and white buckets of KFC for mystery box keychains.
+---------
+
+# 5 Anime Arcs Where the Main Character Loses Everything
+
+Anime, Puella Magi Madoka Magica
+
+Tue, 08 Sep 2026 22:15:25 GMT
+
+https://www.cbr.com/anime-arcs-main-character-loses-everything/
+
+These are the most heart-wrenching anime arcs that see the protagonist losing everything they valued and more.
+---------
+
+# Nova is the Perfect MCU Star-Lord Replacement
+
+Movies, Nova
+
+Tue, 08 Sep 2026 22:00:19 GMT
+
+https://www.cbr.com/mcu-nova-perfect-star-lord-replacement/
+
+Marvel is taking a major risk with this character introduction and yet it could help to usher in a new era for the MCU.
+---------
+
+# Batman’s Most Controversial Story Returns in a Brand-New Collectible Form
+
+Comics, Batman, collectibles, A Death in the Family
+
+Tue, 08 Sep 2026 22:00:19 GMT
+
+https://www.cbr.com/batman-a-death-in-the-family-silver-collectible-info/
+
+Commemorating one of the most shocking Batman stories ever, this unique collectible item arrives just in time to mark Batman Day 2026.
+---------
+
+# Nicole Kidman & Sandra Bullock's New 130-Minute Fantasy Sequel Doesn't Put a Spell on Critics
+
+Movies, Rotten Tomatoes, Practical Magic 2, Practical Magic
+
+Tue, 08 Sep 2026 21:40:54 GMT
+
+https://www.cbr.com/nicole-kidman-sandra-bullock-practical-magic-2-rotten-tomatoes-score/
+
+The Owens sisters are back, and so is the franchise curse.
+---------
+
+# Godzilla Minus Zero's IMAX Release Is the End of An Era for the Franchise
+
+Movies, Godzilla Minus Zero, Godzilla, IMAX
+
+Tue, 08 Sep 2026 21:34:18 GMT
+
+https://www.cbr.com/godzilla-minus-zero-first-japanese-imax-movie-end-franchise-era/
+
+The Godzilla franchise has grown in more ways than one, and the character's next film will officially mark the end of a decades-long era.
+---------
+
+# Only 3 Giant Monster Movies Are Better Than 'Godzilla Minus One'
+
+Movie, Godzilla Minus One, Godzilla, King Kong, Godzilla, Mothra and King Ghidorah: Giant Monsters All-Out Attack
+
+Tue, 08 Sep 2026 23:15:11 GMT
+
+https://collider.com/giant-monster-movies-better-than-godzilla-minus-one/
+
+While Godzilla Minus One is top-tier, others, like King Kong and Godzilla, Mothra and King Ghidorah: Giant Monsters All-Out Attack, are even better.
+---------
+
+# ‘Gravity Falls’ Officially Returns With New Disney Release
+
+TV News, Gravity Falls, Disney, Disney XD, Alex Hirsch
+
+Tue, 08 Sep 2026 23:00:13 GMT
+
+https://collider.com/gravity-falls-lost-legends-webtoon-release-date-2027/
+
+Disney's hit fantasy series, Gravity Falls, is officially back after a legendary 2-season run. Read on for all the details.
+---------
+
+# ‘Star Trek’ Officially Drops Massive New Release
+
+TV News, Star Trek: The Original Series, Gene Roddenberry, Star Trek, Blu-ray
+
+Tue, 08 Sep 2026 22:59:12 GMT
+
+https://collider.com/star-trek-the-original-series-60th-anniversary-blu-ray-release-september-2026/
+
+To celebrate the sci-fi franchise's 60th anniversary, Star Trek: The Original Series has officially returned with a new release available now.
+---------
+
+# Why The Police’s Most Controversial No. 1 Hit Would Never Be Released Today
+
+Music Features, Sting, The Police: Synchronicity Concert, Music, Rock
+
+Tue, 08 Sep 2026 22:34:11 GMT
+
+https://collider.com/the-police-no-1-hit-every-breath-you-take/
+
+The Police scored one of rock’s biggest No. 1 hits, but its unsettling meaning has made the song far more controversial in Every Breath You Take.
+---------
+
+# 10 Horror Books That Are Scarier Than Any Movie
+
+Books and Comics, Horror, Books, Thriller, Stephen King
+
+Tue, 08 Sep 2026 22:21:25 GMT
+
+https://collider.com/horror-books-scarier-than-any-movie/
+
+Horror book classics like The Haunting of Hill House by Shirley Jackson and Pet Sematary by Stephen King are scarier than any film in the genre.
+---------
+
+# The Best Rock Album of Every Year of the 2010s
+
+Music Features, Music, Rock, Foo Fighters, David Bowie
+
+Tue, 08 Sep 2026 22:11:24 GMT
+
+https://collider.com/best-rock-albums-2010s-every-year/
+
+When discussing the best rock albums of every year in the 2010s, Blackstar by David Bowie and Wasting Light by Foo Fighters will factor in.
+---------
+
+# 8 Movies With Better Music Than Plot
+
+Movie, Bohemian Rhapsody, Purple Rain, Star Wars: Episode II - Attack of the Clones, Streets of Fire
+
+Tue, 08 Sep 2026 21:56:18 GMT
+
+https://collider.com/movies-where-music-best-part/
+
+Some movies have better soundtracks and scores than anything else, including Bohemian Rhapsody, Star Wars: Attack of the Clones, and Tron: Legacy.
+---------
+
+# 10 Most Important Episodes in 'The Office,' Ranked
+
+TV, The Office, Sitcom, NBC, The Paper
+
+Tue, 08 Sep 2026 21:45:12 GMT
+
+https://collider.com/the-office-most-important-episodes-ranked/
+
+The Office is one of the best modern sitcoms thanks to monumental episodes like Season 5's "Stress Relief," but which episode is the most important?
+---------
+
+# 8 Sci-Fi Book Series That Are a Masterclass in Worldbuilding
+
+Books and Comics, Sci-Fi, Books, Dune, Frank Herbert
+
+Tue, 08 Sep 2026 21:42:11 GMT
+
+https://collider.com/sci-fi-book-series-masterclass-in-worldbuilding/
+
+The Three-Body Problem, Dune, and The Hyperion Cantos are great sci-fi book series with exemplary, unforgettable storytelling.
+---------
+
+# ‘Snowpiercer’ Meets ‘Lost’ in Apple TV’s Masterpiece 3-Part Sci-Fi Series
+
+TV Features, Silo, Apple TV, Series, Science Fiction
+
+Tue, 08 Sep 2026 21:39:11 GMT
+
+https://collider.com/silo-apple-tv-snowpiercer-lost-sci-fi-series/
+
+Silo on Apple TV combines Snowpiercer’s dystopian world with Lost’s mystery in one of TV’s best sci-fi dramas.
+---------
+
+# 8 Great Neo-Western Series To Watch While Waiting For 'Landman' Season 3
+
+TV Lists, Landman, Western, Taylor Sheridan
+
+Tue, 08 Sep 2026 22:00:21 GMT
+
+https://movieweb.com/best-neo-western-shows-before-landman-season-3/
+
+'Landman' Season 3, the beloved Taylor Sheridan series starring Sam Elliot and Billy Bob Thornton, has been delayed until 2027.
+---------
+
+# 20 Years Later, One of Pixar's Most Iconic Hits Officially Smashes Major Milestone
+
+Movie News, Cars, Box Office Milestones
+
+Tue, 08 Sep 2026 21:55:29 GMT
+
+https://movieweb.com/pixar-cars-250-million-domestic-box-office/
+
+Pixar classic 'Cars' marks a new financial milestone, 20 years after its initial release.
+---------
+
+# Walton Goggins 6-Part 10/10 Western Masterpiece Series Becomes One of the Biggest Shows on Streaming
+
+TV News, Justified, Walton Goggins, Hot on Streaming
+
+Tue, 08 Sep 2026 21:30:13 GMT
+
+https://movieweb.com/justified-walton-goggins-justified-streaming-hit-apple-tv-september-2026/
+
+Before Taylor Sheridan's Western universe, this iconic FX series starring Walton Goggins and Timothy Olyphant changed the genre forever.
+---------
+
 # HBO's Euphoria Sets New Release This December With 3 Special Episodes
 
 TV, Euphoria
