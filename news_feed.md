@@ -1,3 +1,344 @@
+# Stephen King Meets Shirley Jackson In Netflix’s Greatest 10-Part Horror Show
+
+Classic TV, Masked Recs
+
+Tue, 08 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/stephen-king-meets-shirley-jackson-haunting-of-hill-house/
+
+One of Netflix’s greatest horror shows of all time brilliantly borrows from the works of Stephen King and Shirley Jackson in its 10-episode runtime.
+---------
+
+# Game Of Thrones: Quenched Flames Officially Announced
+
+Gaming, Game of Thrones: Conquest, Game of Thrones, Game Of Thrones, House of the Dragon, PC
+
+Tue, 08 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/game-of-thrones-quenched-flames-conquest/
+
+Game of Thrones: Quenched Flames officially arrives on September 14, marking the official return of House of the Dragon in a limited-time event.
+---------
+
+# Star Trek: Picard’s Official Replacement Kicks Off A New Era
+
+Gaming, Star Trek, Star Trek: The Next Generation, PC
+
+Tue, 08 Sep 2026 04:30:15 GMT
+
+https://screenrant.com/star-trek-picard-replacement-shadow-frontier/
+
+Star Trek officially enters a bold era as a new The Next Generation star takes the helm in Picard's place in this upcoming 2027 release.
+---------
+
+# Mobile Suit Gundam Is Officially Bringing Back Its Most Iconic Design
+
+Gaming, Gundam Rogue Orbit, Gundam, Mobile Suit Gundam
+
+Tue, 08 Sep 2026 04:01:15 GMT
+
+https://screenrant.com/mobile-suit-gundam-rogue-orbit-rx-78-2/
+
+Mobile Suit Gundam is bringing back one of its most iconic designs thanks to Gundam: Rogue Orbit, which sees the RX-78-2 back in action.
+---------
+
+# DC's Strongest Superhero Team Is Finally Reuniting Thanks To One Classic Hero's Disappearance
+
+Comics, Legion of Super Heroes, Superboy
+
+Tue, 08 Sep 2026 03:59:15 GMT
+
+https://screenrant.com/legion-super-heroes-reuniting-superboy-gone/
+
+One DC team's formation has a hypothetical spot for one classic character, and while he inspired their existence, his membership isn't guaranteed.
+---------
+
+# 29 Years Later, DC's Cyberpunk Masterpiece Is Aging Like Fine Wine
+
+Comics, DC Comics, Masked Recs
+
+Tue, 08 Sep 2026 03:59:15 GMT
+
+https://screenrant.com/dc-comics-transmetropolitan-cyberpunk-masterpiece/
+
+In 1997, DC Comics became home to one of cyberpunk's most chilling dystopias in a comic with a radical message that's more important than ever.
+---------
+
+# After Silo Season 3, Apple TV Already Has A Highly Ambitious Fix For Sci-Fi Fans
+
+Streaming TV, Masked Recs
+
+Tue, 08 Sep 2026 03:30:14 GMT
+
+https://screenrant.com/dark-matter-silo-season-3-perfect-sci-fi-fix/
+
+Silo season 3 has finally come to an end, but Apple TV already has the ultimate bingeable fix for all sci-fi fans after the post-apocalyptic series.
+---------
+
+# 6 Cartoon Network Anime From The 2000s That Are Aging Like Milk
+
+Anime, Cartoon Network
+
+Tue, 08 Sep 2026 03:30:14 GMT
+
+https://screenrant.com/cartoon-network-anime-2000s-aging-milk/
+
+Explore six 2000s Cartoon Network anime that haven't aged well, from Duel Masters to Dragon Ball GT.
+---------
+
+# 21 Years Later, The Greatest Opening Line In Fantasy TV History Has Never Been Topped
+
+Classic TV, Avatar: The Last Airbender
+
+Tue, 08 Sep 2026 03:00:14 GMT
+
+https://screenrant.com/avatar-the-last-airbender-katara-best-opening-line-fantasy-tv/
+
+The opening line of a TV show holds a lot of weight, and, if done right, these words can tip a fantasy project right into masterpiece status.
+---------
+
+# Game Of Thrones: The Red Sowing Officially Announced
+
+Gaming, Game of Thrones: Conquest, PC, Game Of Thrones, Game of Thrones, House of the Dragon
+
+Tue, 08 Sep 2026 03:00:14 GMT
+
+https://screenrant.com/game-of-thrones-conquest-the-red-sowing-dragonseeds/
+
+Game of Thrones officially returns with The Red Sowing on September 9, taking fans back to one of House of the Dragon's most iconic scenes.
+---------
+
+# Solo Leveling Gets New Slice-of-Life Sequel Starring Jinwoo's Shadow Army
+
+Anime, Solo Leveling
+
+Tue, 08 Sep 2026 04:48:11 GMT
+
+https://www.cbr.com/solo-leveling-karma-moments-inbetween-comedy-humor/
+
+Solo Leveling's new manhwa turns Sung Jinwoo and his Shadow Army into a huge joke compared to what they once were; but that's actually a good thing.
+---------
+
+# 10 Best Book Series If You Love Fantasy RPGs
+
+Games, The Lord of the Rings, RPG, Video Games, Fantasy
+
+Tue, 08 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/best-book-series-if-you-love-fantasy-rpgs/
+
+Ten sweeping series matched with games that echo their moods and mechanics, from grim systems to fairy ta
+---------
+
+# John Wick Meets Kill Bill in Catherine Zeta-Jones’ New Action Thriller
+
+TV, Kill Jackie
+
+Tue, 08 Sep 2026 03:44:58 GMT
+
+https://www.cbr.com/catherine-zeta-jones-kill-jackie-amc-plus-trailer/
+
+John Wick could learn a thing or two from Catherine Zeta-Jones' new role.
+---------
+
+# The Shocking Walking Dead Moment That Aimee Garcia Confirms She ‘Just Couldn’t Process’
+
+TV, The Walking Dead: Dead City, The Walking Dead, AMC
+
+Tue, 08 Sep 2026 03:38:37 GMT
+
+https://www.cbr.com/walking-dead-aimee-garcia-glenn-death-reaction/
+
+Aimee Garcia recalls her reaction to Glenn’s death and explains what she hopes fans feel after Renata’s Dead City fate.
+---------
+
+# The Walking Dead’s Jimmi Simpson Breaks Down His Dead City Character’s Villain Arc
+
+CBR Exclusives, The Walking Dead: Dead City, AMC, The Walking Dead
+
+Tue, 08 Sep 2026 03:32:25 GMT
+
+https://www.cbr.com/walking-dead-dead-city-jimmi-simpson-dillard-villain-arc/
+
+Jimmi Simpson explains the domino effect that turned Dillard from Negan’s eccentric new friend into The Walking Dead: Dead City’s newest threat.
+---------
+
+# HBO Max's 12-Episode Sci-Fi With 100% on Rotten Tomatoes Is TV's Most Perfect Alien Show
+
+TV, HBO Max, Scavengers Reign, Sci-Fi, Innovation
+
+Tue, 08 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/hbo-max-scavengers-reign-best-alien-show/
+
+HBO Max's critical hit Scavengers Reign is an underrated sci-fi gem that many fans argue is one of the best alien shows of the 21st century.
+---------
+
+# The Surprising Animated Cameo by Gary Larson You May Have Missed
+
+Comics, The Far Side
+
+Tue, 08 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/gary-larson-the-simpsons-surprise-cameo/
+
+The Far Side's Gary Larson's forgotten cameo is a welcome memory in animation history.
+---------
+
+# Studio Ghibli Reveals Hayao Miyazaki Doesn't Even Know What Generative AI Is
+
+Anime, Studio Ghibli, Hayao Miyazaki, Artificial Intelligence
+
+Tue, 08 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/studio-ghibli-hayao-miyazak-ai-doesnt-know/
+
+The legendary Hayao Miyazaki is only tangentially aware of generative AI (at most), according to another of Studio Ghibli's top creatives.
+---------
+
+# 4 Anime Series Where the Villain Gets Everything They Wanted
+
+Anime, Fate/Zero, Devilman Crybaby, Berserk, Cyberpunk: Edgerunners
+
+Tue, 08 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/anime-series-villain-gets-everything/
+
+These anime villains got everything they wanted and more, while the heroes suffered a worse fate.
+---------
+
+# Lioness’ Laysla De Oliveira Wants to Join Landman For the Best Possible Reason
+
+CBR Exclusives, Lioness, Landman, Paramount Plus
+
+Tue, 08 Sep 2026 02:43:43 GMT
+
+https://www.cbr.com/lioness-laysla-de-oliveira-landman-andy-garcia/
+
+Lioness star Laysla De Oliveira reveals why she wants to join Landman and work with Andy Garcia in Taylor Sheridan’s TV universe.
+---------
+
+# 8 Sci-Fi TV Shows With Aliens That Are 10/10 Masterpieces
+
+TV, Sci-Fi, Science Fiction, The Mandalorian, Doctor Who
+
+Tue, 08 Sep 2026 04:18:13 GMT
+
+https://collider.com/sci-fi-shows-aliens-masterpieces/
+
+From the Star Wars spin-off The Mandalorian to the classic series Star Trek: The Next Generation, these are the best sci-fi shows that feature aliens.
+---------
+
+# The 10 Best Romantic Movies in Film History
+
+Movie, Brokeback Mountain, Titanic, Gone with the Wind, Dirty Dancing
+
+Tue, 08 Sep 2026 04:05:11 GMT
+
+https://collider.com/best-romantic-movies-film-history/
+
+From Casablanca to Titanic, these movies made us believe love was real.
+---------
+
+# 61 Years Ago, Bob Dylan Released His All-Time Greatest Album
+
+Movie Features, Bob Dylan, Music, Rock, A Complete Unknown
+
+Tue, 08 Sep 2026 03:51:11 GMT
+
+https://collider.com/bob-dylan-greatest-album-highway-61-revisited/
+
+61 years ago, Bob Dylan released his most celebrated and influential album, Highway 61 Revisited.
+---------
+
+# The Greatest Western of All Time Is Finally Free to Watch
+
+Movie Features, The Good, the Bad and the Ugly, Clint Eastwood, Sergio Leone, Western
+
+Tue, 08 Sep 2026 03:35:36 GMT
+
+https://collider.com/greatest-western-of-all-time-the-good-the-bad-the-ugly/
+
+Sergio Leone’s unforgettable The Good, the Bad and the Ugly is a perfect Western that defined Clint Eastwood’s career — and it’s streaming for free.
+---------
+
+# Ella Purnell’s 6-Episode Dark Thriller Is One of the Best Shows on Streaming
+
+TV Features, Sweetpea, Ella Purnell, STARZ, Sky Atlantic
+
+Tue, 08 Sep 2026 03:16:11 GMT
+
+https://collider.com/sweetpea-ella-purnell-dark-thriller-streaming/
+
+Sweetpea is a gripping thriller that explores trauma and revenge, and it is streaming now on Starz. Catch up before Season 2 premieres!
+---------
+
+# Here's Why Bradley Cooper Crashed and Burned in His Latest Streaming Movie
+
+Movie Features, Is This Thing On?, Bradley Cooper, Will Arnett, Comedy
+
+Tue, 08 Sep 2026 01:38:12 GMT
+
+https://collider.com/bradley-cooper-is-this-thing-on-crash-and-burn/
+
+Bradley Cooper's latest project 'Is This Thing On?' is an unoriginal mess that even Will Arnett, Laura Dern and Peyton Manning couldn't save.
+---------
+
+# 3 Best Series to Binge on Prime Video This Week (Sep 7-11)
+
+TV, Prime Video, Over the Garden Wall, Desperate Housewives, The Terminal List: Dark Wolf
+
+Tue, 08 Sep 2026 01:11:11 GMT
+
+https://collider.com/prime-video-shows-binge-september-7-2026/
+
+Over the Garden Wall, Desperate Housewives, and The Terminal List: Dark Wolf make up our list of the best Prime Video shows to binge this week.
+---------
+
+# Star Wars' Katee Sackhoff Is Officially Ready for Her Own Spin-Off, But There's a Catch [Exclusive]
+
+TV News, The Mandalorian, Katee Sackhoff, Star Wars: The Clone Wars, Fan Expo
+
+Tue, 08 Sep 2026 01:00:11 GMT
+
+https://collider.com/katee-sackhoff-bo-katan-satine-star-wars-animated-prequel/
+
+Katee Sackhoff reveals her dream Bo-Katan Star Wars spin-off: an animated prequel exploring Bo-Katan and Satine’s childhood on Mandalore.
+---------
+
+# After 24 Years, Agatha Christie’s 'Poirot' Ended With Its Most Disturbing Case
+
+TV Features, Agatha Christie, Poirot, Mystery, Hercule
+
+Tue, 08 Sep 2026 00:52:11 GMT
+
+https://collider.com/agatha-christie-poirot-final-episode-twist/
+
+ITV’s long-running Agatha Christie series Poirot ended with a shocking twist that saw its title character break his own moral compass.
+---------
+
+# 15 Years Later, Anson Mount's 5-Part Western Masterpiece Remains Surprisingly Accurate
+
+Features, Hell on Wheels, Anson Mount, Western
+
+Tue, 08 Sep 2026 02:00:07 GMT
+
+https://movieweb.com/hell-on-wheels-western-historically-accurate/
+
+One of AMC's underrated hit shows from the 2010s features Anson Mount in one of his best roles, and leans into history for its drama and characters.
+---------
+
+# 8 'Game of Thrones' Stories 'The Winds of Winter' Can Finally Fix (Including 1 GRRM Confirmed)
+
+TV Lists, Game Of Thrones, Fantasy, George R.R. Martin
+
+Tue, 08 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/game-of-thrones-stories-winds-of-winter-fix/
+
+It's no secret that 'Game of Thrones' left many viewers frustrated with its last few seasons, and 'The Winds of Winter' has the chance to rectify it.
+---------
+
 # HBO's Masterpiece 8-Part Psychological Thriller Series Twist Is Repeated By New Global Hit Detective Show
 
 Streaming TV, Masked Recs
