@@ -1,3 +1,443 @@
+# Will Ferrell’s Star-Studded Series Officially Returning With New Episodes 6 Years After Abrupt Cancellation
+
+TV, Drunk History
+
+Tue, 08 Sep 2026 18:02:38 GMT
+
+https://screenrant.com/will-ferrell-drunk-history-new-episodes-youtube-release-date/
+
+Will Ferrell's star-studded, Emmy-winning comedy will debut new episodes soon, more than six years after its abrupt cancellation.
+---------
+
+# Solo Leveling Fans, Mark Your Calendars For September 20
+
+Gaming, Solo Leveling, Triple-A Games
+
+Tue, 08 Sep 2026 18:00:14 GMT
+
+https://screenrant.com/solo-leveling-september-2026-karma-reveal/
+
+Fans of Solo Leveling have a lot to look forward to in 2027 with a new movie release, but before that happens, there's something coming soon.
+---------
+
+# If You Only Read One Fantasy Book, Brandon Sanderson Says It Should Be This One
+
+Books, Brandon Sanderson, Fantasy
+
+Tue, 08 Sep 2026 18:00:14 GMT
+
+https://screenrant.com/fantasy-recommendation-brandon-sanderson-dragonsbane-barbara-hambly/
+
+If you are new to reading the fantasy genre or are simply looking for your next book, Brandon Sanderson recommends this fantasy novel for everyone.
+---------
+
+# Why Reacher Season 4 Ignores Neagley For The First Time
+
+Streaming TV, Reacher, Neagley
+
+Tue, 08 Sep 2026 18:00:14 GMT
+
+https://screenrant.com/reacher-season-4-no-neagley-reason/
+
+Neagley has been one of Reacher's only recurring characters throughout the first three seasons, making her absence in season 4 very noticeable.
+---------
+
+# New Version Of Christopher Nolan’s Interstellar Officially Releasing Next Year
+
+Movies, Interstellar
+
+Tue, 08 Sep 2026 17:54:30 GMT
+
+https://screenrant.com/christopher-nolan-interstellar-live-orchestra-special-release/
+
+More than 12 years after its release in theaters, Christopher Nolan’s Interstellar is poised to release in an exciting new format in 2027.
+---------
+
+# Taylor Sheridan Meets The Winter Soldier In Gritty MCU Pitch From Sebastian Stan
+
+Movies, Marvel Cinematic Universe, Sebastian Stan
+
+Tue, 08 Sep 2026 17:44:59 GMT
+
+https://screenrant.com/the-winter-soldier-mcu-pitch-taylor-sheridan-sicario-inspiration-sebastian-stan/
+
+Sebastian Stan, who has been playing Bucky Barnes since 2011, reveals the pitch he had for his own Winter Soldier project in the MCU franchise.
+---------
+
+# 30 Years After The Far Side Ended, Gary Larson Returned With One of His Greatest Strips Ever
+
+Comics, The Far Side
+
+Tue, 08 Sep 2026 17:38:59 GMT
+
+https://screenrant.com/the-far-side-official-return-new-comic/
+
+25 years after The Far Side ended, Gary Larson returned to the strip, and five years later, he created one of its greatest Far Side comics ever.
+---------
+
+# 3 Years After The Anime's Finale, Attack on Titan Is Making A Huge Return
+
+Anime, Attack on Titan, Attack On Titan
+
+Tue, 08 Sep 2026 17:33:26 GMT
+
+https://screenrant.com/attack-on-titan-return-2026/
+
+Three years after the anime finale, the legendary franchise is launching a huge slate of anniversary events to celebrate Attack on Titan Day.
+---------
+
+# Magic: The Gathering: Reality Fracture  - Release Date, Preorders, & Confirmed Cards
+
+Gaming, Magic: The Gathering, Triple-A Games
+
+Tue, 08 Sep 2026 17:30:14 GMT
+
+https://screenrant.com/magic-the-gathering-reality-fracture-release-date-preorders-cards/
+
+As the lore-heavy Reality Fracture set is poised to make a huge impact on Magic: The Gathering as a whole, here's all the info you need.
+---------
+
+# 8 Star Trek Episodes & Movies That Prove Kirk Is Still The Greatest Captain After 60 Years
+
+TV, Star Trek, Star Trek: The Original Series
+
+Tue, 08 Sep 2026 17:30:14 GMT
+
+https://screenrant.com/star-trek-kirk-best-captain-episodes-movies/
+
+James. T Kirk is arguably the best Captain to ever sit at the helm of the USS Enterprise, and these Star Trek TV shows and movies prove it.
+---------
+
+# The Lord of the Rings Officially Confirms New Limited Edition Physical Release in 3 Months
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Tue, 08 Sep 2026 18:10:52 GMT
+
+https://www.cbr.com/the-lord-of-the-rings-the-rings-of-power-4k-blu-ray/
+
+A major part of the Middle-earth saga is finally coming home.
+---------
+
+# Wednesday Season 3's New Gothic Icon Is Exactly What the Show Needs
+
+TV, Wednesday, Netflix, The Addams Family
+
+Tue, 08 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/wednesday-s3-eva-green-ophelia-new-gothic-icon/
+
+Wednesday Season 3 is bringing on several new cast members, including this Gothic icon as a highly anticipated member of the Addams family.
+---------
+
+# Kim Possible Returns For A New Era
+
+Comics, Kim Possible
+
+Tue, 08 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/kim-possible-comic-collection-release-date-confirmed/
+
+One of Disney Channel's best animated shows ever finally receives a thrilling new project after many years.
+---------
+
+# Dexter: Resurrection Season 2 Time Jump Reason Confirmed by Showrunner
+
+TV, Dexter: Resurrection, Dexter, Paramount Plus
+
+Tue, 08 Sep 2026 17:35:25 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-time-jump-reason/
+
+Dexter: Resurrection showrunner reveals the reason why Season 2 takes place three years later.
+---------
+
+# Attack on Titan Officially Returns October 23 With Crimson Bow and Arrow
+
+Anime, Attack on Titan: The Crimson Bow and Arrow, Attack on Titan, Attack on Titan: The Last Attack
+
+Tue, 08 Sep 2026 17:31:12 GMT
+
+https://www.cbr.com/attack-on-titan-crimson-bow-and-arrow-september-23-return/
+
+Two of Attack on Titan's greatest theatrical treatments are returning to the big screen later this year.
+---------
+
+# Everything Nintendo Announced at the Zelda 40th Anniversary Direct
+
+Games, The Legend of Zelda, Nintendo
+
+Tue, 08 Sep 2026 17:31:11 GMT
+
+https://www.cbr.com/zelda-40th-anniversary-direct-reveals-announcements/
+
+Nintendo is celebrating Zelda's 40th anniversary in a big way, with huge reveals that include Ocarina of Time's release date and new Zelda movie info.
+---------
+
+# MTG's Most Expensive Card Is Making A Comeback In Reality Fracture
+
+Games, Magic: The Gathering, Tabletop, Magic: The Gathering Arena
+
+Tue, 08 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/mtg-most-expensive-card-black-lotus-comeback-reality-fracture/
+
+The most famous and expensive card in the history of Magic: The Gathering is making a comeback in a new form in the upcoming Reality Fracture set.
+---------
+
+# Sci-Fi's Most Important Movie Franchise Began 60 Years Ago Today
+
+Movies, Star Trek
+
+Tue, 08 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/star-trek-most-important-movie-franchise-60th-anniversary/
+
+Almost failing from its pilot episode, Star Trek beat the odds with high-concept sci-fi allegory and changed the way stories are told on TV and film.
+---------
+
+# Magic: The Gathering's Reality Fracture Makes Planeswalkers Stronger
+
+Games, Magic: The Gathering, Tabletop, RPG
+
+Tue, 08 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/magic-the-gathering-reality-fracture-preview-planeswalkers-scarier/
+
+Magic: The Gathering's Reality Fracture set features an alternate universe of Jace's creation, with cards that make Planeswalkers even more powerful.
+---------
+
+# Star Wars’ Original Theatrical Cut Gets a Major Upgrade for 2027 Re-Release
+
+Movies, Star Wars, Star Wars: Episode IV - A New Hope, Star Wars: Starfighter
+
+Tue, 08 Sep 2026 17:18:36 GMT
+
+https://www.cbr.com/star-wars-imax-70mm-starfighter-new-hope/
+
+50 years later, the original Star Wars is achieving a franchise first.
+---------
+
+# 'Star Wars: A New Hope' Officially Gets IMAX Release for the First Time Ever
+
+Movie News, Star Wars, Star Wars: Episode IV - A New Hope, IMAX, Lucasfilm
+
+Tue, 08 Sep 2026 18:03:19 GMT
+
+https://collider.com/star-wars-a-new-hope-original-cut-imax-70mm-release-2027/
+
+The 50th anniversary release of the original cut of Star Wars: A New Hope is coming to IMAX 70mm or the first time ever! Read on for more.
+---------
+
+# Harry Potter Legend Officially Reveals "Strange" Reaction to HBO Series
+
+TV News, Harry Potter, Rupert Grint, Harry Potter and the Sorcerer's Stone
+
+Tue, 08 Sep 2026 18:02:17 GMT
+
+https://collider.com/hbo-harry-potter-reboot-rupert-grint-comments/
+
+Harry Potter star Rupert Grint has officially shared his thoughts on HBO’s reboot ahead of his return to the fantasy franchise.
+---------
+
+# The Best Video Game of Every Year in the 2000s
+
+Gaming, Video Game, Grand Theft Auto, Resident Evil 4, Metroid
+
+Tue, 08 Sep 2026 17:53:11 GMT
+
+https://collider.com/best-video-game-every-year-2000s/
+
+Every year of the 2000s delivered one standout, universally acclaimed video game, from Metroid Prime in 2002 to Uncharted 2: Among Thieves in 2009.
+---------
+
+# 'Bridgerton' Star Haunts Jake Gyllenhaal in First Trailer for New M. Night Shyamalan Movie
+
+Movie News, Remain, M. Night Shyamalan, Jake Gyllenhaal, Nicholas Sparks
+
+Tue, 08 Sep 2026 17:49:50 GMT
+
+https://collider.com/m-night-shyamalan-remain-trailer-jake-gyllenhaal/
+
+Jake Gyllenhaal is haunted by Phoebe Dynevor in the first official trailer for M. Night Shyamalan's newest movie, Remain. See it here!
+---------
+
+# ‘Stargate’ Officially Proves Amazon Made a Huge Mistake by Cancelling Reboot Series
+
+TV News, Stargate: Atlantis, MGM TV, Science Fiction, Jason Momoa
+
+Tue, 08 Sep 2026 17:35:49 GMT
+
+https://collider.com/stargate-atlantis-streaming-success-mgm-plus-september-2026/
+
+4 months after Prime Video killed its upcoming Stargate reboot, the franchise is experiencing a huge resurgence on streaming.
+---------
+
+# The Best R-Rated Sci-Fi Thriller of All-Time Officially Returns to Theaters
+
+Movie News, Sci-Fi, Donnie Darko, Jake Gyllenhaal, Maggie Gyllenhaal
+
+Tue, 08 Sep 2026 17:24:11 GMT
+
+https://collider.com/jake-gyllenhaal-sci-fi-cult-clasic-donnie-darko-25th-anniversary-release-date-october-2026/
+
+The best cult classic of the 2000s is officially returning with a new release to celebrate the film’s 25th anniversary. Read on for more.
+---------
+
+# Twilight Officially Begins a New Era in 2027
+
+Movie News, Twilight, The Twilight Saga, Robert Pattinson, Kristen Stewart
+
+Tue, 08 Sep 2026 17:23:49 GMT
+
+https://collider.com/twilight-2027-return-concert-us-tour-dates/
+
+15 years after the film franchise came to a close, Twilight is officially returning in a major way in 2027. Read on for more.
+---------
+
+# It's Officially the End of an Era for 'South Park' After 29 Years
+
+TV News, South Park, Animation, Trey Parker, Matt Stone
+
+Tue, 08 Sep 2026 17:10:27 GMT
+
+https://collider.com/south-park-changes-name-south-america-season-29/
+
+South Park is officially changing its name ahead of Season 29, premiering September 16 on Comedy Central and streaming next day on Paramount+.
+---------
+
+# Laika Officially Doubles Down on Stop-Motion in the AI Era [Exclusive]
+
+Movie News, Wildwood, Laika Studios, Travis Knight, Mahershala Ali
+
+Tue, 08 Sep 2026 17:01:11 GMT
+
+https://collider.com/laika-travis-knight-explains-animating-wildwood-telluride-film-festival/
+
+Laika studio head and Wildwood director Travis Knight explains how the new animated feature came to life without the use of AI.
+---------
+
+# 'Avengers: Doomsday' Star's New Globe-Trotting Fantasy Adventure Officially Debuts First Trailer [Exclusive]
+
+Exclusives, Treasure Trekkers, Alan Cumming, Avengers: Doomsday, Adventure
+
+Tue, 08 Sep 2026 17:01:11 GMT
+
+https://collider.com/treasure-trekkers-movie-trailer-alan-cumming/
+
+The official trailer for Treasure Trekkers teases a globe-trotting adventure to find Mip's origins with Alan Cumming pla
+---------
+
+# Original 'Star Wars' Getting Theatrical Release With an All-New IMAX Version
+
+Movie News, Star Wars, Star Wars: Starfighter, IMAX, Star Wars: Episode IV - A New Hope
+
+Tue, 08 Sep 2026 18:10:09 GMT
+
+https://movieweb.com/star-wars-imax-release-starfighter/
+
+The re-release of the original 'Star Wars' and the new film 'Star Wars: Starfighter' will get a 70mm IMAX release.
+---------
+
+# 10 Best Action Thriller Movies You Can Stream for Free on Tubi
+
+Movie Lists, Tubi, Action, Thriller
+
+Tue, 08 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/best-action-thriller-movies-free-on-tubi/
+
+Tubi has a phenomenal selection of action thrillers that are free to stream on their platform, and these are some of the best.
+---------
+
+# M. Night Shyamalan's New Supernatural Thriller Starring Jake Gyllenhaal Unleashed in First Trailer
+
+Movie News, Thriller, Romance, M. Night Shyamalan, Remain
+
+Tue, 08 Sep 2026 17:39:49 GMT
+
+https://movieweb.com/remain-trailer-m-night-shyamalan-jake-gyllenhaal/
+
+The Shyamalan and Nicholas Sparks collaboration promises romance and mystery.
+---------
+
+# Zach Cregger Officially Addresses 'Resident Evil' Sequel Status Ahead of Reboot
+
+Movie News, Zach Cregger, Resident Evil, Horror
+
+Tue, 08 Sep 2026 17:26:55 GMT
+
+https://movieweb.com/resident-evil-reboot-sequel-zach-cregger/
+
+Zach Cregger might not yet be done with his 'Resident Evil' universe as he confirms he has sequel ideas.
+---------
+
+# 'Practical Magic 2' Officially Conjures Up Not-So-Magical Rotten Tomatoes Score
+
+Movie News, Practical Magic 2
+
+Tue, 08 Sep 2026 17:20:16 GMT
+
+https://movieweb.com/practical-magic-2-rotten-tomatoes-score/
+
+The Sanda Bullock and Nicole Kidman reunion film has debuted with a disappointing 32% on Rotten Tomatoes.
+---------
+
+# 'Star Trek' Officially Sets Special Release Today for 60th Anniversary
+
+TV News, Star Trek, Science Fiction
+
+Tue, 08 Sep 2026 17:15:22 GMT
+
+https://movieweb.com/star-trek-release-today-60th-anniversary/
+
+Amazon has offically released a special new box set for 'Star Trek: The Original Series' for its 60th anniversary.
+---------
+
+# 'The Girl with the Dragon Tattoo' (2011) Ending and Deeper Meaning Explained
+
+Features, The Girl With the Dragon Tattoo, Drama
+
+Tue, 08 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/the-girl-with-the-dragon-tattoo-2011-ending/
+
+David Fincher's movies are known for their complex plots, and 'The Girl with the Dragon Tattoo' is no exception.
+---------
+
+# After 40 Years, the Highest-Grossing Australian Movie of All Time Sets New Release
+
+Movie News, Crocodile Dundee, Action, Adventure, Blu-ray
+
+Tue, 08 Sep 2026 17:00:13 GMT
+
+https://movieweb.com/crocodile-dundee-4k-blu-ray-release/
+
+Paramount Home Media Distribution is preparing a new 4K Blu-ray release of 'Crocodile Dundee' to celebrate the movie's 40th anniversary this year.
+---------
+
+# Leonardo DiCaprio's Long-Awaited Action Thriller Sequel Officially Recasts Robert De Niro
+
+Movie News, Heat 2, Stephen Graham, Leonardo DiCaprio, Action
+
+Tue, 08 Sep 2026 16:25:32 GMT
+
+https://movieweb.com/heat-2-stephen-graham-official-cast/
+
+The long-awaited acition thriller sequel 'Heat 2' has officially found a new actor to take on Robert De Niro's iconic role.
+---------
+
+# Andrew Garfield Transforms Into ChatGPT CEO in First Trailer for New Tech Thriller
+
+Movie News, Artificial, Andrew Garfield, Thriller
+
+Tue, 08 Sep 2026 16:18:34 GMT
+
+https://movieweb.com/artificial-andrew-garfield-first-trailer/
+
+Real-world technology comes to the forefront in a new trailer for an exciting biopic, led by Oscar-nominee Andrew Garfield.
+---------
+
 # Zelda 40th Anniversary Nintendo Switch 2 Model Officially Announced
 
 Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo Switch 2, Triple-A Games, Gaming Hardware
