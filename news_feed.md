@@ -1,3 +1,443 @@
+# Nickelodeon’s Teenage Mutant Ninja Turtles Return With New Series Today
+
+Comics, Teenage Mutant Ninja Turtles
+
+Wed, 09 Sep 2026 18:18:59 GMT
+
+https://screenrant.com/teenage-mutant-ninja-turtles-coastal-chaos-release-details/
+
+A new Teenage Mutant Ninja Turtles series began today with its first release, bringing Donatello, Leonardo, Michelangelo, and Raphael back together.
+---------
+
+# John Grisham Series Officially Returning With New Release In October
+
+TV, The Rainmaker
+
+Wed, 09 Sep 2026 18:17:11 GMT
+
+https://screenrant.com/the-rainmaker-season-2-release-date-trailer-usa-network/
+
+John Grisham's breakout legal drama will soon be returning to audiences, as a confirmed release date reveals what's next for the hit series.
+---------
+
+# The Most Beloved Batman Spin-Off Of All Time Returns Today, Our Review
+
+DC Comics, Batman
+
+Wed, 09 Sep 2026 18:01:02 GMT
+
+https://screenrant.com/batman-gotham-central-1-review/
+
+DC is giving fans a reminder of why an incredible Batman spin-off series was so great in the midst of its newest crossover event, Bad Seeds.
+---------
+
+# Green Lantern Officially Confirms Unique Superpower of New Lantern Color
+
+Comics, Green Lantern
+
+Wed, 09 Sep 2026 18:00:14 GMT
+
+https://screenrant.com/green-lantern-new-color-powers-chrome/
+
+Chrome Lanterns have no limits.
+---------
+
+# HBO’s 90-Episode Masterpiece Was Officially The Start Of A New Era For Sitcoms
+
+Classic TV, Masked Recs
+
+Wed, 09 Sep 2026 18:00:14 GMT
+
+https://screenrant.com/the-larry-sanders-show-changed-sitcoms/
+
+HBO's 90-episode comedy sereis from the 1990s, The Larry Sanders Show, started a new era of sitcoms and changed the perception of HBO too.
+---------
+
+# Netflix's Hit Supernatural Series From Rick & Morty Alum Officially Returns In Exactly One Month
+
+TV, Haunted Hotel
+
+Wed, 09 Sep 2026 17:59:50 GMT
+
+https://screenrant.com/haunted-hotel-season-2-release-date-netflix/
+
+A supernatural animated series created by a Rick & Morty writer is coming back a year later, and Netflix has revealed now the premiere date.
+---------
+
+# Disney+'s 10/10 Cyberpunk Series Only Needed 24 Episodes To Become A Masterpiece
+
+Streaming TV, Masked Recs
+
+Wed, 09 Sep 2026 17:57:11 GMT
+
+https://screenrant.com/disney-plus-24-episodes-cyberpunk-masterpiece/
+
+True masterpieces produced by Disney+ are difficult to come by recently, but a 10/10 cyberpunk story needed only 24 episodes to become exactly that.
+---------
+
+# Disney Announces First Female Genie for Aladdin in Historic Casting Move
+
+Movies, Aladdin, Disney
+
+Wed, 09 Sep 2026 17:55:17 GMT
+
+https://screenrant.com/aladdin-broadway-genie-first-female-casting-sherri-shepherd/
+
+Disney officially shares a major casting change, as Aladdin's Genie will be played by a female actor for the first time in the show's history.
+---------
+
+# Spider-Man's Next Major Release Is Arriving Early, But There's One Twist
+
+Comics, Spider-Man, Marvel
+
+Wed, 09 Sep 2026 17:54:19 GMT
+
+https://screenrant.com/spider-man-1000-release-early-twist/
+
+Spider-Man is about to receive an early new release that is huge, but there is a catch that fans need to be aware of before it comes out.
+---------
+
+# Disney Lorcana's Latest Release Is Going To Blow You Away
+
+Gaming, Disney Lorcana
+
+Wed, 09 Sep 2026 17:53:11 GMT
+
+https://screenrant.com/disney-lorcana-quest-of-wonders-illumineers-lorebook-book/
+
+Discover Disney Lorcana's latest release, Quest of Wonders, packed with lore and a limited promo card.
+---------
+
+# After Retiring Evil Dead's Ash, Bruce Campbell Says There's Only 1 Role He Would Revisit
+
+TV, bruce campbell, The Adventures of Brisco County, Jr.
+
+Wed, 09 Sep 2026 18:57:40 GMT
+
+https://www.cbr.com/bruce-campbell-adventures-of-brisco-county-jr-sequel/
+
+Bruce Campbell is finished as Ash, but he'd still revisit another one of his most legendary roles.
+---------
+
+# Resident Evil: Zach Cregger Reveals His Game Obsession
+
+Movies, Resident Evil
+
+Wed, 09 Sep 2026 18:47:52 GMT
+
+https://www.cbr.com/video/resident-evil-zach-cregger-reveals-his-game-obsession/
+
+Director Zach Cregger and actor Austin Abrams break down the 2026 adaptation, including Cregger’s longtime love of the Resident Evil games and how repetition has turned playing them into “muscle memory.” Cregger also explains how he works with the marketing team to protect major spoilers while giving feedback on trailers and promotional material. Abrams discusses what drew him to Brian, the character’s relationship, and his fear surrounding the possibility of having a child. Plus, Cregger teases memorable Resident Evil moments fans haven’t seen yet.
+---------
+
+# 5 Near-Perfect Action Anime That Are Forgotten Masterpieces
+
+Anime, Kabaneri of the Iron Fortress, Flame Of Recca
+
+Wed, 09 Sep 2026 18:45:11 GMT
+
+https://www.cbr.com/forgotten-masterpiece-action-anime/
+
+Flame of Recca, Re:Creators, and Katanagatari are among some of the best action anime that have faded into obscurity and deserve another look.
+---------
+
+# Yu-Gi-Oh! GX Officially Returns In 2027
+
+Games, Yu-Gi-Oh!, Yu-Gi-Oh! GX, Nintendo
+
+Wed, 09 Sep 2026 18:25:11 GMT
+
+https://www.cbr.com/yu-gi-oh-gx-official-return-2027/
+
+Yu-Gi-Oh! GX is officially returning in 2027, as Nintendo revealed during its latest Direct that a remake of one of Jaden Yuki's games is coming.
+---------
+
+# The 7-Part Netflix Horror Series Stephen King Called a 5-Star Masterwork
+
+TV, Midnight Mass, Stephen King, Horror
+
+Wed, 09 Sep 2026 18:21:29 GMT
+
+https://www.cbr.com/stephen-king-netflix-midnight-mass-connection/
+
+Stephen King knows a thing or two about horror, and a particular vampire show he liked also has a fun nod to one of his best stories.
+---------
+
+# Metro 2039 is Shaping Up as a Must Play for 2027
+
+Games, Video Games
+
+Wed, 09 Sep 2026 18:10:11 GMT
+
+https://www.cbr.com/metro-2039-preview/
+
+Metro 2039 is the newest game from the Metro 2039 franchise and is aiming itself as an experience that gamers need to play.
+---------
+
+# Paramount Is Reviving a 57-Year-Old Michael Caine Action Movie Classic
+
+Movies, The Italian Job
+
+Wed, 09 Sep 2026 18:06:17 GMT
+
+https://www.cbr.com/paramount-new-the-italian-job-reboot/
+
+Ghostbusters reboot director Paul Feig is now reviving an action classic for Paramount.
+---------
+
+# Black Cat Joins the X-Men? Marvel Teases a Major Change for Felicia Hardy
+
+Comics, black cat, Spider-Man, Marvel Comics
+
+Wed, 09 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/black-cat-17-felicia-hardy-x-men/
+
+The Black Cat's luck is about to change when she crosses paths with the X-Men's Emma Frost, and perhaps an offer to join the mutants may have come up.
+---------
+
+# Netflix's New No.1 Horror Hit Is The Perfect Weapons Copycat Movie
+
+Movies, Weapons, The Whisper Man
+
+Wed, 09 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/netflix-the-whisper-man-weapons-replacement/
+
+Weapons terrified audiences with its child endangerment, and Netflix's newest horror hit is following suit.
+---------
+
+# Zelda: Sands of Time Is the Sequel Fans Waited 28 Years For
+
+Games, The Legend of Zelda, Video Games
+
+Wed, 09 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/zelda-sands-of-time-fan-game/
+
+Just in time for the franchise's 40th anniversary, there's a Legend of Zelda Game fans absolutely need to play.
+---------
+
+# 'Lord of the Rings’ Officially Reveals Long-Lost Twin in New Look at 'Rings of Power' Season 3
+
+TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video, The Hobbit trilogy
+
+Wed, 09 Sep 2026 18:45:11 GMT
+
+https://collider.com/lord-of-the-rings-the-rings-of-power-season-3-elrond-long-lost-twin-elros-first-look-image/
+
+Lord of the Rings: The Rings of Power Season 3 introduces Elros, with a first look at Elrond’s long-lost twin brother and the first king of Númenor.
+---------
+
+# 'Luke Cage' Icon Officially Returns to TV With New Legal Thriller
+
+TV News, Cupertino, Mike Colter, Busy Philipps, Rachel Keller
+
+Wed, 09 Sep 2026 18:37:33 GMT
+
+https://collider.com/mike-colter-lincoln-lawyer-replacement-cupertino-trailer/
+
+Before he returns as Luke Cage in Daredevil: Born Again Season 3, Mike Colter fights a new kind of crime in the first trailer for CBS' Cupertino.
+---------
+
+# Netflix's Next Western Adaptation Has Officially Been Confirmed
+
+TV News, Netflix, Western, Streaming, Books
+
+Wed, 09 Sep 2026 18:30:11 GMT
+
+https://collider.com/the-lonesome-dove-netflix-adaptation-confirmed/
+
+Beloved Western classic Lonesome Dove is getting a new Netflix series from East of Eden showrunners Zoe Kazan and Jeb Stuart.
+---------
+
+# ‘Game of Thrones’ Icon Officially Dominates Streaming Charts Ahead of ‘Harry Potter’ Return
+
+TV News, Kit Harington, A Tale Of Two Cities, Game Of Thrones, Charles Dickens
+
+Wed, 09 Sep 2026 18:26:26 GMT
+
+https://collider.com/kit-harington-a-tale-of-two-cities-streaming-success-mgm-plus-september-2026/
+
+Kit Harington’s new 4-part Charles Dickens adaptation is already climbing streaming charts ahead of his role in HBO's Harry Potter series.
+---------
+
+# Gabriel Basso Officially Leaves 'The Night Agent' Behind for Major Genre Change
+
+Movie News, Gabriel Basso, Prime Video, Aaron Pierre, Margaret Qualley
+
+Wed, 09 Sep 2026 18:25:31 GMT
+
+https://collider.com/gabriel-basso-love-of-your-life-trailer/
+
+Margaret Qualley tries to find her perfect match in the first trailer for Love of Your Life, starring Gabriel Basso and Aaron Pierre.
+---------
+
+# This 3-Part 'Homeland' Meets 'Sicario' Thriller Is One of the Biggest Streaming Hits in the World
+
+TV Features, Lioness, Zoe Saldana, Nicole Kidman, Taylor Sheridan
+
+Wed, 09 Sep 2026 18:11:11 GMT
+
+https://collider.com/lioness-season-3-homeland-meets-sicario-global-streaming-hit/
+
+Taylor Sheridan's Lioness blends all the best parts of his film Sicario with the political thrills of Homeland for a must-watch series.
+---------
+
+# TV's Best 'Lincoln Lawyer' Replacement Officially Returns in First Season 2 Trailer
+
+TV News, The Rainmaker, USA Network, The Lincoln Lawyer
+
+Wed, 09 Sep 2026 18:09:44 GMT
+
+https://collider.com/lincoln-lawyer-replacement-the-rainmaker-season-2-trailer/
+
+John Slattery and Lana Parilla's hit Lincoln Lawyer replacement officially returns in the first trailer for Season 2. See it here!
+---------
+
+# The 10 Greatest Fantasy Adventure Movies of the Last 25 Years, Ranked
+
+Movie, Adventure, The Green Knight, Fantasy, The Lord of the Rings: The Return of the King
+
+Wed, 09 Sep 2026 17:41:11 GMT
+
+https://collider.com/best-fantasy-adventure-movies-last-25-years-ranked/
+
+From The Northman to The Lord of the Rings, these are the best movies that feature the perfect balance of fantasy and adventure in the last 25 years.
+---------
+
+# The Best Horror Movie of 2026 Officially Scores a Major Sequel Update
+
+Movie News, Backrooms, Horror, A24, Chiwetel Ejiofor
+
+Wed, 09 Sep 2026 17:27:05 GMT
+
+https://collider.com/backrooms-2-update-kane-parsons-directing/
+
+2026's breakout horror hit is reportedly getting a sequel, with the film's director expected to return. Read on for more details.
+---------
+
+# Keanu Reeves Officially Finds His Next 'John Wick' Replacement
+
+Movie News, Keanu Reeves, Thriller, Action, John Wick
+
+Wed, 09 Sep 2026 17:23:13 GMT
+
+https://collider.com/keanu-reeves-john-wick-replacement-kill-current-movie-adaptation/
+
+Ahead of his expected return as John Wick, Keanu Reeves has officially found his next revenge thriller. Read on for more details.
+---------
+
+# Keanu Reeves Finds His Next Military Action Series in Killer New Thriller Adaptation
+
+Movie News, Keanu Reeves
+
+Wed, 09 Sep 2026 18:55:04 GMT
+
+https://movieweb.com/keanu-reeves-kill-current-action-thriller/
+
+Reeves will star in and produce an adaptation of the upcoming book 'Kill Generation.'
+---------
+
+# Jason Statham's Cult Classic Action Heist Thriller Is Getting a Remake
+
+Movie News, The Italian Job, Action, Jason Statham, Mark Wahlberg, Charlize Theron, Thriller
+
+Wed, 09 Sep 2026 18:07:12 GMT
+
+https://movieweb.com/italian-job-jason-statham-mark-wahlberg-sequel-paul-feig/
+
+Paul Feig is reportedly being eyed to direct a follow-up to 2003's 'The Italian Job.'
+---------
+
+# 15 Most Popular Actresses of the 1990s (& Where They Are Now)
+
+Movie Lists
+
+Wed, 09 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/most-popular-actresses-of-the-1990s-ranked/
+
+From gracing us with their performances to becoming cinema icons, here are the most popular actresses of the 1990s, ranked.
+---------
+
+# First Look at Gorilla Grodd Revealed in New 'Superman' Spin-Off Set Images
+
+TV News, The People v. Gorilla Grodd, DCU
+
+Wed, 09 Sep 2026 17:29:53 GMT
+
+https://movieweb.com/superman-spinoff-gorilla-grodd-first-look-dcu/
+
+On set photos from 'The People vs. Gorilla Grodd' reveal the first look at Gorilla Grodd in the DCU.
+---------
+
+# 'Bourne' Director's New Historical Actioner Is a Dull and Downtrodden Epic | Review
+
+2 star movies, The Uprising, Andrew Garfield, Paul Greengrass, History, Action
+
+Wed, 09 Sep 2026 17:26:39 GMT
+
+https://movieweb.com/the-uprising-review/
+
+'The Uprising' falls flat in its exploration of revolution caused by socioeconomic inequality.
+---------
+
+# Andrew Garfield's Historical Action Epic Divides Critics On Rotten Tomatoes
+
+Movie News, The Uprising, Action
+
+Wed, 09 Sep 2026 17:21:31 GMT
+
+https://movieweb.com/the-uprising-andrew-garfield-rotten-tomatoes-reviews/
+
+Critics are polarized over Paul Greengrass' gritty historical epic 'The Uprising.'
+---------
+
+# 'NCIS' Officially Reveals What Pulls Tony Back Ahead of His Season 24 Comeback
+
+TV News, Network TV, NCIS, Michael Weatherly
+
+Wed, 09 Sep 2026 16:36:26 GMT
+
+https://movieweb.com/ncis-michael-weatherly-tony-season-24-return/
+
+Michael Weatherly's Tony DiNozzo is back for another round of action on 'NCIS' after his recently canceled Paramount+ spin-off.
+---------
+
+# 'Disclosure Day' Streaming Release Date Officially Confirmed
+
+Movie News, Disclosure Day, Sci-Fi, Peacock
+
+Wed, 09 Sep 2026 16:13:27 GMT
+
+https://movieweb.com/disclosure-day-streaming-release-date-peacock/
+
+You can soon stream Steven Spielberg's latest alien adventure on Peacock.
+---------
+
+# Marvel Showrunner Teases 10-Season Plan For Disney+'s Biggest MCU Show
+
+TV News, VisionQuest, Paul Bettany, WandaVision, Action
+
+Wed, 09 Sep 2026 16:08:03 GMT
+
+https://movieweb.com/visionquest-new-look-multi-season-mcu/
+
+The showrunner of the 'WandaVision' and 'Agatha All Along' sequel series has plans for multiple seasons of the show.
+---------
+
+# Prime Video's New 7-Part Fantasy Epic Is Already One of the Biggest Streaming Hits in the World
+
+TV News, Fantasy, Hot on Streaming, Prime Video
+
+Wed, 09 Sep 2026 16:00:13 GMT
+
+https://movieweb.com/pendragon-cycle-rise-of-merlin-fantasy-streaming-prime-video-sept-2026/
+
+Move over, J.R.R. Tolkien. There's a new fantasy epic in town that's even better than 'The Rings of Power.'
+---------
+
 # Mike Colter Is A Fierce Lawyer Battling Tech Goliaths In CBS’ New Cupertino Trailer
 
 TV, Cupertino, Cupertino - Season 1
