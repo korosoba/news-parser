@@ -1,3 +1,333 @@
+# Near-Perfect Horror Movie That Can Be Streamed In Less Than An Hour Passes Incredible Milestone
+
+Movies, Masked Recs
+
+Wed, 09 Sep 2026 23:41:48 GMT
+
+https://screenrant.com/host-2020-movie-near-perfect-shudder-global-streaming-milestone-september-2026/
+
+A near-perfect horror movie that can be streamed in less than an hour passes an incredible milestone six years after its original release.
+---------
+
+# Punisher’s Just Unlocked The Ultimate Anti-Healing Factor Weapon
+
+Marvel Comics, punisher, The Punisher
+
+Wed, 09 Sep 2026 23:36:22 GMT
+
+https://screenrant.com/punisher-ultimate-weapon-time-gun-deadpool/
+
+Punisher is tired of slaying Deadpool and watching him (and Badpools) come back, and he finally has the weapon that could put an end to him for good.
+---------
+
+# 89 Years Later, The Greatest Closing Line In Fantasy History Is Still Undefeated
+
+Books, Fantasy
+
+Wed, 09 Sep 2026 23:32:14 GMT
+
+https://screenrant.com/the-hobbit-best-fantasy-closing-line-history/
+
+The fantasy genre has no shortage of legendary closing lines, but one stands above the rest as the greatest closing line in fantasy history.
+---------
+
+# Jon Bernthal’s Hit R-Rated Thriller That Revived A Franchise Continues Dominance On New Streaming Home
+
+Movies, Masked Recs
+
+Wed, 09 Sep 2026 23:28:21 GMT
+
+https://screenrant.com/jon-bernthal-the-accountant-2-franchise-revived-hulu-streaming-success-september-2026/
+
+Jon Bernthal's R-rated thriller has changed streaming homes, and those who want to catch up on an action-packed franchise can do it as the film rises.
+---------
+
+# Ace Combat 8 Hands-On Preview: Made For Veterans, Approachable For Newcomers
+
+Gaming, Ace Combat 8: Wings of Theve, Triple-A Games, PC
+
+Wed, 09 Sep 2026 23:15:17 GMT
+
+https://screenrant.com/ace-combat-8-hands-on-preview/
+
+Ace Combat 8 takes to the skies soon, and we had the chance to try it and get some new info about multiplayer, microtransations, and more.
+---------
+
+# All 10 Digimon Heroes & Their Partners Ranked From Worst To Best
+
+Anime, Digimon
+
+Wed, 09 Sep 2026 23:00:16 GMT
+
+https://screenrant.com/every-digimon-hero-partner-ranked-worst-best/
+
+The Digimon anime is well known for its goggle-headed heroes and their fiery companions, but which protagonist is the best?
+---------
+
+# Casting M*A*S*H If It Were Made In 2026: All 11 Main Roles
+
+Classic TV, M*A*S*H
+
+Wed, 09 Sep 2026 23:00:14 GMT
+
+https://screenrant.com/mash-recasting-main-roles-for-2026/
+
+Over half a century later, M*A*S*H remains a legendary series, but the beloved 4077th unit would look very different in the modern TV landscape.
+---------
+
+# Star Trek Officially Unveils Ultimate 60th Anniversary Crossover Coming November 2026
+
+Gaming, Star Trek, Star Trek Online, PC
+
+Wed, 09 Sep 2026 23:00:14 GMT
+
+https://screenrant.com/star-trek-online-ultimate-60th-anniversary-crossover/
+
+Star Trek is celebrating its 60th anniversary in grand fashion this November with an incredible and unexpected crossover.
+---------
+
+# John Wick: Keanu Reeves' $1B Action Thriller Franchise Is Officially Free To Binge-Watch
+
+Streaming TV, Masked Recs
+
+Wed, 09 Sep 2026 22:47:14 GMT
+
+https://screenrant.com/john-wick-movies-keanu-reeves-free-streaming-watch/
+
+John Wick, Keanu Reeves' $1 billion action thriller movie franchise, is officially free to watch on the streaming platform Pluto TV with paid ads.
+---------
+
+# Paramount+'s New Yellowstone Confirmed By Taylor Sheridan Casting
+
+Streaming TV, Landman, Yellowstone, Taylor Sheridan
+
+Wed, 09 Sep 2026 22:30:16 GMT
+
+https://screenrant.com/landman-season-3-michael-kelly-villain-similar-to-yellowstone/
+
+Taylor Sheridan has finally found a proper replacement for Yellowstone, and he's changing his existing show Landman to fill that role.
+---------
+
+# CBS' New Vampire Show Improves What We Do in the Shadows & Ghost's Formulas
+
+TV, CBS, Eternally Yours
+
+Wed, 09 Sep 2026 23:39:09 GMT
+
+https://www.cbr.com/cbs-new-vampire-show-eternally-yours-combines-intriguing-formulas/
+
+CBS is intentionally veering a bit off-course with its new entry into the vampire genre.
+---------
+
+# HBO Max’s New 10-Episode Sci-Fi Show Is Losing Its Grip on Streaming
+
+TV, Stuart Fails to Save the Universe, The Big Bang Theory, HBO Max
+
+Wed, 09 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/hbo-max-stuart-fails-to-save-the-universe-drop-september-2026/
+
+The popular spinoff series has been fluctuating in the streaming charts.
+---------
+
+# 7 Must-Watch Cozy Horror Movies That Are 10/10, No Notes
+
+Movies, Horror
+
+Wed, 09 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/must-watch-cozy-horror-movies-list/
+
+These are the most perfect examples of cozy horror movies that comfort you while making you shiver.
+---------
+
+# Major Fall 2026 Anime Delayed Indefinitely Less Than 1 Month Before Premiere
+
+Anime
+
+Wed, 09 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/junket-bank-anime-release-date-lose/
+
+One of the most highly anticipated anime releases of the Fall 2026 season has just been delayed less than a month before its intended debut.
+---------
+
+# It's Officially The Dawn Of A New Era For Epic Shonen Standards
+
+Anime, Bleach, Bleach: Thousand Year Blood War
+
+Wed, 09 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/bleach-tybw-sets-new-shonen-anime-standards/
+
+Bleach: Thousand-Year Blood War sets a new blueprint for shonen, and anime won't ever be the same.
+---------
+
+# Keanu Reeves' John Wick the Action Movie Franchise of the Century
+
+Movies, John Wick, Keanu Reeves, Thriller
+
+Wed, 09 Sep 2026 22:00:13 GMT
+
+https://www.cbr.com/keanu-reeves-john-wick-action-franchise-of-21st-century/
+
+John Wick redefined what it means to be a great action thriller, and while many films have tried, the series still hasn't been topped.
+---------
+
+# The 10 Best Comic Book Writers of the 2020s, Ranked
+
+Comics, DC Comics, Marvel Comics, image comics, comics
+
+Wed, 09 Sep 2026 22:00:13 GMT
+
+https://www.cbr.com/best-comic-book-writers-of-the-2020s-ranked/
+
+The 2020s have created a new group of incredible writers who are dominating the comics industry.
+---------
+
+# 7 Netflix Anime Series Where Every Episode Is a Masterpiece
+
+Anime, Netflix, Innovation
+
+Wed, 09 Sep 2026 21:35:11 GMT
+
+https://www.cbr.com/best-anime-on-netflix-list/
+
+Anime like Dorohedoro are the best anime to watch on Netflix right now.
+---------
+
+# HBO's Harry Potter Season 2 Delayed After Major Recasting
+
+TV, Harry Potter
+
+Wed, 09 Sep 2026 21:31:24 GMT
+
+https://www.cbr.com/hbo-harry-potter-season-2-delayed-report/
+
+The series was initially scheduled to start filming this fall, and entered early production just to be met with a setback.
+---------
+
+# 'NCIS' Rewrote the Series With Season 22's Formula Change
+
+TV Features, NCIS, Procedural, CBS, Mark Harmon
+
+Wed, 09 Sep 2026 23:24:11 GMT
+
+https://collider.com/ncis-season-22-fornell-exit-parker-sweeney/
+
+NCIS found a way to say goodbye to Fornell and Gibb's dynamic by having Sweeney and Parker fill in.
+---------
+
+# 2026’s Biggest Sci-Fi Epic Officially Premieres in 3 Months
+
+Movie News, Dune: Part Three, Sci-Fi, Box Office, Timothée Chalamet
+
+Wed, 09 Sep 2026 23:00:11 GMT
+
+https://collider.com/dune-part-three-release-date-december-2026/
+
+Denis Villeneuve's epic sci-fi finale, Dune: Part Three, is officially less than 100 days away. Read on for all the details.
+---------
+
+# The 10 Greatest Romance Books of the 21st Century, Ranked
+
+Books and Comics, Books, Romance, The Fault in Our Stars, The Time Traveler's Wife
+
+Wed, 09 Sep 2026 22:22:11 GMT
+
+https://collider.com/best-romance-books-21st-century-ranked/
+
+The Fault in Our Stars by John Green and The Time Traveler's Wife by Audrey Niffenegger are among the best romantic books of the 21st century so far.
+---------
+
+# 10 Superhero Shows That Are 10/10, No Notes
+
+TV, Superhero, My Hero Academia, Daredevil, Batman: The Animated Series
+
+Wed, 09 Sep 2026 22:03:11 GMT
+
+https://collider.com/superhero-shows-perfect-no-notes/
+
+From the science fantasy anime My Hero Academia to the acclaimed Netflix crime drama Daredevil, these superhero shows are genuinely flawless.
+---------
+
+# 10 Fantasy Books That Are Page-Turners From Start to Finish
+
+Books and Comics, Books, Fantasy, Dungeon Crawler Carl, Terry Pratchett
+
+Wed, 09 Sep 2026 21:51:11 GMT
+
+https://collider.com/fantasy-books-page-turners-start-to-finish/
+
+Dungeon Crawler Carl by Matt Dinniman and Night Watch by Terry Pratchett are great fantasy books that will keep you turning the page.
+---------
+
+# Jason Statham's 10/10 Heist Thriller Officially Scores a Sequel
+
+Movie News, The Italian Job, Mark Wahlberg, Jason Statham
+
+Wed, 09 Sep 2026 21:41:09 GMT
+
+https://collider.com/jason-statham-the-italian-job-sequel-paul-feig-directing/
+
+A follow-up to Jason Statham's hit crime thriller The Italian Job is officially in the works, with The Housemaid's Paul Feig attached to direct.
+---------
+
+# 10 Greatest Charlie Brown Quotes That Made ‘Peanuts’ History
+
+Movie Lists, Peanuts, comics
+
+Wed, 09 Sep 2026 22:56:54 GMT
+
+https://movieweb.com/peanuts-best-charlie-brown-quotes/
+
+Charlie Brown is one of the most relatable characters in the history of comic strips, and these 10 quotes reveal why.
+---------
+
+# Streaming Historical Epic Adaptation Releases First Look Ahead of Ridley Scott's New Reboot
+
+TV News, Treasure Island, Action
+
+Wed, 09 Sep 2026 22:02:10 GMT
+
+https://movieweb.com/treasure-island-reboot-mgm-first-look/
+
+'Treasure Island', starring David Oyelowo and Hayley Atwell, will debut on MGM+ on Oct. 11.
+---------
+
+# Henry Cavill & Russell Crowe's 'Man of Steel' Reunion Could Revive an Entire Sci-Fi Franchise
+
+Features, Highlander, Henry Cavill, Man of Steel, Russell Crowe, Science Fiction
+
+Wed, 09 Sep 2026 22:00:17 GMT
+
+https://movieweb.com/highlander-henry-cavill-russell-crowe-sci-fi-reunion/
+
+Henry Cavill and Russell Crowe starred in 'Man of Steel,' the 2013 action superhero movie, and are reuniting for a new project.
+---------
+
+# Iconic 10/10 Sci-Fi Thriller Masterpiece Officially Sets New Release Ahead of Sequel
+
+Movie News, Donnie Darko, Sci-Fi
+
+Wed, 09 Sep 2026 21:40:53 GMT
+
+https://movieweb.com/donnie-darko-25th-anniversary-release/
+
+Jake Gyllenhaal's career-defining film 'Donnie Darko' is getting a new release on its 25th anniversary.
+---------
+
+# 'Tracker' Star Gets a Major Role Upgrade for Season 4 of CBS' Action Thriller
+
+TV News, Tracker, Justin Hartley, Paramount Plus
+
+Wed, 09 Sep 2026 21:37:46 GMT
+
+https://movieweb.com/tracker-cassaady-mcclincy-zhang-season-4-regular/
+
+The shakeup promotes a cast member ahead of the Season 4 premiere.
+---------
+
 # "Better Than Daniel Day-Lewis": Bob Odenkirk Says This TV Show Performance Is The Best Acting He's Ever Seen
 
 TV, Masked Recs
