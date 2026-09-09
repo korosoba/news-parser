@@ -1,3 +1,443 @@
+# Mike Colter Is A Fierce Lawyer Battling Tech Goliaths In CBS’ New Cupertino Trailer
+
+TV, Cupertino, Cupertino - Season 1
+
+Wed, 09 Sep 2026 15:35:38 GMT
+
+https://screenrant.com/cbs-cupertino-series-official-trailer/
+
+With a month to go until CBS debuts Cupertino, a new trailer has been released starring Mike Colter as a fierce lawyer protecting the exploited.
+---------
+
+# Star Wars Confirms Andor & Rogue One Return In 2 Months With New Bonus Content
+
+Comics, Star Wars, Rogue One: A Star Wars Story, Andor
+
+Wed, 09 Sep 2026 15:29:59 GMT
+
+https://screenrant.com/star-wars-andor-rogue-one-return-details/
+
+Star Wars’ Rogue One and Andor are returning this November with new bonus content celebrating the 10th anniversary of the beloved movie.
+---------
+
+# Alleged Feuding Stars Of Prime Video's Hit Series Respond To Rumors Of Rift
+
+TV, Off Campus, Belmont Cameli
+
+Wed, 09 Sep 2026 15:09:16 GMT
+
+https://screenrant.com/off-campus-show-stars-feud-ella-bright-belmont-cameli/
+
+Prime Video’s hit romance series is currently filming season 2, and the stars are taking to social media to dispel shocking feud rumors.
+---------
+
+# Rod Roddenberry: What Star Trek Has Taught Us After 60 Years
+
+TV, Star Trek, Gene Roddenberry
+
+Wed, 09 Sep 2026 15:03:12 GMT
+
+https://screenrant.com/star-trek-60th-anniversary-rod-roddenberry/
+
+On Star Trek’s 60th anniversary, Rod Roddenberry reflects on Gene’s life, his vision for humanity, and the enduring optimism behind Star Trek.
+---------
+
+# Marvel Officially Confirms Punisher's War Machine Armor For His New Appearance
+
+Marvel Comics, The Punisher
+
+Wed, 09 Sep 2026 15:00:15 GMT
+
+https://screenrant.com/punisher-war-machine-armor-return/
+
+Marvel confirms the Punisher's iconic War Machine armor will be key to Frank Castle's next mission, which will pit him against a fellow's anti-hero.
+---------
+
+# The 18-Episode British Sitcom So Iconic, Netflix Is Bringing It Back After 12 Years
+
+Classic TV, Masked Recs
+
+Wed, 09 Sep 2026 15:00:15 GMT
+
+https://screenrant.com/the-inbetweeners-sitcom-netflix-return/
+
+The Inbetweeners has proven to be so iconic and enduring that Netflix is bringing it back for yet another movie, a full 12 years after the last one.
+---------
+
+# 10 Serial Killer Thrillers That Are Way Better Than The Whisper Man
+
+Movies, Thriller, The Whisper Man, Netflix
+
+Wed, 09 Sep 2026 14:52:35 GMT
+
+https://screenrant.com/serial-killer-thrillers-better-than-the-whisper-man/
+
+These 10 serial killer thrillers are way better than The Whisper Man, from Oscar-winning classics to overlooked modern gems.
+---------
+
+# Resident Evil Remake Collection Officially Announced
+
+Gaming, Nintendo Direct, Resident Evil, Resident Evil 2, Resident Evil 3, Resident Evil 4
+
+Wed, 09 Sep 2026 14:48:52 GMT
+
+https://screenrant.com/resident-evil-remake-collection-announced/
+
+Resident Evil has uplifted itself immensely with remakes in the last decade (longer, even), and a new Nintendo Switch 2 release celebrates that.
+---------
+
+# The Mandalorian & Grogu Is The 4th Failure From A Disney Strategy That Needs To End
+
+Star Wars, Disney, The Mandalorian and Grogu
+
+Wed, 09 Sep 2026 14:45:15 GMT
+
+https://screenrant.com/the-mandalorian-and-grogu-disney-movies-show-sequels-failures/
+
+The Mandalorian and Grogu had a disappointing box office performance, but its failures are not unique. It's a result of a poor Disney strategy.
+---------
+
+# Disclosure Day Sets Official Peacock Streaming Release Date
+
+Movies, Disclosure Day
+
+Wed, 09 Sep 2026 14:42:56 GMT
+
+https://screenrant.com/disclosure-day-movie-streaming-release-date-peacock-confirmed/
+
+Steven Spielberg's new Sci-Fi movie, Disclosure Day, will release on streaming on Peacock soon, allowing fans of the director to enjoy it from home.
+---------
+
+# Buffy the Vampire Slayer Gets More Bad News as New Game Is Reportedly Canceled
+
+Games, Buffy The Vampire Slayer
+
+Wed, 09 Sep 2026 15:40:11 GMT
+
+https://www.cbr.com/buffy-the-vampire-slayer-new-game-reportedly-canceled/
+
+Just months after the Buffy the Vampire Slayer reboot was officially cancelled by Hulu, the classic '90s franchise faces another setback.
+---------
+
+# 8 Fantasy Movie Remakes Nobody Asked For
+
+Movies, Fantasy
+
+Wed, 09 Sep 2026 15:30:11 GMT
+
+https://www.cbr.com/worst-fantasy-movie-remakes-list/
+
+Fantasy movies can leave a huge mark on audiences, but when they're remade, they don't always hit the same mark.
+---------
+
+# Steven Spielberg's New Sci-Fi Is Finally Heading to Streaming After Flopping in Theaters
+
+Movies, steven spielberg, Disclosure Day, Peacock
+
+Wed, 09 Sep 2026 15:28:15 GMT
+
+https://www.cbr.com/steven-spielberg-sci-fi-disclosure-day-gets-streaming-date/
+
+Steven Spielberg's finally gets a chance to redeem itself on streaming — this Fall.
+---------
+
+# Metroid Ravenous Officially Announced, Coming Early Next Year
+
+Games, Metroid
+
+Wed, 09 Sep 2026 15:27:28 GMT
+
+https://www.cbr.com/metroid-ravenous-revealed-release-date/
+
+Samus Aran returns in the sixth mainline 2D Metroid game, Metroid Ravenous, and its release date, revealed at the September Nintendo Direct, is soon.
+---------
+
+# 10 Greatest Classic '80s Games Worth Playing Again and Again, Ranked
+
+Games, Nintendo, super mario bros
+
+Wed, 09 Sep 2026 15:15:11 GMT
+
+https://www.cbr.com/greatest-classic-80s-games-worth-replaying-ranked/
+
+Arcade adrenaline meets timeless design in these iconic ’80s hits that keep pulling players back for just one more run.
+---------
+
+# 5 Sci-Fi Anime Where Every Season is a Masterpiece
+
+Anime, Dr. Stone, Steins;Gate
+
+Wed, 09 Sep 2026 15:00:11 GMT
+
+https://www.cbr.com/sci-fi-anime-every-season-a-masterpiece/
+
+These sci-fi anime never lose their momentum, delivering outstanding storytelling from start to finish.
+---------
+
+# Tom Cruise Ruins & Tries to Fix the World in His Best Role Yet
+
+Movies, Digger, tom cruise
+
+Wed, 09 Sep 2026 14:43:56 GMT
+
+https://www.cbr.com/tom-cruise-digger-final-trailer/
+
+With the Mission: Impossible franchise behind him, Tom Cruise returns with a role that could finally net him an Oscar.
+---------
+
+# Clair Obscur: Expedition 33 Returns November 24 With Stunning New Release
+
+Games, Video Games, RPG
+
+Wed, 09 Sep 2026 14:25:11 GMT
+
+https://www.cbr.com/clair-obscur-expedition-33-returns-new-release-november-2026/
+
+Clair Obscur: Expedition 33 finally returns this November with a new release.
+---------
+
+# 8 New LEGO Mighty Machines Combine Into a Massive Transformers Villain
+
+Anime, Transformers, LEGO, merchandise, toys
+
+Wed, 09 Sep 2026 14:20:11 GMT
+
+https://www.cbr.com/lego-mighty-machines-devastator-build/
+
+An unofficial build using the newest LEGO blind box sets recreates the combined form of one of the most iconic Generation 1 Transformers subgroups.
+---------
+
+# 5 Anime Series Where the Hero Has to Kill Their Best Friend
+
+Anime, Attack on Titan, Neon Genesis Evangelion, Jujutsu Kaisen
+
+Wed, 09 Sep 2026 14:15:11 GMT
+
+https://www.cbr.com/anime-series-hero-has-to-kill-their-best-friend/
+
+Anime heroes are often forced to make impossible choices. For these five protagonists, saving the world meant killing their closest friends.
+---------
+
+# ‘Looney Tunes’ Meets Body Horror in This New Fantastic Fest Nightmare [Exclusive]
+
+Exclusives, Fantastic Fest, Sci-Fi, Horror, Collider Exclusive Preview
+
+Wed, 09 Sep 2026 15:00:11 GMT
+
+https://collider.com/flapjax-image-gabriel-cagan-sci-fi-horror-comedy-fantastic-fest/
+
+A new look at the sci-fi horror comedy Flapjax shows Gabriel Cagan's dedicated fast food manager sprinting through a run-down restaurant.
+---------
+
+# Canadian Icons Officially Tease Doc About the Musical That "Ignited a Comedy Revolution" [Exclusive]
+
+Movie News, You Had to Be There: How the Toronto Godspell Ignited the Comedy Revolution..., Martin Short, Eugene Levy, SCTV
+
+Wed, 09 Sep 2026 15:00:11 GMT
+
+https://collider.com/you-had-to-be-there-documentary-sneak-peek/
+
+A new documentary chronicles the Godspell production that birthed Canadian comedy legends. Watch a preview clip now.
+---------
+
+# Star Trek Boss Officially Dishes on the Sci-Fi Franchise's Worst Early Cancellation
+
+TV News, Star Trek: The Next Generation, Star Trek, Brannon Braga, Paramount
+
+Wed, 09 Sep 2026 14:30:11 GMT
+
+https://collider.com/star-trek-the-next-generation-cancellation-comments-brannon-braga/
+
+Star Trek: The Next Generation's conclusion may have come too soon, according to producer Brannon Braga. Here's all to know.
+---------
+
+# Jodie Comer Seduces Harry Melling in a Song With a Corpse in a New Clip from a New TIFF Musical [EXCLUSIVE]
+
+Movie News, Stuffed, Jodie Comer, Harry Melling, TIFF
+
+Wed, 09 Sep 2026 14:00:11 GMT
+
+https://collider.com/jodie-comer-harry-melling-stuffed-sneak-peek/
+
+The 'Killing Eve' star plays a taxidermist who wants to stuff a human.
+---------
+
+# Doctor Strange Officially Returns to Marvel in "Eye-Popping" New Release [Exclusive]
+
+Exclusives, Doctor Strange, Doctor Strange in the Multiverse of Madness, Comics
+
+Wed, 09 Sep 2026 14:00:11 GMT
+
+https://collider.com/doctor-strange-endless-nightmare-exclusive-preview/
+
+Get an exclusive look at Doctor Strange: Endless Nightmare, the new Marvel graphic novel from Kevin J. Anderson, Raúl Allén, and Patricia Martín.
+---------
+
+# Two James Bond Contenders Unite in ‘Hell or High Water’ Director’s New Streaming Hit
+
+Movie News, Fuze, Aaron Taylor-Johnson, Theo James, Hell or High Water
+
+Wed, 09 Sep 2026 13:30:11 GMT
+
+https://collider.com/theo-james-fuze-streaming-success-hbo-max-prime-video-september-2026/
+
+Two actors who were once up for the role of James Bond — Aaron Taylor-Johnson and Theo James — star in a new action movie surging on streaming.
+---------
+
+# Marvel Officially Reunites Doctor Doom With His Perfect Love Interest
+
+Books and Comics News, Marvel Comics, Doctor Doom, Fantastic Four, Marvel
+
+Wed, 09 Sep 2026 13:30:11 GMT
+
+https://collider.com/marvel-comics-doomquest-doctor-doom-valeria-romance/
+
+Marvel is officially reuniting Doctor Doom with his perfect love interest as the road to Avengers: Doomsday continues.
+---------
+
+# Marvel Officially Brings Back Frank Castle’s Most Overpowered Upgrade
+
+Books and Comics News, Marvel Comics, The Punisher, Deadpool, War Machine
+
+Wed, 09 Sep 2026 13:15:11 GMT
+
+https://collider.com/the-punisher-issue-8-big-guns-war-machine-return/
+
+The latest issue of The Punisher reintroduces one of the most powerful tools in Frank Castle's arsenal, but it's not in his control.
+---------
+
+# David Tennant's 10/10 Hulu Series Officially Confirms Release Date
+
+TV News, Rivals, Hulu, David Tennant, Streaming
+
+Wed, 09 Sep 2026 13:00:11 GMT
+
+https://collider.com/rivals-season-2-part-2-release-date/
+
+Hulu's raunchy adaptation of Jilly Cooper's Rivals has officially set the release date for Part 2 of Season 2 with a new look at the upcoming return.
+---------
+
+# Mike Flanagan’s New Stephen King Adaptation Officially Makes a Bold Change in Final Trailer
+
+TV News, Carrie, Mike Flanagan, Horror, Stephen King
+
+Wed, 09 Sep 2026 13:00:11 GMT
+
+https://collider.com/mike-flanagan-carrie-series-trailer/
+
+Prime Video reveals the official trailer for Mike Flanagan’s Carrie series, starring Summer H. Howell and premiering October 7.
+---------
+
+# 37 Years Later, ‘Calvin and Hobbes’s Funniest Quote Keeps Getting Better
+
+Features, Comedy
+
+Wed, 09 Sep 2026 15:30:15 GMT
+
+https://movieweb.com/calvin-and-hobbies-funniest-quote-aliens/
+
+Issued on November 8, 1989, the most hilarious Calvin and Hobbes quote has only become truer and more profound over time
+---------
+
+# 51-Year-Old Spy Franchise Returning 18 Years After Popular $230M Reboot Went Nowhere
+
+Movie News, Get Smart, John Mulaney, Comedy
+
+Wed, 09 Sep 2026 15:15:47 GMT
+
+https://movieweb.com/get-smart-john-mulaney-reboot/
+
+Warner Bros. is trying to revive this classic spy series again, with a big name in the lead role.
+---------
+
+# Major 'SNL' Member Officially Leaving Long-Running Comedy Series After 5 Seasons
+
+TV News, Network TV, Saturday Night Live
+
+Wed, 09 Sep 2026 15:13:49 GMT
+
+https://movieweb.com/saturday-night-live-martin-herlihy-exit/
+
+One of the biggest stars from the last few years of 'Saturday Night Live" is leaving the show after a long run of success.
+---------
+
+# Taylor Sheridan’s Navy SEAL Action Thriller Was Nothing Like the Book It's Based On
+
+Features, Action, Thriller, Taylor Sheridan
+
+Wed, 09 Sep 2026 15:00:14 GMT
+
+https://movieweb.com/without-remorse-taylor-sheridan-compared-tom-clancy-book/
+
+Michael B. Jordan served up a commanding performance, but Tom Clancy fans weren't happy.
+---------
+
+# 26 Years Ago, Sylvester Stallone Failed To Remake One of the Greatest Action Thrillers of All Time
+
+Features, Sylvester Stallone, Get Carter, Action, Thriller
+
+Wed, 09 Sep 2026 15:00:14 GMT
+
+https://movieweb.com/sylvester-stallone-get-carter-action-thriller-remake/
+
+Sylvester Stallone's action thriller remake forgets what made the original film's gritty revenge story a classic.
+---------
+
+# Superman and 2 Other DCU Characters' Next Appearances Officially Revealed In New Trailer
+
+TV News, Superman, Supergirl
+
+Wed, 09 Sep 2026 14:38:20 GMT
+
+https://movieweb.com/krypto-saves-the-day-season-2-trailer/
+
+A host of DC characters are now back in action, courtesy of a fun new trailer bringing the Superman story back into the spotlight.
+---------
+
+# Alan Ritchson's New Action Thriller Is Officially His Highest-Rated 2026 Movie on Rotten Tomatoes
+
+Movie News, Runner, Alan Ritchson, Owen Wilson, Action
+
+Wed, 09 Sep 2026 14:35:28 GMT
+
+https://movieweb.com/runner-alan-ritchson-rotten-tomatoes-score/
+
+The new movie from the 'Reacher' actor may be his best of the year.
+---------
+
+# 8 Great Sci-Fi Movies Like 'Project Hail Mary'
+
+Movie Lists, Project Hail Mary, Sci-Fi
+
+Wed, 09 Sep 2026 14:30:13 GMT
+
+https://movieweb.com/sci-fi-movies-like-project-hail-mary/
+
+With a $685 million gross and a 95% Rotten Tomatoes score, Project Hail Mary is arguably the best sci-fi movie of 2026. Here's what to watch after.
+---------
+
+# Forget 'Lioness': Walton Goggins' Military Action Thriller Can Be Binge-Watched in a Weekend
+
+Features, Lioness, War, Action, Walton Goggins
+
+Wed, 09 Sep 2026 14:15:14 GMT
+
+https://movieweb.com/walton-goggins-six-action-thriller-binge/
+
+Walton Goggins's military action thriller has a lot in common with Taylor Sheridan's Lioness, and it's shorter — meaning it's a great weekend binge.
+---------
+
+# Netflix's New 'Sicario Meets Training Day' Action Thriller Is One of the Biggest Movies in the World
+
+Movie News, Facing El Chapo, Netflix, Hot on Streaming, Action
+
+Wed, 09 Sep 2026 14:00:15 GMT
+
+https://movieweb.com/facing-el-chapo-action-netflix-stream-tudum-sept-2026/
+
+Netflix's low-budget action thriller, which is based on a true story, is defying the odds on streaming.
+---------
+
 # Star Trek: The Next Generation Officially Returns December 2026 In Rediscovered
 
 Gaming, Star Trek, Star Trek: The Next Generation
