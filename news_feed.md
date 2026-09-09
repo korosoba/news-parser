@@ -1,3 +1,289 @@
+# Blade Runner's Best Hidden Detail Comes Direct From The Original '60s Sci-Fi Novel
+
+Movies, Blade Runner
+
+Wed, 09 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/blade-runner-androids-dream-electric-sheep-animals/
+
+One subtle detail from Blade Runner plays a much bigger role in its source material, Philip K. Dick’s 1968 novel Do Androids Dream of Electric Sheep?
+---------
+
+# 3 Greatest PS2 RPGs Nobody Ever Talks About
+
+Gaming, PlayStation 2, RPG, Triple-A Games
+
+Wed, 09 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/greatest-playstation-ps2-rpgs-nobody-talks-about/
+
+The PlayStation 2 had a huge library of iconic RPG titles, but some of the ones that don't often enter the conversation are just as fun.
+---------
+
+# William Shakespeare Meets Cormac McCarthy In HBO’s 10-Part Dystopian Masterpiece
+
+Classic TV, Masked Recs
+
+Wed, 09 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/station-eleven-hbo-shakespeare-meets-cormac-mccarthy-sci-fi/
+
+William Shakespeare and Cormac McCarthy, two legendary writers with vastly different style, come together in HBO's masterpiece Station Eleven.
+---------
+
+# Last Seen Review: Apple TV's New Crime Series Is An Emotional Journey, Despite One Major Setback
+
+Streaming TV, Last Seen
+
+Wed, 09 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/last-seen-apple-tv-review/
+
+Last Seen follows a father who believes his missing daughter is alive, presenting a compelling, emotional journey that lands most of the time.
+---------
+
+# Dave Bautista's New Prime Video Fantasy Series Is Officially A Full-Circle Moment
+
+Streaming TV, Dave Bautista
+
+Wed, 09 Sep 2026 00:30:14 GMT
+
+https://screenrant.com/god-of-war-dave-bautista-kratos-fancast-full-circle/
+
+Dave Bautista is set to lead a highly anticipated upcoming fantasy series on Prime Video, with his role bringing some old theories full circle.
+---------
+
+# Why WandaVision Creator Left The MCU Trilogy’s Finale Explained By Star
+
+TV, WandaVision, VisionQuest, Marvel Cinematic Universe
+
+Wed, 09 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/visionquest-wandavision-mcu-trilogy-creator-exit-explained-paul-bettany/
+
+As the WandaVison trilogy is bringing its third and final series to Disney+ this fall, Paul Bettany explains why the original creator left the show.
+---------
+
+# 10 Best Books About Cheating and Infidelity
+
+Books
+
+Wed, 09 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/best-books-cheating-infidelity/
+
+Discover the best novels that delve into themes of infidelity and betrayal, exploring complex human emotions.
+---------
+
+# The Pitt Creator’s New Show Is NOTHING Like Noah Wyle’s Groundbreaking HBO Max Series
+
+TV, The Pitt, NCIS: New York
+
+Wed, 09 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/ncis-new-york-the-pitt-scott-gemill-different/
+
+With his upcoming show, a veteran showrunner trades real time ER pressure for high stakes procedural action set amid New York's covert threats.
+---------
+
+# 6 Looney Tunes Characters Who Deserve Their Own Movie After Coyote Vs. Acme
+
+Movies, Coyote Vs. Acme
+
+Wed, 09 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/coyote-vs-acme-looney-characters-deserve-solo-movies/
+
+The extremely positive reviews for Coyote vs. Acme is a sign that solo adventures for Looney Tunes characters really can work on the big screen.
+---------
+
+# Squid Game Meets Real Life as Game Show Contestant Hacks Rules to Crush Rival
+
+Reality TV, Masked Recs, Squid Game
+
+Tue, 08 Sep 2026 23:53:57 GMT
+
+https://screenrant.com/viral-reality-show-moment-four-bed/
+
+"I cheated to stop the other cheaters."
+---------
+
+# Prime Video’s 2-Season Sci-Fi Western Is 1 of TV's Weirdest Masterpieces
+
+TV, Outer Range, Sci-Fi, Prime Video
+
+Wed, 09 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/prime-video-outer-range-weirdest-sci-fi-western-tv-masterpiece/
+
+Wyoming dust, a bottomless tear in time, and a family's buried sins unspool into Prime Video's dizzying sci‑fi western odyssey.
+---------
+
+# 15-Season Fantasy Classic Is Quietly Becoming 1 of the World's Most Popular Shows 6 Years Later
+
+TV, Supernatural, Fantasy, The CW
+
+Wed, 09 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/supernatural-fantasy-classic-most-popular-shows/
+
+The hit series is one of the Top 100 TV Shows.
+---------
+
+# 6 Biggest Ocarina of Time Remake Changes Revealed in the Zelda Direct
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Wed, 09 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-remake-changes-direct-list/
+
+Zelda: Ocarina of Time’s Switch 2 remake is staying faithful to the classic, but there are still some very notable changes being made to modernize it.
+---------
+
+# Naruto Reveals First Look at 2 More Akatsuki Designs for New Noir Edge Series
+
+Anime, Naruto, Naruto: Shippuden, merchandise
+
+Wed, 09 Sep 2026 00:20:11 GMT
+
+https://www.cbr.com/naruto-shippuden-noir-edge-deidara-sasori-first-look/
+
+Akatsuki members Sasori and Deidara from Naruto: Shippuden have just had new designs revealed for the New Noir Edge Series.
+---------
+
+# 5 Greatest Fantasy Mecha Anime of All Time
+
+Anime, The Vision of Escaflowne, Magic Knight Rayearth
+
+Wed, 09 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/best-fantasy-mecha-anime-all-time/
+
+With magical worlds and massive robots, these five fantasy mecha anime showcase the best of both genres.
+---------
+
+# Glen Powell's Confessions of Murder Reboot Is a Zodiac Replacement
+
+Movies, Glen Powell, universal
+
+Wed, 09 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/glen-powell-confessions-of-murder-remake-zodiac-replacement/
+
+An American remake of a 14-year-old Korean action thriller has been ordered at Universal, and Glen Powell's involvement makes it even more exciting.
+---------
+
+# Prime Video’s 3-Season Fantasy Hit Is Trending as Fans Demand a Do-Over
+
+TV, Good Omens
+
+Tue, 08 Sep 2026 23:53:34 GMT
+
+https://www.cbr.com/good-omens-trends-fans-want-remake/
+
+Fans are calling for a remake just months after the series finale.
+---------
+
+# Every Stephen King Book From the 1970s, Ranked
+
+Books and Comics, Stephen King, The Stand, Carrie, The Shining
+
+Wed, 09 Sep 2026 01:12:11 GMT
+
+https://collider.com/stephen-king-books-1970s-ranked/
+
+Stephen King made his start as a published author in the 1970s, but among classics like The Shining, Carrie, and The Stand, which one's the best?
+---------
+
+# Apple TV's New Psychological Thriller 'Last Seen' Never Plays by the Genre's Rules | Review
+
+TV Reviews, Last Seen, Apple TV, Patrick Brammall, Brendan Cowell
+
+Wed, 09 Sep 2026 01:00:11 GMT
+
+https://collider.com/last-seen-review-apple-tv-thriller/
+
+Apple TV's new series Last Seen, starring Patrick Brammall, is a psychological thriller that never plays by the genre's rules.
+---------
+
+# 6 Detective Shows That Are 10/10 Masterpieces
+
+TV, Broadchurch, Columbo, Crime, Mystery
+
+Wed, 09 Sep 2026 00:55:11 GMT
+
+https://collider.com/detective-shows-perfect-masterpieces/
+
+From True Detective to Broadchurch, these perfect mysteries prove the best detective stories can keep you guessing without cheap tricks.
+---------
+
+# The 8 Most Fun Classic Movies, Ranked
+
+Movie, Singin in the Rain, Billy Wilder, Cary Grant, Classics
+
+Wed, 09 Sep 2026 00:32:11 GMT
+
+https://collider.com/most-fun-classic-movies-ranked/
+
+Some Like It Hot, North by Northwest, and Singin' in the Rain are all among the greatest, most purely fun classic movies.
+---------
+
+# ABC's Western Series Ran for 2 Seasons Before a Surprising Decision Cancelled It
+
+TV Features, The Rebel, Western, Action, ABC
+
+Tue, 08 Sep 2026 23:42:11 GMT
+
+https://collider.com/the-rebel-western-abc-cancelled-tv-show/
+
+The Rebel was a short-lived Western series that ran for three seasons back in the 50s, but despite its violent nature, it was highly influential.
+---------
+
+# 25 Years Later, ‘Inuyasha’s Most Disturbing Storyline Is Still Hard To Watch
+
+TV Features, Inuyasha, Hulu, Pluto TV, Tubi
+
+Tue, 08 Sep 2026 23:29:11 GMT
+
+https://collider.com/inuyasha-sango-kohaku-most-disturbing-storyline-25-years-later/
+
+25 years ago, Inuyasha dropped an episode that cemented main villain Naraku as a truly diabolical force.
+---------
+
+# Taylor Sheridan's Canceled Crime Thriller Masterpiece Was Inches From Beating a Major Record
+
+Features, Mayor of Kingstown, Taylor Sheridan
+
+Wed, 09 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/taylor-sheridan-longest-series-mayor-of-kingstown/
+
+One of Taylor Sheridan's most-watched and most-beloved crime thrillers got an update that will keep it just shy of a record for the prolific creator.
+---------
+
+# 'South Park' Gets Hilarious New Title After Sweeping Emmys
+
+TV News, South Park, Comedy
+
+Wed, 09 Sep 2026 00:03:50 GMT
+
+https://movieweb.com/south-park-title-change-season-29/
+
+The new season of 'South Park' claims it is changing its name to 'South America.'
+---------
+
+# Norman Reedus Returns for One Last Ride in 'The Walking Dead: Daryl Dixon' Season 4 Trailer
+
+TV News, The Walking Dead: Daryl Dixon, Norman Reedus, The Walking Dead, Horror
+
+Tue, 08 Sep 2026 23:46:41 GMT
+
+https://movieweb.com/the-walking-dead-daryl-dixon-season-4-trailer/
+
+'The Walking Dead' veterans Daryl and Carol venture through the badlands of Spain for one last adventure.
+---------
+
 # Godzilla Minus Zero Officially Confirms The Biggest Kaiju Theory & Explains The Movie's Title
 
 Movies, Godzilla Minus Zero
