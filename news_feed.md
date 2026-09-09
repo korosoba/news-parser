@@ -1,3 +1,300 @@
+# Pokémon Gives Umbreon Bold New Design Just In Time For Halloween
+
+Gaming, Pokemon
+
+Wed, 09 Sep 2026 06:00:14 GMT
+
+https://screenrant.com/pokemon-pumpkin-umbreon-tea-light-holder-design/
+
+As Halloween approaches, Pokémon has revealed a number of spooky new items, including one that reimagines Umbreon as a jack-o-lantern pumpkin.
+---------
+
+# Metal Gear Solid Is Back With A New Co-Op Adventure
+
+Gaming, Metal Gear Solid, PC
+
+Wed, 09 Sep 2026 05:30:14 GMT
+
+https://screenrant.com/metal-gear-solid-co-op-mod-available-now/
+
+Metal Gear Solid is finally back with a new release, and this time fans are getting a brand-new co-op experience.
+---------
+
+# Brandon Sanderson's Stormlight Officially Returns October 2026
+
+Gaming, Brandon Sanderson, PC, The Stormlight Archive, Mistborn, The Cosmere, The Cosmere RPG
+
+Wed, 09 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/brandon-sanderson-stormlight-october-2026-return/
+
+Brandon Sanderson's epic Stormlight saga is officially returning in October 2026 with a brand-new adventure for longtime fans.
+---------
+
+# Red Dead Redemption 2 Freebie Officially Available Until September 14
+
+Gaming, Red Dead Redemption 2
+
+Wed, 09 Sep 2026 04:30:14 GMT
+
+https://screenrant.com/red-dead-redemption-2-online-freebie-september-14/
+
+Earn triple rewards and exclusive items in Red Dead Online this September. Don't miss out on limited-time missions!
+---------
+
+# Game Of Thrones: The Witch Queen Of Harrenhal Officially Announced
+
+Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: Conquest, House of the Dragon, PC
+
+Wed, 09 Sep 2026 04:00:19 GMT
+
+https://screenrant.com/game-of-thrones-conquest-witch-queen-of-harrenhal-update/
+
+Game of Thrones: The Witch Queen of Harrenhal is a brand-new release taking fans to the haunted castle of Harrenhal in a bewitching new adventure.
+---------
+
+# In 2 Months, Superman Will Begin His New Era After One Final Battle
+
+Comics, Superman
+
+Wed, 09 Sep 2026 03:30:14 GMT
+
+https://screenrant.com/superman-final-battle-brainiac-new-era/
+
+One of the greatest modern runs on Superman is entering a new era with the iconic superhero finally catching his most heinous villain.
+---------
+
+# Star Trek Officially Announces New Spock Actor For 60th Anniversary
+
+Gaming, Star Trek Online, Star Trek, Star Trek - Season 1, Star Trek - Season 2, Star Trek - Season 3, PC
+
+Wed, 09 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/star-trek-online-new-spock-actor-confirmed/
+
+Star Trek officially continues its 60th anniversary celebrations with a massive new announcement, introducing new Spock actors to the franchise.
+---------
+
+# 12 Best Cleric Spells In Baldur's Gate 3 (& How To Use Them)
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC
+
+Wed, 09 Sep 2026 02:00:26 GMT
+
+https://screenrant.com/baldurs-gate-3-how-to-use-best-cleric-spells/
+
+Clerics in Baldur's Get 3 are often overlooked as just simply healers, but they have far more spells in their arsenals than many realize.
+---------
+
+# Why Joe Pickett Season 3 Never Happened
+
+Classic TV, Joe Pickett
+
+Wed, 09 Sep 2026 02:07:26 GMT
+
+https://screenrant.com/joe-pickett-season-3-renewal-status-possible-cast-everything-we-know/
+
+Joe Pickett season 3 has a lot of story possibilities beyond Paramount+ if it finds a new home, as there are many C.J. Box books still to adapt..
+---------
+
+# Guardians Of The Galaxy's Original Leader Is The Polar Opposite Of Star-Lord
+
+Comics, Guardians of the Galaxy
+
+Wed, 09 Sep 2026 02:00:24 GMT
+
+https://screenrant.com/guardians-galaxy-original-leader-not-star-lord/
+
+Though Peter Quill, a.k.a. Star-Lord, is the Guardians of the Galaxy's most well known leader, his predecessor differs from him in a lot of ways.
+---------
+
+# Mel Brooks' Emmy-Winning James Bond Parody Series Is Getting Another Reboot
+
+TV, Get Smart
+
+Wed, 09 Sep 2026 04:04:26 GMT
+
+https://www.cbr.com/warner-bros-reboot-get-smart-john-mulaney/
+
+An Emmy-winning comedian is also being eyed to star in the next reboot.
+---------
+
+# 10 Complete Anime Series That Are 10/10, No Notes
+
+Anime
+
+Wed, 09 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/complete-anime-series-flawless-start-to-finish-list/
+
+Anime like Chainsaw Man and Frieren aren't finished yet, but there are a few completed anime series that have proven to be masterpieces.
+---------
+
+# 5 Stephen King Books Better Than The Stand
+
+TV, Stephen King, The Stand, Horror
+
+Wed, 09 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/stephen-king-books-that-beat-the-stand-list/
+
+The Stand is considered Stephen King's magnum opus, but some of his best books are even more noteworthy and have captivated mainstream audiences.
+---------
+
+# 10 Best Far Side Comics From 1990 That Prove Gary Larson is a Genius
+
+Comics, The Far Side
+
+Wed, 09 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/the-far-side-gary-larson-genius-1990/
+
+After a decade of The Far Side being one of the most popular newspaper cartoons of all time, Larson had perfected his craft going into the 1990s.
+---------
+
+# 5 Classic SNES Games That Hold Up As 10/10 Masterpieces
+
+Games, Chrono Trigger, Super Metroid, Super Mario RPG: Legend of the Seven Stars, Nintendo
+
+Wed, 09 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/snes-games-that-hold-up-today/
+
+The Super Nintendo is one of the most beloved classic gaming consoles ever made, and many of the SNES' games still hold up today.
+---------
+
+# Aimee Garcia Confirms the Negan Moment That Made Renata ‘Spiral’ on Dead City
+
+CBR Exclusives, The Walking Dead: Dead City, The Walking Dead, AMC
+
+Wed, 09 Sep 2026 03:14:29 GMT
+
+https://www.cbr.com/walking-dead-dead-city-aimee-garcia-renata-negan-interview/
+
+Aimee Garcia explains how Fabian’s death and the Croat’s legacy shape Renata’s choices in The Walking Dead: Dead City Season 3.
+---------
+
+# 47 Years Later, Gundam Finally Completes Its Original Mecha Lineup
+
+Anime, Mobile Suit Gundam, merchandise, bandai, toys, action figures
+
+Wed, 09 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/gundam-zock-bandai-robot-spirits-release/
+
+A new Robots Spirits action figure adds the final missing mech from the original Mobile Suit Gundam anime, perfectly recreating its unorthodox design.
+---------
+
+# 37 Years Later, Netflix Is Rebooting an Iconic Western as New TV Series
+
+TV, Lonesome Dove
+
+Wed, 09 Sep 2026 03:04:55 GMT
+
+https://www.cbr.com/netflix-lonesome-dove-reboot/
+
+Netflix has officially ordered the Western reboot to series.
+---------
+
+# How The Paper Cast Feels About The Office Comparisons Heading Into Season 2
+
+CBR Exclusives, The Paper, The Office, Peacock
+
+Wed, 09 Sep 2026 03:01:01 GMT
+
+https://www.cbr.com/the-paper-season-2-cast-the-office-comparisons/
+
+The Paper stars Melvin Gregg and Ramona Young discuss fan expectations and what’s next for Detrick and Nicole.
+---------
+
+# Clash of the Thundermans is the Biggest Superhero Movie on Streaming
+
+Movies, Clash of the Thundermans
+
+Wed, 09 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/clash-of-the-thundermans-best-superhero-movie-streaming/
+
+Nickelodeon's very own superhero family is coming to blows in one of the biggest superhero movies streaming now.
+---------
+
+# 'Lanterns' Finally Fixes One of Superhero TV's Most Frustrating Problems
+
+TV Features, Lanterns, Poorna Jagannathan, HBO Max, DCU
+
+Wed, 09 Sep 2026 04:45:11 GMT
+
+https://collider.com/lanterns-show-fixes-superhero-tv-frustrating-problem/
+
+HBO's Lanterns is finally fixing one of superhero TV's most persistent problems, according to star Poorna Jagannathan.
+---------
+
+# 6 Crime Shows That Are Better Written Than 'Breaking Bad'
+
+TV, Breaking Bad, Bosch, Crime, Broadchurch
+
+Wed, 09 Sep 2026 04:27:11 GMT
+
+https://collider.com/crime-shows-better-writing-breaking-bad/
+
+Bosch, Broadchurch, The Sopranos, and more make up our list of crime shows that are even better written than Breaking Bad.
+---------
+
+# 'The Dark Knight's Most Famous Line Wasn’t Written by Christopher Nolan and It Still Bothers Him
+
+Movie Features, The Dark Knight, Christopher Nolan, Jonathan Nolan, Aaron Eckhart
+
+Wed, 09 Sep 2026 03:36:11 GMT
+
+https://collider.com/dark-knight-most-famous-line-christopher-nolan-harvey-dent/
+
+Christopher Nolan said he is "plagued" by the fact that he didn't write one of The Dark Knight's most famous lines.
+---------
+
+# CBS Just Gave Network TV’s Best Show a Massive Season 3 Downgrade
+
+TV Features, Jason Ritter, Matlock, Kathy Bates, CBS
+
+Wed, 09 Sep 2026 03:32:11 GMT
+
+https://collider.com/cbs-best-show-matlock-season-3-13-episode-order/
+
+Fans of CBS’ hit show Matlock will have to wait even longer now that the series has been pushed and reduced to a shorter season.
+---------
+
+# 6 Near-Perfect Netflix Series Nobody Remembers
+
+TV, Netflix, The Baby-Sitters Club, Anne With an E, Sense8
+
+Wed, 09 Sep 2026 03:18:11 GMT
+
+https://collider.com/near-perfect-netflix-shows-nobody-remembers/
+
+From Santa Clarita Diet to Sense8, these near-perfect Netflix series deserved far more attention and remain brilliant binge watches.
+---------
+
+# Robert Downey Jr.'s Bonkers Crime Thriller Is Now Forgotten — But It Helped Saved His Career
+
+Movie Features, Shane Black, Robert Downey Jr, Michelle Monaghan, Kiss Kiss Bang Bang
+
+Wed, 09 Sep 2026 01:43:11 GMT
+
+https://collider.com/robert-downey-jr-kiss-kiss-bang-bang-mystery-thriller-val-kilmer/
+
+Robert Downey Jr.'s crime thriller Kiss Kiss Bang Bang reintroduced the star to audiences after a career low point.
+---------
+
+# 8 Perfect Mystery Thriller Miniseries With 8 Episodes Or Less
+
+TV Lists, Thriller, DTF St. Louis, The Stranger
+
+Wed, 09 Sep 2026 02:00:23 GMT
+
+https://movieweb.com/perfect-thriller-miniseries-eight-episodes-or-less/
+
+These mystery thriller TV series tell fascinating stories with great casts in only six or eight episodes
+---------
+
 # Blade Runner's Best Hidden Detail Comes Direct From The Original '60s Sci-Fi Novel
 
 Movies, Blade Runner
