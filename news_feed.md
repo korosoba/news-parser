@@ -1,3 +1,443 @@
+# "Better Than Daniel Day-Lewis": Bob Odenkirk Says This TV Show Performance Is The Best Acting He's Ever Seen
+
+TV, Masked Recs
+
+Wed, 09 Sep 2026 21:30:14 GMT
+
+https://screenrant.com/bob-odenkirk-ricky-gervais-the-office-better-than-daniel-day-lewis/
+
+Bob Odenkirk reveals that he believes Ricky Gervais out-acted Daniel Day-Lewis with his portrayal of David Brent in the original Office series.
+---------
+
+# M. Night Shyamalan's New Movie Sets Up An Even Bigger Plot Twist Than The Sixth Sense
+
+Movies, Masked Recs
+
+Wed, 09 Sep 2026 21:20:14 GMT
+
+https://screenrant.com/m-night-shyamalan-remain-movie-sixth-sense-ghosts-twist/
+
+M. Night Shyamalan has a new movie coming out and while it sets up a similar storyline as The Sixth Sense, that isn't the twist it is hiding.
+---------
+
+# Dexter: Resurrection Season 2 Casts Iconic '80s Horror Star For Epic Franchise Reunion
+
+TV, Dexter: Resurrection, Dexter
+
+Wed, 09 Sep 2026 21:14:51 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-barbara-crampton-casting/
+
+Dexter: Resurrection season 2's stacked ensemble cast continues to grow with the confirmed appearance of an iconic '80s horror movie star.
+---------
+
+# Rotten Tomatoes Crowns The Best Crime Series Of All Time (And It Isn’t The Sopranos)
+
+TV, Masked Recs
+
+Wed, 09 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/life-on-mars-rotten-tomatoes-highest-score-crime-tv-show/
+
+Critical aggregator Rotten Tomatoes has crunched the numbers and come up with the best crime TV show of all time, according to reviewers.
+---------
+
+# 3 Years After Finale, Star Trek Officially Reveals Captain Picard's Fate
+
+Comics, Star Trek
+
+Wed, 09 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/star-trek-captain-picard-finale-fate/
+
+A terrible fate
+---------
+
+# Godzilla Minus Zero Confirms The Franchise's Shocking Future
+
+New Movies, Godzilla Minus Zero
+
+Wed, 09 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/godzilla-minus-zero-franchise-future-end/
+
+Ahead of Godzilla Minus Zero's release this year, Toho has confirmed the franchise's future in a shocking update that changes what we can expect.
+---------
+
+# Disney Lorcana Attack Of The Vine: 10 Most Powerful Cards
+
+Gaming, Disney Lorcana
+
+Wed, 09 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/disney-lorcana-attack-of-the-vine-best-cards/
+
+Discover the most powerful cards in Disney Lorcana's Attack of the Vine expansion and enhance your TCG meta strategy.
+---------
+
+# It's Officially The Start Of An Era For Sherlock Holmes
+
+TV, Sherlock Holmes
+
+Wed, 09 Sep 2026 20:37:08 GMT
+
+https://screenrant.com/sherlock-holmes-new-releases-movie-trending-start-era/
+
+Sherlock Holmes is returning in a major way, as a new era has started for the iconic detective, and it will include different versions of Sherlock.
+---------
+
+# Decades Before The MCU, Judge Dredd Pioneered This Unique Approach To Continuity
+
+Comics, Judge Dredd, Marvel Cinematic Universe
+
+Wed, 09 Sep 2026 20:36:42 GMT
+
+https://screenrant.com/judge-dredd-real-time-before-mcu/
+
+Judge Dredd may not be as popular as the MCU, but its approach to continuity might've been an inspiration for the latter to try to adopt.
+---------
+
+# Spider-Man: Brand New Day's 6-Week Box Office Reign On Track To End With New Release
+
+Movies, Box Office, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Wed, 09 Sep 2026 20:34:04 GMT
+
+https://screenrant.com/spider-man-brand-new-day-practical-magic-2-box-office-projections/
+
+After breaking an MCU record by spending six straight weeks at No. 1 at the domestic box office, Spider-Man: Brand New Day is set to be dethroned.
+---------
+
+# All 4 Upcoming Pokemon Mega Attack Rares, Ranked
+
+Games, Pokemon, Pokemon TCG, TCG
+
+Wed, 09 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/pokemon-mega-attack-rares-ranked/
+
+Four new Mega Attack Rares are coming to the Pokemon Trading Card Game, but their competitive worth and scarcity greatly differ from one another.
+---------
+
+# 1 of the Funniest Sitcoms in TV History Rises on Streaming Days Before 30th Anniversary
+
+TV, Everybody Loves Raymond, Paramount Plus, CBS
+
+Wed, 09 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/everybody-loves-raymond-paramount-plus-success-september-2026/
+
+This classic sitcom celebrates a major anniversary soon.
+---------
+
+# Netflix Lands Project Hail Mary Directors' New Sci-Fi Horror Based on a 5-Page Short Story
+
+TV, Netflix, Sci-Fi
+
+Wed, 09 Sep 2026 20:48:13 GMT
+
+https://www.cbr.com/understudy-lord-miller-netflix-sci-fi-steven-yeun/
+
+Netflix has found its next big sci-fi project.
+---------
+
+# 7 Greatest Magic Systems in Fantasy Book History, Ranked
+
+Movies, Fantasy
+
+Wed, 09 Sep 2026 20:46:46 GMT
+
+https://www.cbr.com/best-fantasy-book-magic-systems-ranked-list/
+
+Fantasy magic systems come in many forms, but the best become inseparable from the worlds and characters at the heart of their stories.
+---------
+
+# Naruto Officially Returns October 10 for Major Anime Update
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations
+
+Wed, 09 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/naruto-october-10-anime-update-nycc-2026/
+
+October 10 will be a big day for Naruto fans as the franchise finally returns with a major new anime update.
+---------
+
+# 10 Anime Arcs Where the Villain Becomes an Ally
+
+Anime, shonen anime, Jujutsu Kaisen, Dragon Ball, Naruto
+
+Wed, 09 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/anime-arcs-where-villain-becomes-ally/
+
+The villain-turned-ally trope is fairly common in anime, but that doesn't mean everyone pulls it off quite as well as these 10 temporary heroes.
+---------
+
+# Steven Spielberg's Disclosure Day is Better Than Project Hail Mary
+
+Movies, Disclosure Day
+
+Wed, 09 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/steven-spielberg-disclosure-day-better-than-project-hail-mary/
+
+Spielberg's return to the big screen has given critics much to think about, as the instant classic puts the sci-fi genre on high alert.
+---------
+
+# Kyle Chandler Gave a Career-Best Performance 11 Years Before Lanterns in a 3-Part Netflix Thriller
+
+TV, Bloodline, Netflix, Thriller, Innovation
+
+Wed, 09 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/hbo-lanterns-netflix-bloodline-successor/
+
+Kyle Chandler has been thrilling us as a weathered and cynical Hal Jordan in Lanterns, but one of his previous roles might be even more impressive.
+---------
+
+# X-Men Confirm New Leader, Replacing a Classic Hero for Good
+
+Comics, X-Force, X-Men, Marvel Comics
+
+Wed, 09 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/boom-boom-fugitive-x-force-leader/
+
+The most unlikely X-Man, Boom-Boom, is about to step up and lead the latest iteration of X-Force in the newest series revamp.
+---------
+
+# Nintendo Releases Revised Zelda Timeline Ahead of Ocarina of Time and the Movie
+
+Games, The Legend of Zelda, Nintendo, The Legend of Zelda: Ocarina of Time
+
+Wed, 09 Sep 2026 19:46:11 GMT
+
+https://www.cbr.com/zelda-timeline-website-update-ocarina-of-time-movie/
+
+The Zelda timeline just got a major update to make it more coherent for the new generation of fans brought in by the Zelda movie and Ocarina of Time.
+---------
+
+# 5 Brilliant Thrillers That You Shouldn't Ignore
+
+Movie, Thriller, The Last Stop in Yuma County, Peeping Tom, Duel
+
+Wed, 09 Sep 2026 21:29:11 GMT
+
+https://collider.com/best-thrillers-you-should-not-ignore/
+
+Quality films like Duel, Diva, and Peeping Tom prove that a thriller doesn't have to be massively popular to provide a worthwhile viewing experience.
+---------
+
+# 8 Nintendo Games That Are Amazing From Start to Finish
+
+Gaming, Nintendo, Video Game, Legend of Zelda: Breath of the Wild
+
+Wed, 09 Sep 2026 20:54:11 GMT
+
+https://collider.com/nintendo-games-amazing-start-to-finish/
+
+Super Metroid, Super MarioWorld, and The Legend of Zelda: Ocarina of Time are among the best Nintendo games that will amaze you all the way through.
+---------
+
+# Guy Ritchie Is Officially the King of Streaming With New Apple TV Win
+
+Movie News, Sherlock Holmes, Guy Ritchie, Robert Downey Jr, Jude Law
+
+Wed, 09 Sep 2026 20:30:11 GMT
+
+https://collider.com/sherlock-holmes-guy-ritchie-detective-blockbuster-apple-tv-streaming-success-september-2026/
+
+Guy Ritchie is officially the king of streaming, with numerous projects simultaneously charting across the world on different platforms.
+---------
+
+# The Best Book From Every Year of the 2010s
+
+Books and Comics, Books, Best of the 2010s, Normal People, 3 Body Problem
+
+Wed, 09 Sep 2026 20:28:11 GMT
+
+https://collider.com/best-book-every-year-2010s/
+
+A Dance with Dragons, Pachinko, Circe, Normal People, and more make up our list of the best books from every year of the 2010s.
+---------
+
+# '9-1-1' Crossover With 'Nashville' and 'Lone Star' Officially Confirmed
+
+TV News, 9-1-1: Nashville, 9-1-1: Lone Star, ABC, Chris O'Donnell
+
+Wed, 09 Sep 2026 20:26:42 GMT
+
+https://collider.com/9-1-1-nashville-lone-star-crossover-rashad-raisani/
+
+9-1-1 boss Rashad Raisani has confirmed a 9-1-1 crossover with its sibling series Nashville is on the way, even hinting at some nods to Lone Star.
+---------
+
+# Tom Cruise’s $450 Million Historical Epic Is Officially a Streaming Hit
+
+Movie News, The Last Samurai, Tom Cruise, HBO Max, Shogun
+
+Wed, 09 Sep 2026 20:00:11 GMT
+
+https://collider.com/tom-cruise-last-samurai-shogun-meets-braveheart-epic-hbo-max-streaming-success-september-2026/
+
+A period epic starring Tom Cruise is witnessing a revival on HBO Max, over two decades after its theatrical release. Find out more.
+---------
+
+# Rebecca Ferguson's Rom-Com Debut Officially Adds an HBO Icon
+
+Movie News, Carrie Coon, Greta Lee, Rebecca Ferguson, Nahnatchka Khan
+
+Wed, 09 Sep 2026 19:46:37 GMT
+
+https://collider.com/rebecca-ferguson-rom-com-honeymoon-funeral-cast-carrie-coon/
+
+Rebecca Ferguson and Greta Lee's new rom-com has officially added an HBO favorite to the cast. Read on for more details.
+---------
+
+# Tom Hardy’s Record-Breaking Crime Hit Officially Returns in 10 Days
+
+Movie News, MobLand, Guy Ritchie, Tom Hardy, Paramount Plus
+
+Wed, 09 Sep 2026 19:30:11 GMT
+
+https://collider.com/mobland-season-2-guy-ritchie-tom-hardy-release-date-paramount-plus-september-18/
+
+Guy Ritchie's grand crime drama series starring Tom Hardy is all set to return with a second season in exactly 10 days. The countdown has begun.
+---------
+
+# 10 Near-Perfect Book Trilogies That Everyone Must Read at Least Once
+
+Movie, Books, Little Women, The Hunger Games, Neuromancer
+
+Wed, 09 Sep 2026 19:19:11 GMT
+
+https://collider.com/near-perfect-book-trilogies-everyone-must-read-once/
+
+Louisa May Alcott's Little Women books and Stephen King's Bill Hodges series are some of the best literary trilogies that come close to perfection.
+---------
+
+# Harry Potter: How HBO Is Rebuilding the Wizarding World
+
+Movie, Originals, Harry Potter
+
+Wed, 09 Sep 2026 19:11:20 GMT
+
+https://collider.com/video/harry-potter-how-hbo-is-rebuilding-the-wizarding-world/
+
+Harry Potter is being rebuilt on an enormous scale for HBO, and some of the biggest challenges have nothing to do with visual effects. The young cast’s education, limited filming windows, practical creatures, Quidditch crowds, and elaborate sets all have to work together.
+---------
+
+# Michael Fassbender's 156-Minute R-Rated Sci-Fi Epic Gets Official Release Today
+
+Features, Michael Fassbender, hope, Sci-Fi
+
+Wed, 09 Sep 2026 21:00:13 GMT
+
+https://movieweb.com/hope-michael-fassbender-sci-fi-movie/
+
+Michael Fassbender, known for starring in 'Black Bag' and the action series 'The Agency,' is starring in a sci-fi epic movie.
+---------
+
+# Will Ferrell's 6-Part Cult Classic Officially Revived 6 Years After Cancellation
+
+TV News, Will Ferrell, Drunk History, YouTube
+
+Wed, 09 Sep 2026 20:45:53 GMT
+
+https://movieweb.com/drunk-history-renewed-season-7-youtube/
+
+'Drunk History,' the 2010s comedy series, has been revived for a three-episode run on Comedy Central's YouTube channel.
+---------
+
+# Taylor Sheridan's 'Landman' Season 3 Officially Recruits 'Lioness' Star
+
+TV News, Landman, Michael Kelly, Taylor Sheridan
+
+Wed, 09 Sep 2026 20:12:02 GMT
+
+https://movieweb.com/landman-season-3-michael-kelly/
+
+Taylor Sheridan's 'Landman' now has its newest major cast member for Season 3, who has previous starring experience in 'Lioness.'
+---------
+
+# Netflix Officially Makes Game-Changing Theatrical Announcement
+
+Movie News, Netflix, Box Office
+
+Wed, 09 Sep 2026 20:10:43 GMT
+
+https://movieweb.com/netflix-theatrical-plan-reporting-box-office/
+
+Netflix will report the box-office returns on movies like 'The Further Mis-Adventures of Cliff Booth' and Greta Gerwig's 'Narnia' reboot.
+---------
+
+# 10 Hard Sci-Fi Movies With Scientific Accuracy Praised by Experts
+
+Movie Lists, Sci-Fi, Interstellar, Project Hail Mary, Sunshine, Tenet
+
+Wed, 09 Sep 2026 20:01:13 GMT
+
+https://movieweb.com/sci-fi-movies-scientific-accuracy-experts/
+
+Experts including astronauts, physicists, professors, and scientists have often voiced their appreciation when directors manage to finally get things.
+---------
+
+# Anne Hathaway's New 99-Minute Sci-Fi Thriller Breaks Her Own 17-Year Box-Office Record
+
+Movie News, Box Office Milestones, The End of Oak Street, Sci-Fi
+
+Wed, 09 Sep 2026 19:36:48 GMT
+
+https://movieweb.com/anne-hathaway-box-office-record-the-end-of-oak-street/
+
+Anne Hathaway’s 'The End of Oak Street' has now passed 'Bride Wars' at the worldwide box office.
+---------
+
+# Forget 'Marshals': NBC Has Already Made the Perfect Crime Thriller Replacement Series
+
+Features, Crime, Thriller, Line of Fire, Marshals
+
+Wed, 09 Sep 2026 19:30:13 GMT
+
+https://movieweb.com/line-of-fire-nbc-marshals-replacement/
+
+'Marshals,' the Taylor Sheridan series starring Riley Green, is entertaining, but NBC's new crime thriller series is better.
+---------
+
+# One of the Most Underrated Sci-Fi Action Thrillers of All Time Scores New Release
+
+Movie News, Annihilation, Sci-Fi, Horror, Action, Blu-ray
+
+Wed, 09 Sep 2026 19:30:13 GMT
+
+https://movieweb.com/annihilation-4k-blu-ray-release/
+
+Alex Garland's acclaimed sci-fi action thriller 'Annihilation' has received a new 4K Blu-ray steelbook, courtesy of Paramount Home Entertainment.
+---------
+
+# Netflix's New 119-Minute David Fincher-Esque Thriller Is Officially the Biggest Movie on Streaming
+
+Movie News, Thriller, Hot on Streaming, David Fincher, Netflix
+
+Wed, 09 Sep 2026 19:00:13 GMT
+
+https://movieweb.com/the-secret-woman-netflix-thriller-streaming-hit-september-2026/
+
+The intriguing new Nordic noir thriller has quickly taken over Netflix following its debut on August 28.
+---------
+
+# 'Ted Lasso' Season 4 Officially Replaces Underrated Missing Character
+
+Features, Ted Lasso, Anthony Head, Tracey Ullman, Comedy, Apple TV, Jason Sudeikis
+
+Wed, 09 Sep 2026 19:00:13 GMT
+
+https://movieweb.com/ted-lasso-season-4-replacement-rupert-zelda/
+
+'Ted Lasso' Season 4, Episode 6 makes it clear that Anthony Head's Rupert Mannion is being replaced by Tracey Ullman's new character, Zelda Southport.
+---------
+
 # Nickelodeon’s Teenage Mutant Ninja Turtles Return With New Series Today
 
 Comics, Teenage Mutant Ninja Turtles
