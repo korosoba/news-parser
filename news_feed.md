@@ -1,3 +1,278 @@
+# Huge Spider-Man Twist Reveals New Uncle Ben-Level Trauma For Peter
+
+Marvel Comics, Spider-Man
+
+Thu, 10 Sep 2026 02:15:15 GMT
+
+https://screenrant.com/spider-man-twist-aunt-may/
+
+Spider-Man's biggest milestone ever is teasing devastation for the Parker family, and Peter's relationship with Aunt May may never be the same.
+---------
+
+# The Lord Of The Rings Meets The Wheel Of Time In This 20-Episode High Fantasy Series
+
+Classic TV, Masked Recs
+
+Thu, 10 Sep 2026 02:15:14 GMT
+
+https://screenrant.com/the-shannara-chronicles-show-lord-of-the-rings-meets-wheel-of-time/
+
+Tolkien and Robert Jordan had a huge hand in forming the high fantasy genre, and among the results is an unfortunately canceled 2-season adventure.
+---------
+
+# Reacher Season 4 Finally Pays Off Lee Child’s Most Masterful Book Scene
+
+Streaming TV, Reacher, Reacher - Season 4
+
+Thu, 10 Sep 2026 02:00:24 GMT
+
+https://screenrant.com/reacher-season-4-lee-child-book-scene-payoff/
+
+The ending sequence of Reacher season 4’s episode 8 has finally paid off one of the most compelling & masterful scenes from Lee Child’s Gone Tomorrow.
+---------
+
+# 5 Near-Perfect Netflix Shows That Deserved More Promotion
+
+Streaming TV, Netflix
+
+Thu, 10 Sep 2026 01:42:27 GMT
+
+https://screenrant.com/netflix-shows-that-deserved-more-promotion/
+
+Netflix puts all its advertising money into big shows at the expense of its phenomenal small series. These five nearly perfect shows deserved better.
+---------
+
+# The Real Reason The Legend Of Zelda Movie Doesn't Have A Subtitle: 5 Theories After Nintendo's Mysterious Tease
+
+Movies, The Legend of Zelda
+
+Thu, 10 Sep 2026 01:30:25 GMT
+
+https://screenrant.com/the-legend-of-zelda-movie-no-subtitle-explained-theories/
+
+The live-action The Legend of Zelda movie is confirmed to hold a major secret related to the film's title, though a few theories could explain it.
+---------
+
+# Stephen King Meets H.P. Lovecraft In Netflix’s Archive 81 Which You Can Binge In 1 Day
+
+Classic TV, Masked Recs
+
+Thu, 10 Sep 2026 00:31:14 GMT
+
+https://screenrant.com/stephen-king-hp-lovecraft-archive-81-bingeable-horror-netflix/
+
+Netflix's eight episode horror TV show blends together Lovecraftian cosmic horrors with Stephen King's isolation and dread in a bingeable story.
+---------
+
+# Lanterns' Biggest DCU Villain Theory Just Got A Major Tease
+
+Superheroes, Lanterns, DC Universe
+
+Thu, 10 Sep 2026 00:17:15 GMT
+
+https://screenrant.com/lanterns-biggest-dcu-villain-theory-major-tease-blood-atrocitus/
+
+The upcoming episode of Lanterns may finally be teasing a major new DCU villain who's been theorized to appear in the new series for quite some time.
+---------
+
+# Black Sails Cast & Character Guide
+
+Classic TV, Black Sails
+
+Thu, 10 Sep 2026 00:05:14 GMT
+
+https://screenrant.com/black-sails-cast/
+
+Fans grew to love the characters of pirate series Black Sails over the course of 4 seasons but where are the cast of the show now?
+---------
+
+# CBS's Underrated Franchise Puts TV's Best Procedurals To Shame
+
+Network TV, Fire Country, Sheriff Country
+
+Thu, 10 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/fire-sheriff-country-crossover-2026-impressive/
+
+CBS's Fire Country and Sheriff Country have redefined procedural television with impressive crossover events.
+---------
+
+# How Powerful King Ghidorah Is Compared To Godzilla & What It Means For Godzilla Minus Zero
+
+Movies, Godzilla Minus Zero
+
+Thu, 10 Sep 2026 00:00:14 GMT
+
+https://screenrant.com/king-ghidorah-godzilla-minus-zero-powers-comparison/
+
+The new Godzilla Minus Zero trailer confirms that one of the franchise's strongest villains is about to have yet another clash with Godzilla.
+---------
+
+# Entourage Creator Slams New Ad Reuniting the HBO Show's Stars: 'Makes Me Puke'
+
+TV, Entourage
+
+Thu, 10 Sep 2026 02:19:37 GMT
+
+https://www.cbr.com/entourage-creator-criticism-reunion-ad-betr/
+
+Entourage creator Doug Ellin sounds off on Jake Paul's reunion of the HBO show's stars.
+---------
+
+# 5 Classic 4Kids Anime Dubs That Are Unwatchable Today
+
+Anime, One Piece, Sonic X
+
+Thu, 10 Sep 2026 02:15:11 GMT
+
+https://www.cbr.com/classic-4kids-anime-dubs-unwatchable-today/
+
+4Kids Entertainment was a pivotal player in the dubbing industry, but titles like One Piece and Mew Mew Power reflect its most disappointing efforts.
+---------
+
+# 7 2000s Action Movies That Can Be Called Masterpieces
+
+Movies, Action
+
+Thu, 10 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/perfect-2000s-action-movies-list/
+
+Action movies evolved throughout the 2000s as filmmakers pushed familiar genres in new directions and created enduring modern classics.
+---------
+
+# 8 Strongest Zeon Mobile Suits, Officially Ranked
+
+Anime, mecha, Gundam
+
+Thu, 10 Sep 2026 01:45:12 GMT
+
+https://www.cbr.com/gundam-strongest-zeon-mobile-suits-officially-ranked/
+
+The Zeon have had plenty of mobile suits throughout the iconic mecha franchise that hold power equal to the Gundams.
+---------
+
+# 5 Classic Pokémon Games That Are Unplayable Today
+
+Games, Pokemon, Video Games, Nintendo
+
+Thu, 10 Sep 2026 01:45:12 GMT
+
+https://www.cbr.com/classic-pokemon-games-unplayable-today/
+
+These beloved Pokémon titles don't quite measure up to today's standards, making them virtually unplayable.
+---------
+
+# Kingdom Hearts 4, Persona 6, and More Hit in Massive Steam Leak
+
+Games, Kingdom Hearts, Persona, RPG, Steam
+
+Thu, 10 Sep 2026 01:30:11 GMT
+
+https://www.cbr.com/kingdom-hearts-4-persona-6-upcoming-games-massive-steam-leak/
+
+A massive new Steam leak has revealed the achievement lists of over 100 upcoming games, including Kingdom Hearts 4 and Persona 6.
+---------
+
+# Count Dooku Has Star Wars' Greatest Quote
+
+Movies, Star Wars
+
+Thu, 10 Sep 2026 01:30:11 GMT
+
+https://www.cbr.com/star-wars-attack-of-the-clones-count-dooku-best-prequel-quote/
+
+An exchange between Count Dooku and Obi-Wan Kenobi in Attack of the Clones highlighted the surprising depth of the prequel trilogy's greatest villain.
+---------
+
+# South Park's Unapologetic Creators Issue a Very Rare Apology to Celebrity Partner
+
+TV, South Park
+
+Thu, 10 Sep 2026 01:15:18 GMT
+
+https://www.cbr.com/south-park-creators-apology-kendrick-lamar/
+
+Mark the calendar, as the creators of South Park have issued a very rare genuine apology.
+---------
+
+# Apple TV's Time-Bending Thriller With 8 Twisty Episodes Perfect for Sci-Fi Fans
+
+TV, Shining Girls, Apple TV, Sci-Fi
+
+Thu, 10 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/apple-tv-thriller-sci-fi-shining-girls/
+
+With a mind-bending mystery, gritty crime thriller tones, and a time-traveling serial killer, this Apple TV series is a must-watch for sci-fi fans.
+---------
+
+# Apple TV’s 5-Star Sci-Fi Just Surged From No. 77 to 13 as 1 of the World's Most Popular Shows
+
+TV, Dark Matter, Apple TV, Sci-Fi
+
+Thu, 10 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/dark-matter-sci-fi-success-apple-tv-september-2026/
+
+This Apple TV sci-fi series is gaining steam with viewers in its second season.
+---------
+
+# 5 Dark Fantasy Books by Female Authors You Won’t Be Able To Put Down
+
+Books and Comics, Books, Fantasy, Sci-Fi, Series
+
+Thu, 10 Sep 2026 01:07:11 GMT
+
+https://collider.com/5-dark-fantasy-books-by-female-authors/
+
+From dark fairy tales to grimdark epics, these five fantasy books by female authors deliver unforgettable worlds, magic, and twists.
+---------
+
+# Netflix’s ‘Avatar’ Meets ‘Pirates of the Caribbean’ Fantasy Series Is Among 2026’s Biggest Streaming Hits
+
+TV Features, One Piece, Manga, Series, Netflix
+
+Thu, 10 Sep 2026 00:52:11 GMT
+
+https://collider.com/one-piece-netflix-live-action-fantasy-series-2026/
+
+Netflix’s One Piece is one of 2026’s biggest fantasy hits. Here’s why the live-action manga adaptation works so well.
+---------
+
+# The 8 Most Fun Musical Movies of All Time, Ranked
+
+Movie, Musical, Mamma Mia!, The Sound of Music, La La Land
+
+Thu, 10 Sep 2026 00:17:11 GMT
+
+https://collider.com/most-fun-movie-musicals-all-time-ranked/
+
+Singin' in the Rain, The Sound of Music, and La La Land are all among the most purely fun musical movies ever made.
+---------
+
+# 10 Dark Fantasy Book Series Made For Adults
+
+TV Lists, Fantasy, The Magicians
+
+Thu, 10 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/dark-fantasy-book-series-for-adults/
+
+Not all fantasy books offer escapism and hope, and these dark stories take surprising and cynical turns — but they often ring true to life.
+---------
+
+# Netflix's New 10-Part Dark Crime Thriller Is Officially Taking Over Streaming
+
+TV News, Mousetrap, Netflix, Hot on Streaming, Action
+
+Thu, 10 Sep 2026 00:00:13 GMT
+
+https://movieweb.com/mousetrap-netflix-crime-thriller-stream-tudum/
+
+Netflix's new crime thriller is now one of the biggest shows on streaming.
+---------
+
 # Near-Perfect Horror Movie That Can Be Streamed In Less Than An Hour Passes Incredible Milestone
 
 Movies, Masked Recs
