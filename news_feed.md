@@ -1,3 +1,443 @@
+# Paul Walker's Brian Return for Fast & Furious Finale Hits Setback
+
+Movies
+
+Thu, 10 Sep 2026 16:31:36 GMT
+
+https://screenrant.com/fast-forever-paul-walker-brothers-involvement-potential-ai-use/
+
+Paul Walker's potential return as Brian for the final Fast & Furious movie has hit a major setback, creating a new obstacle for the highly anticipated
+---------
+
+# A 10/10 1995 Square Enix RPG Is Being Remade For Modern Consoles
+
+Gaming, RPG, Romancing SaGa 3, Triple-A Games, PC, Square Enix
+
+Thu, 10 Sep 2026 16:31:15 GMT
+
+https://screenrant.com/square-enix-1995-remake-modern-consoles/
+
+A classic 10/10 Square Enix RPG that was released in 1995 is officially getting a complete remake for modern consoles, arriving in early 2027.
+---------
+
+# Indiana Jones Meets Agatha Christie In The 39-Episode '90s Classic That Defined A Genre
+
+Classic TV, Masked Recs
+
+Thu, 10 Sep 2026 16:31:15 GMT
+
+https://screenrant.com/tintin-defined-detective-genre/
+
+This ‘90s series is a cornerstone for detective stories with its blend of Indiana Jones’ adventures and Agatha Christie's engaging mysteries.
+---------
+
+# Denzel Washington's R-Rated Thriller Gives Netflix A New Global Streaming Hit
+
+Movies, Masked Recs
+
+Thu, 10 Sep 2026 16:27:32 GMT
+
+https://screenrant.com/denzel-washington-the-little-things-netflix-global-streaming-success-september-2026/
+
+Denzel Washington's R-rated thriller has been brought back to life on streaming, giving Netflix a new global hit.
+---------
+
+# It's Officially The Start Of A New Era For HBO's Band Of Brothers
+
+TV, Band of Brothers
+
+Thu, 10 Sep 2026 16:22:37 GMT
+
+https://screenrant.com/band-of-brothers-new-era-hbo-max-streaming-success-september-2026/
+
+HBO's Band of Brothers has finally been resurrected on streaming as a global hit, marking the start of a new era for the acclaimed war series.
+---------
+
+# Warrior Nun’s Return Finally Gaining Steam As Creator Takes Rights From Netflix
+
+TV, Warrior Nun
+
+Thu, 10 Sep 2026 16:16:44 GMT
+
+https://screenrant.com/warrior-nun-universe-rights-simon-barry-movie-television-plans/
+
+The return of Warrior Nun is finally gaining steam as the creator of the TV show takes the rights to the source material from Netflix.
+---------
+
+# Taylor Sheridan's Gritty Crime Series Canceled After 5 Seasons Finally Sets Netflix Release Date
+
+TV, Masked Recs, Taylor Sheridan, Netflix
+
+Thu, 10 Sep 2026 16:16:08 GMT
+
+https://screenrant.com/taylor-sheridan-mayor-of-kingstown-netflix-streaming-release-date/
+
+One of the biggest Taylor Sheridan TV shows that were cancelled after five seasons is heading to Netflix as its release date has been revealed.
+---------
+
+# Why Supergirl Is Better On HBO Max Than In Theaters
+
+Superheroes, Supergirl, DC Universe
+
+Thu, 10 Sep 2026 16:15:14 GMT
+
+https://screenrant.com/supergirl-movie-hbo-max-better-theaters/
+
+DC's Supergirl movie is now streaming on HBO Max, and the new home is better for Milly Alcock's superhero film than theaters proved to be.
+---------
+
+# NBC's Sitcom Spinoff With Harry Potter Alum Is Officially One Of The Best Shows On Streaming
+
+TV, Masked Recs
+
+Thu, 10 Sep 2026 16:11:25 GMT
+
+https://screenrant.com/the-paper-season-2-peacock-streaming-hit-september-2026/
+
+A spinoff of a seminal NBC sitcom is one of the biggest shows on streaming this week, easily beating the competition in just a single day.
+---------
+
+# Now You See Me Franchise Is Officially Changing Formats In 2 Months
+
+Movies, Now You See Me
+
+Thu, 10 Sep 2026 16:07:51 GMT
+
+https://screenrant.com/now-you-see-me-live-broadway-date/
+
+After three successful feature films, the Now You See Me franchise starring Jesse Eisenberg is poised for a major switch in formats in two months.
+---------
+
+# 10 Greatest Open-World RPGs of All Time, Ranked
+
+Games, open world, Role Playing Game
+
+Thu, 10 Sep 2026 16:31:11 GMT
+
+https://www.cbr.com/greatest-open-world-rpgs-of-all-time-ranked-list/
+
+Open-world games like Red Dead Redemption 2 show just how good RPGs can be.
+---------
+
+# Prime Video's New Space Opera Sci-Fi Is Losing Steam on Streaming
+
+Movies, Masters of the Universe, Prime Video
+
+Thu, 10 Sep 2026 16:26:52 GMT
+
+https://www.cbr.com/masters-of-the-universe-sci-fi-streaming-prime-video-september-2026/
+
+Prime Video streams of this sci-fi adventure are slowing down.
+---------
+
+# Paramount+ Hit Comedy Continues Rare Perfect Rotten Tomatoes Trend for Final Season
+
+TV, Colin from Accounts, Paramount Plus, Rotten Tomatoes
+
+Thu, 10 Sep 2026 16:24:25 GMT
+
+https://www.cbr.com/colin-from-accounts-season-3-rotten-tomatoes-score/
+
+This hit dramedy has thoroughly impressed the critics.
+---------
+
+# Naruto Ninjas Who Reached Kage-Level Strength
+
+Anime, Naruto, Naruto: Shippuden
+
+Thu, 10 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/naruto-ninjas-kage-level-without-kekkei-genkai/
+
+These four Naruto characters prove that incredible strength is possible without possessing a rare Kekkei Genkai.
+---------
+
+# Canceled Game Boy Color RPG Returns With Physical Release 24 Years Later
+
+Games, Nintendo, RPG
+
+Thu, 10 Sep 2026 16:11:11 GMT
+
+https://www.cbr.com/game-boy-color-canceled-rpg-returns-new-physical-release-september-2026/
+
+A brand-new Game Boy Color RPG is finally releasing 24 years after it was first supposed to.
+---------
+
+# The Crime Series Dominating Jason Statham's Action Thriller Raises the Stakes in Tense Clip
+
+CBR Exclusives, Jason Statham, Shelter, Fightland
+
+Thu, 10 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/fightland-crime-season-1-episode-6-clip/
+
+Exclusive: One week ahead of its season finale, the steady hit series is raising the stakes again.
+---------
+
+# Shudder's New Found Footage Horror Gets Terrifying Trailer Unveiled Ahead of Halloween
+
+Movies, Shudder
+
+Thu, 10 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/shudder-infirmary-trailer-exclusive/
+
+Exclusive: Shudder's newest found footage horror film gets its spooky official trailer revealed.
+---------
+
+# Overhated & Underrated: Conan the Barbarian is an Overhated Gem
+
+Movies, Overhated & Underrated, Fantasy
+
+Thu, 10 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/overhated-underrated-conan-the-barbarian-remake/
+
+The fantasy genre is littered with overhated movies and 2011's dark fantasy remake falls perfectly into that category.
+---------
+
+# Event Horizon’s Sequel Ends This Week, But a New Era Is Just Beginning
+
+Comics, Event Horizon
+
+Thu, 10 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/event-horizon-inferno-5-pandemonium-1/
+
+The final chapter of the latest Event Horizon story has finally arrived, and another horrifying chapter in the franchise is just around the corner.
+---------
+
+# American Horror Story Drops New Look After Changing Original Format for Season 13
+
+TV, American Horror Story
+
+Thu, 10 Sep 2026 15:38:18 GMT
+
+https://www.cbr.com/american-horror-story-season-13-trailer/
+
+The trailer for American Horror Story Season 13 has finally arrived, and things have never looked more different for the hit anthology series.
+---------
+
+# Anya Taylor-Joy Saved M. Night Shyamalan’s Career With Her Performance in This 9/10 Thriller
+
+Movie Features, Split, Anya Taylor-Joy, M. Night Shyamalan, James McAvoy
+
+Thu, 10 Sep 2026 16:28:52 GMT
+
+https://collider.com/anya-taylor-thriller-split-m-night-shyamalan/
+
+M. Night Shyamalan's Split proved that Anya Taylor-Joy was one of the best actors of her generation, as she faces off against James McAvoy.
+---------
+
+# 10 Books From the 21st Century That Are Perfectly Written
+
+Books and Comics, Books, A Gentleman in Moscow, Normal People, The Book Thief
+
+Thu, 10 Sep 2026 16:21:12 GMT
+
+https://collider.com/books-21st-century-perfectly-written/
+
+From Terry Pratchett's Night Watch to Philip Pullman's The Amber Spyglass, these are the best-written books to come out this century — so far, anyway.
+---------
+
+# Maisie Williams Officially Seals Arya Stark's 'Game of Thrones' Return Fate [Exclusive]
+
+Exclusives, Game Of Thrones, Maisie Williams, George R.R. Martin, HBO
+
+Thu, 10 Sep 2026 16:15:11 GMT
+
+https://collider.com/game-of-thrones-maisie-williams-arya-stark-return/
+
+Maisie Williams reflects on playing Arya Stark and reveals whether she would return to the role seven years after Game of Thrones ended.
+---------
+
+# ‘Agatha Christie’s Tommy & Tuppence’ Is the Perfect ‘Only Murders’ Replacement | Review
+
+TV Reviews, Tommy & Tuppence, Britbox, Mystery, Agatha Christie
+
+Thu, 10 Sep 2026 16:00:11 GMT
+
+https://collider.com/tommy-and-tuppence-britbox-review-agatha-christie/
+
+Agatha Christie's Tommy & Tuppence, BritBox's latest charming mystery series, is perfect for fans of Only Murders in the Building.
+---------
+
+# Maisie Williams Is Officially Making Her Own Magic After ‘Game of Thrones’
+
+Collider Signature, Maisie Williams, profile, Practical Magic 2, Game Of Thrones
+
+Thu, 10 Sep 2026 16:00:11 GMT
+
+https://collider.com/maisie-williams-game-of-thrones-practical-magic-2-interview/
+
+Maisie Williams opens up about Practical Magic 2, growing up on Game of Thrones, life after Arya Stark, and what she wants next.
+---------
+
+# From 'New Girl' to 'Furious,' Every Liz Meriwether Show, Ranked
+
+TV, Liz Meriwether, New Girl, Furious, The Dropout
+
+Thu, 10 Sep 2026 15:36:11 GMT
+
+https://collider.com/liz-meriwether-shows-ranked/
+
+Liz Meriwether has been the genius behind hit sitcoms like New Girl and recent crime thrillers like Furious, but which of her shows is the best?
+---------
+
+# Avatar Officially Introduces Korra’s Replacement
+
+TV News, Avatar: Seven Havens, Paramount Plus, Avatar: The Last Airbender
+
+Thu, 10 Sep 2026 15:00:11 GMT
+
+https://collider.com/avatar-seven-havens-trailer-release-date-october-2026/
+
+Paramount has released the first official trailer for Avatar: Seven Havens, the new animated series set to begin streaming on October 9.
+---------
+
+# 'Marvel's Wolverine' Is an Intense, R-Rated New Take on the X-Men Formula | Review
+
+Gaming, Video Game, Marvel's Wolverine, Marvel, PlayStation (Original)
+
+Thu, 10 Sep 2026 15:00:11 GMT
+
+https://collider.com/marvels-wolverine-ps5-insomniac-game-review/
+
+Marvel's Wolverine is a riveting take on the iconic character with vicious action, addictive gameplay, and lore changes that will shock X-Men purists.
+---------
+
+# Romance Meets Body Horror in New Apocalypse Movie Officially Coming to Fantastic Fest [Exclusive]
+
+Movie News, Apocalypse, Drama, Fantastic Fest, Collider Exclusive Preview
+
+Thu, 10 Sep 2026 15:00:11 GMT
+
+https://collider.com/little-doors-fantastic-fest-first-look-anthony-oberbeck/
+
+Little Doors, Anthony Oberbeck’s surreal apocalypse movie inspired by Yorgos Lanthimos, gets an eerie new first look ahead of Fantastic Fest.
+---------
+
+# ‘Final Fantasy VII’ Creator Officially Addresses a Potential TV Adaptation
+
+TV News, Final Fantasy, Final Fantasy VII Remake, Final Fantasy 15, Final Fantasy: Unlimited
+
+Thu, 10 Sep 2026 14:37:59 GMT
+
+https://collider.com/final-fantasy-7-tv-show-adaptation-tease/
+
+Final Fantasy 7 could eventually make the jump to television as Square Enix looks toward the franchise’s future beyond the Revelation remake trilogy.
+---------
+
+# ‘Landman’ Officially Confirms Its Jon Hamm Replacement
+
+Features, Landman, Western, Jon Hamm, Michael Kelly
+
+Thu, 10 Sep 2026 16:25:20 GMT
+
+https://movieweb.com/landman-jon-hamm-michael-kelly-replacement/
+
+'Landman' has had a void to fill since Jon Hamm stopped playing his interesting character, and the Taylor Sheridan show has the perfect replacement.
+---------
+
+# 20 Years Later, Guillermo del Toro's Dark Fantasy Masterpiece to Return with New Release
+
+Movie News, Pan's Labyrinth, Horror, Guillermo del Toro, Movie Theaters
+
+Thu, 10 Sep 2026 16:16:24 GMT
+
+https://movieweb.com/pans-labyrinth-returns-theaters-release-date/
+
+See this 2006 classic like it's never been seen before.
+---------
+
+# Matt Damon's Near-Perfect War Thriller Is Officially One of the Biggest Movies on Free Streaming
+
+Movie News, Oppenheimer, Hot on Streaming, War, Matt Damon
+
+Thu, 10 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/oppenheimer-war-stream-fandango-sept-2026/
+
+War movies don't get much bigger and better than this.
+---------
+
+# Netflix Officially Revives 'The Lincoln Lawyer' With the Wrong Character
+
+Features, The Lincoln Lawyer, Netflix, Thriller, Drama
+
+Thu, 10 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/lincoln-lawyer-netflix-spinoff-emi-cobie-smulders/
+
+'The Lincoln Lawyer' stars Manuel Garcia-Rulfo, Neve Campbell, and Netflix's legal drama is adapted from the book series by Michael Connelly.
+---------
+
+# Netflix's New Stephen King Meets 'Jaws' Supernatural Thriller Unleashes Monstrous Trailer
+
+TV News, Thriller, Josh Hartnett, Netflix, Below
+
+Thu, 10 Sep 2026 15:40:13 GMT
+
+https://movieweb.com/netflix-below-new-trailer/
+
+Land bound drama and subterranean horror are abundant in new trailer for Netflix's monster thriller 'Below.'
+---------
+
+# Taylor Sheridan's Debut Thriller on Prime Is Better Than 'Yellowstone'
+
+Features, Taylor Sheridan, Thriller, Yellowstone, Sicario
+
+Thu, 10 Sep 2026 15:25:17 GMT
+
+https://movieweb.com/taylor-sheridan-sicario-better-yellowstone/
+
+Taylor Sheridan's name is everywhere, but one of his best projects is a movie most people don't know he wrote.
+---------
+
+# Jesse Eisenberg's New A24 Movie Debuts to Perfect Rotten Tomatoes Score
+
+Movie News, The Debut, Jesse Eisenberg, A24, Musical, Comedy
+
+Thu, 10 Sep 2026 15:15:47 GMT
+
+https://movieweb.com/the-debut-rotten-tomatoes-score/
+
+Jesse Eisenberg's new satirical musical comedy 'The Debut' has landed a perfect 100% critics' score on Rotten Tomatoes.
+---------
+
+# 8 Perfect Sci-Fi Shows With No Bad Seasons
+
+TV Lists, Sci-Fi, The Expanse, Resident Alien, Stranger Things
+
+Thu, 10 Sep 2026 15:00:14 GMT
+
+https://movieweb.com/sci-fi-shows-no-bad-seasons/
+
+If you're looking for a sci-fi series that won't fall apart after a great first season, you've come to the right place. These are consistently great.
+---------
+
+# Michael Fassbender's New Sci-Fi Action Blockbuster Officially Wins Over Critics on Rotten Tomatoes
+
+Movie News, Sci-Fi, Hope, Michael Fassbender
+
+Thu, 10 Sep 2026 14:25:56 GMT
+
+https://movieweb.com/hope-rotten-tomatoes-certified-fresh/
+
+'Hope' is officially one of the best review action movies of the year.
+---------
+
+# 'Doctor Who's Most Devastating Episode Hits Even Harder After 15 Years
+
+Features, Doctor Who, Sci-Fi, Matt Smith, Karen Gillan, Arthur Darvill
+
+Thu, 10 Sep 2026 14:00:13 GMT
+
+https://movieweb.com/doctor-who-the-girl-who-waited-15-years/
+
+15 years ago to the day, the incredible 'Doctor Who' adventure "The Girl Who Waited" aired, and it still pulls at the heartstrings.
+---------
+
 # South Park's Massive Season 29 Change Doubles Down On The Show's Biggest Controversy In Years
 
 TV, South Park
