@@ -1,3 +1,289 @@
+# I Can Forgive Doctor Who's Timeless Child, But Jodie Whittaker's Era Committed A Bigger Sin
+
+Classic TV, Doctor Who
+
+Thu, 10 Sep 2026 07:00:15 GMT
+
+https://screenrant.com/doctor-who-destroy-gallifrey-again-problem/
+
+The Jodie Whittaker era of Doctor Who is remembered unfavorably for the Timeless Child twist, but a bigger sin was committed during those years.
+---------
+
+# Transformers Officially Returns With New $7,000 Release
+
+Gaming, Transformers, PC
+
+Thu, 10 Sep 2026 05:30:14 GMT
+
+https://screenrant.com/transformers-returns-new-7000-dollar-release/
+
+Transformers fans should absolutely check out this ludicrously priced new release that will set you back $7,000.
+---------
+
+# Star Wars: Legacy Reborn Officially Released And Available To Check Out Now
+
+Gaming, Star Wars, Star Wars: The Old Republic, PC
+
+Thu, 10 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/star-wars-legacy-reborn-old-republic-soundtrack/
+
+A brand-new Star Wars release has dropped as part of a wider celebration of the Old Republic video game.
+---------
+
+# Star Trek: The Next Generation And Voyager Officially Crossing Over For 60th Anniversary Event
+
+Gaming, Star Trek, Triple-A Games
+
+Thu, 10 Sep 2026 04:30:14 GMT
+
+https://screenrant.com/star-trek-the-next-generation-voyager-online-crossover/
+
+Fans of Star Trek: The Next Generation have been enjoying various crossovers for years, but now there's something coming for the 60th anniversary.
+---------
+
+# Game Of Thrones: The Way Of Whispers Officially Announced
+
+Gaming, Game of Thrones: Legends, Game of Thrones, Game Of Thrones, PC
+
+Thu, 10 Sep 2026 04:00:19 GMT
+
+https://screenrant.com/game-of-thrones-legends-way-of-whispers-faction-update/
+
+Game of Thrones officially returns with The Way of Whispers, a brand-new faction introduced as part of a sprawling Legends update.
+---------
+
+# DC Officially Unveils Iconic Hero's Best Costume Of All Time
+
+Comics, Absolute Universe, The Flash
+
+Thu, 10 Sep 2026 03:59:14 GMT
+
+https://screenrant.com/absolute-flash-atom-redesign-costume/
+
+The DC Absolute Universe can't seem to stop winning, and over the summer, one underrated superhero redesign dropped that's worth checking out further.
+---------
+
+# Apple TV’s Dark Matter Switches The Genre Of For All Mankind’s Alternate History
+
+Streaming TV, Dark Matter, For All Mankind
+
+Thu, 10 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/apple-tv-dark-matter-season-2-for-all-mankind-alternate-history/
+
+Apple TV’s Dark Matter cleverly borrows For All Mankind’s alternate history plot device, albeit with a very fascinating and far darker genre switch.
+---------
+
+# Game Of Thrones: The Sun's Dominion Officially Announced
+
+Gaming, Game of Thrones: Legends, Game of Thrones, Game Of Thrones, PC
+
+Thu, 10 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/game-of-thrones-legends-suns-dominion-update/
+
+Game of Thrones fans are getting a major new release with The Sun's Dominion, taking us on an adventure with legends from south of Westeros.
+---------
+
+# Silo’s Rumored Spinoff On Apple TV Already Has The Perfect Story Idea
+
+Streaming TV, Silo
+
+Thu, 10 Sep 2026 02:30:14 GMT
+
+https://screenrant.com/silo-apple-tv-spinoff-rumored-story/
+
+Rumors suggest that Apple TV is planning to followup Silo season 4 with a spinoff series, and it is hard not to see how it has the perfect story idea.
+---------
+
+# Assassin's Creed Celebrates 20th Anniversary With New $2,999 Release
+
+Games, Assassin's Creed, Assassin's Creed IV: Black Flag
+
+Thu, 10 Sep 2026 03:58:08 GMT
+
+https://www.cbr.com/assassins-creed-black-flag-statue-20th-anniversary/
+
+Celebrate the 20th anniversary of Assassin's Creed with this fun new release if you've got $3K to spare.
+---------
+
+# Marvel Officially Confirms Venom's New Design
+
+Comics, Venom
+
+Thu, 10 Sep 2026 03:55:23 GMT
+
+https://www.cbr.com/marvel-officially-confirms-venom-new-design/
+
+In an exclusive reveal of the cover of Venom #3, discover the new look for Venom as Eddie Brock bonds again with the symbiote
+---------
+
+# 10 Hardest NES Games of All Time, Ranked
+
+Games, Nintendo, retro games
+
+Thu, 10 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/hardest-nes-games-all-time-ranked-list/
+
+The hardest NES games, like Battletoads, are too tough for most modern gamers to beat.
+---------
+
+# The Character Jensen Ackles Played in 116 More Episodes Than Dean Winchester in Supernatural
+
+TV, Jensen Ackles, Supernatural, Days of Our Lives
+
+Thu, 10 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/jensen-ackles-supernatural-more-episodes-days-of-our-lives/
+
+Jensen Ackles' Dean Winchester is an iconic character, but he actually got his start on another long-running show, where he made many appearances.
+---------
+
+# 10 Best Far Side Comics Set Around a Campfire, Ranked
+
+Comics, The Far Side
+
+Thu, 10 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/the-far-side-best-campfire-comics-ranked/
+
+Campfires have been a place for people to gather and tell stories throughout history, but The Far Side showed they could also be funny.
+---------
+
+# Tracker Season 4 Casting Shakeup Revealed Ahead of Premiere
+
+TV, Tracker
+
+Thu, 10 Sep 2026 03:26:45 GMT
+
+https://www.cbr.com/tracker-season-4-cassidy-mcclincy-zhang/
+
+The casting change is revealed just weeks ahead of the show's CBS return.
+---------
+
+# Godzilla: Minus Zero's Secret Villain Has Been Confirmed, And It Changes Everything
+
+Movies, Godzilla Minus Zero, Godzilla Minus One, Godzilla
+
+Thu, 10 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/godzilla-minus-zero-trailer-king-ghidorah-villain-introduction/
+
+Godzilla Minus Zero's latest trailer teases the introduction of Ghidorah, hinting at a monster-packed future that risks losing the charm of Minus One.
+---------
+
+# 10 Biggest Transformers of All Time, Ranked by Size
+
+Anime, Transformers
+
+Thu, 10 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/biggest-transformers-ranked-by-size/
+
+The Transformers franchise rarely settles on a limit of sizes, with many Cybertonians built to match the height of their rivals.
+---------
+
+# Dragon Ball Z Brings Back Its Original Legendary Super Saiyan This October
+
+Anime, Dragon Ball Z, Dragon Ball, merchandise
+
+Thu, 10 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/dragon-ball-z-lssj-broly-statue/
+
+Broly may be a hero in Dragon Ball Super, but a new figure release is bringing back the evil Legendary Super Saiyan as fans remember him in DBZ.
+---------
+
+# 10 Strongest Vampires in Anime History, Ranked
+
+Anime
+
+Thu, 10 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/strongest-vampires-anime-history/
+
+The strongest anime vampires are defined by physical strength and the strange abilities that allow them to survive attacks, overwhelm opponents.
+---------
+
+# Netflix's 'Crew Girl' Isn't the 'Summer I Turned Pretty' Replacement You're Looking For | Review
+
+TV Reviews, Crew Girl, Netflix, Drama, Sports
+
+Thu, 10 Sep 2026 07:01:11 GMT
+
+https://collider.com/crew-girl-netflix-review/
+
+Netflix's Crew Girl is a cheesy teen soap that's actually saved by the one thing you'd expect it to fumble: the sport itself.
+---------
+
+# 'South Park' Season 26 Officially Retired One of Its Most Controversial Characters
+
+TV Features, South Park, Donald Trump, Trey Parker, Matt Stone
+
+Thu, 10 Sep 2026 04:08:11 GMT
+
+https://collider.com/south-park-season-26-finale-mr-garrison-donald-trump-persona/
+
+South Park creators Trey Parker and Matt Stone don’t want to highlight Donald Trump anymore, and that’s good for the series.
+---------
+
+# Brad Pitt Believes His Performance In This 80% RT Movie Had One Major Flaw
+
+Movie Features, Brad Pitt, Robert Redford, A River Runs Through It, Heart of the Beast
+
+Thu, 10 Sep 2026 04:07:11 GMT
+
+https://collider.com/brad-pitt-a-river-runs-through-it-performance-flaw/
+
+1992's A River Runs Through It helped make Brad Pitt's career, but the actor felt that he "could have done better" with the role.
+---------
+
+# 13 Years Later, Dan Harmon’s Most Influential Sitcom Is Aging Like Fine Wine
+
+TV Features, Rick and Morty, Dan Harmon, Adult Swim
+
+Thu, 10 Sep 2026 03:41:11 GMT
+
+https://collider.com/13-years-dan-harmon-rick-and-morty-influental-sitcom/
+
+Rick and Morty has changed the face of television over the last 13 years, and it's still a family sitcom at its heart.
+---------
+
+# Prime Video's 'Spider-Noir' Death Sentence Confirms the Right Direction for the Spider-Verse's Future
+
+TV Features, Spider-Noir, Spider-Man, Nicolas Cage, Prime Video
+
+Thu, 10 Sep 2026 03:15:11 GMT
+
+https://collider.com/spider-noir-prime-video-cancellation-spider-verse-future/
+
+Prime Video's Spider-Noir is officially cancelled, but more limited series may be the best way forward for the Spider-Man universe.
+---------
+
+# Tom Cruise's 110-Minute Action Flop Is Now Officially Taking Over Streaming
+
+Movie Features, Tom Cruise, Alex Kurtzman, The Mummy, Dark Universe
+
+Thu, 10 Sep 2026 03:07:11 GMT
+
+https://collider.com/tom-cruise-the-mummy-2017-flop-streaming-success-prime-video-september-2026/
+
+Tom Cruise's The Mummy was one of the biggest flops of his career, but the 2017 action-horror movie is now one Prime Video's most-streamed titles.
+---------
+
+# 8 Netflix Mystery Shows Where Every Episode Is a Masterpiece
+
+TV, Netflix, Mystery, Dept. Q, The Residence
+
+Thu, 10 Sep 2026 03:01:11 GMT
+
+https://collider.com/netflix-mystery-shows-every-episode-masterpiece/
+
+From the German science fiction series Dark to the crime thriller Dept. Q, every episode of these Netflix mystery shows is a genuine masterpiece.
+---------
+
 # Huge Spider-Man Twist Reveals New Uncle Ben-Level Trauma For Peter
 
 Marvel Comics, Spider-Man
