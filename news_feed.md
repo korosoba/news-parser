@@ -1,3 +1,443 @@
+# 6 Things Disney's Live-Action Tangled Must Get Right To Avoid Repeating A 2026 Disaster
+
+Movies, Tangled
+
+Thu, 10 Sep 2026 19:20:14 GMT
+
+https://screenrant.com/disney-tangled-live-action-remake-get-right-moana-failure/
+
+Disney's live-action Tangled has a lot to prove after 2026's Moana. Here's what the remake needs to get right to avoid repeating the same mistakes.
+---------
+
+# Syfy's 5-Season Space Opera Is Everything Firefly Should Have Been
+
+Classic TV, Masked Recs
+
+Thu, 10 Sep 2026 19:00:14 GMT
+
+https://screenrant.com/killjoys-sci-fi-show-firefly-ending-better/
+
+Firefly's early cancellation is one of sci-fi TV's greatest tragedies, but Killjoys is a worthy replacement with a proper ending and a similar tone.
+---------
+
+# Alan Ritchson’s New Bestselling Novel Adaptation Gets First Key Update In 2 Years
+
+Movies, Alan Ritchson
+
+Thu, 10 Sep 2026 18:48:05 GMT
+
+https://screenrant.com/alan-ritchson-counting-miracles-amazon-movie-director-update/
+
+Alan Ritchson, the star of the hit Prime Video series Reacher, has a new movie in the works, and a major new update has just been announced.
+---------
+
+# Emmys 2026: Our Prediction For Who Will Win Lead Actress In A Comedy Series
+
+Streaming TV, Emmy Awards
+
+Thu, 10 Sep 2026 18:45:15 GMT
+
+https://screenrant.com/emmys-2026-our-prediction-for-who-will-win-lead-actress-in-a-comedy-series/
+
+Last year's winner Jean Smart is joined by four talented performers in the Outstanding Lead Actress in a Comedy Series race at the 2026 Emmys.
+---------
+
+# Hope's Cliffhanger Ending & Sequel Chances Addressed By Director And Star Of New Sci-Fi Epic
+
+Movies, Hope
+
+Thu, 10 Sep 2026 18:37:03 GMT
+
+https://screenrant.com/hope-movie-2026-ending-cliffhanger-sequel-chances-director-star/
+
+EXCLUSIVE: There’s a new sci-fi thriller in U.S. theaters, and the filmmaker behind Hope is revealing whether a sequel will ever get made.
+---------
+
+# Dungeons & Dragons Officially Drops 3 New Playable Subclasses For Free
+
+Tabletop, Dungeons and Dragons, tabletop games
+
+Thu, 10 Sep 2026 18:35:20 GMT
+
+https://screenrant.com/dungeons-dragons-free-subclasses-species-drop-september-2026/
+
+Three new playable subclass options and five playable species for Dungeons and Dragons have just been released, and they’re entirely free.
+---------
+
+# Crew Girl: Netflix's New 8-Part Teen Drama Series Is Gossip Girl Meets Friday Night Lights
+
+Streaming TV, Masked Recs
+
+Thu, 10 Sep 2026 18:35:15 GMT
+
+https://screenrant.com/netflix-new-series-crew-girl-drama-weekend-watch/
+
+Crew Girl, Netflix's new 8-part teen drama series is a perfect combination of Gossip Girl & Friday Night Lights and is built for a binge this weekend.
+---------
+
+# Hulu's Adaptation Of 13 Million-Selling Fantasy Series Would Have Been Game Of Thrones Meets Outlander
+
+TV, Masked Recs
+
+Thu, 10 Sep 2026 18:33:15 GMT
+
+https://screenrant.com/hulu-a-court-of-thorns-and-roses-series-game-thrones-meets-outlander/
+
+Ronald D. Moore’s shelved Hulu take on BookTok’s 13 million selling saga promised Outlander's heat, but with the scope of HBO's Game of Thrones.
+---------
+
+# Apple TV’s Hit Space Opera Hits Major Filming Milestone As It Targets 2027 Return
+
+TV, Foundation, Apple TV
+
+Thu, 10 Sep 2026 18:30:36 GMT
+
+https://screenrant.com/apple-tv-foundation-season-4-filming-wrapped-release-window/
+
+Apple TV's defining sci-fi space opera has finally passed a big filming milestone, previewing when new episodes could be available to stream.
+---------
+
+# 58 Years Later, Once Upon A Time In The West's Greatest Scene Remains Unbeaten In Western History
+
+Movies, Once Upon a Time in the West, Western, Sergio Leone
+
+Thu, 10 Sep 2026 18:30:14 GMT
+
+https://screenrant.com/once-upon-a-time-in-the-west-movie-best-western-scene/
+
+Once Upon a Time in the West is arguably one of the greatest Westerns ever made, and the final scene is a big part of what makes it so special.
+---------
+
+# Zelda: Ocarina of Time Remake’s Worst Change Isn’t the Art Style, But a Tiny Detail
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Thu, 10 Sep 2026 19:15:11 GMT
+
+https://www.cbr.com/zelda-ocarina-time-remake-deku-tree-change-switch/
+
+While the Ocarina of Time remake's new child Link character model gets a lot of flak, subtle changes have done more damage to the original atmosphere.
+---------
+
+# 5 Anime Characters Objectively Stronger Than Gear 5 Luffy
+
+Anime, One Piece
+
+Thu, 10 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/one-piece-anime-characters-stronger-than-gear-5-luffy-list/
+
+Gear 5 made Luffy strong enough to beat Blackbeard, but he's still no match for the most powerful anime characters like Sukuna.
+---------
+
+# 7 Years Later, JK Simmons' Forgotten Sci-Fi Thriller With 2 100% RT Seasons Hits 5x Harder
+
+TV, Counterpart, Sci-Fi, Innovation
+
+Thu, 10 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/counterpart-jk-simmons-sci-fi-thriller-series/
+
+Starz’s forgotten sci-fi espionage thriller stars J.K. Simmons in a dual role, and his performance remains a standout.
+---------
+
+# Netflix's Easy-to-Binge Drama With 87% RT Confirms Fall Release Trend for Highly Anticipated Return
+
+TV, Nobody Wants This
+
+Thu, 10 Sep 2026 18:57:04 GMT
+
+https://www.cbr.com/netflix-nobody-wants-this-season-3-release-date/
+
+The millennial dream series will continue the same release trend.
+---------
+
+# 8 N64 Games That Are 10/10, No Notes
+
+Games, Nintendo
+
+Thu, 10 Sep 2026 18:45:12 GMT
+
+https://www.cbr.com/best-nintendo-64-games-flawless-start-to-finish-list/
+
+N64 games like GoldenEye are classics in every sense of the word.
+---------
+
+# 12 Best Manga You Need to Start Reading in 2026
+
+Anime, Manga, Witch Hat Atelier, Shangri-La Frontier
+
+Thu, 10 Sep 2026 18:30:11 GMT
+
+https://www.cbr.com/best-manga-to-start-reading-2026/
+
+With 2026 not even at the halfway point, there's still time for emerging series to make their stand and win the hearts of manga fans worldwide.
+---------
+
+# Avatar: Seven Havens Reveals Mysterious Twins as Korra ‘Dooms the World’
+
+Anime, Avatar: The Last Airbender, Avatar: Seven Havens, The Legend of Korra
+
+Thu, 10 Sep 2026 18:20:36 GMT
+
+https://www.cbr.com/avatar-seven-havens-new-avatar-korra-dooms-world/
+
+Avatar: The Last Airbender finally returns with a new Seven Havens trailer revealing twin heroes and Korra’s mysterious role in a devastated world.
+---------
+
+# Hulu's Reboot of Iconic Crime Show Gets Official Retitle & First Look
+
+TV, Prison Break
+
+Thu, 10 Sep 2026 18:15:30 GMT
+
+https://www.cbr.com/prison-break-black-creek-first-look-hulu/
+
+Hulu goes back to the past to revive a beloved crime drama series.
+---------
+
+# September 17 Is Officially the End of an Era for the Transformers Franchise
+
+Anime, Transformers
+
+Thu, 10 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/transformers-official-end-of-an-era-september-2026/
+
+The Transformers franchise is one of the most storied in entertainment, and September 17 marks a sad end for one of the most iconic voices in film.
+---------
+
+# Marvel’s X-Men Reboot Officially Recasts Another Founding Member
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Thu, 10 Sep 2026 18:08:32 GMT
+
+https://www.cbr.com/marvel-x-men-cast-asa-germann-angel/
+
+Marvel has officially cast another of the original five X-Men in its upcoming reboot movie.
+---------
+
+# 3 Years Later, Prime Video’s Emmy-Nominated Streaming Hit Is Ready for Its Season 2 Return
+
+TV Features, Daisy Jones & The Six, Riley Keough, Sam Claflin, Prime Video, Stevie Nicks
+
+Thu, 10 Sep 2026 19:19:11 GMT
+
+https://collider.com/daisy-jones-and-the-six-stevie-nicks-season-2/
+
+Daisy Jones & the Six is a fictionalized version of Fleetwood Mac's origin story and concluded in 2023 without a Season 2 in sight.
+---------
+
+# Steven Spielberg's New Sci-Fi Thriller Officially Sets Streaming Debut for 2026
+
+Movie News, Disclosure Day, Steven Spielberg, Peacock, David Koepp
+
+Thu, 10 Sep 2026 19:05:23 GMT
+
+https://collider.com/steven-spielberg-sci-fi-disclosure-day-streaming-peacock-october-2026/
+
+Steven Spielberg's first major alien sci-fi film since War of the Worlds officially begins streaming in October. Here's all to know.
+---------
+
+# Charlie Hunnam Officially Breaks Silence on New 'Sons of Anarchy' Spin-Off
+
+TV News, Sons of Anarchy, Charlie Hunnam, Ron Perlman, Katey Sagal
+
+Thu, 10 Sep 2026 19:02:59 GMT
+
+https://collider.com/sons-of-anarchy-spin-off-charlie-hunnam-comments/
+
+Charlie Hunnam has officially teased his role in the new Sons of Anarchy spin-off and how it brings Jax Teller back from the dead (sort of).
+---------
+
+# Collider Media Studio Officially Returns to TIFF for a Star-Studded Weekend
+
+Exclusives, TIFF, Toronto International Film Festival, Amanda Seyfried, James McAvoy
+
+Thu, 10 Sep 2026 19:00:11 GMT
+
+https://collider.com/tiff-2026-media-studio/
+
+Collider's Media Studio returns to the Campari Cinema Center for the 51st annual TIFF. Here's everything to know about our star-studded lineup.
+---------
+
+# 15 Years Later, Steven Spielberg’s 13-Part Sci-Fi Series Is Still Worth Revisiting
+
+TV Features, Terra Nova, Steven Spielberg, Sci-Fi, Ashley Zukerman
+
+Thu, 10 Sep 2026 18:58:11 GMT
+
+https://collider.com/steven-spielberg-terra-nova-la-brea/
+
+Terra Nova, Steven Spielberg’s 13-episode sci-fi series, paved the way for La Brea with its prehistoric survival story.
+---------
+
+# Netflix's Cancelled Fantasy Franchise Is Officially Back From the Dead
+
+TV News, Warrior Nun, Netflix, Simon Barry, Fantasy
+
+Thu, 10 Sep 2026 18:41:18 GMT
+
+https://collider.com/netflix-the-warrior-nun-franchise-movie-tv-reboot/
+
+The Warrior Nun lives! The fan-favorite fantasy franchise is gearing up for a major film and TV reboot after Netflix cancelled the series.
+---------
+
+# 'Fire Country' Star Officially Confirms Bode's Romantic Future
+
+TV News, Fire Country, CBS, Drama, Procedural
+
+Thu, 10 Sep 2026 18:30:23 GMT
+
+https://collider.com/fire-country-season-5-bode-new-romantic-partner-max-thieriot/
+
+Max Thieriot reveals whether Bode and Chloe are still in a romantic relationship in Fire Country Season 5 with CJ's arrival. Get all the details here.
+---------
+
+# Mel Gibson Officially Speaks Out on Jim Caviezel's Replacement in 'The Passion of the Christ' Follow-Up
+
+Movie News, Mel Gibson, The Passion of the Christ, The Resurrection of the Christ Part 1, Jim Caviezel
+
+Thu, 10 Sep 2026 18:26:57 GMT
+
+https://collider.com/mel-gibson-passion-of-the-christ-sequel-jim-caviezel-replacement-comments/
+
+Mel Gibson has officially broken his silence on Jim Caviezel's replacement as Jesus in his Passion of the Christ sequel. Read on for more.
+---------
+
+# The Next David Lynch Just Stunned With Their Latest Horror Film
+
+Movie Features, Teenage Sex and Death at Camp Miasma, David Lynch, Jane Schoenbrun, Gillian Anderson
+
+Thu, 10 Sep 2026 18:20:11 GMT
+
+https://collider.com/jane-schoenbrun-david-lynch-teenage-sex-and-death-at-camp-miasma/
+
+Director Jane Schoenbrun uses similar techniques and themes to David Lynch in their horror film Teenage Sex and Death at Camp Miasma.
+---------
+
+# The Shards: One Costume Silhouette Gave Steven His Walk | Set Stories
+
+TV, The Shards
+
+Thu, 10 Sep 2026 18:15:11 GMT
+
+https://collider.com/video/the-shards-one-costume-silhouette-gave-steven-his-walk-set-stories/
+
+Jordan Roth reveals how fashion, performance art, and a crash course in television acting shaped Steven in FX’s The Shards. From David Bowie and David Sylvian references to a lavender leather jumpsuit, Roth explains how Steven’s distinctive look became inseparable from the character.
+---------
+
+# Henry Cavill Is Locked & Loaded in New Netflix Action Movie Set Images
+
+Movie News, Henry Cavill, Netflix, Kevin Hart, Action
+
+Thu, 10 Sep 2026 19:22:56 GMT
+
+https://movieweb.com/henry-cavill-kevin-hart-netflix-spy-movie-set-photos/
+
+A new look at the former Superman actor's next project has been revealed.
+---------
+
+# 'Project Hail Mary' Star's New Near-Perfect War Thriller Debuts Stunning Trailer
+
+Movie News, Fatherland, Sandra Hüller
+
+Thu, 10 Sep 2026 19:12:56 GMT
+
+https://movieweb.com/fatherland-trailer-sandra-huller-mubi/
+
+'Fatherland,' starring Sandra Hüller, is a biographical road-trip movie set to open in theaters on October 23, 2026.
+---------
+
+# 'X-Men' Officially Casts 'Gen V' Star as Original Team Member
+
+Movie News, X-Men, Gen V, Superhero
+
+Thu, 10 Sep 2026 18:10:16 GMT
+
+https://movieweb.com/x-men-asa-germann-angel-mcu/
+
+A 'Gen V' star is now set to move into the Marvel Universe for a role as a fan-favorite mutant in the MCU's first X-Men movie.
+---------
+
+# It's Officially the End of an Era for 'Reacher' After 4 Years
+
+Features, Reacher, Action, Neagley
+
+Thu, 10 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/reacher-neagley-spin-off-release-change/
+
+Prime Video's 'Reacher' franchise is making a big change this month, and it could mean the end of an era for the series after four years.
+---------
+
+# MovieWeb's FanExpo Dallas 2026 Panels
+
+Features
+
+Thu, 10 Sep 2026 17:57:03 GMT
+
+https://movieweb.com/moviewebs-fan-expo-dallas-2026-panels/
+
+MovieWeb is hosting the stars of your favorite movies and shows!
+---------
+
+# Liam Neeson's New Action Thriller Epic Officially Described as "Miscast" in First Reviews
+
+Movie News, The Fix, Liam Neeson, Action, Thriller
+
+Thu, 10 Sep 2026 17:54:58 GMT
+
+https://movieweb.com/the-fix-liam-neeson-critic-reviews/
+
+The word "miscast" is being thrown out in early reviews for a new action thriller movie featuring 'Taken' star Liam Neeson.
+---------
+
+# 'Tracker' Season 4 Officially Confirms It's Fixing a Major Season 3 Cast Problem
+
+Features, Tracker, Action, Thriller
+
+Thu, 10 Sep 2026 17:47:21 GMT
+
+https://movieweb.com/tracker-season-4-cassady-mcclincy-zhang-promoted/
+
+'Tracker' is an action thriller series on CBS starring Justin Hartley, and Season 4 premieres on October 4, 2026.
+---------
+
+# Alan Ritchson Scores Big With His Brutal and Non-Stop New Action Thriller | Review
+
+Movie Reviews, Runner, Alan Ritchson, Thriller, Action
+
+Thu, 10 Sep 2026 17:31:28 GMT
+
+https://movieweb.com/runner-review/
+
+A former Navy SEAL and courier face a ruthless cartel boss in a race to save a dying girl in 'Runner.'
+---------
+
+# Classic '60s Crime Thriller Reboot Officially in the Works From New 'Spider-Man' Director
+
+Movie News, Hawaii Five-O, Hawaii Five-0, Spider-Man: Brand New Day, Crime, Thriller
+
+Thu, 10 Sep 2026 17:26:29 GMT
+
+https://movieweb.com/hawaii-five-o-destin-daniel-cretton/
+
+Destin Daniel Cretton is in talks to direct a feature film adaptation of the popular series, 'Hawaii Five-O,' for Paramount Pictures.
+---------
+
+# Future of Charlie Hunnam's Action Sci-Fi Epic Series Finally Gets Promising Update
+
+Movie News, Pacific Rim, Action, Charlie Hunnam, Guillermo del Toro
+
+Thu, 10 Sep 2026 17:09:31 GMT
+
+https://movieweb.com/pacific-rim-3-guillermo-del-toro-promising-update/
+
+The ambitious sci-fi franchise 'Pacific Rim' from Guillermo del Toro stalled after the sequel flopped at the box office.
+---------
+
 # Paul Walker's Brian Return for Fast & Furious Finale Hits Setback
 
 Movies
