@@ -1,3 +1,388 @@
+# Taylor Sheridan Is Finally Telling The Foundational Yellowstone Story That Was Criminally Ignored
+
+TV, Yellowstone, Marshals
+
+Thu, 10 Sep 2026 21:30:15 GMT
+
+https://screenrant.com/yellowstone-kayce-branding-marshals-season-2-story/
+
+Taylor Sheridan finally stages the brutal Yellowstone moment that shaped Kayce, tracing a legacy of violence, shame, and uneasy inheritance.
+---------
+
+# 10 Calvin and Hobbes Moments That Prove Bill Watterson Was a Genius
+
+Comics
+
+Thu, 10 Sep 2026 21:22:48 GMT
+
+https://screenrant.com/calvin-hobbes-moments-prove-bill-watterson-genius/
+
+In Pop culture, Calvin and Hobbes reference creative ingenuity and Bill Watterson is the sole reason for it.
+---------
+
+# 6 Autobots Who Would Make Better Leaders Than Optimus Prime
+
+Movies, Transformers
+
+Thu, 10 Sep 2026 21:21:56 GMT
+
+https://screenrant.com/transformers-better-leader-optimus-prime/
+
+While Optimus Prime is a legendary commander, several other Autobots possess certain qualities that would enable them to lead better than he does.
+---------
+
+# How Steven Spielberg Influenced 5-Season Post-Apocalyptic Sci-Fi Thriller
+
+TV, Falling Skies, Noah Wyle, Steven Spielberg
+
+Thu, 10 Sep 2026 21:04:08 GMT
+
+https://screenrant.com/steven-spielberg-falling-skies-influence-direction-noah-wyle/
+
+Steven Spielberg is one of the most iconic filmmakers ever, and he made his mark on a sci-fi series in a major way, according to the lead star.
+---------
+
+# Jujutsu Kaisen Returns In Huge New Crossover With Hit Video Game IP
+
+Gaming, PUBG: Battlegrounds, Jujutsu Kaisen, Live Service Games, PC
+
+Thu, 10 Sep 2026 21:00:15 GMT
+
+https://screenrant.com/jujutsu-kaisen-pubg-battlegrounds-crossover/
+
+Season Four of Jujutsu Kaisen isn't here just yet, but fans have a new way to entertain themselves while they continue to wait for news.
+---------
+
+# Doctor Who & Downton Abbey Cross Over With New British Detective Duo Debut
+
+Streaming TV, Masked Recs
+
+Thu, 10 Sep 2026 21:00:15 GMT
+
+https://screenrant.com/cooper-fry-british-detective-duo-downton-abbey-doctor-who-crossover/
+
+Major stars from Downton Abbey and Doctor Who team up as the ultimate detective duo in the eerie new British crime drama, Cooper and Fry.
+---------
+
+# The DCU’s Wild New Villain Set Photo Reveal Fixes A Decades-Long Superhero Problem
+
+Movies, DC Universe
+
+Thu, 10 Sep 2026 21:00:15 GMT
+
+https://screenrant.com/dc-universe-gorilla-grodd-set-photos-villain-problem-fix/
+
+The DC Universe's latest set photos have provided a surreal reveal that works to combat an age-old issue with villains in the superhero world.
+---------
+
+# The Fix Exclusive Clip
+
+Movies, the fix, Zachary Levi
+
+Thu, 10 Sep 2026 20:55:38 GMT
+
+https://screenrant.com/video/the-fix-2026-movie-clip-zachary-levi-liam-neeson/
+
+ScreeRant presents an exclusive clip from The Fix, a new action-thriller starring Liam Neeson and Zachary Levi as CIA operators.
+---------
+
+# Charlie Hunnam Addresses The Gentlemen Return & Reveals Original Plan For Guy Ritchie's Netflix Spinoff
+
+TV, The Gentlemen, Netflix, Guy Ritchie, Charlie Hunnam
+
+Thu, 10 Sep 2026 20:46:10 GMT
+
+https://screenrant.com/the-gentlemen-netflix-spinoff-original-plan-return-chances-charlie-hunnam/
+
+Exclusive: Charlie Hunnam weighs in on the chances of his return for Guy Ritchie's The Gentlemen and the scrapped original plan for the spinoff.
+---------
+
+# Harry Potter Confirms Historic New Release for HBO Reboot
+
+TV, Harry Potter
+
+Thu, 10 Sep 2026 21:22:59 GMT
+
+https://www.cbr.com/harry-potter-confirms-tie-in-novel-hbo-reboot/
+
+The series is just unstoppable.
+---------
+
+# Star Trek Is the Worst-Preserved Sci-Fi Franchise in Gaming History
+
+Games, Star Trek, Video Games, Steam
+
+Thu, 10 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/star-trek-worst-preserved-sci-fi-franchise-in-gaming/
+
+Star Trek has become the worst-preserved science fiction franchise in video game history, with multiple releases delisted in 2026 alone.
+---------
+
+# 10 Movies To Watch If You Can't Wait For KPop Demon Hunters 2
+
+Movies, KPop Demon Hunters, Fantasy, Animation
+
+Thu, 10 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/best-movies-to-watch-waiting-for-k-pop-demon-hunters-2-list/
+
+Although KPop Demon Hunters 2 won't come out for a while, there are a few movies you can watch that share a similar energy to the original film.
+---------
+
+# Stephen King Reviews Mike Flanagan's Adaptation of 52-Year-Old Classic: 'Shocking and True'
+
+TV, Stephen King, Mike Flanagan, Carrie
+
+Thu, 10 Sep 2026 20:47:45 GMT
+
+https://www.cbr.com/stephen-king-reviews-mike-flanagan-carrie/
+
+The latest Stephen King and Mike Flanagan partnership is already off to a great start.
+---------
+
+# Charlie Hunnam Reveals the Wild Truth About Sons of Anarchy's New Reunion Series
+
+TV, Sons of Anarchy
+
+Thu, 10 Sep 2026 20:47:29 GMT
+
+https://www.cbr.com/charlie-hunnam-sons-of-anarchy-legends-reunion-series-idea/
+
+The gang is getting back together, but not in the way fans might expect.
+---------
+
+# 10 Greatest Captain Kirk Scenes From the Star Trek Movies, Ranked
+
+Movies, Star Trek, Star Trek II: The Wrath of Khan, Star Trek: The Motion Picture
+
+Thu, 10 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/best-captain-kirk-star-trek-movie-scenes-list/
+
+From taking on his biggest foes to losing his closest allies, these are the greatest Captain Kirk scenes from the Star Trek movies.
+---------
+
+# 7 Biggest Letdowns of 2026 Anime So Far
+
+Anime, The Drops of God, Liar Game
+
+Thu, 10 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/biggest-anime-letdowns-2026/
+
+2026 has been a groundbreaking year for anime, but it's also featured its share of disappointments, like Drops of God and Fist of the North Star.
+---------
+
+# Batman Knightfall Part 1's Ending Sets Up DC's Darkest Batman Story
+
+Movies, Batman: Knightfall Part 1: Knightfall, Batman, DCU
+
+Thu, 10 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/batman-knightfall-part-1-ending-azrael-dark-batman-set-up/
+
+DC’s Batman: Knightfall Part 1 has already left fans blown away by its brutality, but the sequels are about to get even darker.
+---------
+
+# 3 Hard Sci-Fi Shows to Binge Now That Silo Season 3 Is Over
+
+TV, Silo, Sci-Fi, Dark
+
+Thu, 10 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/best-hard-sci-fi-shows-for-silo-fans/
+
+Sadly, Silo Season 3 has come to an end, but there are plenty of great hard sci-fi shows to fill the void while fans wait for the next season.
+---------
+
+# 10 Star Wars Comics Every Fan Should Read That Changed the Franchise
+
+Comics, Star Wars
+
+Thu, 10 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/star-wars-comics-that-changed-the-franchise-forever/
+
+It's hard to see what the franchise would be like had these Star Wars comics not completely changed the galaxy.
+---------
+
+# ‘White House Down’ Meets ‘John Wick’ in Scott Adkins’ 97-Minute Action Thriller Coming This Month
+
+Movie News, Scott Adkins, One Last Shot, Action, Dolph Lundgren
+
+Thu, 10 Sep 2026 21:26:38 GMT
+
+https://collider.com/one-last-shot-scott-adkins-dolph-lundgren-white-house-down-replacement/
+
+White House Down meets John Wick in a new action thriller in One Last Shot, starring Scott Adkins and Dolph Lundgren. Watch the trailer.
+---------
+
+# Most Likely to Curse Their Enemies...? | The Practical Magic 2 Cast Plays Superlatives
+
+Movie, Practical Magic 2, Originals
+
+Thu, 10 Sep 2026 21:14:24 GMT
+
+https://collider.com/video/most-likely-to-curse-their-enemies-the-practical-magic-2-cast-plays-superlatives/
+
+Maisie Williams and Joey King, stars of Practical Magic 2 answer the behind the scenes questions you've been dying to have answered. Who is the Witchiest? The best midnight margarita maker? Biggest flirt? Who read everyone's tarot on set? And more.Find out on this episode of Collider Superlatives!
+---------
+
+# 12 Years Later, Keanu Reeves' Intense Franchise Is Officially the Greatest Action Series Streaming Today
+
+Movie Features, John Wick, Keanu Reeves, John Wick: Chapter 2, John Wick: Chapter 4
+
+Thu, 10 Sep 2026 21:09:11 GMT
+
+https://collider.com/keanu-reeves-john-wick-intense-action-franchise-streaming-success/
+
+There are four main John Wick movies starring Keanu Reeves, plus some spin-offs, with all the parts making up an amazing action series.
+---------
+
+# The 10 Most Universally Loved Fantasy Movies of the Last 30 Years, Ranked
+
+Movie, Fantasy, KPop Demon Hunters, The Lord of the Rings, Pan's Labyrinth
+
+Thu, 10 Sep 2026 20:57:11 GMT
+
+https://collider.com/most-universally-loved-fantasy-movies-last-30-years-ranked/
+
+KPop Demon Hunters, Puss in Boots: The Last Wish, and Pan's Labyrinth are among the best, most universally loved fantasy movies of the last 30 years.
+---------
+
+# Agatha Christie's Intense 12-Part Crime Series Is the Author's Best Adaptation of All Time
+
+TV Features, Miss Marple, Agatha Christie, BBC, Mystery
+
+Thu, 10 Sep 2026 20:50:30 GMT
+
+https://collider.com/agatha-christie-miss-marple-crime-series-best-adaptation/
+
+BBC's adaptation of Agatha Christie's Miss Marple captures her unique charm and mystery.
+---------
+
+# Taylor Sheridan Star's New Pirate Series Officially Sets Release Date
+
+TV News, MGM, David Oyelowo, Paramount+ with Showtime, Treasure Island
+
+Thu, 10 Sep 2026 20:18:52 GMT
+
+https://collider.com/david-oyelowo-treasure-island-series-release-date-mgm-plus-paramount-plus-october-2026/
+
+MGM+ and Paramount+'s new series adaptation of Treasure Island, starring Taylor Sheridan vet David Oyelowo, has set its release date.
+---------
+
+# ‘League of Legends’ Artist Officially Reveals New 152-Page Art Book [Exclusive]
+
+Books and Comics News, Riot Games, Kickstarter, League of Legends, Books
+
+Thu, 10 Sep 2026 20:16:06 GMT
+
+https://collider.com/league-of-legends-reminiscent-art-of-zeronis-kickstarter/
+
+The concept designer behind your favorite League of Legends characters is the subject of a new art book. Read on for more.
+---------
+
+# Assassin’s Creed Officially Celebrates 20th Anniversary With Stunning New Release
+
+Collectibles, Assassin's Creed IV: Black Flag, Video Game, Action Figure, Action
+
+Thu, 10 Sep 2026 20:15:33 GMT
+
+https://collider.com/assassins-creed-20th-anniversary-statue-edward-kenway/
+
+As Assassin’s Creed approaches its 20th anniversary, a massive new release gives fans another reason to celebrate the franchise.
+---------
+
+# Jason Momoa’s ‘Game of Thrones’ Replacement Officially Sets New 2026 Release
+
+TV News, Chief of War, Apple TV, Jason Momoa, Game Of Thrones
+
+Thu, 10 Sep 2026 20:01:24 GMT
+
+https://collider.com/apple-tv-jason-momoa-chief-of-war-blu-ray-release-date-november-2026/
+
+Apple TV's historical epic, Chief of War, starring Game of Thrones alum Jason Momoa, is officially getting a new release in 2026.
+---------
+
+# The Creators of ‘Life Is Strange’ Are Officially in Trouble
+
+Gaming News, Life is Strange, Life Is Strange, Video Game, Adventure
+
+Thu, 10 Sep 2026 19:56:43 GMT
+
+https://collider.com/life-is-strange-creator-dont-nod-entertainment-financial-future/
+
+Don't Nod Entertainment, the studio behind Life Is Strange, warns of potential closure as it restructures according to its recent financial report.
+---------
+
+# Josh Brolin's New 98-Minute Survival Thriller Epic Officially Arrives Next Month
+
+Movie News, Whalefall, Josh Brolin
+
+Thu, 10 Sep 2026 21:14:56 GMT
+
+https://movieweb.com/whalefall-josh-brolin-new-trailer/
+
+Josh Brolin's new non-stop survival thriller 'Whalefall' already looks like a must-watch.
+---------
+
+# Tyler Perry's Final Netflix Movie Is Officially One of the Biggest Hits on Streaming
+
+Movie News, Why Did I Get Married Again?, Hot on Streaming
+
+Thu, 10 Sep 2026 20:49:04 GMT
+
+https://movieweb.com/tyler-perry-why-did-i-get-married-again-netflix-streaming-hit/
+
+Tyler Perry’s 'Why Did I Get Married Again?' has wasted no time becoming one of Netflix’s biggest streaming hits.
+---------
+
+# New Netflix Thriller Officially Announced From Team Behind 2026's Best Sci-Fi Movie
+
+TV News, Netflix, Thriller, Phil Lord, Chris Miller
+
+Thu, 10 Sep 2026 20:34:02 GMT
+
+https://movieweb.com/understudy-netflix-thriller-phil-lord-chris-miller/
+
+Phil Lord and Chris Miller are riding the momentum of a stellar year with a gripping new Netflix thriller based on the short story 'Understudy.'
+---------
+
+# 'One Piece' & 'Dragon Ball Z' Actor Mike McFarland Dies at 56
+
+TV News, Dragon Ball Z, One Piece
+
+Thu, 10 Sep 2026 20:24:12 GMT
+
+https://movieweb.com/mike-mcfarland-dies-aged-56/
+
+Voice acting star Mike McFarland, best known for his long-standing work in the anime world, is no longer with us after 56 years of life.
+---------
+
+# Anthony Hopkins Set To Control the World in New Post-Apocalyptic Sci-Fi Thriller
+
+Movie News, Anthony Hopkins, Sci-Fi
+
+Thu, 10 Sep 2026 19:33:33 GMT
+
+https://movieweb.com/anthony-hopkins-2048-post-apocalyptic-sci-fi-thriller/
+
+Anthony Hopkins transforms into a chilling architect of a subterranean regime in a tense, morally complex sci-fi thriller set in 2048.
+---------
+
+# Mark Wahlberg's Forgotten 109-Minute Action Thriller Is Officially One of Netflix's Biggest Movies
+
+Movie News, Contraband, Mark Wahlberg, Hot on Streaming, Action, Netflix
+
+Thu, 10 Sep 2026 19:30:13 GMT
+
+https://movieweb.com/mark-wahlberg-contraband-action-netflix-streaming-hit-september-2026/
+
+One of Mark Wahlberg's most underrated movies has found new life on streaming thanks to Netflix.
+---------
+
 # 6 Things Disney's Live-Action Tangled Must Get Right To Avoid Repeating A 2026 Disaster
 
 Movies, Tangled
