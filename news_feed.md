@@ -1,3 +1,377 @@
+# Star Trek: Strange New Worlds Just Dropped Its Best Gimmick Story Yet, And Too Many Fans Will Miss It
+
+Comics, Star Trek: Strange New Worlds, Star Trek
+
+Thu, 10 Sep 2026 23:30:14 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-best-gimmick-story/
+
+The best yet
+---------
+
+# Homeland Meets Zero Dark Thirty In Joel Kinnaman’s New 8-Part Political Thriller
+
+Network TV, Masked Recs
+
+Thu, 10 Sep 2026 23:30:14 GMT
+
+https://screenrant.com/high-value-target-tnt-homeland-meets-zero-dark-thirty/
+
+The upcoming political thriller High Value Target combines the true story military action of Zero Dark Thirty with the gritty spy games of Homeland.
+---------
+
+# The Most Anticipated Fall/Winter 2026 Book Releases That You Can Pre-Order Now
+
+Books
+
+Thu, 10 Sep 2026 23:09:47 GMT
+
+https://screenrant.com/most-anticipated-books-fall-winter-2026-preorder/
+
+Some of the most anticipated books in fall and winter 2026 are already available to pre-order, so it's the perfect time to secure your dream book.
+---------
+
+# Pokémon Legends: Z-A Freebies Officially Available Until September 16
+
+Gaming, Pokemon Legends Z-A, Triple-A Games
+
+Thu, 10 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/pokemon-legends-za-free-rewards-season-16/
+
+Pokémon Legends: Z-A isn't over yet, and there are some neat freebies available now that you only have a limited time to grab.
+---------
+
+# The Walking Dead Officially Gets An Evil Rick Grimes
+
+Streaming TV, The Walking Dead
+
+Thu, 10 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/the-walking-dead-dillard-evil-rick-grimes/
+
+Rick Grimes may be the overarching hero of The Walking Dead, but the franchise is now asking what a villainous version could look like.
+---------
+
+# The 22 Best NBA 2K Games, Ranked
+
+Gaming, NBA 2K, Triple-A Games
+
+Thu, 10 Sep 2026 22:30:15 GMT
+
+https://screenrant.com/nba-2k-best-games-series-metacritic/
+
+The NBA 2K series has a long and storied history, having annual releases since the turn of the millennia, but some are better than others.
+---------
+
+# Everything We Know About The Next James Bond After This Week's Major Update & Shortlist Officially Narrowing
+
+Movies, James Bond
+
+Thu, 10 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/next-james-bond-actor-casting-updates-september-2026/
+
+A new James Bond reboot is coming and the new actor should be cast by the end of 2026. Here is what we know about the next actor to play Agent 007.
+---------
+
+# Prime Video's Reacher Just Dropped Its Biggest Nod Yet To The Tom Cruise Movies
+
+Streaming TV, Reacher
+
+Thu, 10 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/reacher-prime-video-tom-cruise-movie-reference/
+
+Before Alan Ritchson took over the mantle, Tom Cruise portrayed Jack Reacher on film, and the Prime Video series just paid homage to these movies.
+---------
+
+# Marvel's New Hulk Replacement Officially Announced
+
+Comics, Hulk
+
+Thu, 10 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/new-hulk-replacement-reactor-bruce-banner/
+
+Bruce Banner is no longer Marvel's Hulk.
+---------
+
+# The Legend Of Zelda Star Officially Addresses Rumored Live-Action Role
+
+Movies, The Legend of Zelda
+
+Thu, 10 Sep 2026 22:24:02 GMT
+
+https://screenrant.com/legend-of-zelda-live-action-patricia-summersett-role/
+
+A longtime star of The Legend of Zelda finally addresses her much-rumored role in the upcoming live-action adaptation of the Nintendo franchise.
+---------
+
+# 5 Anime Series Where the Hero Becomes a Monster
+
+Anime
+
+Thu, 10 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/anime-series-where-the-hero-becomes-a-monster/
+
+These anime series see their heroes transformed into monsters, usually with disastrous results.
+---------
+
+# Michelle Pfeiffer's Steamy Apple TV Hit With 96% RT Is Becoming a Modern Masterpiece
+
+TV, Margo's Got Money Troubles, Apple TV, Comedy
+
+Thu, 10 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/apple-tv-margos-got-money-troubles-steamy-masterpiece/
+
+Apple TV's latest must-see hit marks a welcome return for a beloved TV icon and showcases the talent of movie stars like Michelle Pfeiffer.
+---------
+
+# 7 Cyberpunk Movies Perfect For Fans of Blade Runner
+
+Movies, Blade Runner
+
+Thu, 10 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/cyberpunk-movies-perfect-for-blade-runner-fans-list/
+
+Blade Runner set a high bar for cyberpunk, but several movies have taken the genre in interesting directions while keeping its core ideas intact.
+---------
+
+# Nintendo Announces 30% Off Switch Sale After $300 Million Tariff Refund
+
+Games, Nintendo
+
+Thu, 10 Sep 2026 22:45:11 GMT
+
+https://www.cbr.com/nintendo-announces-switch-sale-300-million-tariff-refund/
+
+Nintendo has announced a rare Switch sale to celebrate their fans, but it won't last long.
+---------
+
+# Gundam Reveals 3 New Mecha Designs From Its Next Major Anime Timeline
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam RG XARX-ZERO, merchandise, toys
+
+Thu, 10 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/gundam-reveals-3-new-mecha-designs-ahead-of-major-2027-release/
+
+The trailer for the newest Gundam game reveals several new mobile suits, with a special model kit based on one of them available as a pre-order bonus.
+---------
+
+# 11 D&D Rules You Can Totally Ignore
+
+Games, Dungeons and Dragons
+
+Thu, 10 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/dnd-rules-you-should-ignore/
+
+The 2024 Dungeons & Dragons 5e update changed a lot of rules, but there are still some that players should ignore if they get in the way of the fun.
+---------
+
+# 7 Strongest Grimoires in Black Clover, Ranked
+
+Anime, Black Clover, shonen anime
+
+Thu, 10 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/black-clover-strongest-grimoires-ranked/
+
+Black Clover's grimoires allow mages to access and develop their individual magic attributes, but not all grimoires are created equally.
+---------
+
+# 10 Greatest Fire Emblem Games of All Time, Ranked
+
+Games, Fire Emblem, Nintendo
+
+Thu, 10 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/best-fire-emblem-games-all-time-ranked-list/
+
+Fire Emblem games like Three Houses rank as some of the best strategy RPGs of all time.
+---------
+
+# Backrooms 2 Must Introduce Ivan Beck
+
+Movies, Backrooms, A24
+
+Thu, 10 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/backrooms-sequel-introduce-ivan-beck-villain/
+
+Kane Parsons has reportedly signed on to return for a sequel to A24's smash-hit Backrooms, which could connect even more to his YouTube web series.
+---------
+
+# Luke Skywalker Is Back In Comics After The Last Jedi’s Controversial Ending
+
+Comics, Star Wars, webtoon
+
+Thu, 10 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/star-wars-the-legend-of-luke-skywalker-the-manga-webtoon-release/
+
+One of the most underrated Star Wars titles of the past decade is now available in a new format for a new platform, and fans couldn't be happier.
+---------
+
+# This Unforgettable 9-Film Franchise Just Found the Perfect New Streaming Home
+
+Movie Features, Rocky, Creed, Sylvester Stallone, Michael B. Jordan
+
+Thu, 10 Sep 2026 23:21:11 GMT
+
+https://collider.com/rocky-movie-franchise-streaming-free-pluto-tv-creed/
+
+For 50 years, Rocky has been a film staple. The entire franchise, including the Creed trilogy, is now streaming in one place.
+---------
+
+# 10 Greatest Villains from 'Batman: The Animated Series,' Ranked
+
+TV, Batman: The Animated Series, Animation, Superhero, Batman
+
+Thu, 10 Sep 2026 23:12:11 GMT
+
+https://collider.com/best-batman-animated-series-villains-ranked/
+
+Batman: The Animated Series saw some of the best villains come to life, from Mr. Freeze to The Joker.
+---------
+
+# A Last-Minute Rewrite Completely Changed This Star Trek Episode [Exclusive]
+
+TV News, Star Trek: Strange New Worlds, Ethan Peck, Star Trek, FanX
+
+Thu, 10 Sep 2026 23:00:11 GMT
+
+https://collider.com/star-trek-strange-new-worlds-season-4-puppet-episode-originally-not-a-dream/
+
+A last-minute decision changed the course of Star Trek: Strange New Worlds' history. Read on for more.
+---------
+
+# 'The Last of Us' Creator's Exit From HBO Series Is a Death Sentence for a Controversial Season 3
+
+TV Features, The Last of Us, Neil Druckmann, Naughty Dog
+
+Thu, 10 Sep 2026 22:58:11 GMT
+
+https://collider.com/the-last-of-us-hbo-neil-druckmann-naughty-dog-exit-season-3/
+
+The Last of Us Season 3 has already faced controversy, but now the HBO series is navigating a major absence in the writers' room.
+---------
+
+# The 8 Most Fun Film Noir Movies, Ranked
+
+Movie, Humphrey Bogart, The Big Sleep, Classics, Film Noir
+
+Thu, 10 Sep 2026 22:54:11 GMT
+
+https://collider.com/most-fun-film-noir-movies-ranked/
+
+Classic thrillers like Double Indemnity, Out of the Past, and Strangers on a Train are among the best, most purely fun film noir movies ever made.
+---------
+
+# ‘Star Trek: Strange New Worlds’ Officially Puts Kirk’s Future at a Crossroads [Exclusive]
+
+Exclusives, Star Trek: Strange New Worlds, Paul Wesley, Star Trek, Paramount Plus
+
+Thu, 10 Sep 2026 22:19:45 GMT
+
+https://collider.com/star-trek-strange-new-worlds-season-4-episode-8-paul-wesley-captain-kirk-father/
+
+Paul Wesley reveals how Kirk's family conflict shapes his journey to the captain's chair & his work with Joe Morton on Star Trek: Strange New Worlds.
+---------
+
+# The 10 Best Spaghetti Westerns in Film History, Ranked
+
+Movie, The Good, the Bad and the Ugly, Once Upon a Time in the West, For a Few Dollars More, Django
+
+Thu, 10 Sep 2026 22:08:11 GMT
+
+https://collider.com/best-spaghetti-westerns-film-history-ranked/
+
+If you're after the all-time best spaghetti Westerns in film history, movies like The Great Silence and Once Upon a Time in the West are must-watches.
+---------
+
+# ‘The Gentlemen’ Season 2 Fixes ‘The Godfather’s Biggest Character Mistake
+
+TV Features, The Gentlemen, Netflix, The Godfather, Guy Ritchie
+
+Thu, 10 Sep 2026 21:48:12 GMT
+
+https://collider.com/godfather-replacement-series-the-gentlemen-season-2-guy-ritchie/
+
+The Gentlemen is Guy Ritchie’s reimagining of The Godfather. But he scrapped the Kay Adams Corleone archetype, making Susie Glass the real crime boss.
+---------
+
+# The 6 Best Fantasy Books Released Since 2000, Ranked
+
+Books and Comics, Books, Harry Potter, Fantasy, George R.R. Martin
+
+Thu, 10 Sep 2026 21:45:11 GMT
+
+https://collider.com/best-fantasy-books-since-2000-ranked/
+
+Words of Radiance by Brandon Sanderson and A Storm of Swords by George R. R. Martin are among the best fantasy books released since 2000.
+---------
+
+# Taylor Sheridan's Smash Hit Crime Thriller Officially Scores New Release
+
+TV News, Tulsa King, Taylor Sheridan, Comedy, Crime, Blu-ray
+
+Thu, 10 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/tulsa-king-season-3-blu-ray-release/
+
+Paramount Home Media Distribution has released Taylor Sheridan's smash hit crime thriller 'Tulsa King' Season 3 on Blu-ray ahead of Season 4.
+---------
+
+# New Trailer Reveals Long-Delayed Reboot of Beloved Fantasy Character After 22 Years
+
+Movie News, The Cat in the Hat, Fantasy, Animation
+
+Thu, 10 Sep 2026 22:22:42 GMT
+
+https://movieweb.com/cat-in-the-hat-new-trailer/
+
+After many delays, the animated adaptation of 'The Cat in the Hat' is set to open in theaters, and Warner Bros. has released a new magical trailer.
+---------
+
+# 'Prison Break' Officially Returns in First Teaser for New Streaming Reboot
+
+TV News, Prison Break, Hulu, Thriller
+
+Thu, 10 Sep 2026 22:06:49 GMT
+
+https://movieweb.com/prison-break-hulu-reboot-first-teaser/
+
+Hulu's 'Prison Break' reboot officially shares the show's first footage in a new teaser for the upcoming thriller series.
+---------
+
+# Netflix's New 5-Part "Mindhunter Meets True Detective" Thriller Refuses to Back Down on Streaming
+
+TV News, Thriller, Hot on Streaming, True Detective, Mindhunter, Netflix
+
+Thu, 10 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/blood-sacrifice-thriller-netflix-streaming-hit-september-2026/
+
+Netflix's dark psychological thriller has been a consistent hit on streaming since its debut last month.
+---------
+
+# The 10 Best Far Side Comic Strips About Mad Scientists
+
+Movie Lists, The Far Side, Comedy, comics, Gary Larson
+
+Thu, 10 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/far-side-best-mad-scientists/
+
+Gary Larson's 'The Far Side' comics have explored topics ranging from movies to pets, and these comic strips about mad scientists are memorable.
+---------
+
 # Taylor Sheridan Is Finally Telling The Foundational Yellowstone Story That Was Criminally Ignored
 
 TV, Yellowstone, Marshals
