@@ -1,3 +1,366 @@
+# Practical Magic 2's Post-Credits Scene Decision Was The Right Choice After 28-Year Sequel Wait
+
+Movies, Practical Magic 2, Practical Magic
+
+Fri, 11 Sep 2026 23:30:15 GMT
+
+https://screenrant.com/practical-magic-2-movie-post-credits-scene/
+
+Finally, the beloved '90s cult classic movie Practical Magic has a sequel, Practical Magic 2—but does the new movie have a post-credits scene?
+---------
+
+# Garfield’s Best Jon Quote Of The 1970s Proves The Comic Is Aging Better Than Fans Think
+
+Comics, Garfield
+
+Fri, 11 Sep 2026 23:30:15 GMT
+
+https://screenrant.com/garfield-best-jon-quote-70s-aged-perfect/
+
+Garfield's 1970 releases are often overlooked, but one strip from the 70s has Jon's most relatable quotes to date.
+---------
+
+# Fox's Revival Of A 37-Year Iconic Show Punches Above Its Weight
+
+Network TV, Baywatch
+
+Fri, 11 Sep 2026 23:30:15 GMT
+
+https://screenrant.com/fox-baywatch-reboot-season-2-renewal-impressive/
+
+Fox's Baywatch revival is winning early praise and confidence ahead of its debut and second season renewal.
+---------
+
+# Wolverine's New Claws Are The Best In His 52-Year History
+
+Marvel Comics, Wolverine
+
+Fri, 11 Sep 2026 23:05:25 GMT
+
+https://screenrant.com/wolverine-new-claws-best-52-years/
+
+Marvel finally remembers Wolverine's best and most lethal type of claws, which are making their return twenty-four years after their introduction.
+---------
+
+# House Of The Dragon Officially Returning Fall 2026 With New Set
+
+Gaming, House of the Dragon, PC
+
+Fri, 11 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/house-of-dragon-fall-2026-return/
+
+House of the Dragon is making a big comeback in Fall 2026 with a brand-new project that collectors will desperately want.
+---------
+
+# David Lynch Meets John Ford In HBO's Forgotten 24-Episode Dark Fantasy Masterpiece
+
+Classic TV, Masked Recs
+
+Fri, 11 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/carnivale-hbo-tv-show-like-david-lynch-john-ford/
+
+HBO's forgotten cult classic Carnivàle is one of the most ambitious TV shows ever made, bringing Lynchian surrealness to John Ford's frontier.
+---------
+
+# 3 Great Live-Action & Animation Hybrid Movies To Watch If You Like Coyote Vs. Acme
+
+Movies, Coyote Vs. Acme
+
+Fri, 11 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/best-movies-like-coyote-vs-acme/
+
+Coyote Vs. Acme follows in the footsteps of some groundbreaking live-action and cartoon hybrid movies that are still well-worth revisiting.
+---------
+
+# Guy Ritchie’s Forgotten 7-Episode Gangster Spinoff Is The MobLand Of Its Day
+
+TV, Masked Recs
+
+Fri, 11 Sep 2026 22:45:15 GMT
+
+https://screenrant.com/lock-stock-guy-ritchie-forgotten-spin-off-like-mobland/
+
+26 years ago Guy Ritchie produced his first TV series, which is remarkably similar to his ongoing Tom Hardy megahit MobLand.
+---------
+
+# Live-Action Remake Of Classic Disney Movie Gets Hopeful Sequel Update From Star
+
+Movies, The Little Mermaid, Jonah Hauer-King
+
+Fri, 11 Sep 2026 22:32:02 GMT
+
+https://screenrant.com/little-mermaid-live-action-disney-remake-sequel-update-jonah-hauer-king/
+
+EXCLUSIVE: Disney has released several live-action remakes, and the star of one of the more recent films breaks his silence on a possible sequel.
+---------
+
+# Reacher Fans Cannot Miss Alan Ritchson's New Action Movie That's Out Now
+
+Movies, Runner
+
+Fri, 11 Sep 2026 22:31:14 GMT
+
+https://screenrant.com/reacher-fans-must-see-alan-ritchson-movie-runner/
+
+Alan Ritchson has a new action movie out that is perfect for fans of Reacher, and here is what you need to know and the exciting new release.
+---------
+
+# Best Isekai Anime of the 2020's, Ranked
+
+Anime, Mushoku Tensei: Jobless Reincarnation, The Eminence in Shadow, Isekai
+
+Fri, 11 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/best-isekai-anime-2020s-ranked/
+
+The 2020s have delivered many great isekai anime, but these five stand above the competition.
+---------
+
+# X-Men Reboot's Inde Navarrette Reveals the Unexpected Inspiration for Her Rogue
+
+Movies, X-Men, Rogue
+
+Fri, 11 Sep 2026 23:02:15 GMT
+
+https://www.cbr.com/x-men-inde-navarrette-rogue-inspiration/
+
+There's a new Rogue in town.
+---------
+
+# The 2-Season Netflix Sci-Fi Series Even More Mind-Bending Than The Matrix
+
+TV, Netflix, The Matrix, Sense8
+
+Fri, 11 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/netflix-sense-8-wachowskis-flawless-sci-fi-series/
+
+It's been over a decade since the Wachowskis' most ambitious project debuted on Netflix, which was even more mind-bending than The Matrix films.
+---------
+
+# 5 DC Animated Movies Better Than Batman: Knightfall Part 1
+
+Movies, Batman: Knightfall Part 1: Knightfall, DCU, Batman
+
+Fri, 11 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/dc-animated-movies-better-than-batman-knightfall-part-1-list/
+
+As great as DC's Batman: Knightfall Part 1 might be, the company has a few movies that are even better looks at the world of Bruce Wayne and Superman.
+---------
+
+# Star Trek's Spock Officially Returns in New 60th Anniversary Event September 22
+
+Games, Star Trek
+
+Fri, 11 Sep 2026 22:45:11 GMT
+
+https://www.cbr.com/star-trek-spock-officially-returns-september-2026/
+
+As the celebration of Star Trek's 2026 anniversary continues, the legendary Spock finally returns in a new event.
+---------
+
+# Demon Slayer's Anime of the Year Win Marks the End of a 13-Year Era
+
+Anime, Demon Slayer: Kimetsu no Yaiba Infinity Castle, awards
+
+Fri, 11 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/taaf-ends-13-year-run/
+
+Japan’s major anime awards has ended its 13-year-run after Demon Slayer: Infinity Castle bagged the anime of the year honor.
+---------
+
+# Chris Pratt's Remake of 1 of the Greatest Westerns Ever Explodes on Streaming Ahead of Reboot
+
+Movies, The Magnificent Seven, Chris Pratt, MGM+
+
+Fri, 11 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/chris-pratt-the-magnificent-seven-remake-mgm-plus-success-september-2026/
+
+Pratt's movie, a remake of one of the greatest Westerns ever, is gaining huge ground ahead of a new reboot.
+---------
+
+# Dark 92-Minute Fantasy Horror Surges on Streaming 14 Years Later
+
+Movies, ParaNorman, Horror, Comedy
+
+Fri, 11 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/paranorman-fantasy-comedy-horror-disney-success-september-2026/
+
+2012's underrated fantasy horror that marked a first for the genre, ParaNorman, is now rising on the streaming charts.
+---------
+
+# Resident Evil Director Breaks Down Cut Scenes from the R-Rated Video Game Adaptation
+
+Movies, Resident Evil
+
+Fri, 11 Sep 2026 22:19:53 GMT
+
+https://www.cbr.com/resident-evil-reboot-cut-scenes-comedy/
+
+Zach Cregger shares which scenes had to go from the Resident Evil reboot following test screenings.
+---------
+
+# 10 Greatest PS3 Exclusives of All Time, Ranked
+
+Games, PlayStation (Original), Video Games, The Last of Us, God of War
+
+Fri, 11 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/best-ps3-exclusives-of-all-time-ranked/
+
+Games like The Last of Us and Demon's Souls rank among the greatest games exclusively released for the PS3.
+---------
+
+# 3 Elite Series to Binge on Prime Video This Weekend (Sep 12-13)
+
+TV, Fallout, The Boys, Bait, Prime Video
+
+Fri, 11 Sep 2026 23:43:11 GMT
+
+https://collider.com/prime-video-shows-binge-september-12-2026/
+
+Fallout, The Boys, and Bait make up our list of the best Prime Video shows to watch the weekend of September 12th.
+---------
+
+# Apple TV’s Newest Serial Killer Thriller Officially Rewrites the Genre
+
+TV Features, Nocturne, Stephen Graham, Apple TV, Liev Schreiber
+
+Fri, 11 Sep 2026 23:38:04 GMT
+
+https://collider.com/apple-tv-crime-drama-nocturne-stephen-graham-serial-killer/
+
+Apple TV's Nocturne sees Stephen Graham as a cunning serial killer in a 10-episode thriller that also features Liev Schreiber and Zazie Beetz.
+---------
+
+# Joel Kinnaman’s New War Thriller Officially Premieres in 48 Hours
+
+TV News, Joel Kinnaman, High Value Target: The Hunt for Saddam, Zero Dark Thirty, TNT
+
+Fri, 11 Sep 2026 23:30:11 GMT
+
+https://collider.com/joel-kinnaman-high-value-target-hunt-for-saddam-release-date-september-2026/
+
+A political thriller series about the capture of Saddam Hussein, starring Joel Kinnaman, is officially set to premiere this weekend. Find out more.
+---------
+
+# New Horror Movie Officially Earns a Rare Stephen King Recommendation
+
+Movie News, Stephen King, The Cycle, Deborah Ann Woll, Horror
+
+Fri, 11 Sep 2026 23:15:11 GMT
+
+https://collider.com/stephen-king-the-cycle-horror-movie-recommendation/
+
+Stephen King goes out of his way to praise a new horror film starring Daredevil's Deborah Ann Woll. Read on for more details.
+---------
+
+# The 5 Greatest Amy Madigan Movies, Ranked
+
+Movie, Amy Madigan, Weapons, Field of Dreams, Twice in a Lifetime
+
+Fri, 11 Sep 2026 23:05:11 GMT
+
+https://collider.com/amy-madigan-movies-best-ranked/
+
+From Field of Dreams, to Weapons, to Twice in a Lifetime, these performances prove Oscar winner Amy Madigan is truly one of Hollywood’s finest.
+---------
+
+# The Avengers Are Officially Taking Over the World Before ‘Doomsday’
+
+Movie News, Avengers: Endgame, Avengers: Doomsday, Robert Downey Jr, Chris Evans
+
+Fri, 11 Sep 2026 23:00:11 GMT
+
+https://collider.com/the-avengers-franchise-streaming-success-disney-plus-september-2026/
+
+In anticipation for Avengers: Doomsday, the MCU's most popular franchise is experiencing a massive resurgence on streaming.
+---------
+
+# ‘Strange New Worlds’ Is Officially Pushing One Beloved Star Trek Character to a Breaking Point
+
+Movie News, Star Trek: Strange New Worlds, Ethan Peck, Star Trek, FanX
+
+Fri, 11 Sep 2026 23:00:11 GMT
+
+https://collider.com/star-trek-strange-new-worlds-laan-christina-chong-episode-9-challenge/
+
+Episode 9 of Star Trek: Strange New Worlds will be a big one for La'An, says Christina Chong. Read on for more.
+---------
+
+# The 10 Best 3-Season Netflix Shows of All Time, Ranked
+
+TV, Netflix, Dark, Narcos, Derry Girls
+
+Fri, 11 Sep 2026 22:44:11 GMT
+
+https://collider.com/best-netflix-shows-3-seasons-ranked/
+
+Discover the greatest Netflix shows that concluded after three binge-worthy seasons, including Dark, Narcos, and Dead to Me.
+---------
+
+# 'AHS' Season 13 Officially Sets Up Sarah Paulson's Biggest Performance Ever [Exclusive]
+
+TV News, Sarah Paulson, American Horror Story, TIFF
+
+Fri, 11 Sep 2026 22:39:52 GMT
+
+https://collider.com/american-horror-story-season-13-sarah-paulson-multiple-roles/
+
+Sarah Paulson teases her ambitious return in American Horror Story Season 13, including one day where she transformed into 4 different characters.
+---------
+
+# 'Euphoria' Officially Gets Brand New Release After Finale
+
+TV News, Euphoria, HBO Max, Sydney Sweeney, Zendaya
+
+Fri, 11 Sep 2026 22:31:11 GMT
+
+https://collider.com/sydney-sweeney-crime-thriller-euphoria-blu-ray-release-date-december-2026/
+
+HBO and Warner Bros. have announced a new release for Sydney Sweeney's Euphoria with lots of bonus features.
+---------
+
+# HBO Max's New 9-Part 'Succession' Replacement Is Already Taking Over Streaming
+
+TV News, Hot on Streaming, Succession, HBO Max
+
+Fri, 11 Sep 2026 23:00:13 GMT
+
+https://movieweb.com/collision-stream-hbo-max-succession-sept-2026/
+
+HBO Max may have found an unexpected new breakout in 'Collision,' a Spanish-language telenovela.
+---------
+
+# 8 Years Later, Florence Pugh’s Spy Thriller Series Remains a Perfect One-Night Binge
+
+Features, Florence Pugh, Thriller, The Little Drummer Girl
+
+Fri, 11 Sep 2026 23:00:13 GMT
+
+https://movieweb.com/little-drummer-girl-florence-pugh-miniseries-binge/
+
+Florence Pugh has starred in many popular movies such as 'Thunderbolts*' and 'We Live in Time,' but this spy thriller TV series is one of her best.
+---------
+
+# The Stephen King Thriller Adaptation Everyone’s Been Waiting For Officially Arrives in 1 Month
+
+Features, Thriller, Stephen King, Carrie, Prime Video, Mike Flanagan
+
+Fri, 11 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/carrie-stephen-king-mike-flanagan-prime-thriller/
+
+Stephen King's horror, thriller, and sci-fi novels have been adapted for TV and film many times, but this upcoming adaptation could be the best.
+---------
+
 # Netflix's 10 Most-Watched Shows Of All Time, Ranked By Quality
 
 Streaming TV, Netflix
