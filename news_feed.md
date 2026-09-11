@@ -1,3 +1,432 @@
+# Steven Spielberg & Amazon Horror Franchise Movie Officially Sets 2028 Release Date
+
+Movies, Steven Spielberg
+
+Fri, 11 Sep 2026 19:17:59 GMT
+
+https://screenrant.com/mandela-catalogue-horror-steven-spielberg-amazon-release-date/
+
+The release date has just been announced for Steven Spielberg’s next film, a horror project for Amazon, which comes after he directed Disclosure Day.
+---------
+
+# The Winds Of Winter's Night King Replacement Will Fix 2 Game Of Thrones Mistakes
+
+Books, The Winds of Winter, Game of Thrones
+
+Fri, 11 Sep 2026 19:17:57 GMT
+
+https://screenrant.com/the-winds-of-winter-game-of-thrones-euron-greyjoy-night-king-replacement/
+
+Game of Thrones made some mistakes when it came to the Night King and White Walkers, but another villain can make up for that in The Winds of Winter.
+---------
+
+# Magic: The Gathering X Star Trek Set Officially Confirms The Card We All Wanted
+
+Gaming, Magic: The Gathering, Star Trek
+
+Fri, 11 Sep 2026 19:08:11 GMT
+
+https://screenrant.com/star-trek-magic-the-gathering-tribble-card-confirmed/
+
+Discover the card in the upcoming Magic: The Gathering x Star Trek set launching this November that is confirmed, and has us all excited.
+---------
+
+# Widow's Bay: Apple TV's Near-Perfect Series Deserves A Weekend Binge After 8 Emmy Wins
+
+Streaming TV, Masked Recs
+
+Fri, 11 Sep 2026 19:05:14 GMT
+
+https://screenrant.com/widows-bay-apple-tv-emmy-wins-weekend-binge/
+
+Widow's Bay, Apple TV's hit series with a 98% Rotten Tomatoes score, deserves a binge this weekend ahead of the 2026 Emmys after winning 8 awards.
+---------
+
+# The Gentlemen S2: Eddie Becomes the Biggest Threat
+
+TV, Originals, The Gentleman
+
+Fri, 11 Sep 2026 19:00:15 GMT
+
+https://screenrant.com/video/the-gentlemen-s2-eddie-becomes-the-biggest-threat/
+
+We break down Eddie Horniman’s transformation in The Gentlemen Season 2, the Freddie twist, Bella’s death, and why the finale fundamentally changes the power dynamic heading into Season 3. Eddie may have started this story looking for a way out, but his descent into the criminal underworld suggests he has discovered something much more dangerous: he’s exceptionally good at controlling it.
+---------
+
+# Isaac Asimov Meets Interstellar In Netflix's 8-Part Sci-Fi Series Confirmed For 2 More Seasons
+
+TV, Masked Recs
+
+Fri, 11 Sep 2026 18:58:14 GMT
+
+https://screenrant.com/3-body-problem-netflix-isaac-asimov-meets-interstellar/
+
+Netflix's sprawling sci fi tapestry fuses mind bending physics with intimate human stakes across time and virtual realms, stretching the genre.
+---------
+
+# If I Go Will They Miss Me Review: Great Acting Carries A Movie That Does Too Much
+
+New Movies, If I Go Will They Miss Me
+
+Fri, 11 Sep 2026 18:53:06 GMT
+
+https://screenrant.com/if-i-go-will-they-miss-me-movie-review/
+
+Though its poetic approach yields some powerful emotion, If I Go Will They Miss Me is too aware of its own importance, and it nearly sinks the film.
+---------
+
+# Lanterns Season 2 Renewal Status Get Shocking Updates Despite HBO Ratings Records
+
+TV, Lanterns
+
+Fri, 11 Sep 2026 18:51:52 GMT
+
+https://screenrant.com/hbo-max-lanterns-season-2-renewal-issues-report/
+
+HBO has been seeing high ratings and positive reviews for its new DC series Lanterns, which is why a new renewal update comes as a surprise.
+---------
+
+# Keanu Reeves’ Point Break Getting Second Reboot Treatment After $134M Failure
+
+TV, Point Break
+
+Fri, 11 Sep 2026 18:38:16 GMT
+
+https://screenrant.com/keanu-reeves-point-break-reboot-amc/
+
+Keanu Reeves' 34-year-old thriller is making a comeback after a box office flop in 2015, as AMC will be bringing the iconic action movie to life.
+---------
+
+# Boruto Officially Returns September 18 With Brand-New Release
+
+Anime, Naruto, Boruto: Two Blue Vortex, Boruto: Naruto Next Generations
+
+Fri, 11 Sep 2026 19:20:11 GMT
+
+https://www.cbr.com/boruto-two-blue-vortex-september-18-new-release/
+
+Boruto: Two Blue Vortex finally returns on September 18, with a first look at Chapter 37 teasing what’s next for the hit manga.
+---------
+
+# 10 Most Overpowered Swords in Anime History, Ranked
+
+Anime, Dragon Ball, Durarara!!, Inuyasha
+
+Fri, 11 Sep 2026 19:15:11 GMT
+
+https://www.cbr.com/most-overpowered-anime-swords/
+
+Some of the most overpowered swords in anime history do far more than just cut down foes.
+---------
+
+# James Bond 26 Reaches Massive Milestone as Casting Rumors Explode
+
+Movies, James Bond
+
+Fri, 11 Sep 2026 19:14:25 GMT
+
+https://www.cbr.com/james-bond-26-steven-knight-script-update/
+
+The new installment has just completed a major milestone.
+---------
+
+# 10 Hardest Turn-Based RPGs of All Time, Ranked
+
+Games, Role Playing Game, Innovation
+
+Fri, 11 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/hardest-rpgs-all-time-ranked-list/
+
+Turn-based RPGs like XCOM 2 are so hard they're almost impossible to beat.
+---------
+
+# Peacock’s Hit Spinoff to Sitcom Masterpiece Is the No. 1 Show on Streaming
+
+TV, The Paper, Peacock, The Office
+
+Fri, 11 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/peacock-the-paper-season-2-streaming-success-september-2026/
+
+Season 2 of The Office's spinoff series is a hit.
+---------
+
+# Steam RPG Will Disappear Forever September 14, But You Can Get It Free Now
+
+Games, Steam
+
+Fri, 11 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/steam-rpg-will-disappear-forever-september-14-but-you-can-get-it-free-now/
+
+This quick RPG will be delisted from Steam in just a few days, but adding it to an account right now will give players to ability to play it forever.
+---------
+
+# 10 Greatest Movies of Summer 2026, Ranked
+
+Movies
+
+Fri, 11 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/best-movies-of-summer-2026-ranked-list/
+
+Summer 2026 delivered some of the year's most exciting films, and these then were the best.
+---------
+
+# Keanu Reeves’ 35-Year-Old Action Classic Sequel Series Officially Ordered at AMC
+
+TV, Point Break
+
+Fri, 11 Sep 2026 18:51:29 GMT
+
+https://www.cbr.com/point-break-series-amc/
+
+The story of a cult classic Keanu Reeves action movie will continue on AMC.
+---------
+
+# Nintendo Switch 2 Officially Brings Back Wii & 3DS Feature in New Update
+
+Games, Nintendo Switch, Nintendo, Nintendo Wii
+
+Fri, 11 Sep 2026 18:35:11 GMT
+
+https://www.cbr.com/nintendo-switch-2-new-official-update-mii-music-maker/
+
+Nintendo fans can finally revisit one of the most beloved features from the Wii and 3DS thanks to the latest Switch 2 update.
+---------
+
+# 10 Best Gundam Mobile Suits, Ranked by Design
+
+Anime, Mobile Suit Gundam, mecha
+
+Fri, 11 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/best-gundam-mobile-suits-ranked-by-design/
+
+Mobile Suit Gundam is a prolific franchise that's featured thousands of mobile suits, but there are certain mecha designs that go above and beyond.
+---------
+
+# The 10 Best Crime Shows With Less Than 20 Episodes, Ranked
+
+TV, Tokyo Vice, The Night Of, Mindhunter, Crime
+
+Fri, 11 Sep 2026 19:09:11 GMT
+
+https://collider.com/perfect-crime-shows-shorter-than-20-episodes/
+
+Dive into the best crime shows with fewer than 20 episodes for quick binges, including Mindhunter, Tokyo Vice, and The Night Of.
+---------
+
+# It’s Officially the End of an Era for Apple TV’s Mind-Melting 3-Part Sci-Fi Series
+
+TV News, Invasion, Shamier Anderson, Apple TV, TIFF
+
+Fri, 11 Sep 2026 18:59:40 GMT
+
+https://collider.com/apple-tv-invasion-ending-season-3-shamier-anderson/
+
+The star of Apple TV's Invasion has confirmed that the sci-fi show is unlikely to get a fourth season. Read on for more.
+---------
+
+# Keanu Reeves' Best Crime Thriller Is Officially Getting a Sequel
+
+TV News, Point Break, AMC, studiocanal, Action
+
+Fri, 11 Sep 2026 18:51:32 GMT
+
+https://collider.com/point-break-sequel-series-amc/
+
+Keanu Reeves' action classic Point Break is officially back from the dead, with the franchise getting a new sequel series from AMC.
+---------
+
+# Prime Video's New Space Opera Sci-Fi Is Officially Losing Its Chart-Topping Status
+
+Movie News, Masters of the Universe, Prime Video, Nicholas Galitzine, Travis Knight
+
+Fri, 11 Sep 2026 18:34:27 GMT
+
+https://collider.com/prime-video-sci-fi-masters-of-the-universe-streaming-drop-september-2026/
+
+He-Man is losing the power on Prime Video, as Masters of the Universe has officially lost its top spot on the streaming charts.
+---------
+
+# 'Fire Country's Medical Spin-Off Is Officially Happening
+
+TV News, Fire Country, CBS, Sheriff Country
+
+Fri, 11 Sep 2026 18:24:21 GMT
+
+https://collider.com/fire-country-medical-spin-off-cast-noah-reid/
+
+Fire Country's second spin-off is officially happening, with Outer Range's Noah Reid set to lead the new medical series.
+---------
+
+# 'Slow Horses' Star Officially Clarifies James Bond Comments
+
+Movie News, James Bond, Slow Horses, Gary Oldman, Jack Lowden
+
+Fri, 11 Sep 2026 18:14:30 GMT
+
+https://collider.com/james-bond-rumors-explained-gary-oldman/
+
+Slow Horses star Gary Oldman has officially clarified his recent James Bond comments. Read on for all the details.
+---------
+
+# Marvel Officially Reveals the Hulk's Replacement
+
+Books and Comics News, Hulk, Marvel Comics, Marvel, Comics
+
+Fri, 11 Sep 2026 17:47:57 GMT
+
+https://collider.com/marvel-comics-the-hulk-replacement-reactor/
+
+Marvel is officially replacing The Hulk in a big way following the character’s fan-favorite return in Spider-Man: Brand New Day.
+---------
+
+# ‘Marvel’s Wolverine’ Length Officially Makes Players Question $70 Price Tag
+
+Gaming News, Marvel's Wolverine, Insomniac Games, PlayStation 5, Gaming
+
+Fri, 11 Sep 2026 17:46:11 GMT
+
+https://collider.com/marvels-wolverine-players-canceling-preorders-reviews/
+
+Some Marvel’s Wolverine players are canceling their preorders after reviews raised concerns about the game’s length, exploration, and hand-holding.
+---------
+
+# 'Hogwarts Legacy 2' Reveal Officially Divides Harry Potter Fans
+
+Gaming News, Hogwarts Legacy, Harry Potter, Gaming
+
+Fri, 11 Sep 2026 17:45:43 GMT
+
+https://collider.com/hogwarts-legacy-2-announced-fan-reactions/
+
+Hogwarts Legacy 2 has been officially confirmed by Warner Bros., but fans are divided on what this announcement means for the Harry Potter spin-off.
+---------
+
+# New James Bond Reboot Officially Scores Biggest Script Update Yet
+
+Movie News, Steven Knight, James Bond, Amazon, Bond 26
+
+Fri, 11 Sep 2026 17:45:25 GMT
+
+https://collider.com/new-james-bond-movie-script-complete-steven-knight/
+
+Peaky Blinders creator Steven Knight has confirmed that the script for Denis Villeneuve's James Bond reboot has officially been completed.
+---------
+
+# 'Stranger Things' Alum Officially Heading Back to the '80s for Gritty New Crime Thriller
+
+Movie News, Noah Schnapp, Stranger Things
+
+Fri, 11 Sep 2026 19:20:44 GMT
+
+https://movieweb.com/stealing-from-pablo-movie-noah-schnapp/
+
+'Stranger Things' star Noah Schnapp finds his next acting vehicle in an upcoming true-events thriller.
+---------
+
+# New Supernatural Thriller From Director Behind 2025's Near-Perfect Sci-Fi Movie Sets Release Date
+
+Movie News, Thriller
+
+Fri, 11 Sep 2026 18:51:24 GMT
+
+https://movieweb.com/seasons-movie-release-date/
+
+'Companion' director Drew Hancock is back again with 'Seasons'.
+---------
+
+# 'The Pitt' Officially Enters a New Era in Season 3
+
+TV News, The Pitt, Noah Wyle
+
+Fri, 11 Sep 2026 18:28:05 GMT
+
+https://movieweb.com/the-pitt-season-3-noah-wyle-mental-health/
+
+HBO Max's 'The Pitt' is moving into its third season, which will change the game for its core characters at the Pittsburgh Trauma Medical Center.
+---------
+
+# Jon Hamm Proves He's the King of TV in His New 8-Part Crime Thriller | Review
+
+TV Reviews, American Hostage
+
+Fri, 11 Sep 2026 18:15:02 GMT
+
+https://movieweb.com/american-hostage-review/
+
+'American Hostage' tells the thrilling true story of a man who kidnapped his mortgage broker at gunpoint in the '70s.
+---------
+
+# James Bond Reboot Officially Crosses Major Milestone Ahead of Imminent Casting News
+
+Movie News, James Bond, Steven Knight, Action, Denis Villeneuve
+
+Fri, 11 Sep 2026 18:03:41 GMT
+
+https://movieweb.com/james-bond-reboot-steven-knight-script-update/
+
+An exciting new update on the production has been revealed.
+---------
+
+# 36 Years Later, Nicolas Cage's Cult Gothic Masterpiece Sets New Release
+
+Movie News, Wild at Heart, Nicolas Cage, David Lynch, Comedy, Romance, Crime, Blu-ray
+
+Fri, 11 Sep 2026 18:01:13 GMT
+
+https://movieweb.com/nicolas-cage-wild-at-heart-4k-blu-ray/
+
+David Lynch's cult gothic masterpiece 'Wild at Heart,' starring Nicolas Cage, is making its way to 4K Blu-ray via The Criterion Collection.
+---------
+
+# 8 Great Crime Thrillers To Watch After 'Nuremberg'
+
+Movie Lists, Nuremberg, Crime, Thriller
+
+Fri, 11 Sep 2026 18:01:13 GMT
+
+https://movieweb.com/best-crime-thrillers-watch-after-nuremberg/
+
+'Nuremberg,' the crime thriller from 2025, stars Russell Crowe and Rami Malek, is great, but there are some other stand-out movies of the genre.
+---------
+
+# Netflix's New 141-Minute 'Jason Bourne' Substitute Action Thriller Continues To Soar on Streaming
+
+Movie News, Action, Hot on Streaming, Bourne, Netflix
+
+Fri, 11 Sep 2026 17:01:13 GMT
+
+https://movieweb.com/alpha-netflix-action-thriller-streaming-hit-september-2026/
+
+Netflix has found a new global streaming smash in an explosive action thriller that's reminiscent of the 'Jason Bourne' franchise.
+---------
+
+# Jean-Claude Van Damme's 86-Minute '80s Action Thriller Was Almost a 'Spider-Man' Movie
+
+Features, Jean Claude Van Damme, Action, Thriller, 1980s, Sci-Fi, Cyborg, Spider-Man
+
+Fri, 11 Sep 2026 17:01:13 GMT
+
+https://movieweb.com/jean-claude-van-damme-cyborg-spider-man/
+
+Jean-Claude Van Damme's 1980s action thriller was almost a completely different movie featuring Marvel's Spider-Man.
+---------
+
+# Pierce Brosnan Finally Addresses Tom Hardy Drama Ahead of 'MobLand' Season 3
+
+TV News, MobLand, Pierce Brosnan, Tom Hardy
+
+Fri, 11 Sep 2026 16:53:46 GMT
+
+https://movieweb.com/mobland-season-3-tom-hardy-pierce-brosnan/
+
+After months of drama and speculation, Pierce Brosnan pulled back the curtain on the Tom Hardy stories from the set of 'MobLand.'
+---------
+
 # New James Bond Favorite's Breakthrough Series Is The Best Classic Novel Adaptation Of The Last 10 Years
 
 Classic TV, Masked Recs
