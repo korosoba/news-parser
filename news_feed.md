@@ -1,3 +1,410 @@
+# Netflix's 10 Most-Watched Shows Of All Time, Ranked By Quality
+
+Streaming TV, Netflix
+
+Fri, 11 Sep 2026 21:45:14 GMT
+
+https://screenrant.com/netflix-most-watched-shows-of-all-time-ranked/
+
+Netflix has created some of the most-watched shows of the modern era over the last decade, but not all of them are equal in terms of quality.
+---------
+
+# The Uprising Director Paul Green Grass Explains Connection Between Andrew Garfield's Outlaw And Robin Hood
+
+Movies, The Uprising
+
+Fri, 11 Sep 2026 21:30:15 GMT
+
+https://screenrant.com/andrew-garfield-the-urprising-surprising-robin-hood-connection-explained/
+
+Director Paul Greengrass explains Andrew Garfield’s character in The Uprising and how he connects directly to the legend of Robin Hood.
+---------
+
+# 5 MASH Actors Who Left The Show (& Why)
+
+TV, M*A*S*H
+
+Fri, 11 Sep 2026 21:30:15 GMT
+
+https://screenrant.com/mash-actors-left-show-rogers-linville-stevenson/
+
+Several key MASH actors exited the show at the height of its popularity, with reasons ranging from fear of typecasting to creative differences.
+---------
+
+# 3 Best Prime Video Series To Binge-Watch This Weekend (Sept 11–13, 2026)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Fri, 11 Sep 2026 21:12:14 GMT
+
+https://screenrant.com/best-prime-video-shows-to-binge-weekend-september-11-2026/
+
+The three best Prime Video series to binge-watch this weekend, September 11–13, 2026, include The Grand Tour, Sterling Point, and Reacher season 4.
+---------
+
+# Star Trek Voyager Officially Returns October 2026 In New Q-Focused Release
+
+Gaming, Star Trek: Voyager, Star Trek, PC
+
+Fri, 11 Sep 2026 21:00:15 GMT
+
+https://screenrant.com/star-trek-voyager-q-trials-october-2026/
+
+Star Trek: Voyager officially returns in October with the release of The Q Trials, bringing Q back to mess with the rules and your mind once again.
+---------
+
+# Taylor Sheridan's 2-Part Yellowstone Replacement Has His Best Cast
+
+Streaming TV, Taylor Sheridan
+
+Fri, 11 Sep 2026 21:00:15 GMT
+
+https://screenrant.com/landman-cast-taylor-sheridan-best/
+
+Almost every Taylor Sheridan show has a stacked, star-studded cast full of famous faces, but the ensemble of Landman is an embarrassment of riches.
+---------
+
+# Emmys 2026: Our Prediction For Who Will Win Lead Actor In A Drama Series
+
+Streaming TV, Emmy Awards
+
+Fri, 11 Sep 2026 20:45:14 GMT
+
+https://screenrant.com/emmys-2026-lead-actor-drama-winner-prediction/
+
+ScreenRant's official prediction for who will take home the prize for Outstanding Lead Actor in a Drama Series, along with a summary of the nominees.
+---------
+
+# 18 Years Later, John Mulaney Is The Perfect Replacement For Steve Carell In The Get Smart Franchise
+
+Movies, Get Smart, John Mulaney
+
+Fri, 11 Sep 2026 20:45:14 GMT
+
+https://screenrant.com/get-smart-reboot-john-mulaney-perfect-steve-carell-replacement/
+
+John Mulaney is be the ideal new star, bringing fresh comedic energy to a reboot 18 years after Steve Carell revived a beloved franchise.
+---------
+
+# Marvel's The Punisher Replacement Return Officially Announced
+
+Marvel Comics, The Punisher
+
+Fri, 11 Sep 2026 20:41:18 GMT
+
+https://screenrant.com/marvel-new-punisher-replacement-outlaw/
+
+Marvel confirms Frank Castle's replacement, the Punisher's British successor, is joining the Avengers in Marvel's new cosmic crossover.
+---------
+
+# 10 Greatest Cyclops Costume Redesigns In X-Men History
+
+Comics, Cyclops, X-Men
+
+Fri, 11 Sep 2026 20:30:15 GMT
+
+https://screenrant.com/cyclops-best-costumes-x-men-marvel-comics/
+
+The X-Men have a broad costume history, with Cyclops being no exception. His major life changes often bring about new costumes and these are his best.
+---------
+
+# Crystal Lake Creator Shuts Down Major Jason Voorhees Misconception
+
+TV, Crystal Lake
+
+Fri, 11 Sep 2026 21:32:15 GMT
+
+https://www.cbr.com/crystal-lake-jason-hockey-mask/
+
+The Friday the 13th prequel show is subverting expectations.
+---------
+
+# 5 Anime Characters Strong Enough to Solo Sung Junwoo
+
+Anime, Solo Leveling, One-Punch Man, Dragon Ball
+
+Fri, 11 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/anime-characters-stronger-jinwoo-solo-leveling/
+
+Across all anime characters, Solo Leveling's Sung Jinwoo is one of the toughest to defeat, but these five heroes and villains are up to the task.
+---------
+
+# Star Trek’s Canceled 93% RT Series Surges on Streaming After Best Episode in Years
+
+TV, Star Trek: Strange New Worlds, Star Trek, Paramount Plus, Innovation
+
+Fri, 11 Sep 2026 21:14:15 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-sci-fi-success-paramount-plus-september-2026/
+
+Star Trek's return to form pays off on streaming.
+---------
+
+# After Supernatural, Jensen Ackles Stole the Show in a 3-Part Crime Thriller Everyone Missed
+
+TV, Big Sky, Crime
+
+Fri, 11 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/abc-big-sky-underrated-jensen-ackles-thriller/
+
+After Supernatural, Jensen Ackles joined another series as the new sheriff in town, quickly winning over audiences once again.
+---------
+
+# FX's 7-Season Drama Perfect for Fire Country & Chicago Fire Fans Surges as the Most-Watched Show
+
+TV, Rescue Me, FX, Drama
+
+Fri, 11 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/fx-rescue-me-streaming-success-spetember-2026/
+
+This post-9/11 firefighter show is gaining steam on streaming.
+---------
+
+# Peaky Blinders Sequel Series Gets Major Update on Its Netflix Fate
+
+TV, Netflix, Peaky Blinders, Peaky Blinders: The Immortal Man
+
+Fri, 11 Sep 2026 20:53:08 GMT
+
+https://www.cbr.com/peaky-blinders-sequel-series-gets-major-update-on-its-netflix-fate/
+
+One of the most anticipated Netflix sequel series of all-time just got a huge update.
+---------
+
+# Sam Elliott's $372 Fantasy Film Got a 3-Season Reboot From HBO That's Better in Every Way
+
+TV, His Dark Materials, HBO Max, Fantasy, Innovation
+
+Fri, 11 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/hbo-his-dark-materials-the-golden-compass-comparison/
+
+A 2007 fantasy film adaptation received a small-screen reboot, and the HBO series proved to be better in many ways.
+---------
+
+# Transformers Spends Over 400 Hours Bringing Bumblebee Back to His Classic Volkswagen Beetle Design
+
+Anime, Transformers, Hot Wheels, merchandise, toys, mattel, The Transformers
+
+Fri, 11 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/transformers-bumblebee-volkswagen-beetle-hot-wheels-release/
+
+The newest collaboration between Hasbro's Transformers and Mattel's Hot Wheels reinvents the original version of the iconic Autobot Bumblebee.
+---------
+
+# HBO's Harry Potter Reboot Is Already Better Than the Movies, Says Gary Oldman
+
+Movies, Harry Potter
+
+Fri, 11 Sep 2026 20:34:56 GMT
+
+https://www.cbr.com/hbo-harry-potter-reboot-better-than-the-movies-gary-oldman/
+
+Even before it airs, HBO's adaptation of Harry Potter has a big supporter.
+---------
+
+# 10 Classic Sci-Fi Movies That Have Aged Like Milk
+
+Movies, Sci-Fi, Star Trek, Barbarella
+
+Fri, 11 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/sci-fi-movies-that-aged-like-milk-list/
+
+Sci-fi might have the most potential of all the Hollywood genres, but even its most classic entries have aged like milk over time.
+---------
+
+# 3 Emmy-Nominated Prime Video Movies to Watch This Weekend (Sep 12-13)
+
+Movie, Tom Clancy's Jack Ryan: Ghost War, Heads of State, John Candy: I Like Me, Prime Video
+
+Fri, 11 Sep 2026 21:48:11 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-september-12-2026/
+
+John Candy: I Like Me, Heads of State, and Jack Ryan: Ghost War make up our list of Emmy-nominated Prime Video movies to watch this weekend.
+---------
+
+# Conan O’Brien Still Won’t Watch the Moment His 'Tonight Show' Era Ended
+
+TV Features, Conan O'Brien, The Tonight Show, Jay Leno, Conan O'Brien Must Go
+
+Fri, 11 Sep 2026 21:42:11 GMT
+
+https://collider.com/conan-obrien-tonight-show-ending-reaction-details/
+
+Conan O’Brien is still saddened by the end of his tenure at the Tonight Show after only seven months.
+---------
+
+# The 8 Greatest Sci-Fi Book Trilogies of All Time, Ranked
+
+Books and Comics, Science Fiction, Foundation, Books, Dune
+
+Fri, 11 Sep 2026 21:35:11 GMT
+
+https://collider.com/best-sci-fi-book-trilogies-all-time-ranked/
+
+The best things in life usually come in threes, and sci-fi proves it with universally acclaimed examples like the Red Rising and Foundation trilogies.
+---------
+
+# Damon Lindelof Officially Moves On From ‘Lanterns’ With New HBO Thriller [Exclusive]
+
+Exclusives, The Chain, Damon Lindelof, Jodie Comer, TIFF
+
+Fri, 11 Sep 2026 21:30:12 GMT
+
+https://collider.com/the-chain-jodie-comer-damon-lindelof-filming-update-early-2027/
+
+Jode Comer shared a major update on Damon Lindelof's The Chain adaptation at HBO, confirming when production will begin next year.
+---------
+
+# This 2-Part Southern Gothic Horror Series Is the Perfect Spooky Weekend Binge
+
+TV Features, Mayfair Witches, AMC, Horror, Thriller
+
+Fri, 11 Sep 2026 21:24:11 GMT
+
+https://collider.com/mayfair-witches-southern-gothic-horror-weekend-binge/
+
+Mayfair Witches is a Southern Gothic horror series starring Alexandra Daddario, with Season 3 officially set to premiere in 2027.
+---------
+
+# Sebastian Stan Credits This Oscar-Nominated Movie for His Mysterious ‘The Batman Part II’ Role [Exclusive]
+
+Movie News, The Batman, The Batman Part II, Sebastian Stan, TIFF
+
+Fri, 11 Sep 2026 21:15:11 GMT
+
+https://collider.com/the-batman-part-2-sebastian-stan-cast-the-apprentice-performance/
+
+Sebastian Stan explains how his Oscar-nominated performance in The Apprentice unexpectedly led to a role in Matt Reeves’ The Batman Part II.
+---------
+
+# The 10 Best Disney Movie Endings of All Time, Ranked
+
+Movie, Disney, Toy Story, Up, Disney's Pinocchio
+
+Fri, 11 Sep 2026 21:05:11 GMT
+
+https://collider.com/best-disney-movie-endings-all-time-ranked/
+
+From Up, to Beauty and the Beast, to Coco, these Disney endings deliver heartbreak, joy, closure, and some of animation’s finest finales.
+---------
+
+# 9 Years Later, David Fincher's Intense Psychological Thriller Is Aging Like Fine Wine
+
+TV Features, Mindhunter, David Fincher, Jonathan Groff, Anna Torv, Holt McCallany
+
+Fri, 11 Sep 2026 21:03:11 GMT
+
+https://collider.com/david-fincher-mindhunter-perfect-psychological-thriller/
+
+Almost a decade after its premiere, David Fincher's Mindhunter is still the best psychological thriller to hit Netflix.
+---------
+
+# Netflix's New Historical Drama Officially Expands Beyond Its Beloved Source Material
+
+Exclusives, Netflix, Age of Innocence, Kristine Froseth, TIFF
+
+Fri, 11 Sep 2026 21:00:11 GMT
+
+https://collider.com/netflix-the-age-of-innocence-original-story-extension/
+
+The Age of Innocence star Kristine Frøseth reveals how Netflix’s adaptation will extend Edith Wharton’s story while honoring the original novel.
+---------
+
+# The 10 Most Disturbing TV Episodes of All Time, Ranked
+
+TV, Game Of Thrones, The Sopranos, Black Mirror, Twin Peaks
+
+Fri, 11 Sep 2026 20:50:11 GMT
+
+https://collider.com/most-disturbing-tv-episodes-all-time-ranked/
+
+Some of the most disturbing episodes in TV history can be found in groundbreaking shows like The Sopranos, Twin Peaks, and Game of Thrones.
+---------
+
+# Russell Crowe's New Action Adventure Thriller Wins Over Critics With Epic Rotten Tomatoes Score
+
+Movie News, The Weight, Russell Crowe, Ethan Hawke, Action, Thriller
+
+Fri, 11 Sep 2026 21:00:30 GMT
+
+https://movieweb.com/russell-crowe-the-weight-rotten-tomatoes-score/
+
+The first reviews are in for Rusell Crowe and Ethan Hawke's 'The Weight.'
+---------
+
+# 7 Great Guy Ritchie Movies Nobody Talks About Anymore
+
+Movie Lists, Guy Ritchie, Action, Thriller, Crime
+
+Fri, 11 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/guy-ritchie-movies-nobody-talks-about/
+
+With an eclectic and storied career ranging from gritty gangster movies to blockbusters, some of director Guy Ritchie's best movies get overlooked.
+---------
+
+# Stephen King's Western Fantasy Masterpiece Adaptation Finally Gets Promising Update
+
+TV News, Stephen King, The Dark Tower, Mike Flanagan, Fantasy
+
+Fri, 11 Sep 2026 20:38:59 GMT
+
+https://movieweb.com/stephen-king-dark-tower-mike-flanagan-update/
+
+Stephen King's 'The Dark Tower' is getting a long-overdue reboot and Mike Flanagan promises progress is being made.
+---------
+
+# Steven Spielberg's New Supernatural Thriller Adaptation Officially Sets Release Date
+
+Movie News, Steven Spielberg, Horror
+
+Fri, 11 Sep 2026 20:38:37 GMT
+
+https://movieweb.com/steven-spielberg-the-mandela-catalogue-release-date/
+
+'The Mandela Catalogue', an adaptation of the popular viral horror series, will open in theaters on Jun. 9, 2028.
+---------
+
+# 2026's First $2 Billion Movie Set to Lose Box Office Record to Dark Fantasy Sequel
+
+Movie News, Spider-Man: Brand New Day, Box Office Milestones, Practical Magic 2
+
+Fri, 11 Sep 2026 20:31:13 GMT
+
+https://movieweb.com/practical-magic-2-spider-man-brand-new-day-box-office/
+
+'Practical Magic 2' is on track to top the weekend box office while 'Spider-Man: Brand New Day' still closes in on history.
+---------
+
+# The Lord of the Rings' New Legolas Replacement Can Finally Fix a 13-Year-Old Franchise Mistake
+
+Features, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Fantasy
+
+Fri, 11 Sep 2026 20:01:13 GMT
+
+https://movieweb.com/lord-of-the-rings-legolas-replacement-fix-mistake/
+
+With its new character, 'The Lord of the Rings: The Hunt for Gollum' can finally fix a franchise mistake and replace Legolas as well.
+---------
+
+# 35 Years Later, Sequel to Keanu Reeves Action Classic Officially Confirmed
+
+TV News, Point Break, Keanu Reeves, AMC+
+
+Fri, 11 Sep 2026 19:25:31 GMT
+
+https://movieweb.com/point-break-sequel-confirmed-amc/
+
+One of Keanu Reeves' most iconic action stories is being revived in a new sequel after first arriving in 1991.
+---------
+
 # Steven Spielberg & Amazon Horror Franchise Movie Officially Sets 2028 Release Date
 
 Movies, Steven Spielberg
