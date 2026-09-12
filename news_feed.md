@@ -1,3 +1,432 @@
+# Zack Snyder Meets Kickass In The 7-Year-Old Cyberpunk Movie That Still Needs A Sequel
+
+Movies, Masked Recs
+
+Sat, 12 Sep 2026 17:30:15 GMT
+
+https://screenrant.com/guns-akimbo-deserves-sequel-zack-snyder-kickass/
+
+Guns Akimbo was released seven years ago, and looking back, it's a perfect combination of Kick-Ass and Zack Snyder that deserves a better future.
+---------
+
+# BlizzCon 2026 Opening Ceremony Live Updates: All Announcements & Game Reveals
+
+Gaming, BlizzCon, Blizzard, Triple-A Games
+
+Sat, 12 Sep 2026 17:20:46 GMT
+
+https://screenrant.com/blizzcon-opening-ceremony-2026-reveals-announcements-live/
+
+BlizzCon is back after taking a year off, and the Opening Ceremony will hopefully have some big surprises to show for Blizzard's big IPs.
+---------
+
+# Fall 2026’s 9 Most Exciting Sitcoms
+
+Network TV
+
+Sat, 12 Sep 2026 17:18:31 GMT
+
+https://screenrant.com/fall-2026-sitcoms-exciting-ranked/
+
+Fall TV is returning over the next few weeks and these nine sitcoms are the most exciting 2026 premieres or returns, from old favorites to new series.
+---------
+
+# Tom Cruise's New Movie Digger Debunks Secret Genre Theory
+
+Movies, Digger
+
+Sat, 12 Sep 2026 17:13:12 GMT
+
+https://screenrant.com/tom-cruise-digger-movie-musical-theory-debunked/
+
+A theory about the secret genre of Tom Cruise's upcoming movie Digger has been debunked in the weeks leading up to the theatrical release.
+---------
+
+# Power Rangers’ Original Failed Live-Action Adaptation Recalled By Star 40 Years Later
+
+TV, Power Rangers
+
+Sat, 12 Sep 2026 17:10:14 GMT
+
+https://screenrant.com/bioman-power-rangers-live-action-adaptation-failed-mark-dacascos/
+
+Exclusive: One of the actors from Mighty Morphin Power Rangers' failed predecessor recalled his time working on the Super Sentai-inspired project.
+---------
+
+# How Steven Spielberg’s $618M Sci-Fi Hit Gave Birth To One Of The Best Medical Dramas Of All-Time
+
+TV, Masked Recs, Steven Spielberg
+
+Sat, 12 Sep 2026 17:00:14 GMT
+
+https://screenrant.com/steven-spielberg-lost-world-jurassic-park-er-creation/
+
+The star of one of the best medical dramas of all-time recalls how a particular Steven Spielberg sci-fi hit gave birth to the classic show.
+---------
+
+# Dungeon Crawler Carl Collides With Red Dead Redemption In New Western RPG
+
+Gaming, Steam, Indie Games
+
+Sat, 12 Sep 2026 17:00:14 GMT
+
+https://screenrant.com/dungeon-crawler-carl-meets-red-dead-redemption-erosion/
+
+As Dungeon Crawler Carl is looking to take over a ton of different genres, a new RPG emerges that also incorporates Red Dead Redemption, with a twist.
+---------
+
+# 4 Years Later, Jimmy McGill's Best Better Call Saul Line Is Still A Top 10 TV Quote
+
+Classic TV, Better Call Saul
+
+Sat, 12 Sep 2026 17:00:14 GMT
+
+https://screenrant.com/better-call-saul-jimmy-mcgill-best-line/
+
+Jimmy McGill provided countless memorable quotes throughout Better Call Saul, but his best will be remembered as one of the greatest in TV history.
+---------
+
+# Avengers: Doomsday’s Presales Have Just Answered The Movie’s Big Box Office Question
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Sat, 12 Sep 2026 16:55:14 GMT
+
+https://screenrant.com/avengers-doomsday-presales-box-office-start-good/
+
+Avengers: Doomsday's first box office reports on its theatrical presales answer a lingering question around how much interest there is in the film.
+---------
+
+# It's Officially The End Of An Era For Prison Break
+
+Streaming TV, Prison Break
+
+Sat, 12 Sep 2026 16:54:10 GMT
+
+https://screenrant.com/prison-break-new-show-end-of-an-era-original-characters/
+
+Prison Break's characters have been so good that they have sometimes overshadowed the plot. Now, the show is beginning a new era without them.
+---------
+
+# The Only Superhero Show of the 2020s to Beat Marvel Studios at Its Own GameThe Only Superhero Show of the 2020s to Beat Marvel Studios at Its Own Game
+
+TV, Spider-Noir, marvel studios, Daredevil: Born Again, Innovation
+
+Sat, 12 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/prime-video-spider-noir-beat-marvel-studios-at-its-own-game/
+
+Spider-Noir was the critical hit that no one saw coming, and it actually pulled off street-level Marvel heroics better than two similar MCU shows.
+---------
+
+# 10 Greatest Nintendo Games of the Last 30 Years, Ranked
+
+Games, Nintendo, Video Games, Pokemon, The Legend of Zelda
+
+Sat, 12 Sep 2026 17:15:11 GMT
+
+https://www.cbr.com/best-nintendo-games-last-30-years/
+
+Super Mario Galaxy and Animal Crossing are only two of the greatest Nintendo games released in the last 30 years.
+---------
+
+# 1 of the Best Christmas Movies Is Officially Getting a Sequel With OG Cast
+
+Movies, The Family Stone, Christmas
+
+Sat, 12 Sep 2026 17:08:12 GMT
+
+https://www.cbr.com/the-family-stone-sequel-returning-cast/
+
+The sequel has been teased for almost a year.
+---------
+
+# Pokémon's Hilbert and Victini Return in New Release Coming April 2027
+
+Games, Pokemon
+
+Sat, 12 Sep 2026 17:00:11 GMT
+
+https://www.cbr.com/pokemon-black-white-hilbert-victini-april-2027/
+
+The hero of the Pokémon Black and White era, Hilbert, officially returns alongside the Mythical Victini in a new release next April.
+---------
+
+# The Walking Dead: Dead City Pushes Maggie Into Vengeance Mode in New Clip Ahead of Season Finale
+
+CBR Exclusives, The Walking Dead: Dead City, The Walking Dead
+
+Sat, 12 Sep 2026 17:00:11 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-season-3-finale-clip/
+
+Exclusive: After many twists and turns, The Walking Dead: Dead City forces Maggie to make another important decision in the season finale.
+---------
+
+# 10 Lost Anime You Can't Watch Legally Anymore
+
+Anime, Streaming
+
+Sat, 12 Sep 2026 17:00:11 GMT
+
+https://www.cbr.com/forgotten-anime-not-on-streaming-list/
+
+Anime like Rurouni Kenshin are no longer available on U.S. streaming services.
+---------
+
+# 10 Greatest High Fantasy Books Of All Time, Ranked
+
+Movies, Fantasy, books, The Lord of the Rings
+
+Sat, 12 Sep 2026 17:00:11 GMT
+
+https://www.cbr.com/greatest-high-fantasy-books-ever-list/
+
+With unforgettable world-building and sweeping stakes, these high fantasy books are epic masterpieces that have shaped the genre for generations
+---------
+
+# New 130-Minute Fantasy Sequel Gets Divisive Answer From Critics & Audiences
+
+Movies, Practical Magic, Practical Magic 2, Fantasy
+
+Sat, 12 Sep 2026 16:47:19 GMT
+
+https://www.cbr.com/practical-magic-2-rotten-tomatoes-score/
+
+The sequel to one of the most beloved fantasy films, Practical Magic 2, is dividing critics and viewers on Rotten Tomatoes.
+---------
+
+# Bleach Reverses Course on Final 2 Episodes Just Before Release
+
+Anime, Bleach, Bleach: Thousand Year Blood War, Disney+
+
+Sat, 12 Sep 2026 16:34:03 GMT
+
+https://www.cbr.com/bleach-tybw-final-episodes-delay/
+
+Bleach: Thousand-Year Blood War Episode 49 has been pulled before its premiere, as the final two episodes are now delayed until October.
+---------
+
+# Golden Axe: How the Actors Found Their Character Voices
+
+TV, Golden Axe
+
+Sat, 12 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/video/golden-axe-how-the-actors-found-their-character-voices/
+
+Golden Axe star Matthew Rhys knows exactly what it feels like to become an internet meme — and he’s embracing the absurdity.Rhys and Liam McIntyre also break down bringing Sega’s fantasy world into animation for a new generation.
+---------
+
+# The Director Quentin Tarantino Put at the “Tip-Top of the Action Game” Made a Masterpiece Streaming for Free
+
+Movie News, Quentin Tarantino, Western, The Great Silence, Ennio Morricone
+
+Sat, 12 Sep 2026 17:30:11 GMT
+
+https://collider.com/the-great-silence-streaming-free-kanopy-september-2026/
+
+Quentin Tarantino's favorite spaghetti Western director's masterpiece is streaming for free this month. Find out more.
+---------
+
+# 10 Unfilmable Books That Became Amazing Movies
+
+Movie, The Lord of the Rings: The Return of the King, Ulysses, American Psycho, Cloud Atlas
+
+Sat, 12 Sep 2026 17:28:11 GMT
+
+https://collider.com/unfilmable-books-became-amazing-movies/
+
+From Cloud Atlas to American Psycho, these incredible stories started as challenging books and, against all odds, became equally impressive movies.
+---------
+
+# 7 Sitcom Endings That Are Genuine Masterpieces
+
+TV, Sitcom, The Office, New Girl, Schitt's Creek
+
+Sat, 12 Sep 2026 17:19:11 GMT
+
+https://collider.com/sitcom-endings-masterpieces/
+
+It's a badge of honor to end a series well, but sitcoms like The Office, New Girl, and Schitt's Creek have endings that are true masterpieces.
+---------
+
+# The 10 Best Miniseries With Perfect Pacing, Ranked
+
+TV, TV Miniseries, Chernobyl, Band of Brothers, Bodyguard
+
+Sat, 12 Sep 2026 17:04:11 GMT
+
+https://collider.com/best-miniseries-perfect-pacing-ranked/
+
+Explore the best miniseries that expertly balance narrative pacing for immersive storytelling, including Chernobyl, Band of Brothers, and Bodyguard.
+---------
+
+# The 1973 Cult Classic That Quentin Tarantino Called “One of the Greatest Revenge Movies Ever Made” Is Streaming on MGM+
+
+Movie News, Coffy, Pam Grier, Quentin Tarantino, Thriller
+
+Sat, 12 Sep 2026 17:00:11 GMT
+
+https://collider.com/coffy-pam-grier-quentin-tarantino-streaming-mgm-plus/
+
+Pam Grier’s 1973 cult classic remains one of revenge cinema’s essential movies, and now it's available to stream on MGM+.
+---------
+
+# Only 10 Movies From the 2020s Are Actual Masterpieces
+
+Movie, Oppenheimer, The Zone of Interest, One Battle After Another, Asteroid City
+
+Sat, 12 Sep 2026 16:36:11 GMT
+
+https://collider.com/movies-2020s-only-masterpieces/
+
+The 2020s have been incredible for cinema so far, but only movies like Oppenheimer and Sentimental Value are worthy of being called masterpieces.
+---------
+
+# ‘Saturday Night Live UK’ Is Officially Mastering the Most Important ‘SNL’ Formula
+
+Collider Signature, Saturday Night Live UK, SNL, Saturday Night Live, Lorne Michaels, Peacock
+
+Sat, 12 Sep 2026 16:30:11 GMT
+
+https://collider.com/snl-uk-saturday-night-live-head-writer-jonno-johnson-interview/
+
+Saturday Night Live UK co-head writer Jonno Johnson breaks down how the live sketch series builds an episode from scratch each week.
+---------
+
+# Forget ‘The Rookie,' Nathan Fillion's 4-Season Sitcom Is His Most Overlooked Role
+
+TV Features, The Rookie, Nathan Fillion, ABC, Two Guys, a Girl and a Pizza Place
+
+Sat, 12 Sep 2026 16:28:11 GMT
+
+https://collider.com/the-rookie-nathan-fillion-abc-two-guys-a-girl-and-a-pizza-place/
+
+Decades before starring in The Rookie, Nathan Fillion showed off his comedic chops in ABC’s overlooked sitcom Two Guys, a Girl and a Pizza Place.
+---------
+
+# Steven Spielberg’s 10/10 WWII Series Is Officially Bigger Than Ever on Streaming
+
+TV News, Band of Brothers, Steven Spielberg, Tom Hanks, HBO Max
+
+Sat, 12 Sep 2026 16:15:11 GMT
+
+https://collider.com/band-of-brothers-legacy-documentary-streaming-charts-september-2026/
+
+Band of Brothers resurfaces on the streaming charts 25 years later as HBO Max releases a new documentary on the WWII miniseries' legacy.
+---------
+
+# Jodie Comer's 'Stuffed' Is Officially the Strangest Movie You'll Love This Year | TIFF Review
+
+Movie Reviews, Stuffed, Jodie Comer, Harry Melling, TIFF
+
+Sat, 12 Sep 2026 15:37:39 GMT
+
+https://collider.com/jodie-comer-harry-melling-stuffed-musical-movie-review/
+
+Jodie Comer and Harry Melling play a pair of oddballs who find love in death in 'Stuffed,' a delightfully unusual movie musical.
+---------
+
+# It's the End of an Era as Netflix Officially Removes Iconic 134-Episode Series From Streaming
+
+TV News, Shameless, Coming/Leaving Streaming, Drama, Shameless US, Netflix
+
+Sat, 12 Sep 2026 17:30:13 GMT
+
+https://movieweb.com/shameless-leaving-netflix-october-2026/
+
+After a decade of entertainment, it's time to bid farewell to one of the best TV shows ever on Netflix.
+---------
+
+# 8 Great War Series That Get More Intense With Every Episode
+
+TV Lists, War, Band of Brothers, Generation Kill
+
+Sat, 12 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/war-tv-series-more-intense-every-episode/
+
+While there are many great war TV shows, only a few become more compelling and intense as they progress.
+---------
+
+# Netflix's Canceled 2-Part Fantasy Action Adaptation Finally Being Revived
+
+TV News, Warrior Nun, Netflix, Fantasy
+
+Sat, 12 Sep 2026 16:30:14 GMT
+
+https://movieweb.com/netflixs-canceled-warrior-nun-revival/
+
+The costly cult favorite sparked relentless fan campaigns online.
+---------
+
+# Liam Neeson's Latest Action Thriller Unites Critics with Official Rotten Tomatoes Score
+
+Movie News, The Fix, Action, Liam Neeson
+
+Sat, 12 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/liam-neeson-the-fix-rotten-tomatoes-score/
+
+'The Fix' is in... and critics say Neeson's latest could use some fixing of its own.
+---------
+
+# Denzel Washington's Best Action Thriller of the Century Was a Legendary Director's Final Film
+
+Features, Denzel Washington, Action, Thriller, Unstoppable, Tony Scott
+
+Sat, 12 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/unstoppable-denzel-washington-tony-scott-action-thriller/
+
+Denzel Washington has starred in many memorable action thriller movies, but this one is his greatest film.
+---------
+
+# Jamie Foxx's 131-Minute 'Die Hard' Substitute Action Thriller Lands New Free Streaming Release
+
+Movie News, Jamie Foxx, White House Down, Coming/Leaving Streaming, Action
+
+Sat, 12 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/white-house-down-streaming-free-tubi-september-2026/
+
+This is one of the best political action thrillers you'll ever see.
+---------
+
+# CBS' 2-Part Western Thriller Series Officially Expanding With New Spin-Off
+
+TV News, Fire Country, Western
+
+Sat, 12 Sep 2026 15:00:14 GMT
+
+https://movieweb.com/cbs-western-thriller-series-new-spin-off/
+
+CBS may be getting closer to expanding the 'Fire Country' universe again, with Noah Reid joining 'Sheriff Country' Season 2.
+---------
+
+# 10 Facts Everyone Gets Wrong About Star Trek (#5 Is Totally Understandable)
+
+TV Lists, Star Trek, Sci-Fi
+
+Sat, 12 Sep 2026 15:00:14 GMT
+
+https://movieweb.com/star-trek-wrong-facts/
+
+There are now 60 years of Star Trek lore to try to keep track of, which has resulted in several common misunderstandings. Read on for more.
+---------
+
+# 'The Blacklist's Tom Keen Exited the Series Twice And Left a Big Plot Hole
+
+Features, The Blacklist
+
+Sat, 12 Sep 2026 15:00:14 GMT
+
+https://movieweb.com/the-blacklist-tom-keen-death-whisper-explained/
+
+Tom Keen left 'The Blacklist' not once but twice, and the first time he whispered something incredibly important to Liz on his way out...
+---------
+
 # 12 Years Later, This Criminally Ignored Masterpiece is the Best War Movie Nobody's Seen (& It's Streaming Free)
 
 Movies, 71, Masked Recs
