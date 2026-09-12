@@ -1,3 +1,256 @@
+# Star Trek: Enterprise Officially Returns December 2026 In Rediscovered
+
+Gaming, Star Trek, Triple-A Games
+
+Sat, 12 Sep 2026 05:30:14 GMT
+
+https://screenrant.com/star-trek-enterprise-online-december-2026-update/
+
+While fans of Star Trek: Enterprise don't always get rewarded, by the time December rolls around, those same fans will get a little surprise.
+---------
+
+# Kafka Meets Christopher Nolan In Apple TV’s Returning 95% RT Sci-Fi Masterpiece
+
+Streaming TV, Masked Recs
+
+Sat, 12 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/severance-kafka-christopher-nolan-apple-tv-sci-fi/
+
+One of Apple TV’s greatest sci-fi shows, Severance, seems to perfectly combine Franz Kafka’s absurdism with Christopher Nolan’s sci-fi storytelling.
+---------
+
+# This Legend Of Zelda NES Remake Is The Perfect 40th Anniversary Celebration
+
+Gaming, The Legend of Zelda, Nintendo, Dreams, PlayStation 5
+
+Sat, 12 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/zelda-nes-40th-anniversary-fan-remake/
+
+The Legend of Zelda's latest remake feels like the ultimate way to celebrate the series' 40th anniversary.
+---------
+
+# Fallout: New Vegas Next-Gen Remaster Is Quietly Horrifying
+
+Gaming, Fallout
+
+Sat, 12 Sep 2026 04:30:14 GMT
+
+https://screenrant.com/fallout-new-vegas-dlss-5-remastered/
+
+Explore the mixed reactions to DLSS 5 in Fallout: New Vegas remaster.
+---------
+
+# Red Dead Redemption 2 Free Download Officially Yours For 48 Hours
+
+Gaming, Red Dead Redemption 2, Red Dead Online
+
+Sat, 12 Sep 2026 04:15:14 GMT
+
+https://screenrant.com/red-dead-redemption-2-free-rewards-online-48-hours/
+
+Red Dead Redemption 2 is still going strong thanks to the Online modes, and there's plenty of new loot on offer if you fancy playing.
+---------
+
+# George R.R. Martin's Favorite Cancelled Sc-Fi Series Is Officially Returning As A Video Game
+
+Gaming, The Expanse
+
+Sat, 12 Sep 2026 04:00:19 GMT
+
+https://screenrant.com/george-rr-martin-favorite-sci-fi-show-returning/
+
+George R.R. Martin praises The Expanse; the series returns as a video game in Spring 2027.
+---------
+
+# DC Explains Rules For Brand New Kryptonite Introduced To Superman Lore
+
+Comics, Superman
+
+Sat, 12 Sep 2026 03:59:14 GMT
+
+https://screenrant.com/superman-new-kryptonite-rules/
+
+Kryptonite has been a long-running weakness for Superman, but its latest form threatens far more than Kryptonians this time around.
+---------
+
+# 12 Best Quotes In Supergirl
+
+Superheroes, Supergirl, DC Universe
+
+Sat, 12 Sep 2026 05:34:14 GMT
+
+https://screenrant.com/best-quotes-in-supergirl-dcu/
+
+The DCU's new Supergirl movie is now in theaters, featuring some pretty fun quotes from Kara Zor-El, Jason Momoa's Lobo, Superman, and more.
+---------
+
+# Why Each Version Of Robin Quit Working With Batman In DC Lore
+
+Comics, Batman, Robin
+
+Sat, 12 Sep 2026 03:45:53 GMT
+
+https://screenrant.com/why-robin-quit-batman-lore/
+
+Across the DC Comics universe, there is a long list of reasons that led each of the Robins to hang up the mantle and walk away from Batman.
+---------
+
+# 8 Underrated X-Men Who'd Be the Most Powerful Member of Any Other Team
+
+Comics, X-Men
+
+Sat, 12 Sep 2026 03:45:18 GMT
+
+https://screenrant.com/x-men-most-underrated-heroes-powers/
+
+Explore the hidden strengths of 8 underrated X-Men with incredible powers.
+---------
+
+# Magic: The Gathering Format Will Disappear Forever February 2
+
+Games, Magic: The Gathering
+
+Sat, 12 Sep 2026 04:30:11 GMT
+
+https://www.cbr.com/mtg-official-statement-ending-alchemy-format/
+
+Magic: The Gathering fans get a massively unexpected announcement as Wizards of the Coast kills off the game's Arena-only format.
+---------
+
+# 5 Underrated Fantasy Shows Based on Books
+
+TV, Fantasy, The Wheel of Time, His Dark Materials
+
+Sat, 12 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/underrated-fantasy-shows-based-on-books-list/
+
+Book-to-television adaptations have gotten more popular, but fantasy shows like Shadow & Bone and Good Omens remain woefully underrated.
+---------
+
+# Why Gary Larson’s The Far Side Caused So Much Controversy, Explained
+
+Comics, The Far Side
+
+Sat, 12 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/gary-larson-far-side-controversial-explained/
+
+Throughout its two-decade run, Gary Larson’s The Far Side garnered massive controversy, and there were various different reasons behind it.
+---------
+
+# 10 Greatest '80s RPGs, Officially Ranked
+
+Games, Video Games, Final Fantasy, RPG
+
+Sat, 12 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/greatest-80s-rpgs-officially-ranked/
+
+RPG series like Final Fantasy and Dragon Quest began in the 1980s and started off strong.
+---------
+
+# Dragon Ball Unearths Akira Toriyama's Rare Winter Goku Design After 39 Years
+
+Anime, Dragon Ball
+
+Sat, 12 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/dragon-ball-goku-rare-winter-design/
+
+Dragon Ball fans just got a glimpse of one of the franchise's rarest Goku designs, and it's perfect for the upcoming holiday season.
+---------
+
+# 10 Greatest Shonen Anime Series Since 2016
+
+Anime, shonen anime
+
+Sat, 12 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/greatest-shonen-anime-series-since-2016/
+
+Since 2016, shonen anime has expanded far beyond straightforward power contests, bringing sharper character writing and darker themes.
+---------
+
+# Kyle Chandler's 'E.T.' Replacement Sci-Fi Hit Is Officially Streaming Free
+
+Movie Features, Lanterns, Kyle Chandler, Super 8, J.J. Abrams, Steven Spielberg
+
+Sat, 12 Sep 2026 04:08:11 GMT
+
+https://collider.com/kyle-chandler-lanterns-super-8-sci-fi-streaming-free-pluto-tv-september-2026/
+
+Lanterns star Kyle Chandler's earlier extraterrestrial sci-fi outing, 2011's Super 8, is streaming free on Pluto TV.
+---------
+
+# HBO's Underrated 'Sopranos' Episode Officially Put This 'Penguin' Star on the Map 20 Years Ago
+
+TV Features, Steve Buscemi, Cristin Milioti, The Penguin, The Sopranos
+
+Sat, 12 Sep 2026 04:01:11 GMT
+
+https://collider.com/hbo-sopranos-season-6-cristin-milioti-episode-steve-buscemi/
+
+Cristin Milioti starred in Season 6 Episode 5 of The Sopranos, titled Mr. & Mrs. John Sacrimoni Requesm, and it is one of the best in the series.
+---------
+
+# 'Ted Lasso' Season 4 Officially Rewrites the Show's Most Controversial Storyline
+
+TV Features, Ted Lasso, Jason Sudeikis, Apple TV, Comedy
+
+Sat, 12 Sep 2026 03:48:11 GMT
+
+https://collider.com/ted-lasso-season-4-episode-6-rewrites-michelle-controversial-storyline/
+
+With its return for Season 4, Ted Lasso officially rewrites one of the show's most controversial storylines, giving it more nuance and depth.
+---------
+
+# HBO’s Near-Perfect 9-Episode Miniseries Became the Critics' Favorite When It Broke From the Formula
+
+TV Features, Watchmen, HBO, Damon Lindelof, Alan Moore
+
+Sat, 12 Sep 2026 03:41:11 GMT
+
+https://collider.com/hbo-watchmen-miniseries-broke-formula/
+
+HBO's Watchmen took a different path in its TV adaptation that reinvigorates the classic graphic novel in a new way.
+---------
+
+# 10 Years Later, This Gritty Music Biopic Is One of the Biggest Streaming Hits in the World
+
+Movie Features, Straight Outta Compton, F. Gary Gray, Ice Cube, O'Shea Jackson Jr.
+
+Sat, 12 Sep 2026 03:11:11 GMT
+
+https://collider.com/straight-outta-compton-music-biopic-streaming-netflix-september-2026/
+
+2015's Straight Outta Compton, a biopic of Ice Cube and Dr. Dre's rap group N.W.A., is one of the top 10 most-streamed movies on Netflix.
+---------
+
+# Keanu Reeves' Bonkers 79% RT Fantasy Finds Redemption on Streaming
+
+Movie Features, Good Fortune, Keanu Reeves, Aziz Ansari, Seth Rogen
+
+Sat, 12 Sep 2026 03:09:11 GMT
+
+https://collider.com/keanu-reeves-good-fortune-prime-video-streaming-september-2026/
+
+Keanu Reeves followed up John Wick with the 2025 fantasy film Good Fortune, which is now a Prime Video hit.
+---------
+
+# After ‘Reacher’s Season 4 Finale, Start Binging Prime Video’s Stellar 4-Part Action Thriller
+
+TV Features, Prime Video, Jack Ryan, Reacher, John Krasinski
+
+Sat, 12 Sep 2026 02:44:11 GMT
+
+https://collider.com/reacher-replacement-series-jack-ryan-prime-video-action-genre/
+
+Jack Ryan remains one of Prime Video's essential action shows, especially for Reacher fans looking for another high-stakes thriller.
+---------
+
 # The Sky Is The Limit With The City-Building Potential Of LEGO Skylines
 
 Gaming, LEGO Skylines, LEGO
