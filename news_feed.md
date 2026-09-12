@@ -1,3 +1,333 @@
+# The Sky Is The Limit With The City-Building Potential Of LEGO Skylines
+
+Gaming, LEGO Skylines, LEGO
+
+Sat, 12 Sep 2026 02:18:59 GMT
+
+https://screenrant.com/lego-skylines-gamescom/
+
+During a preview at Gamescom, the upcoming LEGO: Skylines showcased its impressive scope, surprising depth, and truly staggering scale.
+---------
+
+# Paul Wesley Teases “Very Serious” Final Season Of Star Trek: Strange New Worlds & Big Twist For Kirk: “People Are Going To Be Shocked”
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 12 Sep 2026 02:14:13 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-paul-wesley-final-season-serious-tease/
+
+Star Trek: Strange New Worlds' fifth and final season sounds like it will be very different as Paul Wesley hints at what's in store for James T. Kirk.
+---------
+
+# Chicago Med Confirms Major Shake-Ups Ahead of the New Season
+
+TV, Chicago Med, NBC
+
+Sat, 12 Sep 2026 02:10:36 GMT
+
+https://screenrant.com/chicago-med-shake-ups-season-12/
+
+The latest news about Chicago Med brings excitement to the upcoming season, leaving viewers with plenty to anticipate or dread when the show returns.
+---------
+
+# DC Unveils Monstrous Redesign Of Classic Hero, And It's Absolutely Twisted
+
+Comics, DC Comics, Green Arrow
+
+Sat, 12 Sep 2026 02:00:24 GMT
+
+https://screenrant.com/dc-absolute-green-arrow-spider-redesign/
+
+The Absolute Green Arrow series continues to thrill and chill readers everywhere, but one reveal is equal parts disturbing and deeply sad.
+---------
+
+# 3 Greatest N64 RPGs Nobody Ever Talks About
+
+Gaming, Nintendo, RPG, Triple-A Games
+
+Sat, 12 Sep 2026 02:00:24 GMT
+
+https://screenrant.com/greatest-nintendo-n64-rpgs-nobody-talks-about/
+
+Three forgotten N64 RPGs prove Nintendo’s 64-bit console had more role-playing gems than you probably remember.
+---------
+
+# Taylor Sheridan Meets Reacher In Netflix’s 95% RT Neo-Western Thriller That Deserves A Sequel
+
+Movies, Masked Recs
+
+Sat, 12 Sep 2026 02:00:24 GMT
+
+https://screenrant.com/rebel-ridge-taylor-sheridan-reacher-netflix-sequel/
+
+Netflix’s highly acclaimed Neo-Western movie seems to have storytelling ingredients from both Taylor Sheridan’s TV shows and Prime Video’s Reacher.
+---------
+
+# 10 Strongest Characters In The Legend Of Vox Machina, Ranked
+
+Streaming TV, The Legend of Vox Machina
+
+Sat, 12 Sep 2026 01:30:15 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-strongest-characters/
+
+Thanks to its foundations in the world of Dungeons & Dragons, The Legend of Vox Machina has a host of characters with incredible strength.
+---------
+
+# 8 Darkest Justice League Moments in DC History
+
+DC Comics, Justice League
+
+Sat, 12 Sep 2026 01:30:15 GMT
+
+https://screenrant.com/justice-league-darkest-moments/
+
+It took everything the heroes had to overcome these tragic moments.
+---------
+
+# The Lord Of The Rings Is Officially Switching Main Characters (& It Breaks A Tolkien Rule)
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum
+
+Sat, 12 Sep 2026 01:14:17 GMT
+
+https://screenrant.com/lord-of-the-rings-the-hunt-for-gollum-main-character-hobbits-tolkien/
+
+The Lord of the Rings franchise is changing its main character in a shocking way, and it will now venture into uncharted territory even for Tolkien.
+---------
+
+# Netflix's 'Homeland Meets The West Wing' Political Series Deserves All 10 Of Its Emmy Nominations
+
+Streaming TV, Masked Recs
+
+Sat, 12 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/the-diplomat-deserve-emmy-nominations/
+
+With its intricate politics, high-stakes tension, and unique interpersonal relationships, Netflix's The Diplomat has earned its critical acclaim.
+---------
+
+# 5 Open-World RPGs With 10/10 Worlds
+
+Games, Red Dead Redemption 2, Cyberpunk 2077, The Witcher
+
+Sat, 12 Sep 2026 02:15:11 GMT
+
+https://www.cbr.com/open-world-rpgs-with-perfect-worlds/
+
+Open-world RPGs can be some of the most fun gaming experiences around, but only a few of them have wonderful worlds that fans can explore for months.
+---------
+
+# The 62-Minute Follow-Up to the Best World War II Miniseries of All Time Is an Instant Hit
+
+Movies, Band of Brothers, HBO Max, War
+
+Sat, 12 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/band-of-brothers-legacy-war-drama-hbo-max-success-september-2026/
+
+The feature-length follow-up to one of the greatest shows of all time, Band of Brothers: Legacy, is an instant global streaming hit.
+---------
+
+# 5 Most Overrated Classic Anime (& Underrated Anime to Watch Instead)
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Isekai, Fairy Tail
+
+Sat, 12 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/most-overrated-classic-anime-underrated-anime-to-watch/
+
+It's time to say goodbye to overrated classic anime like Demon Slayer and replace them with underrated gems like Noragami.
+---------
+
+# 8 Psychological Thrillers That Rival Zodiac
+
+Movies, Thriller
+
+Sat, 12 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/psychological-thrillers-that-rival-zodiac-list/
+
+Zodiac is widely considered a benchmark for the psychological thriller genre, but the following films have proven just as effective over the years.
+---------
+
+# Ultra-Violent Open-World RPG Shoots to No. 1 Best-Selling Steam Game
+
+Games, Steam
+
+Sat, 12 Sep 2026 01:52:22 GMT
+
+https://www.cbr.com/the-blood-of-dawnwalker-best-selling-game-steam/
+
+The new game is already a massive hit.
+---------
+
+# Crunchyroll’s Biggest Anime of 2026 Can Finally Fix the Problem That Ended Its Original Run
+
+Anime, Black Clover
+
+Sat, 12 Sep 2026 01:45:11 GMT
+
+https://www.cbr.com/black-clover-season-2-biggest-anime-2026/
+
+Black Clover's momentous return in October 2026 is set to surpass its previous season through its elimination of filler and streamlined structure.
+---------
+
+# Titus Welliver's Gritty New Gangster Series Returns as No. 1 on Streaming
+
+TV, The Westies, MGM+, Crime
+
+Sat, 12 Sep 2026 01:30:11 GMT
+
+https://www.cbr.com/mgm-plus-gangster-the-westies-streaming-success-september-2026/
+
+This MGM+ crime drama based on true events has reclaimed the top spot on streaming.
+---------
+
+# Every New Zelda: Ocarina of Time Character Design in the Remake
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda, Video Games
+
+Sat, 12 Sep 2026 01:25:11 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-remake-character-design-changes/
+
+New footage of the Ocarina of Time remake has given very clear looks at many prominent characters, and some have rather thorough design changes.
+---------
+
+# NBC's 6-Season Fantasy Masterpiece Is 1 of the World's Most Popular Shows 9 Years Later
+
+TV, Grimm, NBC, Fantasy
+
+Sat, 12 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/nbc-fantasy-grimm-streaming-success-september-2026/
+
+This 2011 fantasy horror is regaining popularity, nearly a decade after it ended.
+---------
+
+# 10 Greatest Anime Series Since 2006
+
+Anime, Gurren Lagann, Cyberpunk: Edgerunners
+
+Sat, 12 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/greatest-anime-series-since-2006/
+
+Over the last 20 years, some of the greatest anime ever, including Gurren Lagann and Code Geass, have been released.
+---------
+
+# ‘Silo’ Season 4 Has One Major Book Story Left to Get Right
+
+TV Features, Silo, Apple TV, Rebecca Ferguson, Sci-Fi
+
+Sat, 12 Sep 2026 02:12:11 GMT
+
+https://collider.com/silo-season-4-apple-tv-book-juliette-lukas/
+
+Apple TV's adaptation of Silo has yet to include the romance between Juliette and Lukas, which was central in the books. It should be in the finale.
+---------
+
+# ‘The White Lotus’ Star’s New Crime Thriller Officially Sets 2026 Release Date
+
+TV News, Sharp Objects, Mare of Easttown, Peacock, The Good Daughter
+
+Sat, 12 Sep 2026 02:00:21 GMT
+
+https://collider.com/meghann-fahy-the-good-daughter-release-date-peacock-november-2026/
+
+Inspired by the atmosphere of Sharp Objects and Mare of Easttown, this upcoming Peacock crime thriller premieres in November.
+---------
+
+# Stephen King's Overlooked 6-Part Series Is Officially Streaming for Free
+
+TV Features, Stephen King, The Dead Zone, Anthony Michael Hall, Sci-Fi
+
+Sat, 12 Sep 2026 01:55:11 GMT
+
+https://collider.com/the-dead-zone-stephen-king-streaming-free-tubi/
+
+Stephen King's underrated series The Dead Zone is a compelling mix of mystery, drama, and the supernatural.
+---------
+
+# The 8 Most Fun Kids Movies of All Time, Ranked
+
+Movie, Family, Toy Story, Back to the Future, Ratatouille
+
+Sat, 12 Sep 2026 01:41:11 GMT
+
+https://collider.com/the-8-most-fun-kids-movies-of-all-time-ranked/
+
+From Paddington 2 to School of Rock, these fun kids movies capture adventure, imagination, and charm across a beloved ranked roundup.
+---------
+
+# Colin Farrell’s Forgotten Crime Thriller Officially Returns on Prime Video
+
+Movie News, Miami Vice, Colin Farrell, Jamie Foxx, Prime Video
+
+Sat, 12 Sep 2026 01:30:11 GMT
+
+https://collider.com/colin-farrell-miami-vice-streaming-prime-video-september-2026/
+
+After 20 years, the Miami Vice reboot that everyone forgot about has officially returned to streaming. Find out how to watch it here.
+---------
+
+# 10 Thriller Books That Are Page-Turners From Start to Finish
+
+Books and Comics, Thriller, L.A. Confidential, Fahrenheit 451, Misery
+
+Sat, 12 Sep 2026 01:14:11 GMT
+
+https://collider.com/thriller-books-page-turners-start-to-finish/
+
+If you're after thrillers that work as incredible page-turners, it's worth reading classic books like And Then There Were None, Misery, and Libra.
+---------
+
+# Taylor Sheridan Is Officially Fixing ‘Yellowstone’s Biggest Sequel
+
+TV Features, Dutton Ranch, Taylor Sheridan, Kelly Reilly, Cole Hauser
+
+Sat, 12 Sep 2026 01:14:11 GMT
+
+https://collider.com/dutton-ranch-season-2-storyline-taylor-sheridan-fix/
+
+With Dutton Ranch confirmed to return for Season 2, Taylor Sheridan will reportedly have more involvement in the Yellowstone sequel.
+---------
+
+# ‘Black Mirror’ Season 8 Gets Official Filming Update [Exclusive]
+
+TV News, Black Mirror, Netflix, Sci-Fi, TIFF
+
+Sat, 12 Sep 2026 01:00:11 GMT
+
+https://collider.com/black-mirror-season-8-filming-production-update/
+
+Black Mirror Season 8 is officially filming, with executive producer Jessica Rhoades offering a promising production update on the Netflix series.
+---------
+
+# Gerard Butler’s Forgotten War Thriller Officially Returns as a Streaming Sleeper Hit
+
+Movie News, Machine Gun Preacher, Gerard Butler, Paramount Plus, Taken
+
+Sat, 12 Sep 2026 01:00:11 GMT
+
+https://collider.com/gerard-butler-machine-gun-preacher-streaming-success-paramount-plus-september-2026/
+
+Gerard Butler's $3 million action thriller with shades of Taken and Blood Diamond has become a must-watch sleeper hit on streaming.
+---------
+
+# Michelle Yeoh Says You Can Skip Ridley Scott's 'Blade Runner' Before the Prime Video Sequel [Exclusive]
+
+Exclusives, Blade Runner 2099, Michelle Yeoh, TIFF, Blade Runner
+
+Sat, 12 Sep 2026 00:45:11 GMT
+
+https://collider.com/blade-runner-2099-michelle-yeoh-standalone-limited-series-ridley-scott/
+
+Blade Runner 2099 star Michelle Yeoh assured that Ridley Scott and Denis Villeneuve's films aren't required viewing to enjoy the sequel series.
+---------
+
 # Practical Magic 2's Post-Credits Scene Decision Was The Right Choice After 28-Year Sequel Wait
 
 Movies, Practical Magic 2, Practical Magic
