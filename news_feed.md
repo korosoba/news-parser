@@ -1,3 +1,388 @@
+# Best Movies By The James Bond Frontrunners, Including Jack O'Connell & Callum Turner
+
+Movies, James Bond
+
+Sat, 12 Sep 2026 21:55:14 GMT
+
+https://screenrant.com/best-movies-starring-the-frontrunners-to-play-james-bond/
+
+The new James Bond will have some new, and very fancy, shoes to fill. The frontrunners’ best movies prove why they would be the perfect choice.
+---------
+
+# Hulu's Raunchy '80s Period Drama Is So Good, It's Already Renewed For Another Season
+
+Streaming TV, Masked Recs
+
+Sat, 12 Sep 2026 21:45:14 GMT
+
+https://screenrant.com/rivals-hulu-80s-period-drama-renewed-season-3/
+
+Hulu's audacious and raunchy '80s period drama Rivals is one of the best book adaptations on any streamer, and thankfully, it's coming back for more.
+---------
+
+# It's The End Of An Era For Prime Video's Reacher
+
+Streaming TV, Reacher
+
+Sat, 12 Sep 2026 21:30:14 GMT
+
+https://screenrant.com/reacher-neagley-binge-drop-prime-video-franchise/
+
+When Neagley premieres on Prime Video on Sept. 16, it will be the first time in years that a season of a Reacher show drops all its episodes at once.
+---------
+
+# After 85 Years, Marvel Just Gave A Classic Hero New Superpowers
+
+Marvel Comics, Marvel
+
+Sat, 12 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/marvel-bucky-winter-soldier-new-powers-tree-arm/
+
+One underrated Avenger receives a major upgrade that makes them the most powerful member of Earth's Mightiest Heroes in their continuity.
+---------
+
+# 41 Years Ago, Back to the Future Destroyed the Last Great Modern Western Before Tombstone
+
+Movies, Silverado, Masked Recs
+
+Sat, 12 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/silverado-box-office-flop-tombstone-great-western/
+
+One of Kevin Costner's best Westerns was a box office flop, but has deservedly gone on to be one of the most beloved modern additions to the genre.
+---------
+
+# Prime Video Brings Back The Expanse's First Major Villain In A Very Similar Role
+
+Streaming TV
+
+Sat, 12 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/prime-video-reacher-shawn-doyle-the-expanse-villain/
+
+Prime Video's Reacher is building to an exciting finale, with a familiar face playing a similar role to his villainous character in The Expanse.
+---------
+
+# 3 Greatest PS1 RPGs Nobody Ever Talks About
+
+Gaming, PlayStation, PlayStation (Original), RPG
+
+Sat, 12 Sep 2026 21:00:14 GMT
+
+https://screenrant.com/greatest-playstation-ps1-rpgs-nobody-talks-about/
+
+Some of the very best PlayStation 1 RPGs are games that absolutely no one talks about, and they deserve another shot in the spotlight.
+---------
+
+# Project Hail Mary Meets 2001: A Space Odyssey In A Near-Perfect Hard Sci-Fi Movie That Deserved Better
+
+Movies, Moon, Masked Recs
+
+Sat, 12 Sep 2026 20:45:14 GMT
+
+https://screenrant.com/moon-movie-project-hail-mary-meets-2001-deserved-better/
+
+Project Hail Mary fans should watch this brilliant hard sci-fi movie that combines lone-survivor suspense with 2001: A Space Odyssey-style AI themes.
+---------
+
+# The Dawn Of A New Walking Dead Era Appears In Leak
+
+Gaming, The Walking Dead, Telltale
+
+Sat, 12 Sep 2026 20:30:14 GMT
+
+https://screenrant.com/the-walking-dead-collection-steam-leak/
+
+The Walking Dead video games peaked with the Telltale Games Series, and it's possible that this franchise is returning to fans in a new release.
+---------
+
+# 58 Years Later, This Prank On A TV Icon Is Still The Greatest Gag Ever Pulled
+
+Classic TV, Masked Recs
+
+Sat, 12 Sep 2026 20:30:14 GMT
+
+https://screenrant.com/dean-martin-show-false-piano-prank/
+
+Dean Martin's laid-back attitude laid the groundwork for the show's overall vibe, as his first-time reactions to live gags were genuine.
+---------
+
+# Strongest Demon Slayer Characters Who Aren’t Hashira, Ranked
+
+Anime, Demon Slayer: Kimetsu no Yaiba, shonen anime
+
+Sat, 12 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/strongest-demon-slayer-characters-not-hashira-ranked/
+
+These five Demon Slayer characters may not be Hashira, but their incredible strength puts them among the series' best fighters.
+---------
+
+# For the First Time Ever, Genshin Impact Is Giving Away 2 Free 5-Star Characters
+
+Anime, Genshin Impact, open world, RPG
+
+Sat, 12 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/genshin-impact-free-5-star-characters-6th-anniversary/
+
+Genshin Impact is going all-out for its sixth anniversary with two free 5-Star characters and even more rewards arriving September 23.
+---------
+
+# James Bond Frontrunner's New Sci-Fi Drama Flop Explodes on Streaming
+
+Movies, One Night Only, James Bond
+
+Sat, 12 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/callum-turner-one-night-only-sci-fi-rom-com-pvod-success-september-2026/
+
+The controversial title is getting another chance on PVOD.
+---------
+
+# The Witcher's Author Revealed His 4 Favorite Fantasy Movies
+
+Movies, The Witcher, Fantasy
+
+Sat, 12 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/witcher-author-andrzej-sapkowski-favorite-fantasy-movies-list/
+
+Andrzej Sapkowski, the author of The Witcher series, once listed the four fantasy films that he considers better than all others in the genre.
+---------
+
+# 5 Detective Shows Smarter Than Sherlock
+
+TV, Sherlock, Crime, True Detective
+
+Sat, 12 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/smartest-detective-shows-vs-sherlock-list/
+
+While many consider the BBC's Sherlock to be the smartest show of its genre, plenty of detective series have a strong edge over it.
+---------
+
+# 10 Greatest Anime Series of the Last 25 Years, Ranked Worst to Best
+
+Anime, Frieren: Beyond Journey's End, Steins;Gate, Monster, Attack on Titan, Fullmetal Alchemist: Brotherhood, Death Note
+
+Sat, 12 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/greatest-anime-last-25-years-ranked/
+
+25 years of anime have delivered countless hits, but only these 10 series deserve to be called the greatest.
+---------
+
+# The Best Action Series on TV Is the Most-Watched Show on Streaming After Audience Score Record
+
+TV, Reacher
+
+Sat, 12 Sep 2026 20:02:54 GMT
+
+https://www.cbr.com/reacher-action-nielsen-success-august-2026/
+
+The action show defeated Apple TV's Ted Lasso and Taylor Sheridan's Lioness to No. 1.
+---------
+
+# 10 Classic PS2 Games That Aren't As Good As You Remember
+
+Games, PlayStation 2, retro games
+
+Sat, 12 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/greatest-classic-ps2-games-aged-poorly-list/
+
+PS2 games like Devil May Cry 2 and Star Wars: Battlefront haven't stood the test of time.
+---------
+
+# Absolute Judge Dredd Is Coming, And It May Already Have A Title
+
+Comics, Judge Dredd
+
+Sat, 12 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/total-judge-dredd-confirmed/
+
+One of the most iconic comics of all time is getting the Absolute treatment, and Judge Dredd has never looked more intimidating than he does today.
+---------
+
+# Netflix's 'The Lincoln Lawyer' Was Never the Same After Season 3's Major Turning Point for Mickey
+
+TV Features, The Lincoln Lawyer, Netflix, Manuel Garcia-Rulfo, Crime
+
+Sat, 12 Sep 2026 21:47:11 GMT
+
+https://collider.com/the-lincoln-lawyer-season-3-eddie-rojas-death-turning-point/
+
+This surprising character death in The Lincoln Lawyer Season 3 deeply impacted Mickey and still stands out from other deaths on the Netflix show.
+---------
+
+# The 10 Best PS4 Games Ever Made, Ranked
+
+TV, PlayStation 4, Sony PlayStation, God of War, Bloodborne
+
+Sat, 12 Sep 2026 21:41:11 GMT
+
+https://collider.com/best-ps4-games-ranked/
+
+Explore the top PS4 games that defined a console generation, including hits like God of War, Bloodborne, and Ghost of Tsushima.
+---------
+
+# Forget 'Andor,' Stellan Starsgård's 2-Part War Thriller Is the Best Sci-Fi of the Century
+
+Movie Features, Stellan Skarsgård, Andor, Dune, Denis Villeneuve, Sci-Fi
+
+Sat, 12 Sep 2026 21:30:11 GMT
+
+https://collider.com/stellan-skarsgard-baron-harkonnen-dune-saga-best-sci-fi-thriller/
+
+Stellan Skarsgård's role as the villainous Baron Harkonnen in the Dune Saga triumphs over every other sci-fi venture.
+---------
+
+# Say Goodbye to Netflix’s Brutal 4-Part Historical Epic
+
+TV News, Spartacus, Liam McIntyre, Netflix, Spartacus: House of Ashur
+
+Sat, 12 Sep 2026 21:30:11 GMT
+
+https://collider.com/netflix-removing-spartacus-september-2026/
+
+Netflix has announced that all four seasons of Spartacus are being removed from the platform next week. Find out the last day to watch here.
+---------
+
+# The 25 Best Pop Songs of All Time, Ranked
+
+Music Features, Blondie, The Beach Boys, The Beatles, David Bowie
+
+Sat, 12 Sep 2026 21:25:11 GMT
+
+https://collider.com/best-pop-songs-all-time-ranked/
+
+The best pop songs of all time include classics like "God Only Knows" by The Beach Boys, "Call Me" by Blondie, and Madonna's "Ray of Light."
+---------
+
+# Nintendo Just Made Major Changes to the Most Iconic 'Legend of Zelda' Game in History
+
+Gaming, The Legend of Zelda, Grand Theft Auto V
+
+Sat, 12 Sep 2026 21:14:11 GMT
+
+https://collider.com/the-legend-of-zelda-ocarina-of-time-40th-anniversary-detailed/
+
+The Legend of Zelda 40th Anniversary Direct shows off the Ocarina of Time remake with tons of gameplay.
+---------
+
+# HBO Max's 4-Part Crime Series Is Essential Viewing Before 'Daredevil: Born Again' Season 3
+
+TV Features, The Cleaning Lady, Daredevil, Elodie Yung, Daredevil: Born Again
+
+Sat, 12 Sep 2026 21:10:11 GMT
+
+https://collider.com/the-cleaning-lady-hbo-max-daredevil-elektra-elodie-yung/
+
+Élodie Yung's gripping role in The Cleaning Lady is perfect for Daredevil: Born Again fans ahead of Elektra's return in Season 3.
+---------
+
+# 'The Lincoln Lawyer' Star's Disastrous Horror Return Officially Becomes a Streaming Sleeper Hit
+
+Movie News, Scream 7, Horror, Paramount Plus, Streaming
+
+Sat, 12 Sep 2026 21:00:11 GMT
+
+https://collider.com/neve-campbell-scream-7-streaming-hit-paramount-plus-september-2026/
+
+After bringing back fan-favorite scream queen Neve Campbell, 2026's biggest horror disaster is a quiet global streaming smash.
+---------
+
+# The 8 Most Fun Family Movies of All Time, Ranked
+
+Movie, Family, Jurassic Park, Back to the Future, Pirates of the Caribbean: The Curse of the Black Pearl
+
+Sat, 12 Sep 2026 20:53:11 GMT
+
+https://collider.com/most-fun-family-movies-all-time-ranked/
+
+From Paddington 2 to The Princess Bride, this ranking celebrates the most fun family movies that keep all ages entertained.
+---------
+
+# James McAvoy Has a Message for the MCU's New Professor Xavier [Exclusive]
+
+Exclusives, X-Men, James McAvoy, Christopher Abbott, Toronto International Film Festival
+
+Sat, 12 Sep 2026 20:48:15 GMT
+
+https://collider.com/x-men-reboot-professor-x-advice-james-mcavoy-christopher-abbott/
+
+James McAvoy shares insights for Christopher Abbott as the new Professor X in Marvel's upcoming X-Men reboot.
+---------
+
+# HBO’s Only Perfect Crime Thriller Can Be Binge-Watched in One Weekend
+
+Features, Mare of Easttown, HBO Max, Thriller
+
+Sat, 12 Sep 2026 21:45:13 GMT
+
+https://movieweb.com/mare-of-easttown-hbo-only-perfect-thriller/
+
+HBO has a number of great series available for fans of crime thrillers, but only one of them is truly flawless from start to finish.
+---------
+
+# 8 Masterpiece Fantasy Books Recommended by Stephen King
+
+Movie Lists, Stephen King, The Lord of the Rings, The Hobbit, Fantasy
+
+Sat, 12 Sep 2026 21:30:13 GMT
+
+https://movieweb.com/best-fantasy-books-stephen-king-loves/
+
+In addition to writing great books, Stephen King has great taste in books — and these are some of the best fantasy titles he's recommended.
+---------
+
+# Taylor Sheridan's 3-Part Action Thriller Sensation Breaks Major Milestone Ahead of Finale
+
+TV News, Lioness, Paramount Plus, Hot on Streaming, Action, Taylor Sheridan
+
+Sat, 12 Sep 2026 21:00:13 GMT
+
+https://movieweb.com/lioness-trending-paramount-6-months/
+
+Taylor Sheridan's most action-packed show is breaking even more records.
+---------
+
+# NBC's 2013 'Ted Lasso' Stealth Pilot Showcases a Very Different Version of the Character
+
+Features, Ted Lasso
+
+Sat, 12 Sep 2026 21:00:13 GMT
+
+https://movieweb.com/ted-lass-nbc-origin-changes/
+
+Jason Sudeikis shines as Coach Lasso, but the original version of the character lacked many of the things that have come to define him. Read on.
+---------
+
+# Every Jason Statham Action Movie of the 2000s, Ranked
+
+Features, Jason Statham, Action, Thriller
+
+Sat, 12 Sep 2026 20:30:13 GMT
+
+https://movieweb.com/every-jason-statham-action-movie-2000s-ranked/
+
+From video game adaptations to big-budget Hollywood ensembles to franchise sequels, these are Jason Statham's best action movies of the 2000s.
+---------
+
+# After 69 Years, One of the "Greatest Movies Ever Made" Is Officially Streaming Free on YouTube
+
+Features, 12 Angry Men, Crime, Thriller
+
+Sat, 12 Sep 2026 20:00:13 GMT
+
+https://movieweb.com/12-angry-men-movie-streaming-free-youtube/
+
+Released in 1957, Sidney Lumet's directorial debut, 12 Angry Men, holds up as the greatest courtroom drama ever made
+---------
+
 # Bleach: Thousand-Year Blood War Episodes 49 And 50 Delay Announced
 
 Anime, Bleach, BLEACH: Thousand-Year Blood War - The Calamity
