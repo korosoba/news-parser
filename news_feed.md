@@ -1,3 +1,410 @@
+# Bleach: Thousand-Year Blood War Episodes 49 And 50 Delay Announced
+
+Anime, Bleach, BLEACH: Thousand-Year Blood War - The Calamity
+
+Sat, 12 Sep 2026 19:53:57 GMT
+
+https://screenrant.com/bleach-thousand-year-blood-war-episode-49-50-delay/
+
+Bleach: Thousand-Year Blood War is officially delaying its highly anticipated final two episodes by a month to ensure the highest animation quality.
+---------
+
+# Daisy Ridley’s R-Rated Zombie Thriller Is Resurrected As A Global Streaming Sensation
+
+Movies, Masked Recs
+
+Sat, 12 Sep 2026 19:51:50 GMT
+
+https://screenrant.com/daisy-ridley-we-bury-the-dead-prime-video-streaming-success-september-2026/
+
+Daisy Ridley's zombie thriller finds streaming resurrection on Prime Video as a global streaming hit, with the Star Wars star beating major films.
+---------
+
+# DCU Gives Fresh Looks At Clayface Body Horror Ahead Of October 2026 Origin Story
+
+DC Comics, Clayface, DC
+
+Sat, 12 Sep 2026 19:46:50 GMT
+
+https://screenrant.com/clayface-body-horror-new-look/
+
+Clayface is about to have a monumental October with the theatrical DCU depiction of his origin story and a celebration of the character in comics.
+---------
+
+# HBO's Harry Potter Series Star Confirms Major Lucius Malfoy Change Compared To Jason Isaacs' Movie Portrayal
+
+TV, Harry Potter
+
+Sat, 12 Sep 2026 19:46:36 GMT
+
+https://screenrant.com/harry-potter-reboot-series-hbo-lucius-malfoy-bullying-backstory-johnny-flynn/
+
+HBO's new Harry Potter star confirms a major change to Lucius Malfoy's story, which would contrast with Jason Isaacs' portrayal in the movies.
+---------
+
+# MobLand Cast & Character Guide
+
+Streaming TV, MobLand
+
+Sat, 12 Sep 2026 19:45:15 GMT
+
+https://screenrant.com/mobland-show-cast-characters/
+
+Guy Ritchie's London-set crime drama boasts some serious star power, as Tom Hardy, Pierce Brosnan, and Helen Mirren headline a talented cast.
+---------
+
+# "I Knew This Guy Was Exceptional": Steven Spielberg Got His Start Directing The Greatest TV Detective
+
+Classic TV, Steven Spielberg, Columbo
+
+Sat, 12 Sep 2026 19:45:14 GMT
+
+https://screenrant.com/steven-spielberg-columbo-episode-peter-falk/
+
+The quality of Steven Spielberg's work on Columbo's season 1 premiere wasn't lost on star Peter Falk, who had high praise for Spielberg's work ethic.
+---------
+
+# Prime Video's Runaway Bride Meets A Simple Favor Officially Cast Main Trio For Bestselling Adaptation Series
+
+TV, Prime Video
+
+Sat, 12 Sep 2026 19:38:41 GMT
+
+https://screenrant.com/prime-video-things-we-never-got-over-witt-twins-knox-nash-casting/
+
+Following Off Campus' streaming success, Prime Video taps three leads for its newest romance show, described as Runaway Bride meets A Simple Favor.
+---------
+
+# Marvel Just Unveiled Some Of The Greatest Thor Art Of All Time
+
+Comics, Thor
+
+Sat, 12 Sep 2026 19:30:14 GMT
+
+https://screenrant.com/new-thor-art-best/
+
+You got to see this
+---------
+
+# 13 Classic Gilmore Girls Characters Everyone Forgot About
+
+Classic TV, Gilmore Girls
+
+Sat, 12 Sep 2026 19:30:14 GMT
+
+https://screenrant.com/gilmore-girls-forgotten-supporting-characters/
+
+Let's face it, some Gilmore Girls characters were more memorable than others, but these ones are still worth returning to, all these years later.
+---------
+
+# After 64 Years, Doctor Doom Admits The Real Reason He Never Removes His Mask
+
+Marvel Comics, The Avengers
+
+Sat, 12 Sep 2026 19:18:32 GMT
+
+https://screenrant.com/doctor-doom-mask-face-reason/
+
+Doctor Doom didn't choose to wear his iconic metal mask just to conceal his injuries. The Fantastic Four villain has something else to hide.
+---------
+
+# Joseph Zada Is the New James Dean in Netflix's New Miniseries Based on a John Steinbeck Classic
+
+TV, Netflix, East of Eden
+
+Sat, 12 Sep 2026 19:23:30 GMT
+
+https://www.cbr.com/joseph-zada-new-james-dean-netflix-east-of-eden/
+
+Joseph Zada is set to portray Cal Trask in Netflix's upcoming adaptation of John Steinbeck's East of Eden, a character once played by James Dean.
+---------
+
+# 5 Weakest ANBU Members in Naruto, Ranked
+
+Anime, Naruto, Naruto: Shippuden, shonen anime
+
+Sat, 12 Sep 2026 19:15:11 GMT
+
+https://www.cbr.com/weakest-anbu-black-ops-members-naruto/
+
+A ninja's rank inside ANBU reflects specialized utility over strength, but even the ANBU Black Ops has its weaknesses.
+---------
+
+# Liam Neeson's New 141-Minute Action Film Officially Divides Critics & Audiences After 18% RT
+
+Movies, liam neeson, The Fix, Rotten Tomatoes
+
+Sat, 12 Sep 2026 19:07:10 GMT
+
+https://www.cbr.com/liam-neeson-the-fix-rotten-tomatoes/
+
+Liam Neeson's new action film was slammed by critics, but audiences disagree.
+---------
+
+# Jake Gyllenhaal's $94M Gritty Drama Returns as a Streaming Hit
+
+Movies, Southpaw, Drama, STARZ
+
+Sat, 12 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/jake-gyllenhaal-southpaw-sports-drama-starz-success-september-2026/
+
+Jake Gyllenhaal and Rachel McAdams' underrated sports drama, Southpaw, is one of the most-watched movies in the US.
+---------
+
+# The 100% RT Longmire Replacement Show Made Just for Western Fans
+
+TV, Dark Winds, Crime, Western
+
+Sat, 12 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/amc-dark-winds-longmire-replacement/
+
+Longmire may no longer have new episodes available, but there's another show fans can watch to fill the void.
+---------
+
+# Star Trek: First Contact Proves the Borg Are Sci-Fi’s Best Villains
+
+Movies, Star Trek, Star Trek: The Next Generation, Star Trek: First Contact
+
+Sat, 12 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/star-trek-first-contact-borg-best-sci-fi-threat/
+
+As Star Trek: First Contact turns 30, it established the Borg as one of the greatest villains in sci-fi history in a movie that shouldn't have worked.
+---------
+
+# 10 Most-Anticipated Movies of Fall 2026, Ranked
+
+Movies
+
+Sat, 12 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/most-anticipated-movies-fall-2026-ranked-list/
+
+We're getting spoiled over the last few months of 2026 with some of the most exciting movies in recent memory set to hit theaters.
+---------
+
+# Dragon Ball Officially Loses Out to 1 of the Biggest Fantasy RPGs in New Top 20 Ranking
+
+Anime, Dragon Ball, Fate/Grand Order: First Order, merchandise
+
+Sat, 12 Sep 2026 18:30:11 GMT
+
+https://www.cbr.com/top-merchandise-ranking-amiami-august-2026/
+
+Dragon Ball could only manage a fifth place finish in the latest ranking, despite claiming the number one spot previously.
+---------
+
+# Golden Axe: The Cast on Memes and Voice Acting
+
+TV, Golden Axe
+
+Sat, 12 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/video/golden-axe-the-cast-on-memes-and-voice-acting/
+
+Golden Axe brings Danny Pudi and Carl Tart into a world with decades of fan nostalgia behind it. The actors explain how they approached the 2026 animated series without losing sight of what the games mean to longtime players.
+---------
+
+# 10 Strongest Martial Artists in Anime History, Ranked
+
+Anime, Dragon Ball, Hunter X Hunter, Naruto
+
+Sat, 12 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/strongest-martial-artists-in-anime-history-ranked/
+
+Dedicated martial artists like Goku and Might Guy are some of the strongest characters in all of anime.
+---------
+
+# The 8 Most Fun Animated Movies of All Time, Ranked
+
+Movie, Animation, Toy Story, Spider-Man: Into The Spider-Verse, The Incredibles
+
+Sat, 12 Sep 2026 19:49:11 GMT
+
+https://collider.com/most-fun-animated-movies-all-time-ranked/
+
+From Shrek 2 to Spider-Man: Into the Spider-Verse, these animated favorites deliver laughs, heart, adventure, and nonstop entertainment.
+---------
+
+# The 10 Greatest High Fantasy Books of the Last 5 Years, Ranked
+
+Books and Comics, Books, Fantasy, Adventure, Brandon Sanderson
+
+Sat, 12 Sep 2026 19:36:11 GMT
+
+https://collider.com/best-high-fantasy-books-last-5-years-ranked/
+
+The greatest high fantasy books of the last five years, including Tress of the Emerald Sea and Alchemised, prove that the genre is stronger than ever.
+---------
+
+# Forget 'The Gentlemen,' Theo James' 2026 Action Gem Is Officially Taking Over HBO Max
+
+Movie News, Theo James, Action, Fuze, HBO Max
+
+Sat, 12 Sep 2026 19:30:11 GMT
+
+https://collider.com/theo-james-fuze-streaming-hit-hbo-max-september-2026/
+
+Forget The Gentlemen, Theo James' 2026 action gem with Aaron Taylor-Johnson and Sam Worthington is taking over HBO Max. Read on for more details.
+---------
+
+# 'Warhammer 40K's Biggest Sci-Fi Rival Officially Returns in 2030
+
+Gaming News, Blizzard Entertainment, Blizzard, Blizzcon, Gaming
+
+Sat, 12 Sep 2026 19:16:36 GMT
+
+https://collider.com/new-starcraft-game-trailer-release-date-2030/
+
+Over a decade after the release of Starcraft 2, the sci-fi franchise is officially back in a new trailer for the next game. See it here!
+---------
+
+# Jason Statham's Forgotten Action Franchise-Starter Is Officially Streaming for Free
+
+Movie News, Jason Statham, Parker, Pluto TV, Jennifer Lopez
+
+Sat, 12 Sep 2026 19:00:11 GMT
+
+https://collider.com/jason-statham-parker-streaming-free-pluto-tv-september-2026/
+
+Jason Statham's failed franchise-starter is streaming for free this month, 13 years after its theatrical release. Find out more.
+---------
+
+# 7 Years Later, Stephen King’s Forgotten Horror Anthology Series Deserves a Revival
+
+TV Features, Stephen King, Creepshow, Shudder, George A. Romero
+
+Sat, 12 Sep 2026 18:59:11 GMT
+
+https://collider.com/stephen-king-creepshow-horror-anthology-deserves-a-revival/
+
+Stephen King's Creepshow helped launch an underrated anthology series on Shudder, and it deserves to make a comeback.
+---------
+
+# 20 Years Later, ‘The Office’ Is Getting Its Story Rewritten
+
+TV, The Office, Documentary, Peacock, The Paper
+
+Sat, 12 Sep 2026 18:53:11 GMT
+
+https://collider.com/the-office-documentary-fan-level-midnight-peacock-streaming/
+
+The six-part documentary series exploring the cultural legacy of The Office is now streaming on Peacock.
+---------
+
+# 2 Star Wars Prequels Are Officially Back From the Dead
+
+Gaming News, Star Wars, Star Wars: Knights of the Old Republic, Sci-Fi, Lucasfilm Games
+
+Sat, 12 Sep 2026 18:40:21 GMT
+
+https://collider.com/star-wars-eclipse-knights-of-the-old-republic-update/
+
+After literal years without any major updates, Lucasfilm has officially shown signs of life for 2 highly anticipated Star Wars titles.
+---------
+
+# Netflix's 8-Part Gothic Horror Is Near Perfect When It Goes Beyond the Book It's Based On
+
+TV Features, The Fall of the House of Usher, Mike Flanagan, Edgar Allan Poe, Netflix
+
+Sat, 12 Sep 2026 18:38:11 GMT
+
+https://collider.com/netflix-fall-of-the-house-of-usher-mike-flanagan-edgar-allan-poe/
+
+Netflix's adaptation of The Fall of the House of Usher takes Edgar Allan Poe's stories and modernizes them for a chilling 8-episode thriller.
+---------
+
+# Netflix Officially Finds Its ‘Arcane’ Successor With New Dark Fantasy Series
+
+TV News, Diablo, Diablo 4, Blizzard, Netflix
+
+Sat, 12 Sep 2026 18:37:35 GMT
+
+https://collider.com/netflix-diablo-series-confirmed-overwatch-world-of-warcraft/
+
+Netflix is officially partnering with Blizzard for a new animated series based on Diablo, plus plans to adapt Overwatch and World of Warcraft.
+---------
+
+# 'Scary Movie 2': Every Horror Movie Parodied in the Film
+
+Movie Lists, Scary Movie 2, Horror
+
+Sat, 12 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/scary-movie-2-every-horror-movie-parody/
+
+'Scary Movie 2' predominantly parodied supernatural horror films of the '70s and '80s. Here's the list of each one.
+---------
+
+# 8 Near-Perfect Fantasy Series To Watch While Waiting for HBO's 'Harry Potter'
+
+TV Lists, Harry Potter, Fantasy
+
+Sat, 12 Sep 2026 19:00:13 GMT
+
+https://movieweb.com/fantasy-tv-shows-watch-before-harry-potter/
+
+'Harry Potter' will premiere on HBO in December 2026 and will star Dominic McLaughlin, Alastair Stout, and Arabella Stanton.
+---------
+
+# Jon Bernthal's 132-Minute Action Thriller Sequel Is Officially One of the Biggest Movies on Streaming
+
+Movie News, The Accountant 2, Hulu, Hot on Streaming, Action, Jon Bernthal
+
+Sat, 12 Sep 2026 18:30:13 GMT
+
+https://movieweb.com/the-accountant-2-jon-bernthal-action-stream-hulu-sept-2026/
+
+Jon Bernthal brought his Punisher skills to this fan-favorite action thriller.
+---------
+
+# "Taken Meets Harlan Coben" In Apple TV's New 9/10 Crime Thriller That's Officially a Streaming Hit
+
+TV News, Last Seen, Hot on Streaming, Apple TV, Taken, Harlan Coben
+
+Sat, 12 Sep 2026 18:30:13 GMT
+
+https://movieweb.com/last-seen-apple-stream-crime-thriller-sept-2026/
+
+Apple TV+’s new Australian thriller Last Seen is climbing the platform’s global chart fast.
+---------
+
+# Netflix's Answer to 'Fallout' Is a "John Wick Meets Halo" Military Sci-Fi Series
+
+Features, Gears of War, Fallout, Action
+
+Sat, 12 Sep 2026 18:30:13 GMT
+
+https://movieweb.com/gears-of-war-netflix-fallout-competitor/
+
+'Gears of War' joins Netflix's long list of video game adaptations...will it be a success?
+---------
+
+# 8 Most Underrated Hard Sci-Fi Books, Ranked from Must-Read to Absolute Masterpiece
+
+TV Lists, Sci-Fi
+
+Sat, 12 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/underrated-hard-sci-fi-books-ranked/
+
+Hard sci-fi is a fascinating genre, and these books are the most underrated stories that everyone should read.
+---------
+
+# Christopher Nolan's 'The Odyssey' Makes Universal History with Record-Shattering Feat
+
+Movie News, The Odyssey, Christopher Nolan, Fantasy
+
+Sat, 12 Sep 2026 17:33:18 GMT
+
+https://movieweb.com/christopher-nolan-odyssey-highest-grossing-universal-film/
+
+'The Odyssey' is now the highest-grossing film in Universal Pictures history, taking the record previously held by 'Jurassic World.'
+---------
+
 # Zack Snyder Meets Kickass In The 7-Year-Old Cyberpunk Movie That Still Needs A Sequel
 
 Movies, Masked Recs
