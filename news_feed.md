@@ -1,3 +1,344 @@
+# Jason Momoa's 'The Patriot Meets Billions' Series On Netflix Is Still Massively Underrated 9 Years Later
+
+Classic TV, Masked Recs
+
+Sat, 12 Sep 2026 23:30:14 GMT
+
+https://screenrant.com/frontier-jason-momoa-series-underrated-netflix/
+
+One of Jason Momoa's most underrated shows, Frontier, mixes the historical action of The Patriot with the business-minded drama of Billions perfectly.
+---------
+
+# Wolverine Turns Super Saiyan In Marvel's New X-Men Storyline
+
+Marvel Comics, Wolverine
+
+Sat, 12 Sep 2026 23:30:14 GMT
+
+https://screenrant.com/wolverine-super-saiyan-xmen-marvel/
+
+For the first time in Marvel history, Wolverine unlocks his very own Super Saiyan form, complete with a visible aura similar to the Z Warriors'.
+---------
+
+# Supergirl "Plot Hole" Explained: Why Kara Didn't Just Take Krypto To A Yellow Sun
+
+Movies, Supergirl
+
+Sat, 12 Sep 2026 23:15:14 GMT
+
+https://screenrant.com/supergirl-movie-kyrpto-yellow-sun-plot-hole-explained/
+
+Supergirl had a moment that has some fans confused and calling it a plot hole, but what happened with Krypto was explained in the actual movie.
+---------
+
+# 3 Marvel Heroes The Hulk Can't Stand That He Still Needs To Face In The MCU
+
+Movies, Hulk, Marvel Cinematic Universe
+
+Sat, 12 Sep 2026 23:15:14 GMT
+
+https://screenrant.com/hulk-marvel-heroes-cant-stand-mcu-fight/
+
+The Hulk has storied (and violent) histories with several Marvel Comics superheroes, many of which the MCU hasn't even come close to adapting yet.
+---------
+
+# The Solution To James Gunn's Wonder Woman Problem Has Been Staring DC In The Face For 5 Years
+
+Movies, Wonder Woman
+
+Sat, 12 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/james-gunn-wonder-woman-yara-flor/
+
+DC has the chance to dig into Wonder Woman's lore and go deeper than ever before.
+---------
+
+# Netflix's 2-Part Sci-Fi Masterpiece Deserved To Be As Big As Lost
+
+Streaming TV, Masked Recs
+
+Sat, 12 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/netflix-the-oa-sci-fi-mystery-box-show-bigger/
+
+Lost revolutionized TV, but when Netflix released the mind-bending sci-fi fantasy The OA, it looked as though it was about to become Lost's successor.
+---------
+
+# 10 Greatest PlayStation 2 Games Everyone Played At Least Once
+
+Gaming, PlayStation 2
+
+Sat, 12 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/greatest-playstation-ps2-games-everyone-played-once/
+
+The PS2 era is home to some of the most popular games ever, whether they began a beloved franchise or were the sequel installment that redefined it.
+---------
+
+# Brandon Sanderson Meets Grimdark In Westworld: A 4-Season Dystopian Masterpiece
+
+Classic TV, Masked Recs
+
+Sat, 12 Sep 2026 22:52:01 GMT
+
+https://screenrant.com/westworld-brandon-sanderson-grimdark-dystopian-masterpiece/
+
+Author Brandon Sanderson has a signature narrative style that a 4-season dystopian masterpiece emulates, but the story is much bleaker.
+---------
+
+# All 9 Major Houses In House Of The Dragon Explained
+
+Streaming TV, House of the Dragon
+
+Sat, 12 Sep 2026 22:30:16 GMT
+
+https://screenrant.com/house-of-the-dragon-houses-families-explained/
+
+House of the Dragon may focus primarily on the Targaryen dynasty, but there are many prominent families at play in the Dance of the Dragons.
+---------
+
+# 10 Best Fantasy Anime Like Mushoku Tensei
+
+Anime, Fantasy, Mushoku Tensei: Jobless Reincarnation
+
+Sat, 12 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/best-fantasy-anime-like-mushoku-tensei/
+
+Mushoku Tensei isn't' the only fantasy anime with its level of character writing and worldbuilding.
+---------
+
+# Brendan Fraser’s Mummy Sequel Reveals First Look at Returning Hero
+
+Movies, The Mummy 4, Brendan Fraser, Adventure
+
+Sat, 12 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/brendan-fraser-mummy-sequel-character-first-look/
+
+Fans of Brendan Fraser's The Mummy just got a major update on the next entry in the franchise, and another fan-favorite is officially returning for it
+---------
+
+# CBS' New Legal Drama Sets a Major Reunion After Canceled Paramount+ Supernatural Drama With 96% RT
+
+TV, Evil, Cupertino, CBS
+
+Sat, 12 Sep 2026 23:00:44 GMT
+
+https://www.cbr.com/cbs-cupertino-evil-reunion/
+
+An Evil reunion is coming to CBS' new series.
+---------
+
+# Jake Gyllenhaal's Remain is The Sixth Sense Meets The Notebook
+
+Movies, Remain, m night shyamalan, jake gyllenhaal, The Sixth Sense, The Notebook
+
+Sat, 12 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/jake-gyllenhaal-remain-movie-combines-sixth-sense-notebook/
+
+Jake Gyllenhaal and Phoebe Dynevor come together in a thrilling supernatural collaboration between two brilliant creative minds in Remain.
+---------
+
+# Pokémon Brings Back Its Cozy Morning Animated Series With a Fiery New Typhlosion Episode
+
+Anime, Pokemon
+
+Sat, 12 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/pokemon-wake-up-returning-series-typhlosion/
+
+One of the most explosive Pokémon of all time is taking center stage in a returning morning series from an unexpected corner of the franchise.
+---------
+
+# Pokémon Director Officially Confirms He'll Never Change One Major Feature
+
+Games, Pokemon, Video Games, Pokemon TCG
+
+Sat, 12 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/pokemon-director-will-never-change-one-featurec/
+
+The Pokémon series has drastically changed its battle system in Legends: Z-A, but a director has promised one thing will stay the same.
+---------
+
+# Stephen Amell's First Show After Arrow Is the Perfect Weekend Binge (Right Before It Leaves Netflix)
+
+TV, Heels
+
+Sat, 12 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/stephen-amell-heels-leaving-netflix-september-2026/
+
+One of Stephen Amell's most beloved if wildly underrated series is only days away from leaving Netflix, and there's never been a better time to watch.
+---------
+
+# Michael Fassbender’s Hope is the Best Sci-Fi Movie of the Year
+
+Movies, Hope
+
+Sat, 12 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/michael-fassbender-alien-thriller-hope-best-sci-fi-movie-of-2026/
+
+Michael Fassbender is coming back to the sci-fi genre, and his alien thriller is becoming a massive hit.
+---------
+
+# Invincible Spin-Off by Robert Kirkman Returns in Major Historic Re-Release
+
+Comics, Invincible
+
+Sat, 12 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/robert-kirkman-invincible-battle-beast-tenth-printing/
+
+After a historic run, Robert Kirkman's gripping Invincible spin-off is making a wild comeback, and it looks amazing.
+---------
+
+# Apple TV Already Gave James Bond Fans the Perfect Daniel Craig Replacement 4 Years Ago
+
+TV, James Bond, Apple TV, Slow Horses
+
+Sat, 12 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/apple-tv-slow-horses-jack-lowden-james-bond-perfect-replacement/
+
+It's been four years since one of the most memorable moments in an Apple TV spy thriller series proved why one actor should be the next James Bond.
+---------
+
+# HBO's 6-Part Psychological Thriller Is Aging Like a Fine Wine
+
+TV Features, The Undoing, HBO, Nicole Kidman, Hugh Grant
+
+Sat, 12 Sep 2026 23:36:11 GMT
+
+https://collider.com/the-undoing-hbo-nicole-kidman-hugh-grant-psychological-thriller/
+
+Susanne Bier is a master with movies and television, and the 2020 HBO psychological drama The Undoing is just another example of that mastery.
+---------
+
+# Tom Hardy’s $856 Million Bonkers Sci-Fi Movie Is Officially the Streaming Sleeper Hit of 2026
+
+Movie News, Venom, Tom Hardy, Disney+, Venom: Let There Be Carnage
+
+Sat, 12 Sep 2026 23:30:11 GMT
+
+https://collider.com/tom-hardy-sci-fi-movie-venom-streaming-success-disney-plus-september-2026/
+
+Tom Hardy's bonkers sci-fi movie that grossed over $850 million at the box office is the definitive streaming sleeper hit of 2026.
+---------
+
+# Kevin Costner's 'Yellowstone' Replacement Officially Rides Onto HBO Max
+
+Movie News, Horizon: An American Saga - Chapter 1, Kevin Costner, HBO Max, Western
+
+Sat, 12 Sep 2026 23:00:11 GMT
+
+https://collider.com/kevin-costner-western-horizon-an-american-saga-chapter-1-streaming-hbo-max-september-2026/
+
+Kevin Costner's three-hour Western epic with shades of Yellowstone and The Revenant has officially landed on HBO Max.
+---------
+
+# The Best-Reviewed Action Movie of 2026 Officially Moves to a New Streaming Platform
+
+Movie News, The Furious, John Wick, STARZ, Action
+
+Sat, 12 Sep 2026 22:45:11 GMT
+
+https://collider.com/the-furious-streaming-starz-september-2026/
+
+A brutal and critically acclaimed John Wick replacement set in Bangkok is coming to a new streamer this month. Find out more.
+---------
+
+# Ridley Scott’s 10/10 Sci-Fi Series Officially Surges Before Season 2
+
+TV News, Alien: Earth, Ridley Scott, Hulu, Alien: Romulus
+
+Sat, 12 Sep 2026 22:30:11 GMT
+
+https://collider.com/ridley-scott-sci-fi-series-alien-earth-streaming-success-hulu-september-2026/
+
+Alien: Earth, the epic sci-fi series produced by the great Ridley Scott, is surging on streaming before Season 2.
+---------
+
+# 5 Essential Stephen King Books for Beginners
+
+Books and Comics, Stephen King, The Shining, Carrie, Misery
+
+Sat, 12 Sep 2026 22:08:11 GMT
+
+https://collider.com/essential-stephen-king-books-beginners/
+
+For readers discovering Stephen King for the first time, books like Carrie, The Shining, and The Green Mile are an excellent place to start.
+---------
+
+# 24 Years Later, Lord of the Rings' Best Line Is Still a Top 5 All-Time Fantasy Quote
+
+TV Features, The Lord of the Rings, The Lord of the Rings: The Two Towers, HBO Max, Peter Jackson
+
+Sat, 12 Sep 2026 22:05:11 GMT
+
+https://collider.com/lord-of-the-rings-two-towers-sam-best-fantasy-quote-24-years-later/
+
+24 years later, 'Lord of the Rings: The Two Towers' still contains one of the best fantasy speeches thanks to Samwise Gamgee.
+---------
+
+# King Arthur Meets 'Game of Thrones' in the "3rd Greatest" Fantasy Book Series Ever Written
+
+Features, Game Of Thrones, Fantasy
+
+Sat, 12 Sep 2026 23:30:13 GMT
+
+https://movieweb.com/warlord-chronicle-game-of-thrones-comparison/
+
+Need a great fantasy book recommendation? This highly regarded 1990s series that draws from real-world mythology, will scratch your ASOIAF itch.
+---------
+
+# Cult Classic 104-Minute Dark Fantasy Becomes Streaming Hit as Long-Awaited Sequel Hits Theaters
+
+Movie News, Hot on Streaming, Practical Magic, Practical Magic 2, HBO Max
+
+Sat, 12 Sep 2026 23:00:13 GMT
+
+https://movieweb.com/practical-magic-fantasy-streaming-hit-hbo-sept-2026/
+
+'Practical Magic' is back in the spotlight, topping HBO Max while 'Practical Magic 2' opens wide nearly 28 years after the original.
+---------
+
+# 10 Perfect 'Peanuts' Quotes That Prove It’s the Greatest Comic Strip in History
+
+Movie Lists, Peanuts, comics
+
+Sat, 12 Sep 2026 23:00:13 GMT
+
+https://movieweb.com/best-peanuts-comic-strip-quotes/
+
+No comic has matched the wit and emotional depth of Charles Schulz's Peanuts. These 10 Peanuts quotes prove it's the greatest comic strip in history.
+---------
+
+# HBO Max's 108-Minute Sci-Fi Action Epic Gets a Second Chance After a Major Box-Office Misfire
+
+Movie News, Supergirl, Box Office Milestones, HBO Max, DCU
+
+Sat, 12 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/supergirl-hbo-max-streaming-hit-sept-2026/
+
+After a disappointing theatrical run, 'Supergirl' has quickly climbed to the top of HBO Max’s movie chart.
+---------
+
+# 8 Perfect Mystery Thrillers To Watch While Waiting for Harlan Coben’s New Netflix Series
+
+TV Lists, Harlan Coben, Netflix, Thriller, Untitled Myron Bolitar Series
+
+Sat, 12 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/perfect-thrillers-watch-myron-bolitar-harlan-coben/
+
+Harlan Coben's upcoming Netflix thriller adaptation 'Myron Boiltar' is highly anticipated, and you can watch these great mystery thrillers before.
+---------
+
 # Best Movies By The James Bond Frontrunners, Including Jack O'Connell & Callum Turner
 
 Movies, James Bond
