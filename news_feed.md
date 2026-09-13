@@ -1,3 +1,443 @@
+# 10 Best Far Side Comics About Cavemen
+
+Comics, The Far Side
+
+Sun, 13 Sep 2026 16:56:03 GMT
+
+https://screenrant.com/best-far-side-comics-cavemen/
+
+Cavemen were one of The Far Side’s most persistent recurring motifs, resulting in some of the most legendary strips in Gary Larson’s iconic strip.
+---------
+
+# The MCU’s Spider-Man 5 Plans Mark A Franchise First
+
+Movies, Spider-Man, Marvel Cinematic Universe
+
+Sun, 13 Sep 2026 16:55:14 GMT
+
+https://screenrant.com/spider-man-5-mcu-movie-plans-franchise-first/
+
+The current plans and hopes for Spider-Man 5 pave the way for the MCU movie to break a record that would mean big things for the franchise overall.
+---------
+
+# 10 Stories Yellowjackets Needs To Wrap Up Before Season 4 Ends The Show
+
+Streaming TV, Yellowjackets, Yellowjackets - Season 4
+
+Sun, 13 Sep 2026 16:46:14 GMT
+
+https://screenrant.com/yellowjackets-stories-season-4-must-finish/
+
+Yellowjackets’ fourth and final season still has many unanswered questions to address about the wilderness, characters, and true intentions.
+---------
+
+# 10 Greatest Action Thriller Movies Set On Submarines, Ranked
+
+Movies, Das Boot, Thriller, Action, The Hunt for Red October, Run Silent, Run Deep, Hunter Killer, Black Sea, The Wolf's Call, K-19: The Widowmaker, U-571, The Enemy Below, Crimson Tide
+
+Sun, 13 Sep 2026 16:40:14 GMT
+
+https://screenrant.com/best-action-thriller-movies-set-on-submarines/
+
+A deadly game of sonar, torpedoes, and Cold War brinkmanship these submarine films squeeze suspense into tight hulls and character conflicts.
+---------
+
+# 30 Years Ago, DC Teased The One Villain Who Did What Batman Never Could
+
+Comics, Batman
+
+Sun, 13 Sep 2026 16:30:14 GMT
+
+https://screenrant.com/batman-villain-genosyde-kingdom-come/
+
+Where are they?
+---------
+
+# 29 Years Later, Stephen King’s Verdict On This 3-Part TV Horror Remake Makes Even Less Sense
+
+Classic TV, Stephen King
+
+Sun, 13 Sep 2026 16:30:14 GMT
+
+https://screenrant.com/stephen-king-loves-tv-remake-the-shining-carrie/
+
+Stephen King famously disliked Stanley Kubrick's adaptation of The Shining, going so far as to say that he prefers the 3-episode miniseries.
+---------
+
+# Star Trek: Voyager Will Officially Return October 2026 In Rediscovered
+
+Gaming, Star Trek: Voyager, Star Trek, Star Trek Online, PC
+
+Sun, 13 Sep 2026 16:30:14 GMT
+
+https://screenrant.com/star-trek-voyager-october-2026-online-update/
+
+The fan-favorite Star Trek: Voyager is officially returning this October in the exciting new release of Rediscovered.
+---------
+
+# The Paper Season 3’s Story Teased By Creators & Star After Ned’s Confession
+
+TV, The Paper, The Paper - Season 2
+
+Sun, 13 Sep 2026 16:26:00 GMT
+
+https://screenrant.com/the-paper-season-3-story-greg-daniels-michael-koman-domhnall-gleeson-response/
+
+Where The Paper season 3's story is headed is explained by co-creators and co-showrunners Greg Daniels and Michael Koman and star Domhnall Gleeson.
+---------
+
+# A Court of Thorns & Roses Book 6’s Protagonist Reportedly Revealed
+
+Books, A Court of Thorns and Roses
+
+Sun, 13 Sep 2026 16:24:51 GMT
+
+https://screenrant.com/a-court-of-splintered-harmony-audiobook-sample-azriel/
+
+A Court of Splintered Harmony may be changing someone's fate, as a leaked audiobook sample seemingly points at a whole new protagonist for book 6.
+---------
+
+# 10 Near-Perfect 80s Kids Movies That Remain Essential Viewing Today
+
+Movies, The Chromotherapist, The Princess Bride, Madge Bircher, Willow, Gremlins, The Neverending Story, The Land Before Time, The Karate Kid, E.T. the Extra-Terrestrial, The Brave Little Toaster
+
+Sun, 13 Sep 2026 16:20:15 GMT
+
+https://screenrant.com/near-perfect-80s-kids-movies-essential-viewing/
+
+Near-perfect 1980s kids movies that still captivate today, from puppet-led fantasy epics to heartfelt treasure hunts that never get old.
+---------
+
+# New Harry Potter Actor Confirms Major Change From the Movies in HBO's Reboot Season 1
+
+Movies, Harry Potter
+
+Sun, 13 Sep 2026 16:50:35 GMT
+
+https://www.cbr.com/harry-potter-johnny-flynn-lucius-malfoy-change-from-movies/
+
+The show is already making a major book change with the character.
+---------
+
+# Netflix Reveals New Look at Pup Scooby-Doo and His Meddling Kid Pals After Prequel Wraps
+
+TV, Scooby-Doo: Origins, Scooby-Doo
+
+Sun, 13 Sep 2026 16:40:28 GMT
+
+https://www.cbr.com/netflix-scooby-doo-origins-wraps/
+
+Netflix announces that the Scooby-Doo prequel is in the can with the most adorable set photo ever.
+---------
+
+# 10 Best Anime That Ended in the Last 10 Years, Ranked
+
+Anime, Attack on Titan, My Hero Academia, Gintama
+
+Sun, 13 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/best-finished-anime-last-10-years/
+
+Anime series like Attack on Titan and Gintama gave fans the most unforgettable finales within the last decade.
+---------
+
+# Monster: Rebecca Hall Reveals Abby Borden’s Dark Side
+
+TV, Monster: The Lizzie Borden Story
+
+Sun, 13 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/video/monster-rebecca-hall-reveals-abby-borden-s-dark-side/
+
+Rebecca Hall breaks down Abby Borden in Monster: The Lizzie Borden Story and why the character demanded such a heightened performance.
+---------
+
+# Hello Kitty & Friends Get Spooky Redesigns in New Haunted House Collection
+
+Anime, Hello Kitty, sanrio, merchandise
+
+Sun, 13 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/hello-kitty-friends-haunted-house-collection/
+
+Hello Kitty and her adorable friends are getting ready for Halloween with spooky new designs in a brand-new collection.
+---------
+
+# Star Trek’s Seven of Nine Faces Deadly Peril in a Terrifying New Adventure
+
+Comics, Star Trek
+
+Sun, 13 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/star-trek-2-release-date-confirmed/
+
+Star Trek's newest series is already putting the beloved Seven of Nine in uncharted territory.
+---------
+
+# The 20 Most Beautiful Anime Girls
+
+Anime
+
+Sun, 13 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/prettiest-anime-girls/
+
+When it comes to anime girls, beauty is often subjective. There's no denying that many of anime's most beautiful girls have it all, and then some.
+---------
+
+# Pam Voorhees Goes Berserk in Peacock's Brutal Friday the 13th Prequel Trailer
+
+TV, Crystal Lake
+
+Sun, 13 Sep 2026 15:30:17 GMT
+
+https://www.cbr.com/peacock-crystal-lake-friday-the-13th-prequel-trailer/
+
+The trailer includes a sneak peek at Pam's bloody killing spree along with several Friday the 13th references for fans to spot.
+---------
+
+# 10 Open-World Games Better Than Elden Ring in 2026
+
+Games, open world, Elden Ring
+
+Sun, 13 Sep 2026 15:30:11 GMT
+
+https://www.cbr.com/open-world-games-like-elden-ring-list-2026/
+
+Elden Ring is the gold standard for open world RPGs, but games like Red Dead Redemption 2 are even better.
+---------
+
+# 10 Strongest Gundam Mobile Suits From the Universal Century, Officially Ranked
+
+Anime, Gundam, mecha
+
+Sun, 13 Sep 2026 15:15:11 GMT
+
+https://www.cbr.com/strongest-gundam-mobile-suits-universal-century/
+
+Funnels, Psycoframes and NT-D systems change what a pilot controls in battle, and that control decides most major battles in Mobile Suit Gundam.
+---------
+
+# Alan Ritchson Officially Returns as Reacher in New Spin-Off
+
+TV News, Reacher, Neagley, Prime Video, Alan Ritchson
+
+Sun, 13 Sep 2026 16:40:11 GMT
+
+https://collider.com/neagley-alan-ritchson-reacher-prime-video-release-date/
+
+Alan Ritchson returns as Jack Reacher alongside Maria Sten in Neagley, Prime Video’s new eight-episode Reacher spin-off.
+---------
+
+# Apple TV’s Perfect 6-Part Spy Series Officially Returns This Week
+
+TV News, Apple TV, Slow Horses, Gary Oldman, Jack Lowden
+
+Sun, 13 Sep 2026 16:15:11 GMT
+
+https://collider.com/slow-horses-season-6-release-date-september-2026/
+
+Gary Oldman’s Slow Horses returns for Season 6 on Apple TV with six new episodes and a perfect 100% Rotten Tomatoes score.
+---------
+
+# ‘Godzilla Minus Zero’ Just Proved Its Biggest Fan Theory Is Right
+
+Movie Features, Godzilla Minus Zero, Godzilla Minus One, Godzilla, Ghidorah, the Three-Headed Monster
+
+Sun, 13 Sep 2026 16:06:11 GMT
+
+https://collider.com/godzilla-minus-zero-king-ghidorah-theory-trailer-poster-confirmation/
+
+The Godzilla Minus Zero trailer all but confirms King Ghidorah is appearing in the Godzilla Minus One sequel.
+---------
+
+# Mark Hamill's Star Wars Replacement Character Is Nothing Like Luke Skywalker
+
+TV Features, Star Wars: The Clone Wars, Mark Hamill, Star Wars, George Lucas
+
+Sun, 13 Sep 2026 15:54:11 GMT
+
+https://collider.com/star-wars-the-clone-wars-mark-hamill-voices-darth-bane/
+
+In the sixth season of Star Wars: The Clone Wars, Mark Hamill played a Sith lord character when he voiced Darth Bane.
+---------
+
+# Jason Voorhees Returns in First Official Trailer for 'Friday the 13th' Prequel Series
+
+TV News, Crystal Lake, Linda Cardellini, Friday The 13th, Peacock
+
+Sun, 13 Sep 2026 15:30:11 GMT
+
+https://collider.com/friday-the-13th-prequel-crystal-lake-trailer/
+
+For the first time in 17 years, Jason Voorhees is finally back in the new trailer for the Friday the 13th prequel, Crystal Lake. Watch it here.
+---------
+
+# Ryan Murphy Officially Brings Back His Most Controversial Series This Week
+
+TV News, Monster: The Lizzie Borden Story, Ryan Murphy, Netflix, Thriller
+
+Sun, 13 Sep 2026 15:30:11 GMT
+
+https://collider.com/monster-lizzie-borden-netflix-release-date/
+
+Ryan Murphy’s controversial Netflix anthology Monster returns with The Lizzie Borden Story, premiering September 17.
+---------
+
+# One of ‘Inuyasha’s Darkest Episodes Was Cut Before an Entire Generation Ever Saw It
+
+TV Features, Inuyasha, Adult Swim, Sunrise, Anime
+
+Sun, 13 Sep 2026 15:29:11 GMT
+
+https://collider.com/inuyasha-darkest-episode-cut-narakus-true-identity-unveiled/
+
+Inuyasha Episode 21, "Naraku's True Identity Unveiled" was cut by Japanese licensors before it was sent to the U.S., removing context from the story.
+---------
+
+# 'I Play Rocky' Is Officially a Knockout | TIFF Review
+
+Movie Reviews, I Play Rocky, Peter Farrelly, Sylvester Stallone, TIFF
+
+Sun, 13 Sep 2026 15:05:22 GMT
+
+https://collider.com/i-play-rocky-movie-peter-farrelly-sylvester-stallone-biopic/
+
+Peter Farrelly's I Play Rocky is a heart-warming biopic about Sylvester Stallone's early years, with Anthony Ippolito in a star-making performance.
+---------
+
+# The 10 Best Opening Lines in Book History, Ranked
+
+Books and Comics, Nineteen Eighty-Four, The Dark Tower, Fear and Loathing in Las Vegas, Pride and Prejudice
+
+Sun, 13 Sep 2026 15:04:11 GMT
+
+https://collider.com/best-book-opening-lines-ranked/
+
+The best opening lines in book history can be found in classics like Pride and Prejudice, Fahrenheit 451, and Fear and Loathing in Las Vegas.
+---------
+
+# Tom Hardy's Hit Crime Series Officially Gets Its Season 2 Debut This Week
+
+TV News, Tom Hardy, Guy Ritchie, MobLand, Paramount Plus
+
+Sun, 13 Sep 2026 14:45:11 GMT
+
+https://collider.com/mobland-season-2-tom-hardy-paramount-plus-release-date/
+
+Tom Hardy and Guy Ritchie’s Paramount+ crime hit MobLand returns for Season 2, with a third season already confirmed.
+---------
+
+# Mahershala Ali Gets Raves for Hard-Hitting New Action Thriller After Toronto Premiere
+
+Movie News, Your Mother Your Mother Your Mother, Mahershala Ali, Action
+
+Sun, 13 Sep 2026 16:31:28 GMT
+
+https://movieweb.com/mahershala-ali-your-mother-rave-reviews/
+
+It's not 'Blade,' but it might be even better.
+---------
+
+# 'Lioness' Season 3, Episode 7's Big Twist Ending Explained by Star
+
+TV News, Lioness, Dave Annable, Drama
+
+Sun, 13 Sep 2026 16:30:13 GMT
+
+https://movieweb.com/lioness-season-3-episode-7-ending-dave-annable/
+
+'Lioness' reached a point of no return in Season 3's penultimate episode.
+---------
+
+# 10 Perfect HBO Miniseries With 10 Episodes or Less You Can Binge in One Day
+
+TV Lists, HBO Max, Mare of Easttown, Sharp Objects, Empire Falls, Chernobyl
+
+Sun, 13 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/best-hbo-miniseries-10-episodes-or-less/
+
+These are the greatest miniseries the network has to offer: shows that are sharp, focused, and don't take months to get through.
+---------
+
+# Liam Neeson's 107-Minute Action Thriller Flop Is Streaming Free — And It Deserves Another Shot
+
+Movie News, Blacklight, Liam Neeson, Coming/Leaving Streaming
+
+Sun, 13 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/liam-neeson-blacklight-streaming-free-tubi-september-2026/
+
+This one had all it needed to become a successful Neeson hit. So, why was it forgotten so quickly?
+---------
+
+# Original 'Yellowstone' Dutton Favorite Officially Confirms 'Marshals' Return Interest
+
+TV News, Yellowstone, Western, Marshals
+
+Sun, 13 Sep 2026 15:30:14 GMT
+
+https://movieweb.com/yellowstone-lee-dutton-dave-annable-marshals-return/
+
+Could 'Marshals' bring back someone from Kayce Dutton's tragic past?
+---------
+
+# 'Superman' Stars Unite in First Trailer for Fact-Based Sports Drama 'Mr. Irrelevant'
+
+Movie Trailers, David Corenswet, Mr. Irrelevant: The John Tuggle Story, Sports, Michael Shannon
+
+Sun, 13 Sep 2026 15:25:40 GMT
+
+https://movieweb.com/david-corenswet-michael-shannon-mr-irrelevant/
+
+David Corenswet's new movie is the underdog going into a packed Christmas release slate.
+---------
+
+# 'Lioness' Confirms Its Zoe Saldana Replacement as Star Explains Emotional Season 3 Scene
+
+TV News, Lioness, Drama, Laysla De Oliveira
+
+Sun, 13 Sep 2026 15:00:13 GMT
+
+https://movieweb.com/lioness-season-3-joe-replacement-laysla-de-oliveira/
+
+One of Joe McNamara's Lioness operatives has proved their mettle and is ready to take over leadership.
+---------
+
+# Forget 'Lioness,' Prime Video's Better Military Thriller Returns Next Month
+
+Features, Lioness, Action, Thriller, The Terminal List
+
+Sun, 13 Sep 2026 15:00:13 GMT
+
+https://movieweb.com/terminal-list-season-2-return-better-lioness/
+
+Season 3 of 'Lioness' is currently streaming on Paramount+, and when it's over, watch Prime Video's returning action thriller series.
+---------
+
+# Netflix Announces Devilishly Intriguing Dark Fantasy Animated Video Game Adaptation
+
+TV News, Netflix, Fantasy
+
+Sun, 13 Sep 2026 14:30:14 GMT
+
+https://movieweb.com/netflix-diablo-animated-series/
+
+The second time's a charm for Netflix following its foiled attempt to adapt the massive gaming IP.
+---------
+
+# Blake Lively's Iconic 121-Episode Series Is Officially Being Wiped From Netflix's Streaming Library
+
+TV News, Gossip Girl, Blake Lively, Coming/Leaving Streaming, Drama, Netflix
+
+Sun, 13 Sep 2026 14:01:13 GMT
+
+https://movieweb.com/gossip-girl-blake-lively-leaving-netflix-october-2026/
+
+Nothing embraced scandal, betrayal, love triangles, and rivalries more than Lively's defining series, which is slated to be removed from Netflix.
+---------
+
 # Today's Wordle Hints & Answer - September 13, 2026 (Puzzle #1912)
 
 Gaming, Wordle, Mobile
