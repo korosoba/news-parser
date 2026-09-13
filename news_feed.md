@@ -1,3 +1,432 @@
+# Breaking Bad Meets Boy World Meets World In Spinoff Episode Designed To “Piss Disney Off”
+
+TV, Girl Meets World
+
+Sun, 13 Sep 2026 19:10:52 GMT
+
+https://screenrant.com/girl-meets-world-breaking-bad-episode-rider-strong-explained/
+
+The 2010s Boy Meets World spinoff almost had a more epic homage to Breaking Bad, and the star reveals that it was intentionally provocative.
+---------
+
+# After 11 Years, Marvel Admits Its Most Controversial MCU Death Was A Big Mistake
+
+Marvel Comics, Marvel
+
+Sun, 13 Sep 2026 19:06:44 GMT
+
+https://screenrant.com/marvel-admits-avengers-age-ultron-quicksilver-death-mistake/
+
+One Marvel character admits their divisive MCU death can't happen in the comics, as their natural powers make a similar scene impossible.
+---------
+
+# 27 Years Ago, The Sopranos Broke The Rules Of Character Writing And Became A Legend
+
+Classic TV, The Sopranos
+
+Sun, 13 Sep 2026 19:00:14 GMT
+
+https://screenrant.com/the-sopranos-college-broke-the-rules-tony-soprano-antihero/
+
+The Sopranos revolutionized TV with its character writing that made viewers root for an antihero, but one episode made Tony Soprano even worse.
+---------
+
+# 40 Years Later, This NES Game Is So Hard Nintendo Didn't Want Us Playing It
+
+Gaming, Nintendo, nes
+
+Sun, 13 Sep 2026 19:00:14 GMT
+
+https://screenrant.com/40-years-later-this-nes-game-is-so-hard-nintendo-didnt-want-us-playing-it/
+
+One of Nintendo's most difficult games of all time almost never made it to the West because the company deemed it too hard for an NES release.
+---------
+
+# First-Ever Live-Action Movie Adapting Popular 5-Year-Old Manga Debuts To Stellar Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Sun, 13 Sep 2026 18:56:39 GMT
+
+https://screenrant.com/look-back-2026-movie-rotten-tomatoes-score/
+
+A popular manga is officially being adapted into a live-action movie for the first-time ever, and it debuts to a stellar Rotten Tomatoes score.
+---------
+
+# 2026's New R-Rated Batman Movie Is Officially One Of The Biggest Movies On Streaming Ahead Of Trilogy Return
+
+Movies, Masked Recs
+
+Sun, 13 Sep 2026 18:56:31 GMT
+
+https://screenrant.com/batman-knightfall-part-1-amazon-vod-streaming-success-september-2026/
+
+2026's new Batman movie is an R-rated film that has become one of the biggest in the world on streaming, leaving major releases behind.
+---------
+
+# Two Key Dexter: Resurrection Stars Share Unexpected Season 2 Filming News
+
+TV, Dexter: Resurrection
+
+Sun, 13 Sep 2026 18:47:38 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-jack-alcott-kadia-saraf-filming-update/
+
+Dexter: Resurrection season 2 may have some unwelcome farewells, and fans begin theorizing following a shocking announcement from two key stars.
+---------
+
+# Netflix's Breaking Bad Replacement Was Even Darker Than The OG Show
+
+Classic TV, Masked Recs
+
+Sun, 13 Sep 2026 18:30:14 GMT
+
+https://screenrant.com/ozark-netflix-breaking-bad-replacement-darker/
+
+When Ozark premiered on Netflix, it drew a lot of comparisons to Breaking Bad — but it ended up being even darker than the story of Walter White.
+---------
+
+# Harry Potter PS1 Meets Hogwarts Legacy In New Fantasy Adventure Game
+
+Gaming, Hogwarts Legacy, Harry Potter, PlayStation (Original), PC, Steam
+
+Sun, 13 Sep 2026 18:30:14 GMT
+
+https://screenrant.com/harry-potter-ps1-meets-hogwarts-legacy-new-fantasy-rpg/
+
+Fans of the old-school PlayStation 1 Harry Potter titles should check out this new fantasy game that's also a lot like Hogwarts Legacy.
+---------
+
+# Zelda Meets Uncharted And Minecraft In Open-World Survival Sandbox You Can Play Free Now
+
+Gaming, The Legend of Zelda, Minecraft, Uncharted, PC, Steam
+
+Sun, 13 Sep 2026 18:30:14 GMT
+
+https://screenrant.com/zelda-meets-uncharted-minecraft-mayday-island-free-demo/
+
+Fans of The Legend of Zelda looking for a new open-world game should absolutely check out this new Uncharted meets Minecraft survival sandbox title.
+---------
+
+# Overlooked 14-Episode Western Crime Show Is Blowing Up on Prime Video
+
+TV, Prime Video
+
+Sun, 13 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/blue-ridge-western-crime-prime-video-success-september-2026/
+
+Two-season Western crime show Blue Ridge is climbing the charts on Prime Video after the release of the second season finale.
+---------
+
+# Star Wars Must Answer The Mandalorian and Grogu's Biggest Timeline Question
+
+Movies, Star Wars, The Mandalorian and Grogu, The Mandalorian
+
+Sun, 13 Sep 2026 18:30:11 GMT
+
+https://www.cbr.com/star-wars-mandalorian-and-grogu-timeline-confusion/
+
+Jon Favreau's latest comments about The Mandalorian and Grogu have sparked confusion over Star Wars' timeline.
+---------
+
+# The Odyssey Officially Breaks All-Time Universal Record Set by Jurassic World
+
+Movies, box office, The Odyssey, Jurassic World
+
+Sun, 13 Sep 2026 18:21:38 GMT
+
+https://www.cbr.com/the-odyssey-universal-highest-grossing-movie/
+
+After breaking Christopher Nolan's personal record, The Odyssey expands with a major win.
+---------
+
+# 5 American Anime That Have Aged Like Fine Wine
+
+Anime, Cartoon Network
+
+Sun, 13 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/american-anime-aged-like-fine-wine/
+
+American anime productions from the hybrid era hold up because the writers didn’t treat young audiences as incapable of understanding real stakes.
+---------
+
+# Monster: Charlie Hunnam Built Andrew Borden’s Voice
+
+TV, Monster: The Lizzie Borden Story
+
+Sun, 13 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/video/monster-charlie-hunnam-built-andrew-borden-s-voice/
+
+Charlie Hunnam reveals how he found Andrew Borden’s distinctive voice in Monster: The Lizzie Borden Story, including one choice that wasn’t historically documented.
+---------
+
+# Joel Edgerton's 108-Minute Thriller With 92% RT Is a Streaming Smash Hit
+
+Movies, The Gift, Thriller, Paramount Plus
+
+Sun, 13 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/joel-edgerton-the-gift-thriller-paramount-success-september-2026/
+
+Joel Edgerton's directorial debut, The Gift, is a psychological thriller that's one of the most-watched movies in the US.
+---------
+
+# Persona 5 Royal Returns Before Persona 6 Finally Launches
+
+Comics, Persona 5 Royal
+
+Sun, 13 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/persona-5-royal-official-design-works-hc-release-date-confirmed/
+
+Looking cool (again), Joker!
+---------
+
+# My Little Pony Transforms 6 Fan-Favorite Vocaloids Into Adorable New Plushies
+
+Anime, Hatsune Miku, My Little Pony, merchandise
+
+Sun, 13 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/my-little-pony-hatsune-miku-vocaloid-plushie-release/
+
+Hatsune Miku joins the rest of the Vocaloid characters for a cute My Little Pony remix, with this stable of crossover plushies courtesy of Youtooz.
+---------
+
+# Pierce Brosnan's Remake of 33-Year-Old Action Thriller Officially Delayed to 2027
+
+Movies, Cliffhanger
+
+Sun, 13 Sep 2026 17:54:48 GMT
+
+https://www.cbr.com/pierce-brosnan-cliffhanger-remake-2027-release/
+
+The modern take on a Sylvester Stallone classic is officially set for a 2027 release.
+---------
+
+# Former James Bond Isn't Interested in Revisiting the Franchise: 'I Have No Desire'
+
+Movies, James Bond, Thriller, Pierce Brosnan
+
+Sun, 13 Sep 2026 17:43:41 GMT
+
+https://www.cbr.com/pierce-brosnan-james-bond-reboot-return-denis-villeneuve/
+
+Denis Villeneuve's James Bond reboot is getting closer, but one former 007 star won't have anything to do with it.
+---------
+
+# ‘9-1-1's Peter Krause Sets Official TV Return Date
+
+TV News, Peter Krause, Line of Fire, NBC, Procedural
+
+Sun, 13 Sep 2026 19:00:11 GMT
+
+https://collider.com/peter-krause-line-of-fire-nbc-release-date-september-21/
+
+One year after Peter Krause left 9-1-1, the actor returns to television next week. Get all the details here.
+---------
+
+# 10 Greatest Books of the Last 20 Years, Ranked
+
+Books and Comics, The Martian, The Hunger Games, Books, Station Eleven
+
+Sun, 13 Sep 2026 18:49:11 GMT
+
+https://collider.com/best-books-last-20-years-ranked/
+
+From The Hunger Games to The Martian, The Road to A Mercy, these are the best books of the last 20 years.
+---------
+
+# The 10 Most Groundbreaking Movies of All Time, Ranked
+
+Movie, 2001: A Space Odyssey, Star Wars, Citizen Kane, Metropolis
+
+Sun, 13 Sep 2026 18:40:11 GMT
+
+https://collider.com/most-groundbreaking-movies-all-time-ranked/
+
+Classic movies like 2001: A Space Odyssey, The Lord of the Rings, and Citizen Kane all rank among the most groundbreaking and influential ever made.
+---------
+
+# Ridley Scott’s Sci-Fi Horror Classic Officially Lands on Netflix
+
+Movie News, alien, Alien, Sci-Fi, Ridley Scott
+
+Sun, 13 Sep 2026 18:30:11 GMT
+
+https://collider.com/ridley-scott-sci-fi-horror-alien-streaming-netflix-september-2026/
+
+Ridley Scott's sci-fi horror classic that started a massively successful franchise is ready to scare new audiences on streaming. Read on for more.
+---------
+
+# Hulu’s 4-Part ‘Godfather’-Style Crime Epic Has the Mob Boss Tony Soprano Could Never Be
+
+TV Features, The Sopranos, Godfather of Harlem, Forest Whitaker, Hulu
+
+Sun, 13 Sep 2026 18:22:11 GMT
+
+https://collider.com/hulu-godfather-of-harlem-the-sopranos-forest-whitaker-crime-epic/
+
+Godfather of Harlem features plenty of grit and emotional moments to rival The Sopranos, thanks to Forest Whitaker's performance.
+---------
+
+# Tom Hardy’s Brutal Western Masterpiece Is Officially Conquering the Global Charts Again
+
+Movie News, Tom Hardy, The Revenant, Western, HBO Max
+
+Sun, 13 Sep 2026 18:00:11 GMT
+
+https://collider.com/tom-hardy-western-the-revenant-streaming-hit-hbo-max-september-2026/
+
+Tom Hardy's only Oscar nomination (so far) was for this brutal 156-minute Western that has returned to the global charts. Read on for more.
+---------
+
+# Lovecraft Meets ‘Watchmen’ in HBO’s 88% RT Sci-Fi Horror Series
+
+TV Features, Lovecraft Country, HBO, HBO Max, Horror
+
+Sun, 13 Sep 2026 17:58:11 GMT
+
+https://collider.com/lovecraft-country-hbo-sci-fi-horror-series/
+
+HBO's Lovecraft Country redefines horror through race and folklore, blending H.P. Lovecraft's legacy with modern issues.
+---------
+
+# Taron Egerton's Sharp New Horror-Comedy Flips the 'Obsession' Formula | TIFF Review
+
+Movie Reviews, Everybody Wants to F*ck Me, Taron Egerton, TIFF, Toronto Internationa Film Festival
+
+Sun, 13 Sep 2026 17:54:40 GMT
+
+https://collider.com/everybody-wants-to-fck-me-taron-egerton-review/
+
+Taron Egerton leads the wild horror-comedy Everybody Wants To F*ck Me, a sharp and wickedly funny look at modern dating.
+---------
+
+# 'Being Heumann' Is a Worthy Follow-up to Oscar-Winning 'CODA' | TIFF Review
+
+Movie Reviews, Being Heumann, CODA, Mark Ruffalo, Sian Heder
+
+Sun, 13 Sep 2026 17:43:59 GMT
+
+https://collider.com/being-heumann-review-sian-heder-coda-mark-ruffalo/
+
+In Being Heumann, director Siân Heder follows up her Oscar-winning CODA with a thoughtful and moving biopic of disability rights activist Judy Heumann
+---------
+
+# Arnold Schwarzenegger’s Failed ‘Terminator’ Reboot Officially Gets a Second Chance on Free Streaming
+
+Movie News, Terminator Genisys, Arnold Schwarzenegger, Pluto TV, Sci-Fi
+
+Sun, 13 Sep 2026 17:31:11 GMT
+
+https://collider.com/arnold-schwarzenegger-terminator-genisys-streaming-free-pluto-tv-september-2026/
+
+A critically panned Terminator movie that failed to relaunch the franchise is streaming for free this month. Find out more.
+---------
+
+# Forget 'Yellowstone,' New 6-Part Western Thriller Is One of Streaming’s Biggest Hits
+
+TV News, Blue Ridge: The Series, Hot on Streaming, Prime Video, Yellowstone
+
+Sun, 13 Sep 2026 19:00:13 GMT
+
+https://movieweb.com/blue-ridge-prime-yellowstone-western-streaming-hit-sept-2026/
+
+'Blue Ridge: The Series' has entered the streamer’s US Top 10, suggesting demand for the genre extends well beyond Sheridan’s empire.
+---------
+
+# The Best and Funniest Words of Wisdom From 'The Far Side'
+
+Movie Lists, Comedy, The Far Side
+
+Sun, 13 Sep 2026 19:00:13 GMT
+
+https://movieweb.com/far-side-best-words-of-wisdom/
+
+Don't play catch with a bear cub is just one piece of absurd life advice readers can pull from Gary Larson's 'The Far Side.' Here are some others.
+---------
+
+# Amazon's New 'Rocky' Spin-Off Earns Knockout Reviews After Festival Debut
+
+Movie Reviews, I Play Rocky, Biography, Rocky
+
+Sun, 13 Sep 2026 18:09:20 GMT
+
+https://movieweb.com/i-play-rocky-divisive-reviews/
+
+Critics are bitterly split on this biopic.
+---------
+
+# The 16 Coolest Weapons in Anime History
+
+TV Lists, Anime
+
+Sun, 13 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/coolest-anime-weapons-ever/
+
+From super technologies to magical artifacts, anime weaponry often has a personality and backstory that make each weapon unique.
+---------
+
+# 10 Perfect Miniseries Where Every Episode Is a Masterpiece
+
+TV Lists, Adolescence, Band of Brothers
+
+Sun, 13 Sep 2026 18:00:13 GMT
+
+https://movieweb.com/miniseries-every-episode-perfect-masterpiece/
+
+Not every great story needs multiple seasons, and these miniseries are the proof. Not a single one wastes time with a middling episode.
+---------
+
+# 'Fourth Wing' Gets Star Candidate With 'Lioness' Actress Officially Confirming Interest
+
+TV News, Fourth Wing, Lioness, Drama, Laysla De Oliveira
+
+Sun, 13 Sep 2026 17:30:13 GMT
+
+https://movieweb.com/fourth-wing-show-laysla-de-oliveira-mira-sorrengail/
+
+'Lioness' breakout star is rallying for a part in Prime Video's upcoming romance fantasy series.
+---------
+
+# 8 Family Adventure Movies That Feel Like Prime Spielberg
+
+Movie Lists, Steven Spielberg, Adventure
+
+Sun, 13 Sep 2026 17:30:13 GMT
+
+https://movieweb.com/family-adventure-movies-like-steven-spielberg/
+
+Steven Spielberg movies are about a specific feeling, and these family adventure movies capture it almost as well as the director's titles themselves.
+---------
+
+# 28 Years Later, This 100% Rated '90s Sci-Fi Action Masterpiece Is Making an Unexpected Streaming Comeback
+
+TV News, Cowboy Bebop, Apple TV, Hot on Streaming, Sci-Fi
+
+Sun, 13 Sep 2026 17:30:13 GMT
+
+https://movieweb.com/cowboy-bebop-scifi-stream-apple-sept-2026/
+
+One of the best sci-fi series ever made is a hit on streaming.
+---------
+
+# 51 Years Later, Steven Spielberg Still Regrets One Harsh Reality About 'Jaws'
+
+Features, Jaws, Steven Spielberg, Thriller
+
+Sun, 13 Sep 2026 17:00:13 GMT
+
+https://movieweb.com/steven-spielberg-regrets-jaws-reality/
+
+Despite its status as a masterpiece, Steven Spielberg still harbors one deep regret about 'Jaws' over half a century later.
+---------
+
 # 10 Best Far Side Comics About Cavemen
 
 Comics, The Far Side
