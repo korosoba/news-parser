@@ -1,3 +1,388 @@
+# DC's Strongest Villain Is So Powerful, They Make Darkseid Look Like A Joke
+
+Comics, DC Comics, Darkseid
+
+Sun, 13 Sep 2026 21:30:14 GMT
+
+https://screenrant.com/dc-strongest-villain-perpetua-more-powerful-darkseid/
+
+When this villain shook the universe, Darkseid ran away.
+---------
+
+# 6 Recommended Western Shows You Can Binge In A Weekend
+
+Classic TV, Western
+
+Sun, 13 Sep 2026 21:30:14 GMT
+
+https://screenrant.com/western-tv-shows-recommend-watch-in-one-weekend/
+
+Yellowstone gets credit for reviving the Western genre, but not all Westerns need to be epics, and you can binge some of the best in just a weekend.
+---------
+
+# Alien Meets Red Dwarf In John Carpenter's Most Underrated Movie Streaming For Free On YouTube
+
+Movies, Masked Recs
+
+Sun, 13 Sep 2026 21:30:14 GMT
+
+https://screenrant.com/dark-star-movie-alien-meets-red-dwarf-streaming-free-youtube/
+
+John Carpenter's most underrated movie plays out like a mash-up of Red Dwarf and Alien, and it's streaming for free right now on YouTube.
+---------
+
+# Sebastian Stan Compares The Batman Part II To The Best-Rated Gangster Sequel Ever
+
+Movies, The Batman Part II
+
+Sun, 13 Sep 2026 21:18:59 GMT
+
+https://screenrant.com/the-batman-part-2-godfather-2-comparison-sebastian-stan/
+
+Sebastian Stan reveals some very exciting information regarding Matt Reeves highly anticipated DC follow-up film, The Batman: Part II.
+---------
+
+# DC Is Officially Rebooting Superman’s Strongest Villain
+
+DC Comics, Superman
+
+Sun, 13 Sep 2026 21:18:08 GMT
+
+https://screenrant.com/new-doomsday-dark-knights-steel/
+
+DC has unveiled and developed many new iterations of classic supervillains in its phenomenal medieval universe, but one is poised to be truly scary.
+---------
+
+# 34 Years Later, Jean-Claude Van Damme's Cult Sci-Fi Movie Is Streaming For Free At The Perfect Time
+
+Movies, Masked Recs
+
+Sun, 13 Sep 2026 21:15:14 GMT
+
+https://screenrant.com/jean-claude-van-damme-universal-soldier-movie-pluto-tv-streaming-september-2026/
+
+Nearly 35 years after its debut, a classic Jean-Claude Van Damme sci-fi action movie has arrived on streaming at just the perfect time.
+---------
+
+# Forget 24, This 5-Season Action Thriller With A 100% Rotten Tomatoes Score Is Taking Over Netflix
+
+TV, Masked Recs
+
+Sun, 13 Sep 2026 21:00:15 GMT
+
+https://screenrant.com/fauda-show-netflix-streaming-success-september-2026/
+
+Netflix's charts are being dominated by a well-received action thriller series, which boasts a much-coveted 100% Rotten Tomatoes score.
+---------
+
+# Apple TV's Renewed Spy Series Has 6 Seasons Without Ever Dipping Below 95% On Rotten Tomatoes
+
+Streaming TV, Masked Recs
+
+Sun, 13 Sep 2026 21:00:15 GMT
+
+https://screenrant.com/slow-horses-apple-tv-lowest-rotten-tomatoes-score/
+
+Apple TV continues to excel in the prestige TV landscape with the renewal of spy thriller Slow Horses, which consistently earns a high RT score.
+---------
+
+# After The Odyssey, Matt Damon's Next Movie Is One Of The Sci-Fi Events Of The Decade
+
+New Movies, Matt Damon
+
+Sun, 13 Sep 2026 21:00:15 GMT
+
+https://screenrant.com/matt-damon-the-daniels-sci-fi-movie-event-the-odyssey/
+
+Matt Damon is having the biggest moment of his career with The Odyssey, but his next movie will be one of the sci-fi events of the decade.
+---------
+
+# Zelda Meets Spirited Away In Beautiful New RPG
+
+Gaming, The Legend of Zelda, Studio Ghibli, Spirited Away, Howl's Moving Castle, PC
+
+Sun, 13 Sep 2026 21:00:15 GMT
+
+https://screenrant.com/zelda-meets-spirited-away-twilight-sword/
+
+The Legend of Zelda collides with Spirited Away in this absolutely beautiful new role-playing game that's available for pre-order now.
+---------
+
+# Netflix Is Losing Paramount+'s Canceled 2-Season Action Sleeper Soon
+
+TV
+
+Sun, 13 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/paramount-canceled-halo-series-leaving-netflix-soon/
+
+One of the most maligned IP adaptations in streaming history is getting booted from Neflix.
+---------
+
+# Harrison Ford's HBO Max Cyberpunk Thriller Is the Perfect Precursor to the Dune Movies
+
+Movies, Blade Runner 2049, Dune, Denis Villeneuve
+
+Sun, 13 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/blade-runner-2049-hbo-max-perfect-dune-precursor/
+
+Dune may be the best space opera, but one cyberpunk thriller paved the road to sci-fi triumph.
+---------
+
+# Anime Series Where the Villain Was Once the Hero
+
+Anime, Attack On Titan, Naruto: Shippuden
+
+Sun, 13 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/anime-series-where-villain-once-hero/
+
+These anime show how former heroes can fall from grace and become the villains they once fought against.
+---------
+
+# Apple TV's 10/10 Spy Show Starts Streaming Domination Ahead of New Episodes
+
+TV, Slow Horses, Apple TV
+
+Sun, 13 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/slow-horses-apple-tv-success-september-2026/
+
+Ahead of Slow Horses' sixth season, the spy thriller is rising back up the streaming charts as more fans tune in.
+---------
+
+# The Italian Job is the Greatest Action Movies of All Time
+
+Movies, The Italian Job, Paramount
+
+Sun, 13 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/paramount-italian-job-best-action-movie-all-time/
+
+With another reboot on the way, Paramount is looking to bring back one of the greatest action movies of all time.
+---------
+
+# 10 Greatest PS1 Games of All Time, Ranked
+
+Games, PlayStation (Original), retro games, Innovation
+
+Sun, 13 Sep 2026 20:45:11 GMT
+
+https://www.cbr.com/greatest-ps1-games-all-time-ranked-list/
+
+PS1 games like Final Fantasy 7 and Resident Evil 2 are the best the console has to offer.
+---------
+
+# No Crunchyroll Required: Demon Slayer Infinity Castle Is Finally Coming to Netflix U.S.
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Netflix
+
+Sun, 13 Sep 2026 20:33:31 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-netflix-us-release/
+
+Over a year after its initial release, Demon Slayer: Infinity Castle is finally coming to Netflix in the U.S.
+---------
+
+# 10 Old-School '60s Cartoons That Are Still Awesome Today
+
+TV, Animation, Scooby-Doo, Where Are You!, The Flintstones
+
+Sun, 13 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/old-school-60s-cartoons-still-awesome-list/
+
+The 1960s were the golden era for retro-style cartoons, and many of the colorful animated shows are still funny and adventurous even today.
+---------
+
+# 10 Anime Series That Will Make You Cry in the Very First Episode
+
+Anime, Oshi No Ko, Attack on Titan
+
+Sun, 13 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/anime-series-will-make-you-cry-first-episode/
+
+These anime are so depressing that they bring fans to tears in their very first episodes.
+---------
+
+# After Being Cancelled in 2025, This Controversial DC Character Joins Teen Titans
+
+Comics, Jason Todd, Teen Titans, DC Comics
+
+Sun, 13 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/jason-todd-teen-titans-return-explained/
+
+DC Comics' new Teen Titans series brings Jason Todd back into the spotlight and puts him at odds with Nightwing.
+---------
+
+# The 1966 Western Quentin Tarantino Called a "Revelation" Is Officially Streaming for Free
+
+Movie News, Django, Western, Quentin Tarantino, Django Unchained
+
+Sun, 13 Sep 2026 21:30:11 GMT
+
+https://collider.com/sergio-corbucci-django-streaming-free-plex-september-2026/
+
+Quentin Tarantino was blown away by this 1966 spaghetti Western directed by Sergio Corbucci; the movie is streaming for free this month.
+---------
+
+# 10 Movies You Need to Watch on Prime Video in September 2026
+
+Movie, Project Hail Mary, The Sheep Detectives, The Thing, The Martian
+
+Sun, 13 Sep 2026 21:23:11 GMT
+
+https://collider.com/10-must-watch-prime-video-movies-september-2026/
+
+The 10 best movies streaming on Prime Video right now, new theatrical hits, prestige classics, and one very good sheep-based murder mystery.
+---------
+
+# Gerard Butler’s Brutal $80M Action Thriller Officially Locks Down a New Streaming Home
+
+Movie News, Gerard Butler, Den of Thieves, Action, Tubi
+
+Sun, 13 Sep 2026 21:15:11 GMT
+
+https://collider.com/gerard-butler-den-of-thieves-streaming-tubi-september-2026/
+
+Gerard Butler’s brutal $80 million action thriller that got a sequel has found a new streaming home. Here's everything you need to know.
+---------
+
+# 'Big Bang Theory' Is Impossible To Watch Today
+
+TV Features, The Big Bang Theory, Sitcom, CBS
+
+Sun, 13 Sep 2026 21:14:11 GMT
+
+https://collider.com/big-bang-theory-problematic-aged-badly/
+
+Not long ago, The Big Bang Theory was something of a cultural juggernaut, so why is it so insufferable now?
+---------
+
+# 2026's Biggest Sci-Fi Disappointment Officially Finds a New Hope on Streaming
+
+Movie News, The Mandalorian and Grogu, Star Wars, Sci-Fi, Disney+
+
+Sun, 13 Sep 2026 21:00:11 GMT
+
+https://collider.com/star-wars-the-mandalorian-and-grogu-streaming-hit-disney-plus-september-2026/
+
+The most surprising sci-fi disappointment of 2026 and Star Wars' first movie in seven years is bouncing back on streaming.
+---------
+
+# Apple TV’s Breakout Hit Is Officially Streaming’s Biggest New Series
+
+TV News, Apple TV, Widow's Bay, Comedy, Horror
+
+Sun, 13 Sep 2026 20:45:11 GMT
+
+https://collider.com/widows-bay-apple-tv-streaming-success-september-2026/
+
+Apple TV's 2026 breakout hit, with a near-perfect Rotten Tomatoes score, remains a streaming juggernaut. Get all the details here.
+---------
+
+# 4 Years Later, HBO’s Award-Winning Sci-Fi Thriller Still Deserves a Proper Ending
+
+TV Features, Westworld, HBO, Sci-Fi, Thriller
+
+Sun, 13 Sep 2026 20:43:11 GMT
+
+https://collider.com/westworld-hbo-series-deserves-proper-ending/
+
+HBO's award-winning sci-fi series 'Westworld' still deserves a proper ending as Jonathan Nolan and Aaron Paul remain hopeful about its return.
+---------
+
+# 'The Batman' Director's Sci-Fi Classic Officially Conquers Free Streaming
+
+Movie News, Cloverfield, Matt Reeves, J.J. Abrams, Sci-Fi
+
+Sun, 13 Sep 2026 20:30:11 GMT
+
+https://collider.com/matt-reeves-jj-abrams-sci-fi-cloverfield-streaming-free-pluto-tv-september-2026/
+
+The Batman director's found-footage kaiju blockbuster is streaming for free this month. Find out more.
+---------
+
+# 10 Stupidest ‘The Far Side’ Characters, Ranked
+
+Books and Comics, Tales from the Far Side, Comics, Comedy, Cartoons
+
+Sun, 13 Sep 2026 20:11:11 GMT
+
+https://collider.com/stupidest-far-side-characters-ranked/
+
+Gary Larson’s The Far Side featured countless foolish people and animals, but these 10 characters made the most hilariously stupid mistakes.
+---------
+
+# Spyro Officially Begins a New Era for First New Game in 2 Decades
+
+Gaming News, Spyro: A Realm Beyond, Activision, Toys for Bob, Gaming
+
+Sun, 13 Sep 2026 20:00:11 GMT
+
+https://collider.com/spyro-a-realm-beyond-arcadian-vale-spyro-2/
+
+Spyro: A Realm Beyond reveals Arcadian Vale, a stunning new world inspired by the charm and magic of Spyro 2: Ripto’s Rage.
+---------
+
+# 8 Perfect Action Thriller Miniseries With 7 Episodes or Less You Can Binge in One Night
+
+TV Lists, Action, Thriller, His & Hers, Mare of Easttown, Echo
+
+Sun, 13 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/action-thriller-miniseries-seven-episodes-or-less/
+
+These action thriller miniseries have compelling characters and only seven episodes or fewer, making them ideal to watch in one evening only.
+---------
+
+# 'Shogun' Season 2 Wraps Filming, Major Changes Confirmed for Acclaimed Epic Series
+
+TV News, Shogun, Hulu, Drama
+
+Sun, 13 Sep 2026 20:30:13 GMT
+
+https://movieweb.com/shogun-season-2-wraps-filming/
+
+Season 2 promises deeper intrigue as seasoned cast members and fresh faces navigate Toranaga’s fraught alliances and shifting loyalties.
+---------
+
+# Alan Ritchson's New 97-Minute Action Thriller Is Officially Set to Break a Career Box Office Record
+
+Movie News, Alan Ritchson, Runner, Box Office Milestones, Action
+
+Sun, 13 Sep 2026 20:30:13 GMT
+
+https://movieweb.com/alan-ritchson-runner-action-box-office-opening/
+
+After mixed results on the big screen, Alan Ritchson appears to be heading for a career-best lead opening with Angel Studios' 'Runner.'
+---------
+
+# “Mindhunter Meets Sherlock” in Ridley Scott’s 6-Part Crime Thriller Nobody Remembers
+
+Features, Numb3rs, Ridley Scott, Thriller, Crime
+
+Sun, 13 Sep 2026 20:30:13 GMT
+
+https://movieweb.com/numbers-ridley-scott-mindhunter-sherlock-comparison/
+
+'Numb3rs' is the perfect combination of math and crime that you didn't know you needed.
+---------
+
+# Forget ‘Justified,’ Timothy Olyphant’s Greatest Western Series Ended 4 Years Earlier
+
+Features, Deadwood, Justified, Western
+
+Sun, 13 Sep 2026 20:01:13 GMT
+
+https://movieweb.com/deadwood-timothy-olyphant-best-western-series/
+
+Before playing Raylan Givens in Justified, Timothy Olyphant starred as Sheriff Seth Bullock in HBO's masterful Western series that changed TV.
+---------
+
 # Breaking Bad Meets Boy World Meets World In Spinoff Episode Designed To “Piss Disney Off”
 
 TV, Girl Meets World
