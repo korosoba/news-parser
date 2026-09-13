@@ -1,3 +1,388 @@
+# 8 Years Later, One Of TV's Most Frustrating Character Exits Still Haunts Us
+
+Classic TV, Masked Recs
+
+Sun, 13 Sep 2026 23:45:14 GMT
+
+https://screenrant.com/the-walking-dead-carl-death-still-bad/
+
+This The Walking Dead character's exit left fans so frustrated that they considered quitting the show entirely. It was never the same again.
+---------
+
+# 8 Forgotten Blue Bloods Characters Who Deserve A Boston Blue Comeback
+
+Network TV, Boston Blue, Blue Bloods
+
+Sun, 13 Sep 2026 23:30:14 GMT
+
+https://screenrant.com/boston-blue-cameos-forgotten-blue-bloods-characters-list/
+
+A group of Blue Bloods characters who should return in Boston Blue as the CBS spinoff continues to build a new world.
+---------
+
+# All 5 Known Ultra Instinct Users In Dragon Ball History
+
+Anime, Dragon Ball
+
+Sun, 13 Sep 2026 23:30:14 GMT
+
+https://screenrant.com/dragon-ball-all-known-ultra-instinct-users/
+
+Goku was the first mortal to unlock the use of the divine Ultra Instinct technique, but there are other Dragon Ball characters who are better with it.
+---------
+
+# The Last Of Us Star’s 93-Minute Sci-Fi Movie Is One Of Hulu’s Greatest Hidden Gems
+
+Movies, No One Will Save You, Kaitlyn Dever
+
+Sun, 13 Sep 2026 23:15:15 GMT
+
+https://screenrant.com/no-one-will-save-you-movie-kaitlyn-dever-hulu-hidden-gem/
+
+No One Will Save You is one of Hulu’s best hidden gems. Kaitlyn Dever’s performance and the movie’s lack of dialogue make a strong case.
+---------
+
+# DC's Most Underrated "Robin" Death Secretly Revealed A Major Batman Mystery 2 Decades Ago
+
+Comics, Robin, Batman
+
+Sun, 13 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/dc-kill-robin-answers-batman-question/
+
+The people of Gotham have a lot of questions about Batman's motives
+---------
+
+# Supernatural Meets American Horror Story In The 80-Episode Show That Redefined Fantasy
+
+Classic TV, Masked Recs
+
+Sun, 13 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/true-blood-hbo-show-redefined-fantasy-tv/
+
+Fantasy is often associated with ancient settings and epic sagas, but True Blood redefined fantasy through its humor and unusual setting for the genre
+---------
+
+# Stuntman: Hollywood Revitalizes The Classic Series In All Its Hardcore Glory
+
+Gaming, Stuntman: Hollywood, Triple-A Games
+
+Sun, 13 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/stuntman-gamescom-preview/
+
+Stuntman: Hollywood revives the nearly twenty-year-old series with some genuinely terrific movie-inspired challenges and bombastic visuals.
+---------
+
+# Alien: Earth Season 2 New Set Photos Bring Major Franchise Corporation To Life
+
+TV, Alien: Earth
+
+Sun, 13 Sep 2026 22:55:14 GMT
+
+https://screenrant.com/alien-earth-season-2-new-set-photos-weyland-yutani/
+
+New set photos from the production of Alien: Earth's highly anticipated upcoming second season shows the dramatic return of a major corporation.
+---------
+
+# NBC Repeats The Fatal Mistake That Nearly Killed Chicago Fire
+
+Network TV, One Chicago, Chicago Fire
+
+Sun, 13 Sep 2026 22:45:14 GMT
+
+https://screenrant.com/chicago-fire-season-15-fatal-mistake-repeat-nbc/
+
+Chicago Fire softly rebooting for season 15, but NBC's refusal to let go of the past leads it to repeating the mistake that almost ended the show.
+---------
+
+# 8 That '70s Show Episodes That Have Aged Like Milk
+
+Classic TV, That '70s Show
+
+Sun, 13 Sep 2026 22:30:14 GMT
+
+https://screenrant.com/that-70s-show-episodes-aged-badly/
+
+These eight That '70s Show episodes haven't aged well, containing outdated jokes about consent, sexuality, body image, race, and harassment.
+---------
+
+# Transformers' 65-Episode Animated Series Makes the Movies Look Small
+
+Anime, Transformers
+
+Sun, 13 Sep 2026 23:45:11 GMT
+
+https://www.cbr.com/transformers-65-episode-animated-series-better-than-movies/
+
+One animated Transformers movie is better than every single movie to star the Autobots and Decepticons.
+---------
+
+# The WB's 28-Year-Old Cult Drama Is Leaving Netflix Next Month
+
+TV, Dawson's Creek
+
+Sun, 13 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/dawsons-creek-leaving-netflix-october-2026/
+
+One of the most beloved teen dramas of all time is about to lose its biggest streaming home, although fans still have time for a rewatch.
+---------
+
+# 10 Strongest Monsters in Anime History, Ranked
+
+Anime, Dragon Ball, Attack on Titan
+
+Sun, 13 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/strongest-monsters-in-anime-history-ranked/
+
+Monsters are present across countless anime, and these magical beasts are the strongest of them all.
+---------
+
+# Kit Harington's Adaptation Of 167-Year-Old Classic Is the Most-Watched Show on Streaming
+
+TV, A Tale Of Two Cities, Kit Harington, Drama
+
+Sun, 13 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/a-tale-of-two-cities-historical-drama-mgm-success-septemeber-2026/
+
+Kit Harington's miniseries adaptation of A Tale of Two Cities, an all-time classic, is a streaming hit.
+---------
+
+# Captain James Kirk is Officially Star Trek's Worst Fugitive
+
+Comics, Star Trek
+
+Sun, 13 Sep 2026 22:53:55 GMT
+
+https://www.cbr.com/star-trek-last-starship-10-review-kirk-sato-fugitive/
+
+In a CBR review of Star Trek: The Last Starship #10, see how James Kirk has become the worst fugitive that Starfleet has ever known
+---------
+
+# Pokémon Finally Gets the New Game Fans Waited 30 Years For
+
+Games, Pokemon, Innovation
+
+Sun, 13 Sep 2026 22:32:11 GMT
+
+https://www.cbr.com/pokemon-mmorpg-fan-game-green-trainers-online/
+
+A Pokémon MMORPG is finally here thanks to Green Trainers Online.
+---------
+
+# Channing Tatum's 109-Minute Action Remake Film Series Soars on Streaming Ahead of Sequel
+
+Movies, 21 Jump Street, Action, Paramount Plus
+
+Sun, 13 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/21-jump-street-sequel-streaming-success-paramount-plus-september-2026/
+
+One of the most iconic action-comedy franchises of all time is coming back--and it's a massive hit on streaming.
+---------
+
+# How Yu-Gi-Oh!'s Most OP Deck Won The World Championship Series
+
+Games, Yu-Gi-Oh!, Tabletop
+
+Sun, 13 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/yu-gi-oh-op-deck-won-world-championship-series/
+
+The Yu-Gi-Oh! WORLD CHAMPIONSHIP SERIES 2026 was won by an OP deck that took apart the opponent before they could even get their field going.
+---------
+
+# Gerard Butler's 129-Minute Action Epic Based on a True Story Explodes on Streaming
+
+Movies, Machine Gun Preacher, Action, Paramount Plus
+
+Sun, 13 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/machine-gun-preacher-action-drama-paramount-success-september-2026/
+
+Gerard Butler's biographical action drama, Machine Gun Preacher, is one of the most-watched movies on Paramount+.
+---------
+
+# Dragon Ball Unearths Akira Toriyama's Original Piccolo Cover Design After 37 Years
+
+Anime, Dragon Ball
+
+Sun, 13 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/dragon-ball-akira-toriyama-original-piccolo-cover-design/
+
+Dragon Ball fans just got what might be their best look ever at a classic piece of Akira Toriyama cover art featuring a franchise icon.
+---------
+
+# 'Lanterns' Star's 'Reacher'-Like Crime Thriller Is Officially Taking Over the World
+
+Movie News, Rebel Ridge, Aaron Pierre, Netflix, Lanterns
+
+Sun, 13 Sep 2026 23:45:11 GMT
+
+https://collider.com/aaron-pierre-rebel-ridge-streaming-success-netflix-september-2026/
+
+Aaron Pierre's near-perfect Netflix crime thriller with shades of Reacher and Rambo is officially taking over the world again.
+---------
+
+# 'The Simpsons' Officially Finds Its Most Bizarre Guest Star Yet
+
+TV News, WWE, The Simpsons, pro wrestling, Animation
+
+Sun, 13 Sep 2026 23:30:11 GMT
+
+https://collider.com/the-simpsons-wwe-danhausen-guest-star-campaign/
+
+WWE Superstar Danhausen has revealed that he dreams of appearing on The Simpsons, and the bizarre fan-favorite already belongs in Springfield.
+---------
+
+# 'The Gilded Age' Meets 'My Brilliant Career' in BritBox's Overlooked 2-Part Historical Series
+
+TV Features, The Hardacres, Britbox, Drama, History
+
+Sun, 13 Sep 2026 23:27:11 GMT
+
+https://collider.com/the-hardacres-britbox-drama-gilded-age-meets-my-brilliant-career/
+
+BritBox's The Hardacres is the perfect historical drama to binge while you wait for new episodes of The Gilded Age.
+---------
+
+# 7 Greatest Western Shows With Fewer Than 40 Episodes
+
+TV, Western, Deadwood, 1883, Godless
+
+Sun, 13 Sep 2026 23:21:11 GMT
+
+https://collider.com/best-western-shows-under-40-episodes/
+
+HBO's Deadwood, Paramount+'s 1883, and ABC's How the West Was Won are among the greatest Western shows that have less than 40 episodes total.
+---------
+
+# '9-1-1' Officially Confirms Maddie and Eddie's Future in Season 10
+
+TV News, 9-1-1, ABC, Ryan Guzman, Jennifer Love Hewitt
+
+Sun, 13 Sep 2026 23:00:11 GMT
+
+https://collider.com/9-1-1-season-10-maddie-eddie-scene-ryan-guzman-jennifer-love-hewitt/
+
+9-1-1 Season 10 will officially feature Maddie and Eddie's first scene together after nine years. Find out more here.
+---------
+
+# 'Naruto' Is Hiding a Genius 'Dragon Ball' Reference in Plain Sight
+
+TV Features, Naruto, Naruto: Shippuden, Dragon Ball, Anime
+
+Sun, 13 Sep 2026 22:46:11 GMT
+
+https://collider.com/naruto-dragon-ball-z-four-tails-son-goku/
+
+Masashi Kishimoto pays tribute to Akira Toriyama's Dragon Ball with a tailed beast named Son Goku and his jinchuriki, Roshi.
+---------
+
+# New Harry Potter Replacement Officially Sets 2026 Release Window
+
+Gaming News, Hogwarts Legacy, Harry Potter, Gaming, Stardew Valley
+
+Sun, 13 Sep 2026 22:45:11 GMT
+
+https://collider.com/harry-potter-stardew-valley-witchbrook-game-release-window-2026/
+
+Witchbrook combines the magic of Harry Potter with Stardew Valley, offering classes, cozy living, and 11 romanceable characters.
+---------
+
+# 'Tracker' Officially Makes Major Change for Season 4
+
+TV News, Tracker, CBS, The Walking Dead
+
+Sun, 13 Sep 2026 22:30:11 GMT
+
+https://collider.com/tracker-season-4-cast-cassady-mcclincy-zhang-series-regular-plot-twist/
+
+Tracker is making a major change in its fourth season, as a major cast member has been promoted ahead of the show's return. Here's all to know.
+---------
+
+# 10 Greatest Vampires in 'The Vampire Diaries,' Ranked
+
+TV, The Vampire Diaries, The CW, Vampire, Fantasy
+
+Sun, 13 Sep 2026 22:21:11 GMT
+
+https://collider.com/the-vampire-diaries-greatest-vampires-ranked/
+
+Nina Dobrev's Katherine Pierce and Paul Wesley's Stefan Salvatore left their mark on Mystic Falls, but who is the best vampire in The Vampire Diaries?
+---------
+
+# Netflix's Hit Fantasy Anime Officially Returns This Month With New Episodes
+
+TV News, JoJo's Bizarre Adventure, Netflix, Anime, Jojo's Bizarre Adventure
+
+Sun, 13 Sep 2026 22:15:11 GMT
+
+https://collider.com/jojos-bizarre-adventure-steel-ball-run-streaming-netflix-september-2026/
+
+After six months with no new episodes, Netflix's hit anime returns later this month. Get all the details here.
+---------
+
+# 10 Best Sci-Fi Movies to Watch While Waiting for Silo Season 4
+
+Movie Lists, Sci-Fi, Silo, The Matrix
+
+Sun, 13 Sep 2026 23:30:13 GMT
+
+https://movieweb.com/sci-fi-movies-watch-waiting-silo-season-4/
+
+Missing Silo already? These dystopian and cerebral sci-fi movies are packed with mystery and paranoia.
+---------
+
+# Prime Video's New 104-Minute Steamy Thriller Is Officially the Biggest Movie on Streaming
+
+Movie News, Drawn Together, Hot on Streaming, Prime Video
+
+Sun, 13 Sep 2026 23:00:13 GMT
+
+https://movieweb.com/drawn-together-prime-video-global-hit-sept-2026/
+
+Prime Video’s latest Mercedes Ron adaptation, 'Drawn Together,' has climbed to the top of the streamer’s worldwide movie chart.
+---------
+
+# 10 Netflix Thriller Series That Will Get You Hooked in Under 5 Minutes
+
+TV Lists, Netflix, Thriller
+
+Sun, 13 Sep 2026 23:00:13 GMT
+
+https://movieweb.com/netflix-thriller-series-hooked-in-under-5-minutes/
+
+These Netflix thriller shows will have you on the edge of your seat from the opening moments right until the final credits roll.
+---------
+
+# Forget 'Lioness,' Paramount's 114-Episode Military Action Thriller Is One of the Biggest Shows in the World
+
+TV News, SEAL Team, Paramount Plus, Hot on Streaming, Lioness, Action
+
+Sun, 13 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/seal-team-lioness-taylor-sheridan-action-stream-paramount-sept-2026/
+
+Taylor Sheridan, who?
+---------
+
+# 10 Sci-Fi Movies So Good, Everyone Forgets They’re Remakes
+
+Movie Lists, Sci-Fi
+
+Sun, 13 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/sci-fi-movies-everyone-forgets-remakes/
+
+From 'The Thing' to '12 Monkeys', some sci-fi remakes are so good and popular that people forget they're adapted from previous renditions.
+---------
+
 # DC's Strongest Villain Is So Powerful, They Make Darkseid Look Like A Joke
 
 Comics, DC Comics, Darkseid
