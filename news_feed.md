@@ -1,3 +1,256 @@
+# Star Wars Jedi: Fallen Order Just Got An Official Prequel
+
+Gaming, Star Wars Jedi: Fallen Order, Star Wars, Star Wars Zero Company
+
+Sun, 13 Sep 2026 07:13:45 GMT
+
+https://screenrant.com/star-wars-zero-company-jedi-prequel-second-sister/
+
+Star Wars Jedi: Fallen Order debuted many great characters in Star Wars lore, and the latest Star Wars game has honored one of them immensely.
+---------
+
+# The Expanse Season 1 Is A Different Genre To The Book It's Based On
+
+Classic TV, The Expanse
+
+Sun, 13 Sep 2026 07:00:15 GMT
+
+https://screenrant.com/the-expanse-season-1-different-genre-book/
+
+The Expanse is widely regarded as one of the more faithful book-to-screen adaptations on streaming, but season 1 doesn't share first book's genre.
+---------
+
+# A Knight Of The Seven Kingdoms Officially Returns In Winter 2026 With New Set
+
+Gaming, A Knight Of The Seven Kingdoms, Game of Thrones, Game Of Thrones, PC
+
+Sun, 13 Sep 2026 06:00:14 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-winter-2026-tcg-release/
+
+A Knight of the Seven Kingdoms fans are getting a brand-new release this winter, bringing back some of the most beloved characters from Season 1.
+---------
+
+# Netflix’s 26-Episode Time Travel Masterpiece Deserves Kudos For Respecting Viewers’ Intelligence
+
+Classic TV, Masked Recs
+
+Sun, 13 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/netflix-dark-time-travel-kudos-for-respecting-audience/
+
+Netflix’s 26-part time travel series, Dark, is a rare sci-fi show that respects its audience’s intelligence and never dumbs down its vision and plot.
+---------
+
+# Star Trek: Know Thy Enemy Officially Announced
+
+Gaming, Star Trek, Star Trek Online, PC
+
+Sun, 13 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/star-trek-online-know-thy-enemy-tfo/
+
+Star Trek returns with another amazing 60th anniversary celebration and the announcement of Know Thy Enemy, available September 22.
+---------
+
+# Diablo 4 Free Download Officially Available Until September 15
+
+Gaming, Diablo, Diablo 4
+
+Sun, 13 Sep 2026 04:00:19 GMT
+
+https://screenrant.com/diablo-4-free-twitch-drops-blizzcon-48-hours/
+
+Blizzcon is full steam ahead right now, and you still have a short amount of time to claim some exciting in-game rewards.
+---------
+
+# Crunchyroll’s Next Anime Could Give Shonen Fans a New Masterpiece
+
+Anime, Crunchyroll, Masked Recs
+
+Sun, 13 Sep 2026 03:55:49 GMT
+
+https://screenrant.com/crunchyroll-new-shonen-anime-psyren-masterpiece/
+
+Shonen fans are clamoring for a new flagship title, and a series premiering soon on Crunchyroll has all the ingredients to become anime's next big hit
+---------
+
+# Alan Ritchson's New Action-Packed Thriller Officially Sets All-Time Rotten Tomatoes Audience Record
+
+Movies, Masked Recs, Alan Ritchson
+
+Sun, 13 Sep 2026 03:43:19 GMT
+
+https://screenrant.com/alan-ritchson-runner-movie-rotten-tomatoes-audience-score-record/
+
+Alan Ritchson's new action-packed thriller is now in theaters, and the official audience score sets an all-time Rotten Tomatoes record.
+---------
+
+# BlizzCon 2026: What's Next For Hearthstone Battlegrounds
+
+Gaming, Hearthstone, Triple-A Games, BlizzCon
+
+Sun, 13 Sep 2026 03:43:10 GMT
+
+https://screenrant.com/hearthstone-battlegrounds-blizzcon-2026-interview/
+
+Live at BlizzCon 2026, Blizzard announced a slew of new additions coming to Hearthstone, and we sat down with the team to talk about it.
+---------
+
+# Where Was Sugar Filmed? All L.A. Shooting Locations Explained
+
+Streaming TV, Sugar
+
+Sun, 13 Sep 2026 03:30:15 GMT
+
+https://screenrant.com/where-was-sugar-show-filmed/
+
+Apple TV+'s new genre-bending detective series, Sugar, uses real Los Angeles, California filming locations to create an authentic, compelling story.
+---------
+
+# 'Unhinged' Sci-Fi Creature Feature Debuts to High Praise from Both Critics and Audiences
+
+Movies, Hope
+
+Sun, 13 Sep 2026 03:54:18 GMT
+
+https://www.cbr.com/hope-rotten-tomatoes-audience-score/
+
+Michael Fassbender is featured in the wild sci-fi thriller described as the year's most "unhinged" movie.
+---------
+
+# 5 Forgotten Sci-Fi Anime That Have Aged Like Fine Wine
+
+Anime, Sci-Fi, Time of Eve, Plastic Memories
+
+Sun, 13 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/forgotten-sci-fi-anime-aged-well-list/
+
+Forgotten sci-fi anime like Silent Möbius and Time of Eve fuse grim ethics with tender human moments, exposing the hidden cost of survival.
+---------
+
+# Star Trek: Strange New Worlds Star Addresses Final Season's Major Captain Kirk Twist
+
+TV, Star Trek: Strange New Worlds
+
+Sun, 13 Sep 2026 03:32:24 GMT
+
+https://www.cbr.com/star-trek-strange-new-worlds-captain-kirk-twist/
+
+Paul Wesley shares an intriguing update on the final season of Star Trek: Strange New Worlds.
+---------
+
+# George RR Martin's 'Electrifying' Thriller With 100% RT Is a 4-Season Sleeping Giant
+
+TV, Dark Winds, AMC, Thriller
+
+Sun, 13 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/amc-dark-winds-george-rr-martin-underrated-thriller/
+
+For those in need of a new neo-Western series with a supernatural edge, look no further than this George R. R. Martin-produced thriller series on AMC.
+---------
+
+# 10 Things You’re Getting Wrong About The Far Side
+
+Comics, The Far Side
+
+Sun, 13 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/things-everyone-gets-wrong-about-the-far-side/
+
+The Far Side is one of the most popular comic strips of all time, but not everyone understands its jokes.
+---------
+
+# After The Witcher and Castlevania, Netflix Is Bringing 1 of Gaming's Darkest Franchises to TV
+
+TV, Diablo
+
+Sun, 13 Sep 2026 03:15:16 GMT
+
+https://www.cbr.com/netflix-diablo-animated-series/
+
+Netflix's next major video game adaptation has been revealed.
+---------
+
+# 10 Greatest Harry Potter Games, Ranked
+
+Games, Harry Potter, Harry Potter: Quidditch Champions, ps5
+
+Sun, 13 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/greatest-harry-potter-games-ranked/
+
+The Harry Potter franchise has birthed many video games over the decades, and these are the best of the best.
+---------
+
+# Dandadan Creator Celebrates the Next Hit Martial Arts Action Series
+
+Anime, Dandadan
+
+Sun, 13 Sep 2026 03:00:11 GMT
+
+https://www.cbr.com/dandadan-tatsu-yukinobu-bouryoku-banzai-design/
+
+Dandadan creator Tatsu Yukinobu teams up with Kodansha to hype up the publisher's new martial-arts action manga.
+---------
+
+# Every Zelda Game You Still Can't Play on Nintendo Switch 2
+
+Games, The Legend of Zelda, Nintendo, Nintendo Switch
+
+Sun, 13 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/every-zelda-game-cant-play-nintendo-switch-2/
+
+The Nintendo Switch 2 has tons of amazing games from The Legend of Zelda franchise, but a handful still aren't available on the system.
+---------
+
+# Peacock Pulls the Plug on Ozark Creator's Ultra-Violent Crime Thriller After 1 Season
+
+TV, M.I.A.
+
+Sun, 13 Sep 2026 02:44:22 GMT
+
+https://www.cbr.com/mia-canceled-peacock/
+
+The show drew comparisons to Breaking Bad and Ozark, but it won't have the same longevity.
+---------
+
+# Brad Pitt’s Ancient Greek Epic Is the Perfect ‘Odyssey’ Replacement
+
+Movie Features, Troy, The Odyssey, Brad Pitt, Matt Damon
+
+Sun, 13 Sep 2026 04:08:11 GMT
+
+https://collider.com/troy-brad-pitt-odyssey-apple-tv-streaming-september-2026/
+
+Brad Pitt's 2004 Greek epic Troy, which is the second most-streamed film on Apple TV, is perfect for Odyssey fans craving more.
+---------
+
+# Netflix’s 8-Part Sci-Fi Sleeper Hit Is Anchored by a Masterclass Performance
+
+TV Features, Bodies, Netflix, Sci-Fi, Kyle Soller
+
+Sun, 13 Sep 2026 03:43:11 GMT
+
+https://collider.com/netflix-best-sci-fi-performance-bodies-kyle-soller/
+
+Netflix’s Bodies is an 8-part sci-fi mystery anchored by Kyle Soller’s near-perfect performance as Detective Hillinghead.
+---------
+
+# 8 Greatest Sci-Fi Thrillers With 8 Episodes or Less For a Perfect Weekend Binge
+
+TV Lists, Sci-Fi, Thriller
+
+Sun, 13 Sep 2026 02:31:42 GMT
+
+https://movieweb.com/best-sci-fi-thriller-series-8-episodes-or-less/
+
+If you're looking for a sci-fi thriller to binge over a weekend, these series will take you on adventures through time and space.
+---------
+
 # World Of Warcraft Retail Devs On Controller Support: "Never Say Never"
 
 Gaming, World of Warcraft, Triple-A Games
