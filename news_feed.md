@@ -1,3 +1,355 @@
+# World Of Warcraft Retail Devs On Controller Support: "Never Say Never"
+
+Gaming, World of Warcraft, Triple-A Games
+
+Sun, 13 Sep 2026 02:26:05 GMT
+
+https://screenrant.com/world-of-warcraft-controller-support-blizzcon-answer/
+
+While World of Warcraft: Forever is getting controller support, developers we spoke to about getting controllers into Retail didn't rule it out.
+---------
+
+# The Blues Brothers Gets A Legendary LEGO Redesign 46 Years Later
+
+Movies, The Blues Brothers
+
+Sun, 13 Sep 2026 02:25:29 GMT
+
+https://screenrant.com/the-blues-brothers-lego-redesign-2026/
+
+The Blues Brothers and one of its most iconic symbols gets a brand-new LEGO redesign nearly five decades after its initial theatrical release.
+---------
+
+# The Pitt Meets The Boys In New 2-Part Series Coming This October
+
+DC Comics, DC
+
+Sun, 13 Sep 2026 02:00:24 GMT
+
+https://screenrant.com/gotham-gneeral-bad-seeds-pitt-meets-boys/
+
+DC's Gotham City is hellish on any day of the week, and we're finally getting a miniature hospital drama that chronicles the Gotham General staff.
+---------
+
+# Apple TV's 'Once Upon A Time x Rise Of The Guardians' Fantasy Series Is Officially Back Next Month
+
+Streaming TV, Masked Recs
+
+Sun, 13 Sep 2026 02:00:24 GMT
+
+https://screenrant.com/sisters-grimm-apple-tv-season-2-return-october-2026/
+
+October brings back Apple TV's most charming fantasy, which combines the heart and soul of projects like Once Upon a Time and Rise of the Guardians.
+---------
+
+# 20 Years Ago, This Forgotten Pokémon Game Made History On Nintendo DS
+
+Gaming, Pokemon, Nintendo DS, Triple-A Games
+
+Sun, 13 Sep 2026 02:00:24 GMT
+
+https://screenrant.com/forgotten-pokemon-game-ranger-nintendo-ds-20-years/
+
+Before the release of Pokémon Diamond and Pearl on the Nintendo DS, another Pokémon game made history on the platform with its innovative gameplay.
+---------
+
+# Rockstar Officially Confirms GTA 6 Will Be Better On PS5
+
+Gaming, Rockstar Games, Grand Theft Auto 6, Grand Theft Auto, Take-Two Interactive, PlayStation 5, PlayStation, Sony, PC
+
+Sun, 13 Sep 2026 02:00:24 GMT
+
+https://screenrant.com/gta-6-dual-sense-controllers-ps5-better-rockstar/
+
+Rockstar has made it abundantly clear that Grand Theft Auto 6 will be leagues better when played on PlayStation 5. Sorry XBOX fans.
+---------
+
+# Netflix’s 8-Part Edgar Allan Poe Show Is 1 Of The Greatest Horror Adaptations Of The Century
+
+Classic TV, Masked Recs
+
+Sun, 13 Sep 2026 01:45:15 GMT
+
+https://screenrant.com/netflix-fall-of-house-usher-edgar-allan-poe-greatest-horror/
+
+Netflix is the streaming home of an 8-Part Edgar Allan Poe adaptation that easily ranks among some of the greatest horror TV shows of the century.
+---------
+
+# Stephen King's Favorite Horror Series Is A 67-Episode Masterpiece That Deserves To Be As Big As The Twilight Zone
+
+Classic TV, Masked Recs
+
+Sun, 13 Sep 2026 01:30:15 GMT
+
+https://screenrant.com/thriller-stephen-king-favorite-horror-tv-show-like-twilight-zone/
+
+Most TV viewers would consider The Twilight Zone to be the greatest horror series ever made, but Stephen King has a different favorite: Thriller.
+---------
+
+# Ozark Creator’s New Crime Thriller Cancelled After One Season
+
+TV, M.I.A.
+
+Sun, 13 Sep 2026 01:26:04 GMT
+
+https://screenrant.com/mia-cancelled-after-one-season-peacock/
+
+Peacock has cancelled its new crime thriller series developed by the creator of Ozark,  Bill Dubuque, after just one season.
+---------
+
+# Casting Firefly If It Was Made In 2026: All 9 Main Roles
+
+Classic TV, Firefly
+
+Sun, 13 Sep 2026 01:15:15 GMT
+
+https://screenrant.com/firefly-actors-recasting-for-2026/
+
+The cult classic space Western made an impact when it aired in 2002, but if it were made today, these actors could give the show new life.
+---------
+
+# 10 Games to Play If You Love Fallout
+
+Games, The Outer Worlds, Cyberpunk 2077, Horizon Zero Dawn, Fallout
+
+Sun, 13 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/games-to-play-if-you-love-fallout/
+
+For fans of the Fallout franchise looking for refreshing yet similar experiences, these games provide the same level of exhilaration.
+---------
+
+# 6 '90s Cartoons Better Than Batman: The Animated Series
+
+TV, Batman: The Animated Series, cartoons, X-Men: The Animated Series
+
+Sun, 13 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/90s-cartoons-better-than-batman-the-animated-series-list/
+
+Batman: The Animated Series is one of the greatest cartoons of the '90s, but there are a few that surpass its iconic legacy.
+---------
+
+# 10 Fantasy Anime With No Weak Arcs
+
+Anime, Mushoku Tensei: Jobless Reincarnation, Fullmetal Alchemist: Brotherhood
+
+Sun, 13 Sep 2026 01:45:11 GMT
+
+https://www.cbr.com/fantasy-anime-no-weak-arcs-list/
+
+Masterpiece fantasy anime like Delicious in Dungeon and Frieren: Beyond Journey's End are nail-bitingly perfect—no weak arcs allowed!
+---------
+
+# 5 Long Action RPGs You Can Play for Months
+
+Games, action rpg, Path of Exile, Assassin's Creed Odyssey
+
+Sun, 13 Sep 2026 01:25:11 GMT
+
+https://www.cbr.com/long-action-rpgs-to-invest-in/
+
+Action role-playing games are notorious for being quite lengthy, and these will keep you busy for ages.
+---------
+
+# Gal Gadot’s New 84-Minute Action Movie Gets Dethroned as the No. 1 Movie on Streaming
+
+Movies, The Runner
+
+Sun, 13 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/gal-gadot-the-runner-loses-no-1-drawn-together-prime-video-global-september-2026/
+
+The movie had set an unfortunate record for Gadot.
+---------
+
+# 21 Years Later, Disney+'s 140-Minute Space Opera Still Has Sci-Fi’s Greatest Space Battle
+
+Movies, Star Wars, Star Wars: Episode III - Revenge of the Sith, Sci-Fi, Innovation
+
+Sun, 13 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/star-wars-revenge-of-the-sith-best-space-battle-in-sci-fi/
+
+Star Wars: Episode III - Revenge of the Sith featured the greatest space battle in the Star Wars franchise.
+---------
+
+# Square Enix's Fullmetal Alchemist Successor Has Good News for Fans as Season 1 Ends
+
+Anime, Daemons of the Shadow Realm, Square Enix, Manga
+
+Sun, 13 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/daemons-of-the-shadow-realm-square-enix-manta-join/
+
+The latest hit anime series by Fullmetal Alchemist creator Hiromu Arakawa just got a major positive update just days before the Season One finale.
+---------
+
+# 10 Most Universally Loved Anime Series of All Time, Ranked
+
+Anime, Pokémon, Cowboy Bebop
+
+Sun, 13 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/most-universally-loved-anime-series-ever-ranked-list/
+
+It's hard to be a universal crowd-pleaser, but anime like Gurren Lagann, One Piece, and Pokémon make it look easy!
+---------
+
+# Bruce Willis' $263M Sci-Fi Cult Classic Leaves Streaming Next Month
+
+Movies, The Fifth Element, bruce willis, Netflix
+
+Sun, 13 Sep 2026 00:42:16 GMT
+
+https://www.cbr.com/bruce-willis-sci-fi-cult-classic-the-fifth-element-leaves-streaming/
+
+One of the most slept on films in Bruce Willis' illustrious career is getting the boot.
+---------
+
+# Zelda: Ocarina of Time’s New Dialogue Could Finally Explain Hyrule’s Dark History
+
+Games, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Sun, 13 Sep 2026 00:30:11 GMT
+
+https://www.cbr.com/zelda-ocarina-time-remake-new-dialogue-hyrule-history/
+
+Eiji Aonuma said Nintendo "added quite a lot of new dialogue" to the Ocarina of Time remake, so we may finally learn Hyrule's recent history.
+---------
+
+# 8 Most Fun Fantasy Shows of All Time, Ranked
+
+TV, Fantasy, Charmed, Sabrina the Teenage Witch, Once Upon A Time
+
+Sun, 13 Sep 2026 01:33:11 GMT
+
+https://collider.com/most-fun-fantasy-shows-all-time-ranked/
+
+Once Upon a Time, What We Do in the Shadows, Charmed, Merlin, and more make up our list of the most fun fantasy shows of all time.
+---------
+
+# 10 Netflix K-Dramas Where Every Episode Is a Masterpiece
+
+TV, South Korea, Kingdom, Bloodhounds, All Of Us Are Dead
+
+Sun, 13 Sep 2026 01:03:11 GMT
+
+https://collider.com/netflix-k-dramas-every-episode-masterpiece/
+
+From coming-of-age shows like All of Us Are Dead to crime thrillers like Bloodhounds, every episode of these Netflix K-dramas is a true masterpiece.
+---------
+
+# One of the 21st Century’s Most Stunning Sci-Fi Movies Is Officially Streaming for Free
+
+Movie News, District 9, Neill Blomkamp, Peter Jackson, Sci-Fi
+
+Sun, 13 Sep 2026 01:00:11 GMT
+
+https://collider.com/district-9-sci-fi-classic-streaming-free-pluto-tv-september-2026/
+
+A modern sci-fi classic that received a Best Picture nod at the Oscars is streaming for free this month. Find out more.
+---------
+
+# Daniel Day-Lewis’ First Movie in 8 Years Officially Gets a Second Chance on HBO Max
+
+Movie News, HBO Max, Daniel Day-Lewis, Anemone, Sean Bean
+
+Sun, 13 Sep 2026 00:45:11 GMT
+
+https://collider.com/daniel-day-lewis-anemone-streaming-hit-hbo-max-september-2026/
+
+HBO Max subscribers can't get enough of Daniel Day-Lewis' first movie in 8 years which was directed by his son, Anemone. Read on for more.
+---------
+
+# 'Breaking Bad' Creator's Cult Classic Superhero Epic Officially Soars Onto Free Streaming
+
+Movie News, Hancock, Will Smith, Charlize Theron, Superhero
+
+Sun, 13 Sep 2026 00:30:11 GMT
+
+https://collider.com/will-smith-charlize-theron-superhero-hancock-streaming-free-pluto-tv-september-2026/
+
+A superhero blockbuster that is long overdue a sequel is streaming for free this month. Find out more.
+---------
+
+# The Biggest Fantasy Series Ever Made Is Officially Still a #1 Global Streaming Smash
+
+TV News, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms, George R.R. Martin
+
+Sun, 13 Sep 2026 00:15:11 GMT
+
+https://collider.com/game-of-thrones-streaming-success-hbo-max-september-2026/
+
+The biggest fantasy show ever made that's still getting new spin-offs is a #1 worldwide smash on streaming charts.
+---------
+
+# Guy Ritchie’s ‘Indiana Jones’-Style Adventure Is Officially a 250-Day Streaming Megahit
+
+Movie News, Fountain of Youth, Guy Ritchie, Apple TV, John Krasinski
+
+Sun, 13 Sep 2026 00:00:11 GMT
+
+https://collider.com/guy-ritchie-fountain-of-youth-streaming-success-apple-tv-250-days/
+
+Guy Ritchie's 2025 action thriller with shades of Indiana Jones and Uncharted has been a streaming hit for 250 days now.
+---------
+
+# Apple TV's 97% RT Spy Thriller Officially Proves Its Star Never Needed James Bond
+
+TV Features, Slow Horses, Apple TV, Jack Lowden, Thriller
+
+Sat, 12 Sep 2026 23:52:11 GMT
+
+https://collider.com/slow-horses-apple-tv-spy-thriller-jack-lowden-james-bond/
+
+Jack Lowden's performance in Apple TV's spy thriller Slow Horses outshines the need for his potential casting as James Bond.
+---------
+
+# Bruce Willis' "Bravely Original" Sci-Fi Masterpiece Is Officially on Streaming
+
+Movie News, Looper, Rian Johnson, Bruce Willis, Joseph Gordon-Levitt
+
+Sat, 12 Sep 2026 23:45:11 GMT
+
+https://collider.com/bruce-willis-time-travel-looper-streaming-starz-september-2026/
+
+One of Rian Johnson's many critically acclaimed hits — this one is a sci-fi thriller — has been added to Starz. Find out more.
+---------
+
+# 9 Years Later, David Tennant's Thriller Masterpiece Still Has the Greatest Detective Duo
+
+Features, Broadchurch, David Tennant, Thriller
+
+Sun, 13 Sep 2026 00:45:13 GMT
+
+https://movieweb.com/broadchurch-david-tennant-olivia-colman-best-detective-duo/
+
+Detective duos can hook viewers on a series as much as a mystery, and one of the best on thriller TV comes from David Tennant's masterpiece.
+---------
+
+# James Bond Favorite's 10/10 Spy Thriller Is Officially a Global Sensation Ahead of Its New Season
+
+TV News, James Bond, Slow Horses, Apple TV, Hot on Streaming
+
+Sun, 13 Sep 2026 00:00:13 GMT
+
+https://movieweb.com/slow-horses-new-james-bond-apple-stream-sept-2026/
+
+'Slow Horses' is busy climbing Apple TV+ charts ahead of its season 6 premiere.
+---------
+
+# Ridley Scott's 39% RT War Movie Became a Hidden Gem Masterpiece With Its 189-Minute Director's Cut
+
+Features, Ridley Scott, Kingdom of Heaven, War
+
+Sun, 13 Sep 2026 00:00:13 GMT
+
+https://movieweb.com/ridley-scott-kingdom-of-heaven-masterpiece-directors-cut/
+
+Had the director's cut been released in theaters, the divisive war epic would be hailed as one of Ridley Scott's masterpieces.
+---------
+
 # Jason Momoa's 'The Patriot Meets Billions' Series On Netflix Is Still Massively Underrated 9 Years Later
 
 Classic TV, Masked Recs
