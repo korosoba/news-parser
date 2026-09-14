@@ -1,3 +1,377 @@
+# 8 Most Iconic Superheroes Who Don't Belong To Marvel Or DC
+
+Comics
+
+Mon, 14 Sep 2026 02:35:16 GMT
+
+https://screenrant.com/best-superheroes-not-marvel-dc/
+
+Beyond Marvel and DC, the comic book industry has given rise to many powerful characters, delivering some of the most iconic superheroes in history.
+---------
+
+# 7 Scenes From HBO’s Harry Potter Not In The Books
+
+Streaming TV, Harry Potter
+
+Mon, 14 Sep 2026 02:30:15 GMT
+
+https://screenrant.com/harry-potter-hbo-new-scenes-not-in-books/
+
+HBO may have promised us a faithful adaptation of the Harry Potter books, but teasers and trailers already prove that isn't quite true.
+---------
+
+# 8 X-Men Characters Who Are Better In The Comics Than The Movies
+
+Comics, X-Men, Marvel
+
+Mon, 14 Sep 2026 02:30:15 GMT
+
+https://screenrant.com/xmen-characters-better-comics-movies/
+
+Explore 8 X-Men heroes whose films fail to match their comic depth.
+---------
+
+# Heroes Of The Storm Is Back: Here's How It Happened
+
+Gaming, Heroes of the Storm, Triple-A Games, BlizzCon
+
+Mon, 14 Sep 2026 02:21:59 GMT
+
+https://screenrant.com/heroes-of-the-storm-2026-blizzcon-interview-new-hero/
+
+Xal'atath is coming to Heroes of the Storm in a new shocking announcement, and we talked to the team to see how that happened.
+---------
+
+# MCU’s New Rogue Actor Confirms Fixing Biggest X-Men Sin From Fox’s Franchise
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Mon, 14 Sep 2026 02:19:33 GMT
+
+https://screenrant.com/xmen-mcu-movie-rogue-southern-accent-inde-navarrette/
+
+As Inde Navarrette has been officially cast as Rogue in the MCU's X-Men reboot, she confirms a major element will be honored in the new version.
+---------
+
+# Batman's Next Big Event Is Here, And It Finally Gives An Underrated Heroine The Respect She Deserves
+
+Comics, Batman
+
+Mon, 14 Sep 2026 02:15:15 GMT
+
+https://screenrant.com/batman-bad-seeds-cassandra-cain-respect/
+
+DC Comics’ Batman: Bad Seeds will highlight one of the best young members of the Bat Family by showing their courage and leadership in a big way.
+---------
+
+# James Gunn DCU's New Gotham City Character Before Batman Confirms Backstory With Major Villain
+
+Streaming TV, Masked Recs
+
+Mon, 14 Sep 2026 02:10:15 GMT
+
+https://screenrant.com/lanterns-sheriff-kerry-gotham-batman-dc-universe-backstory/
+
+James Gunn's DC Universe, in its latest release, explores a Gotham City character's origins before Batman appears, and it connects to a villain.
+---------
+
+# HBO Officially Sets Up Nathan Fillion's Sci-Fi Series Debut
+
+Streaming TV, Masked Recs
+
+Mon, 14 Sep 2026 02:05:15 GMT
+
+https://screenrant.com/lanterns-episode-4-guy-gardner-nathan-fillion-hbo-debut-setup/
+
+HBO's global hit Sci-Fi series has set up Nathan Fillion's debut, marking a career first for the popular actor as he returns to his best genre.
+---------
+
+# Lanterns Episode 5’s Shocking Manhunter Twist Broken Down By DCU Star
+
+TV, Lanterns, DC Universe
+
+Mon, 14 Sep 2026 02:00:25 GMT
+
+https://screenrant.com/lanterns-dcu-episode-5-manhunter-twist-zoe-explained-poorna-jagannathan/
+
+EXCLUSIVE: Following the massive events in Lanterns episode 5, the Manhunter of the DC Universe TV show finally speaks out about the major twist.
+---------
+
+# James Gunn's DCU Officially Replaces Kyle Chandler's Hal Jordan
+
+Streaming TV, Lanterns, DC Universe
+
+Mon, 14 Sep 2026 02:00:25 GMT
+
+https://screenrant.com/lanterns-hal-jordan-green-lantern-replacement-dc-reveal/
+
+James Gunn's DC Universe has just officially replaced Kyle Chandler's Hal Jordan, and it sets up a massive future for Green Lantern in the DCU.
+---------
+
+# G.I. Joe/Tomb Raider Writer Confirms How Lara Croft Officially Digs Through G.I. Joe's Past
+
+Comics, G.I. Joe, Tomb Raider
+
+Mon, 14 Sep 2026 02:41:53 GMT
+
+https://www.cbr.com/gi-joe-tomb-raider-interview-lara-croft-archaeologist/
+
+G.I. Joe/Tomb Raider Writer Confirms How Lara Croft Officially Digs Through G.I. Joe's Past
+---------
+
+# 10 Anime That I Knew Would Be Masterpieces From the First Episode
+
+Anime, Attack On Titan, Oshi No Ko
+
+Mon, 14 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/anime-masterpieces-from-first-episode-list/
+
+Some anime take some time to really get going, while titles like Attack on Titan and Oshi no Ko immediately hit the ground running from the start!
+---------
+
+# The Walking Dead’s Lauren Cohan Confirms Why Maggie and Negan Will Always Be ‘Stuck Together’
+
+CBR Exclusives, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 14 Sep 2026 02:01:11 GMT
+
+https://www.cbr.com/walking-dead-dead-city-maggie-negan-stuck-together/
+
+Lauren Cohan breaks down why Maggie and Negan remain tied together in The Walking Dead: Dead City after the Season 3 finale.
+---------
+
+# The Walking Dead: Dead City Season 3 Ending Explained
+
+TV, The Walking Dead: Dead City, The Walking Dead, Innovation
+
+Mon, 14 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-season-3-ending-explained/
+
+The Walking Dead: Dead City hasn't yet been confirmed for a fourth season, but the story has ended in a moderately satisfying way.
+---------
+
+# Dead City’s Showrunner Sets Up Maggie and Negan's Next Conflict
+
+CBR Exclusives, The Walking Dead, The Walking Dead: Dead City
+
+Mon, 14 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/walking-dead-dead-city-season-4-maggie-negan-conflict/
+
+Dead City showrunner Seth Hoffman teases Maggie and Negan’s next conflict and what Season 4 could explore if AMC renews the series.
+---------
+
+# 10 Greatest Sega Genesis RPGs of All Time, Ranked
+
+Games, Sega Genesis, sega, Video Games
+
+Mon, 14 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/best-sega-genesis-rpgs-all-time/
+
+The Sega Genesis is home to great RPGs like Phantasy Star IV and Shadowrun.
+---------
+
+# Hulu's Canceled Buffy the Vampire Slayer Revival Left Out Key Star of Original Series
+
+TV, Buffy The Vampire Slayer, Buffy the Vampire Slayer Sequel Series
+
+Mon, 14 Sep 2026 01:55:49 GMT
+
+https://www.cbr.com/buffy-the-vampire-slayer-hulu-reboot-seth-green/
+
+One Buffy star still hopes to return to the franchise after not being invited for the now-canceled revival series.
+---------
+
+# 5 Strongest Logia Devil Fruits in One Piece, Ranked
+
+Anime, One Piece
+
+Mon, 14 Sep 2026 01:45:11 GMT
+
+https://www.cbr.com/one-piece-most-powerful-logia-devil-fruits-ranked-list/
+
+Logia Devil Fruits drastically changed the playing field in One Piece, though some of them are much stronger than others.
+---------
+
+# Jaws Meets Mad Max in New 'Certified Fresh' Sci-Fi Thriller Hope
+
+Movies, Hope, Sci-Fi, Mad Max, Innovation
+
+Mon, 14 Sep 2026 01:30:11 GMT
+
+https://www.cbr.com/hope-sci-fi-thriller-is-jaws-meets-mad-max/
+
+This brand-new creature feature epic combines the best parts of Jaws and Mad Max: Fury Road.
+---------
+
+# 5 Complete Isekai Anime Series That Are 10/10 Masterpieces
+
+Anime, Magic Knight Rayearth, Fushigi Yûgi - The Mysterious Play
+
+Mon, 14 Sep 2026 01:25:11 GMT
+
+https://www.cbr.com/complete-isekai-anime-series-perfect-masterpieces-list/
+
+Fans of isekai fantasy anime owe it to themselves to check out titles like Fushigi Yugi and Magic Knight Rayearth that have concluded their stories!
+---------
+
+# ‘The Walking Dead: Dead City’ Star Confirms That Maggie and Negan’s Dynamic Will Shift in a Possible Season 4
+
+Interviews, The Walking Dead: Dead City, Lauren Cohan, Jeffrey Dean Morgan, The Walking Dead
+
+Mon, 14 Sep 2026 02:30:11 GMT
+
+https://collider.com/the-walking-dead-dead-city-season-3-finale-maggie-negan-lauren-cohan/
+
+Lauren Cohan discusses The Walking Dead: Dead City Season 3, the evolution of Maggie and Negan, and how their partnership could play out in Season 4.
+---------
+
+# Netflix's New WWII Thriller Officially Sets 2026 Release Date
+
+Movie News, Netflix, The Mosquito Bowl, Thriller, World War II
+
+Mon, 14 Sep 2026 02:15:11 GMT
+
+https://collider.com/the-mosquito-bowl-netflix-japan-war-thriller-october-30-release-date/
+
+Netflix is bringing its WW2 thriller to theaters before it hits streaming. Get all the details here.
+---------
+
+# ‘The Walking Dead: Dead City’ Showrunner Officially Reveals Bold Plans for Season 4 and Maggie and Negan’s Future
+
+Interviews, The Walking Dead: Dead City, Jeffrey Dean Morgan, Lauren Cohan, The Walking Dead
+
+Mon, 14 Sep 2026 02:15:11 GMT
+
+https://collider.com/the-walking-dead-dead-city-season-3-finale-season4-tease-showrunner/
+
+Showrunner Seth Hoffman discusses The Walking Dead: Dead City, shaking things up for Season 3, defining Maggie and Negan's relationship, and Season 4.
+---------
+
+# Jeffrey Dean Morgan Explains Why ‘The Walking Dead: Dead City’ Needed To Shake Up Its Formula
+
+Interviews, The Walking Dead: Dead City, Jeffrey Dean Morgan, Lauren Cohan, Sterling Point
+
+Mon, 14 Sep 2026 02:05:11 GMT
+
+https://collider.com/the-walking-dead-dead-city-season-3-finale-jeffrey-dean-morgan/
+
+The Walking Dead: Dead City star Jeffrey Dean Morgan discusses Season 3, shaking things up with the franchise, and his long journey with Negan.
+---------
+
+# Anime’s Biggest Mystery Hit Officially Gets a New Game
+
+Gaming News, The Apothecary Diaries, Anime, Gaming, Crunchyroll
+
+Mon, 14 Sep 2026 02:00:21 GMT
+
+https://collider.com/anime-the-apothecary-diaries-the-false-imperial-brother-console-game-release-window-2027/
+
+The first Apothecary Diaries console adaptation will arrive for PlayStation 5, Nintendo Switch 2, Nintendo Switch, and PC via Steam. Find out when.
+---------
+
+# 'Lanterns' Star Explains Why She Was "Completely Shattered" by the HBO Sci-Fi's Biggest Twist
+
+Exclusives, Lanterns, Poorna Jagannathan, Garret Dillahunt, HBO
+
+Mon, 14 Sep 2026 02:00:21 GMT
+
+https://collider.com/lanterns-episode-5-zoe-death-poorna-jagannathan-garret-dillahunt-interview/
+
+Lanterns stars Poorna Jagannathan and Garret Dillahunt break down Episode 5 and the HBO sci-fi series' explosive showdown in Rushville.
+---------
+
+# 'Lanterns' Officially Destroys the Typical Superhero Formula With a Shocking Betrayal | Review
+
+TV Reviews, Lanterns, Kyle Chandler, Aaron Pierre, HBO
+
+Mon, 14 Sep 2026 02:00:21 GMT
+
+https://collider.com/lanterns-episode-5-recap/
+
+Lanterns destroys the typical superhero formula with an explosive showdown in Rushville — and there are still three episodes left.
+---------
+
+# 2026's Most-Watched Horror Film Surges as a Global Streaming Hit
+
+Movie News, Obsession, Horror, Inde Navarrette, Prime Video
+
+Mon, 14 Sep 2026 01:45:11 GMT
+
+https://collider.com/obsession-horror-hit-streaming-success-prime-video-apple-tv-september-2026/
+
+Nearly two months after its streaming release, Obsession continues to draw in viewers across multiple platforms. Here's what we know.
+---------
+
+# Forget ‘Heat,’ This Gritty Heist Thriller Is Officially Streaming for Free
+
+Movie News, Armored, Matt Dillon, Heat, Laurence Fishburne
+
+Mon, 14 Sep 2026 01:30:11 GMT
+
+https://collider.com/laurence-fishburne-heist-movie-armored-streaming-free-pluto-tv-september-2026/
+
+A heist movie inspired by Michael Mann's Heat and released only a year after The Dark Knight is streaming for free this month. Find out more.
+---------
+
+# 5 Netflix Sci-Fi Shows Where Every Episode Is a Masterpiece
+
+TV, Sci-Fi, Netflix, Dark, Arcane
+
+Mon, 14 Sep 2026 01:22:11 GMT
+
+https://collider.com/netflix-sci-fi-shows-every-episode-masterpiece/
+
+Discover unforgettable Netflix sci-fi shows where every episode shines thanks to incredible worlds and gripping storytelling, from Dark to Arcane.
+---------
+
+# 10 Apple TV Miniseries That Are 10/10 Masterpieces
+
+TV Lists, Apple TV, Lucky, Masters of Air
+
+Mon, 14 Sep 2026 02:00:32 GMT
+
+https://movieweb.com/apple-tv-miniseries-perfect-masterpieces/
+
+Apple TV has a number of high-profile, long-running shows, but it also offers miniseries — and some of them are truly must-watch masterpieces.
+---------
+
+# It's Officially the End of an Era for Stephen King
+
+Features, Stephen King, The Dark Tower, Thriller
+
+Mon, 14 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/stephen-king-talisman-3-end-of-era/
+
+October 2026 will be a major month for Stephen King, but his newest release will also mark the end of the era for an author on multiple fronts.
+---------
+
+# 8 George Lucas Movies That Have Nothing to Do With 'Star Wars'
+
+Movie Lists, George Lucas, Star Wars
+
+Mon, 14 Sep 2026 00:30:14 GMT
+
+https://movieweb.com/george-lucas-movies-not-star-wars/
+
+Outside that galaxy far, far away, George Lucas has a vast array of other notable movie credits under his belt.
+---------
+
+# New 92-Minute David Fincher-Esque Thriller Is One of the Biggest Streaming Hits in the World
+
+Movie News, Psycho Killer, Hot on Streaming, Disney+
+
+Mon, 14 Sep 2026 00:00:13 GMT
+
+https://movieweb.com/psycho-killer-streaming-hit-disney-sept-2026/
+
+After flopping in theaters and drawing brutal reviews, 'Psycho Killer' is finding a surprisingly strong second life on Disney+ around the world.
+---------
+
 # 8 Years Later, One Of TV's Most Frustrating Character Exits Still Haunts Us
 
 Classic TV, Masked Recs
