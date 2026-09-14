@@ -1,3 +1,267 @@
+# The Last Photograph Review: Zack Snyder's Worst-Ever Movie Is Missing His Touch [TIFF]
+
+New Movies, Toronto International Film Festival, The Last Photograph
+
+Mon, 14 Sep 2026 08:22:51 GMT
+
+https://screenrant.com/the-last-photograph-zack-snyder-movie-review-tiff/
+
+Zack Snyder’s The Last Photograph desperately wants to be profound, but its pacing, melodrama, and self-seriousness make it unintentionally funny.
+---------
+
+# Blade Runner's Official 2027 Return Is Something Completely Different
+
+Gaming, Blade Runner
+
+Mon, 14 Sep 2026 06:00:14 GMT
+
+https://screenrant.com/blade-runner-interactive-experience-2027/
+
+Discover the immersive Blade Runner experience coming to North America in 2027, blending narrative and visuals.
+---------
+
+# Batman: Arkham Knight Just Got The Next-Gen Remaster Gotham Deserves
+
+Gaming, Batman, Batman: Arkham Knight, PC
+
+Mon, 14 Sep 2026 05:30:16 GMT
+
+https://screenrant.com/batman-arkham-knight-dlss5-remaster/
+
+Those who've been hoping that the legendary Batman: Arkham Knight would get a next-gen remaster, you're in luck, as one has finally dropped.
+---------
+
+# Fallout 5 Can Wait, Fallout Officially Returns In 2027 With A Brand-New Adventure
+
+Gaming, Fallout 5, Fallout, Fallout 76
+
+Mon, 14 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/fallout-5-raven-rock-fallout-76-2027/
+
+Fallout 5 is still years away from being delivered to players, so we're going to need to fill our time with other adventures in the same universe.
+---------
+
+# Assassin’s Creed Origins Legend Bayek Officially Returning For New Game
+
+Gaming, Assassin's Creed
+
+Mon, 14 Sep 2026 04:30:16 GMT
+
+https://screenrant.com/assassins-creed-animus-bayek-returns/
+
+Explore Assassin's Creed history with Bayek in the new board game. Join iconic eras and enjoy thrilling gameplay this October.
+---------
+
+# Invincible Officially Returns September 2026
+
+Gaming, Invincible
+
+Mon, 14 Sep 2026 04:00:19 GMT
+
+https://screenrant.com/invincible-vs-events-september-2026/
+
+Invincible really has gone from strength to strength in recent years, and one of its best adaptations is about to hit an exciting run.
+---------
+
+# 10 Avengers Who Joined the Team for All the Wrong Reasons
+
+Comics, The Avengers, Marvel
+
+Mon, 14 Sep 2026 03:51:49 GMT
+
+https://screenrant.com/avengers-joined-team-wrong-reasons/
+
+Explore the complex and ulterior motives of 10 Avengers who joined for all the wrong reasons.
+---------
+
+# Netflix's 2-Season Sci-Fi Masterpiece Is Everything Westworld Should Have Been
+
+TV, Netflix, Masked Recs
+
+Mon, 14 Sep 2026 03:45:15 GMT
+
+https://screenrant.com/pantheon-netflix-masterpiece-everything-westworld-should-be/
+
+Trading theme parks for the horrors of digital immortality, Netflix's Pantheon perfects the sci-fi themes that Westworld abandoned.
+---------
+
+# Casting Tom Holland In James Gunn's DCU: 10 Characters He'd Be Perfect For After Spider-Man
+
+Movies, Tom Holland, DC Universe, Spider-Man: Brand New Day
+
+Mon, 14 Sep 2026 03:41:41 GMT
+
+https://screenrant.com/tom-holland-dc-universe-characters-casting/
+
+While Tom Holland has been the MCU's Spider-Man for the last 10 years, it's fun to imagine who he could one day play in James Gunn's DC Universe.
+---------
+
+# Lanterns Star Reacts To DCU Show’s Record-Breaking Success (Exclusive)
+
+TV, Lanterns
+
+Mon, 14 Sep 2026 03:37:32 GMT
+
+https://screenrant.com/lanterns-aaron-pierre-reacts-dcu-success/
+
+EXCLUSIVE: One of the stars of Lanterns reveals how he truly feels about the hit HBO superhero show's massive record-breaking success.
+---------
+
+# Netflix Sets Streaming Release Date for Bill Skarsgard's New World War II Thriller
+
+Movies, The Mosquito Bowl
+
+Mon, 14 Sep 2026 03:57:27 GMT
+
+https://www.cbr.com/the-mosquito-bowl-netflix-release-date/
+
+The WWII thriller, which is based on true events, has gotten its official release date along with a new sneak peek unveiled.
+---------
+
+# 8 Greatest Classic Anime Movies Worth Watching Again and Again, Ranked
+
+Anime, Your Name, Tokyo Godfathers
+
+Mon, 14 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/most-rewatchable-classic-anime-movies-ranked-list/
+
+My Neighbor Totoro, Your Name, and Tokyo Godfathers represent timeless cinematic anime classics that can always be revisited!
+---------
+
+# Terminator's Lowest-Rated Film Gets New Chance to Find Audiences on Free Streaming
+
+Movies, Terminator Genisys
+
+Mon, 14 Sep 2026 03:42:25 GMT
+
+https://www.cbr.com/terminator-genisys-action-free-streaming-september-2026/
+
+The polarizing Terminator flick gets a new chance at life.
+---------
+
+# What The Walking Dead: Dead City Season 3’s Ending Means for Maggie’s Future
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Mon, 14 Sep 2026 03:31:55 GMT
+
+https://www.cbr.com/walking-dead-dead-city-season-3-ending-maggie-future/
+
+Lauren Cohan breaks down Maggie’s ending in The Walking Dead: Dead City Season 3 and what it means for her future as a leader.
+---------
+
+# Legendary Space Opera Returns to Theaters for 45th Anniversary With a Major Upgrade
+
+Anime, Galaxy Express 999
+
+Mon, 14 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/goodbye-galaxy-express-999-45th-anniversary-theatrical-release/
+
+One of the most beloved and underrated anime sequels of all time is officially returning to theaters for its 45th anniversary celebration.
+---------
+
+# The Only TV Show Roger Ebert & Gene Siskel Ever Reviewed Is a Cult Classic 2-Season Sitcom
+
+TV, The Critic, Roger Ebert, Sitcoms
+
+Mon, 14 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/roger-ebert-gene-siskel-reviewed-the-critic/
+
+Roger Ebert and Gene Siskel are beloved movie critics, but their time on an iconic show they also reviewed is still a standout.
+---------
+
+# 20 Best Single-Panel Comic Strips to Read Besides The Far Side
+
+Comics, The Far Side
+
+Mon, 14 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/best-single-panel-comic-strips-not-gary-larson-far-side/
+
+It's not easy to land a joke in one panel, but comic strips like The Family Circus and Herman have mastered the single-panel format.
+---------
+
+# 10 Hardest Final Fantasy Games of All Time, Ranked
+
+Games, Video Games, Final Fantasy
+
+Mon, 14 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/hardest-final-fantasy-games-all-time-ranked/
+
+The Final Fantasy franchise has produced some of the most epic games in history, but there are moments when even the best games feel impossible.
+---------
+
+# Young Guns Cast Has Rare Reunion Ahead of Long-Gestating Third Film
+
+Movies, Young Guns
+
+Mon, 14 Sep 2026 03:14:56 GMT
+
+https://www.cbr.com/young-guns-cast-reunites-2026/
+
+The gang gets back together for a rare reunion after almost four decades.
+---------
+
+# 7 Legendary Pokémon Stronger Than Mewtwo
+
+Anime, Pokemon
+
+Mon, 14 Sep 2026 03:00:11 GMT
+
+https://www.cbr.com/legendary-pokemon-stronger-than-mewtwo-list/
+
+No legendary Pokémon is more famous than Mewtwo, but Pokémon like Giratina have it beat when it comes to sheer power.
+---------
+
+# The 8 Most Fun Shows of the 1990s, Ranked
+
+TV, Friends, The Simpsons, Seinfeld, The X-Files
+
+Mon, 14 Sep 2026 03:55:11 GMT
+
+https://collider.com/most-fun-shows-1990s-ranked/
+
+From The X-Files to Seinfeld, these beloved 1990s shows delivered unforgettable laughs, iconic characters, and endlessly rewatchable television.
+---------
+
+# This 13-Episode ‘Harry Potter’ Replacement Series Was Cancelled for the Worst Reason
+
+TV Features, Harry Potter, Cartoon Network, Tower Prep
+
+Mon, 14 Sep 2026 03:32:11 GMT
+
+https://collider.com/harry-potter-replacement-series-tower-prep-cancelled-too-many-female-viewers/
+
+Tower Prep was cancelled after 13 episodes amid Cartoon Network's live-action shift and, according to Paul Dini, strong female viewership.
+---------
+
+# 7 Fantasy Books About Dragons That Are 10/10, No Notes
+
+Books and Comics, Fantasy, J.R.R. Tolkien, Game Of Thrones, George R.R. Martin
+
+Mon, 14 Sep 2026 03:22:11 GMT
+
+https://collider.com/fantasy-books-dragons-perfect-no-notes/
+
+From J. R. R. Tolkien's masterpiece The Hobbit to George R. R. Martin's A Storm of Swords, these are the best fantasy books that feature dragons.
+---------
+
+# 13 Biggest Questions After 'Lanterns' Episode 5
+
+TV Lists, Lanterns
+
+Mon, 14 Sep 2026 04:32:30 GMT
+
+https://movieweb.com/lanterns-episode-5-biggest-questions-explained/
+
+Here are all the biggest questions from the 'Lanterns' episode "Lights Out' explained.
+---------
+
 # 8 Most Iconic Superheroes Who Don't Belong To Marvel Or DC
 
 Comics
