@@ -1,3 +1,443 @@
+# 16-Part Comedy Series With 100% RT Score Defies Return Slump With Major Ratings Milestone
+
+TV, Adults
+
+Mon, 14 Sep 2026 19:47:55 GMT
+
+https://screenrant.com/adults-season-2-show-ratings-hulu-record-milestone-sophomore-slump/
+
+One comedy is defining the sophomore slump that has plagued even some of Netflix's biggest shows, potentially paving the way for a renewal.
+---------
+
+# It's The End Of An Era For MobLand As Netflix Finds The Perfect Replacement
+
+TV, Masked Recs
+
+Mon, 14 Sep 2026 19:46:15 GMT
+
+https://screenrant.com/the-gentlemen-netflix-mobland-rival-season-2-better/
+
+With MobLand's season 2 about to debut on Paramount+, another series has already stolen Tom Hardy's thunder, with its own second season on Netflix.
+---------
+
+# After 16 Years, The Walking Dead Proves The 'Zombie Guts' Trick Was Always Unnecessary
+
+Streaming TV, The Walking Dead
+
+Mon, 14 Sep 2026 19:31:14 GMT
+
+https://screenrant.com/the-walking-dead-zombie-guts-trick-not-necessary/
+
+The zombie guts trick was one of The Walking Dead's boldest survival techniques, but after 16 years, the franchise just confirmed it was never needed.
+---------
+
+# X-Men: Apocalypse Rumor Signals a Major MCU Shift
+
+Movies, Originals, X-Men
+
+Mon, 14 Sep 2026 19:15:14 GMT
+
+https://screenrant.com/video/x-men-apocalypse-rumor-signals-a-major-mcu-shift/
+
+Marvel’s X-Men reboot may be much bigger than another superhero team joining the MCU. Kevin Feige has described the X-Men as central to Marvel’s future, and a major Apocalypse rumor could reveal what that mutant-focused era will actually look like.
+---------
+
+# Kurt Russell's New R-Rated Western Thriller Releases On Digital This Week
+
+Movies, The Rivals of Amziah King
+
+Mon, 14 Sep 2026 19:09:43 GMT
+
+https://screenrant.com/kurt-russell-the-rivals-of-amziah-king-digital-release-date/
+
+Kurt Russell's new critically acclaimed R-rated western thriller movie is getting an exciting release as it finally lands on digital this week.
+---------
+
+# CBS Is Rewriting NCIS Franchise's Biggest Lie
+
+TV, NCIS, NCIS: Origins
+
+Mon, 14 Sep 2026 19:02:15 GMT
+
+https://screenrant.com/ncis-origins-season-3-rewriting-lala-story-lie/
+
+CBS shifts timelines and teases Mark Harmon's long-awaited NCIS return, but this leaves one star's unknown fate tangled between past and future.
+---------
+
+# The Legend Of Zelda Officially Celebrating 40th Anniversary With Multiple Free Downloads
+
+Gaming, The Legend of Zelda, Nintendo, Nintendo Switch
+
+Mon, 14 Sep 2026 19:00:15 GMT
+
+https://screenrant.com/legend-of-zelda-40th-anniversary-free-downloads-sepetember-2026/
+
+Fans are getting even more Legend of Zelda 40th anniversary goodies with these free downloads.
+---------
+
+# 21 Years Later, Supernatural's 2026 Reunion Is The Perfect Gift Before Season 16
+
+TV, Supernatural
+
+Mon, 14 Sep 2026 18:56:34 GMT
+
+https://screenrant.com/supernatural-season-16-return-the-boys-cast-reunion-perfect/
+
+21 years after Supernatural began, 2026 marked the reunion fans had long been asking for, and it is the perfect event to help in the season 16 wait.
+---------
+
+# Harry Potter's Villain Change Is HBO's First Strike
+
+Streaming TV, Harry Potter
+
+Mon, 14 Sep 2026 18:45:14 GMT
+
+https://screenrant.com/harry-potter-lucius-malfoy-change-bad-character/
+
+The Harry Potter TV show is making some changes and additions to the characters, and one change to Lucius Malfoy is already the show's first strike.
+---------
+
+# Taylor Sheridan Plans Major Crossover With New Crime Series Spinoff
+
+TV, Frisco King, Tulsa King
+
+Mon, 14 Sep 2026 18:44:45 GMT
+
+https://screenrant.com/frisco-king-spinoff-sylvester-stallone-role-explained/
+
+Taylor Sheridan is planning a major crossover with his new crime series spinoff, bringing over a main character from one of his hit shows.
+---------
+
+# PlayStation Exclusive Will Disappear Forever September 17
+
+Games, PlayStation 5, PlayStation (Original)
+
+Mon, 14 Sep 2026 19:50:11 GMT
+
+https://www.cbr.com/playstation-official-goodbye-ps5-september-17/
+
+A 2023 PlayStation game will soon officially be unplayable forever.
+---------
+
+# Paramount's New 94-Minute Supernatural Horror Returns as the Most-Watched Film in the U.S.
+
+Movies, Paramount, Paramount Plus, The Passenger, Horror
+
+Mon, 14 Sep 2026 19:27:21 GMT
+
+https://www.cbr.com/paramount-supernatural-horror-passenger-most-watched-film-in-the-us/
+
+It's suddenly become one of the biggest sleeper hits in the 2026 horror space.
+---------
+
+# Avatar: The Last Airbender Finally Turns Sokka Into a Dad in New 10-Episode Series
+
+Anime, Avatar: The Last Airbender
+
+Mon, 14 Sep 2026 19:20:11 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-chini-minis-sokka-becomes-dad/
+
+The most underrated Avatar: The Last Airbender series of the year finally gives Sokka the chance to be a father, and he's better at it than expected.
+---------
+
+# Netflix Officially Orders New Sonic the Hedgehog Adaptation
+
+TV, Sonic the Hedgehog
+
+Mon, 14 Sep 2026 19:17:38 GMT
+
+https://www.cbr.com/sonic-the-hedgehog-animated-series-netflix-sega-deal/
+
+Through a new deal with Sega, Netflix has announced three new adaptations of major video game franchises, including a Sonic series.
+---------
+
+# Hayden Panettiere's Cause of Death Revealed
+
+TV, Heroes
+
+Mon, 14 Sep 2026 19:15:42 GMT
+
+https://www.cbr.com/hayden-panettiere-cause-of-death/
+
+Hayden Panettiere passed away on August 16.
+---------
+
+# 10 Greatest Military Sci-Fi Books of All Time, Ranked
+
+Movies, Science Fiction, books
+
+Mon, 14 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/best-military-sci-fi-books-list/
+
+Exploring combat, futuristic tech, psychology warfare, & the cost of conflict, these mind-blowing military sci-fi books are absolute masterpieces
+---------
+
+# Ridley Scott's Sci-Fi Classic Blade Runner Is Not Required Viewing Ahead of New Sequel Series
+
+TV, Blade Runner 2099, Sci-Fi, Blade Runner
+
+Mon, 14 Sep 2026 18:43:35 GMT
+
+https://www.cbr.com/blade-runner-2099-ridley-scott-sequel-sci-fi-series-rewatch/
+
+There's a new Blade Runner series on the way, but new fans don't have to worry about catching up on the films beforehand.
+---------
+
+# The Simpsons Finally Breaks Its Streaming Curse After 2 Years
+
+TV, The Simpsons
+
+Mon, 14 Sep 2026 18:35:52 GMT
+
+https://www.cbr.com/the-simpsons-streaming-surge-2-years-later/
+
+It's perfectly cromulent news for The Simpsons fans.
+---------
+
+# Neagley: How the Reacher Spinoff Gets Bigger
+
+TV, Neagley
+
+Mon, 14 Sep 2026 18:30:11 GMT
+
+https://www.cbr.com/video/neagley-how-the-reacher-spinoff-gets-bigger/
+
+Neagley writer Nicholas Wooten breaks down how the Reacher spinoff makes Maria Sten’s action feel convincing while expanding the franchise around Frances Neagley.
+---------
+
+# 5 Modern Anime Hits That Actually Deserve the Hype
+
+Anime, Jujutsu Kaisen, Witch Hat Atelier
+
+Mon, 14 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/modern-anime-hits-actually-deserve-the-hype/
+
+The most popular anime of today, like Jujutsu Kaisen and Witch Hat Atelier, fully deserve to be fan favorites.
+---------
+
+# The 8 Most Disturbing Non-Horror Movies of All Time, Ranked
+
+Movie, Come And See, Threads, A Clockwork Orange, Oldboy
+
+Mon, 14 Sep 2026 19:41:11 GMT
+
+https://collider.com/most-disturbing-non-horror-movies-all-time-ranked/
+
+Some movies manage to feel hugely disturbing without being works of horror, including grim classics like Threads, A Clockwork Orange, and Oldboy.
+---------
+
+# ‘For All Mankind’ Season 6 Officially “Sticks the Landing” [Exclusive]
+
+TV News, Apple TV, For All Mankind, Mireille Enos, TIFF
+
+Mon, 14 Sep 2026 19:30:11 GMT
+
+https://collider.com/for-all-mankind-season-6-update-mireille-enos/
+
+For All Mankind star Mireille Enos teases the Apple TV sci-fi drama’s 6th and final season, promising a hopeful, magical & satisfying ending in 2027.
+---------
+
+# 3 Movies Taking Over Netflix This Week (#1 Is a Taylor Sheridan Thriller)
+
+Movie, Those Who Wish Me Dead, Contraband, Shark Tale, Netflix
+
+Mon, 14 Sep 2026 19:19:11 GMT
+
+https://collider.com/best-netflix-movies-watch-september-14-2026/
+
+Those Who Wish Me Dead, Contraband, and Shark Tale make up our list of the best movies to watch on Netflix the week of September 14.
+---------
+
+# 'Sunrise on the Reaping' Officially Changes Major Hunger Games Character [Exclusive]
+
+Movie News, The Hunger Games, The Hunger Games: Sunrise on the Reaping, Kelvin Harrison Jr., TIFF
+
+Mon, 14 Sep 2026 19:07:13 GMT
+
+https://collider.com/hunger-games-sunrise-on-the-reaping-beetee-jeffrey-wright-replacement-kelvin-harrison-jr/
+
+Kelvin Harrison Jr. reveals Jeffrey Wright’s reaction to his new Beetee in The Hunger Games: Sunrise on the Reaping and teases one major difference.
+---------
+
+# 'Silo's Final Season Needs To Address These 10 Important Mysteries
+
+TV, Silo, Apple TV, Sci-Fi, Science Fiction
+
+Mon, 14 Sep 2026 18:22:11 GMT
+
+https://collider.com/silo-season-4-mysteries/
+
+Silo Season 3 has perfectly set the Apple TV sci-fi series up for an explosive end, and there are some mysteries that we need answers about.
+---------
+
+# This Sci-Fi Cult Classic Was Officially Cancelled for Costing $1 Million Per Episode
+
+TV Features, Farscape, Sci-Fi, Jim Henson Company, SyFy
+
+Mon, 14 Sep 2026 18:18:11 GMT
+
+https://collider.com/farscape-cancelled-one-million-per-episode-budget/
+
+Farscape was cancelled after four seasons as declining ratings and a budget topping $1 million per episode made Season 5 too expensive.
+---------
+
+# David Oyelowo Officially Makes History as ‘Treasure Island’s Long John Silver [Exclusive]
+
+TV News, David Oyelowo, Clarissa, Treasure Island, TIFF
+
+Mon, 14 Sep 2026 18:03:47 GMT
+
+https://collider.com/treasure-island-remake-mgm-plus-david-oyelowo-long-john-silver/
+
+David Oyelowo officially teases his new spin on Long John Silver for MGM+'s new Treasure Island. Read on for more.
+---------
+
+# Forget 'Law & Order: SVU', This 105-Episode Police Procedural Is Officially Your Next Netflix Binge
+
+TV Features, Major Crimes, Series, TNT, Netflix
+
+Mon, 14 Sep 2026 17:57:11 GMT
+
+https://collider.com/major-crimes-netflix-police-procedural-105-episodes/
+
+Major Crimes is a 105-episode police procedural now on Netflix. Here’s why Mary McDonnell’s acclaimed TNT crime drama is worth binge-watching.
+---------
+
+# Anya Taylor-Joy Officially Returns to Netflix for ‘Queen’s Gambit’ Follow-Up in 1 Month
+
+Movie News, Sacrifice, Anya Taylor-Joy, Netflix, Chris Evans
+
+Mon, 14 Sep 2026 17:45:11 GMT
+
+https://collider.com/anya-taylor-joy-new-netflix-movie-sacrifice-release-date-october-2026/
+
+Anya Taylor-Joy officially returns to Netflix to follow up The Queen's Gambit in one month with a brand-new thriller movie.
+---------
+
+# Zack Snyder’s Dream Movie Is Officially Turning Into a Nightmare
+
+Movie News, Zack Snyder, The Last Photograph, Fra Fee, Stuart Martin
+
+Mon, 14 Sep 2026 17:30:11 GMT
+
+https://collider.com/zack-snyder-last-photograph-first-reactions-is-it-good/
+
+Zack Snyder's passion project premiered to career-worst reviews at the Toronto International Film Festival. Find out what audiences are saying.
+---------
+
+# Forget John Wick, the Real Baba Yaga Is Unleashed in New Mystery Thriller
+
+TV News
+
+Mon, 14 Sep 2026 19:42:05 GMT
+
+https://movieweb.com/yaga-trailer-hudson-williams/
+
+A brand-new look at the upcoming series promises intense thrills.
+---------
+
+# Chris Pratt's $1.67 Billion Blockbuster Loses 11-Year Box Office Record To R-Rated 3-Hour Epic
+
+Movie News, Chris Pratt, Jurassic World, Box Office Milestones, The Odyssey
+
+Mon, 14 Sep 2026 19:31:13 GMT
+
+https://movieweb.com/chris-pratt-jurassic-world-record-broken-by-the-odyssey/
+
+Christopher Nolan's The Odyssey has officially passed Jurassic World to become Universal's highest-grossing film ever.
+---------
+
+# 'Slow Horses' Season 7 Release Window Gets Major Update 2 Days Ahead of Return
+
+TV News, Slow Horses, Apple TV, Crime, Thriller
+
+Mon, 14 Sep 2026 19:26:11 GMT
+
+https://movieweb.com/slow-horses-season-7-2027-release/
+
+Gary Oldman's misfit spies return with clockwork consistency, with a seventh season already set for 2027 ahead of the  Season 6 premiere.
+---------
+
+# It's Officially the End of an Era for Netflix After 3 Years
+
+Movie News, Netflix
+
+Mon, 14 Sep 2026 19:15:00 GMT
+
+https://movieweb.com/netflix-skydance-animation-deal-expires/
+
+Netflix and Skydance Animation have ended their distribution deal as Paramount Pictures attempts to increase its theatrical releases.
+---------
+
+# Netflix's Near-Perfect Mystery Thriller Series Returns in Explosive Trailer
+
+TV News, Lupin, Netflix
+
+Mon, 14 Sep 2026 19:12:37 GMT
+
+https://movieweb.com/lupin-netflix-season-4-trailer/
+
+Netflix released a new trailer for one of its best mystery thriller series, which is back in action for its fourth season.
+---------
+
+# $439 Million High Fantasy Movie Can Finally Deliver Long-Awaited Follow-up After 10 Years
+
+Features, Warcraft, Fantasy
+
+Mon, 14 Sep 2026 19:01:13 GMT
+
+https://movieweb.com/warcraft-movie-follow-up-blizzard/
+
+One of the biggest fantasy franchises of all time has hopes of returning to the screen, a decade after its major commercial flop.
+---------
+
+# Chris Rock Pitches Unique New ‘Yellowstone’ Spin-Off Idea to Taylor Sheridan
+
+TV News, Chris Rock, Taylor Sheridan, Yellowstone, Western
+
+Mon, 14 Sep 2026 18:55:46 GMT
+
+https://movieweb.com/chris-rock-taylor-sheridan-yellowstone-spinoff/
+
+Stars like Kevin Costner, Harrison Ford, and Helen Mirren have all appeared in the 'Yellowstone' universe. Why not Chris Rock?
+---------
+
+# 'Lanterns' Theory Connects Hal Jordan's Murder & Manhunter "Miracle" Into Perfect Resolution
+
+Features, Lanterns, DCU, Superhero, Thriller
+
+Mon, 14 Sep 2026 18:30:13 GMT
+
+https://movieweb.com/lanterns-noah-macon-manhunter-theory/
+
+Lanterns Episode 5 offers some new hints about one character that might reveal who killed Hal Jordan in the show's 2026 timeline.
+---------
+
+# 'Yellowstone' Star Reveals Controversial Take on Lee Dutton's Tragic Early Exit
+
+TV News, Yellowstone, Western
+
+Mon, 14 Sep 2026 18:11:44 GMT
+
+https://movieweb.com/yellowstone-lee-dutton-death-dave-annable/
+
+It makes you wonder how 'Yellowstone' would have played out if Lee Dutton had lived.
+---------
+
+# 25 Years Later, Jon Favreau's "Swingers Meets The Sopranos" Crime Caper Sets New Release
+
+Movie News, Made, Jon Favreau, Vince Vaughn, Crime, Thriller, Comedy, Blu-ray
+
+Mon, 14 Sep 2026 18:01:14 GMT
+
+https://movieweb.com/jon-favreau-made-4k-blu-ray-release/
+
+Lionsgate Limited has prepared a new 4K Blu-ray steelbook release of Jon Favreau's 'Made,' the 2001 crime comedy starring Vince Vaughn.
+---------
+
 # Star Trek Officially Returns To The Kelvin Timeline in Two Months
 
 Comics, Star Trek
