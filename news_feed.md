@@ -1,3 +1,421 @@
+# ABC Is Breaking An 8-Year 9-1-1 Trend That Everyone Hates
+
+Network TV, 9-1-1
+
+Mon, 14 Sep 2026 22:45:15 GMT
+
+https://screenrant.com/911-season-9-maddie-eddie-no-scene-break/
+
+9-1-1 has been a staple of network television since its 2018 premiere, but the ABC favorite is switching things up in its milestone season 10.
+---------
+
+# Apple TV’s Hit 50-Episode Sci-Fi Series Gets “Ambitious” Ending Tease From Star
+
+TV, For All Mankind
+
+Mon, 14 Sep 2026 22:36:14 GMT
+
+https://screenrant.com/for-all-mankind-season-6-ending-ambitious-mireille-enos/
+
+Apple TV has released multiple sci-fi series, but it’s longest-running one is coming to an end soon, and one of the stars teases what fans can expect.
+---------
+
+# The Batman 2 Is Replacing Robin (& It Was Perfectly Set Up 4 Years Ago)
+
+Movies, The Batman Part II, DC, The Batman
+
+Mon, 14 Sep 2026 22:30:15 GMT
+
+https://screenrant.com/the-batman-part-2-anarky-robin-replacement/
+
+The beloved DC villain who was intended to replace Robin in the comics might be The Batman Part II's answer to the Boy Wonder. And it's a great idea.
+---------
+
+# 2026 Primetime Emmy Award Winners List (Live Update)
+
+TV, Emmy Awards
+
+Mon, 14 Sep 2026 22:30:15 GMT
+
+https://screenrant.com/2026-primetime-emmy-award-winners-list/
+
+The Pitt, Hacks, and Widow's Bay are among the favorites for this year's Primetime Emmy Award nominations, and now the winners have been decided.
+---------
+
+# Marvel's New Iron Man Replacement Officially Announced
+
+Comics, Iron Man
+
+Mon, 14 Sep 2026 22:30:15 GMT
+
+https://screenrant.com/new-iron-man-replacement-blacksmith/
+
+That all-black armor is awesome.
+---------
+
+# 5 Future Transformers Storylines That Should Get Fans Hyped For The Franchise's Future
+
+Comics, Transformers
+
+Mon, 14 Sep 2026 22:26:46 GMT
+
+https://screenrant.com/future-transformers-storylines-fans-hyped-franchise-future/
+
+Writer Robert Kirkman gave fans of Image Comics’ Transformers five great storylines to get readers excited for the future of the Energon Universe.
+---------
+
+# Amazon’s New Stargate Series Gets Story Details & Status Update From OG Star After Cancellation
+
+TV, Stargate, Rose City Comic Con
+
+Mon, 14 Sep 2026 22:10:09 GMT
+
+https://screenrant.com/amazon-stargate-series-michael-shanks-return-richard-dean-anderson-update/
+
+EXCLUSIVE: After the cancellation of Amazon's Stargate series, franchise star Richard Dean Anderson provides new story details and an update.
+---------
+
+# Netflix Officially Lands 2025's $700M+ Blockbuster Movie
+
+Anime, Netflix, Masked Recs
+
+Mon, 14 Sep 2026 22:08:15 GMT
+
+https://screenrant.com/netflix-lands-demon-slayer-infinity-castle-part-1/
+
+Grossing over $700+ million to beat out major Hollywood blockbusters, 2025's biggest cinematic event is finally arriving on Netflix.
+---------
+
+# 9 Urban Fantasy Books You Need To Read ASAP
+
+Books, Fantasy
+
+Mon, 14 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/urban-fantasy-book-recommendations/
+
+From hidden London to jade-powered metropolises, these nine spectacular urban fantasy books are ones that you need to read as soon as possible.
+---------
+
+# The Expanse Meets Silent Hill In New Sci-Fi Horror
+
+Gaming, Ontos, The Expanse, Silent Hill, PC
+
+Mon, 14 Sep 2026 22:00:14 GMT
+
+https://screenrant.com/expanse-meets-silent-hill-ontos/
+
+Fans of The Expanse should check out this horrifying new sci-fi adventure that takes inspiration from Silent Hill.
+---------
+
+# Netflix Gives Surprise Renewal to Hit Crime Thriller 1 Year After Presumed Finale
+
+TV, The Beast in Me
+
+Mon, 14 Sep 2026 22:37:16 GMT
+
+https://www.cbr.com/netflix-the-beast-in-me-season-2-renewed/
+
+The Netflix series was a hit, but it was not expected to continue.
+---------
+
+# Naruto Shippuden Brings the First Hokage Back From the Dead
+
+Anime, Naruto, merchandise, Naruto: Shippuden
+
+Mon, 14 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/naruto-shippuden-hashirama-senju-reanimation/
+
+Naruto Shippuden fans have the chance to bring the First Hokage home for themselves, and in what might be his most iconic form.
+---------
+
+# Divisive 110-Minute Sci-Fi Thriller Lands at No. 2 on Paramount+ U.S. Charts
+
+Movies, Paramount Plus, Homestead
+
+Mon, 14 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/homestead-sci-fi-thriller-paramount-us-success-september-2026/
+
+The post-apocalyptic thriller is getting a new life on streaming services.
+---------
+
+# Hulu's 2-Season Drama Jumps to No. 2 on Disney+ 11 Days After Return
+
+TV, Chad Powers, Hulu, Disney+, Drama
+
+Mon, 14 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/chad-powers-sports-drama-disney-plus-success-september-2026/
+
+After debuting with a 100% RT score, Season 2 of this hit Hulu drama is already top three on Disney+.
+---------
+
+# 8 Greatest Anime Side Characters Who Radiate Main Character Energy
+
+Anime, Jujutsu Kaisen, shonen anime, Hunter x Hunter, Attack On Titan
+
+Mon, 14 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/anime-side-characters-with-main-character-energy/
+
+Anime is filled with great side characters, but only some are so great that they might as well be the main characters of the series they're in.
+---------
+
+# Henry Winkler Refused ABC's Happy Days Title Change: 'A Slap in the Face'
+
+TV, Happy Days
+
+Mon, 14 Sep 2026 22:01:04 GMT
+
+https://www.cbr.com/henry-winkler-fonzie-happy-days-original-title/
+
+The Fonz actor Henry Winkler remembers ABC's requested title change for the legendary sitcom.
+---------
+
+# Netflix's Workplace Comedy With 478M Minutes Viewed Is 1 of the Most-Streamed Shows in the World
+
+TV, Tires, Netflix, Comedy
+
+Mon, 14 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/netflix-comedy-tires-nielsen-success-august-2026/
+
+This Office replacement, now in its third season, has been a hit for Netflix.
+---------
+
+# 5 Anime Villains Stronger Than Muzan Kibutsuji
+
+Anime, Demon Slayer, Innovation
+
+Mon, 14 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/anime-villains-stronger-than-muzan-kibutsuji-list/
+
+Muzan Kibutsuji is a force to be reckoned with in Demon Slayer, but he's definitely not the strongest anime villain.
+---------
+
+# Stagecoach Gave John Wayne His Best Western Quote
+
+Movies, Western, Stagecoach
+
+Mon, 14 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/stagecoach-john-waynes-best-western-quote/
+
+John Wayne starred in some of the best Westerns ever made, but this standout line from his breakout performance is still absolutely perfect.
+---------
+
+# Mobile Suit Gundam’s Epic Series Finale Is Finally Here
+
+Anime, Mobile Suit Gundam Thunderbolt, Mobile Suit Gundam
+
+Mon, 14 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/mobile-suit-gundam-thunderbolt-v26-english-release-date/
+
+The latest entry in one of the most mind-bending Mobile Suit Gundam titles has finally arrived, and it is explosive on every single level.
+---------
+
+# HBO's 'Lanterns' Officially Drops the Ball With Season 1's Major Alien Villain Reveal
+
+TV Features, Lanterns, DC, HBO, DCU
+
+Mon, 14 Sep 2026 22:41:11 GMT
+
+https://collider.com/lanterns-episode-5-antaan-reveal-atrocitus/
+
+HBO's Lanterns makes a major misstep with one alien character, wrapping up their storyline with a lot of missed potential.
+---------
+
+# 3 Stellar Movies Streaming on Prime Video This Week (Sept 14-18)
+
+Movie, Prime Video, Moonstruck, The Purge, Roofman
+
+Mon, 14 Sep 2026 22:34:11 GMT
+
+https://collider.com/best-movies-prime-video-september-14-2026/
+
+Moonstruck, The Purge, and Roofman make up our list of the best movies streaming on Prime Video the week of September 14.
+---------
+
+# Prime Video Officially Enters New Short-Form Content Era
+
+TV News, Prime Video, news, Amazon, NBC News Daily
+
+Mon, 14 Sep 2026 22:31:39 GMT
+
+https://collider.com/prime-video-free-on-demand-news-clips/
+
+Prime Video adds free on-demand clips for local news, weather and national reports alongside its existing 24/7 live news coverage.
+---------
+
+# Brendan Fraser’s 'Mummy' Sequel Officially Reveals First Look at Returning Hero
+
+Movie News, The Mummy, The Mummy Returns, Brendan Fraser, Oded Fehr
+
+Mon, 14 Sep 2026 22:30:11 GMT
+
+https://collider.com/the-mummy-4-oded-fehr-ardeth-bay-first-look/
+
+The Mummy sequel reveals a first look at Oded Fehr’s return as Ardeth Bay alongside Brendan Fraser and Rachel Weisz.
+---------
+
+# 5 Gritty Nordic Noir Books That Rival ‘The Girl With the Dragon Tattoo’
+
+Books and Comics, Crime, The Girl With the Dragon Tattoo, Books, Stieg Larsson
+
+Mon, 14 Sep 2026 22:15:11 GMT
+
+https://collider.com/nordic-noir-books-that-rival-the-girl-with-the-dragon-tattoo/
+
+Fans of Stieg Larsson’s novels will find much to love in these Nordic Noir thrillers filled with troubled detectives and revenge served cold.
+---------
+
+# The 5 Most Fun Christopher Nolan Movies, Ranked
+
+Movie, Christopher Nolan, Inception, The Dark Knight, Interstellar
+
+Mon, 14 Sep 2026 21:53:11 GMT
+
+https://collider.com/most-fun-christopher-nolan-movies-ranked/
+
+From Tenet to The Dark Knight, these thrilling Christopher Nolan movies turn complex ideas, bold visuals, and ingenious action into pure fun.
+---------
+
+# The 8 Most Fun Movies of the 2000s, Ranked
+
+Movie, Pirates of the Caribbean: The Curse of the Black Pearl, The Incredibles, Ocean's Eleven, Iron Man
+
+Mon, 14 Sep 2026 21:53:11 GMT
+
+https://collider.com/most-fun-movies-2000s-ranked/
+
+From Mean Girls to Hot Fuzz, these wildly entertaining 2000s movies blend comedy, adventure, action, and unforgettable characters.
+---------
+
+# David Boreanaz Officially Compares His 'Rockford Files' Reboot to 'Bones'
+
+TV News, David Boreanaz, Bones, The Rockford Files, NBC
+
+Mon, 14 Sep 2026 21:50:28 GMT
+
+https://collider.com/david-boreanaz-bones-rockford-files-anniversary-connection/
+
+David Boreanaz celebrates 21 years of Bones while revealing a surprising connection to his new Rockford Files reboot.
+---------
+
+# Every Radiohead Album, Ranked
+
+Music Features, Music, Radiohead, Rock, Meeting People Is Easy
+
+Mon, 14 Sep 2026 21:31:11 GMT
+
+https://collider.com/radiohead-albums-ranked/
+
+Radiohead's one of the most acclaimed bands of all time, and with a total of nine albums, including Kid A and In Rainbows, which one's the best?
+---------
+
+# Tom Hanks' Intense 10-Part War Miniseries Has Officially Aged Like Fine Wine
+
+TV Features, Band of Brothers, Tom Hanks, Ron Livingston, Damian Lewis, HBO
+
+Mon, 14 Sep 2026 21:28:11 GMT
+
+https://collider.com/tom-hanks-band-of-brothers-officially-best-war-miniseries/
+
+25 years later, Band of Brothers is still the war miniseries gold standard because of its themes of solidarity and sacrifice.
+---------
+
+# When 'Slow Horses' Season 6 Releases on Apple TV & Full Release Schedule
+
+Features, Slow Horses, Apple TV, Thriller
+
+Mon, 14 Sep 2026 22:00:13 GMT
+
+https://movieweb.com/slow-horses-season-6-release-schedule/
+
+'Slow Horses' Season 6 premieres soon on Apple TV, and the spy thriller series stars Jack Lowden and Gary Oldman.
+---------
+
+# New Sequel To One of the Best Franchises Ever Debuts Jaw-Dropping Rotten Tomatoes Score
+
+Movie News, Shaun the Sheep, Shaun the Sheep: The Beast of Mossy Bottom
+
+Mon, 14 Sep 2026 21:49:33 GMT
+
+https://movieweb.com/shaun-the-sheep-beast-of-mossy-bottom-rotten-tomatoes/
+
+The beloved 'Shaun the Sheep' franchsie is knocking it out of the park once again with 'The Beast of Mossy Bottom.'
+---------
+
+# The DCU Has Already Revealed John Stewart’s Replacement
+
+Features, Lanterns, Superhero, DCU, Nathan Fillion
+
+Mon, 14 Sep 2026 21:31:14 GMT
+
+https://movieweb.com/dcu-lanterns-john-stewart-replacement-guy-gardner/
+
+The latest episode of 'Lanterns' ended on a cliffhanger, but we already know how it gets resolved, thanks to other projects in the DCU.
+---------
+
+# 'Percy Jackson' Season 3 Confirms Major Change From Rick Riordan's Books
+
+TV News, Percy Jackson & the Olympians, Walker Scobell, Disney+, Fantasy
+
+Mon, 14 Sep 2026 21:29:54 GMT
+
+https://movieweb.com/percy-jackson-season-3-nico-diangelo-change/
+
+Walker Scobell reveals Percy Jackson and Nico DiAngelo's closer bond and Nico's expanded role in 'Percy Jackson' Season 3
+---------
+
+# Prime Video Is Officially Dropping 9 New Reacher Episodes This Week
+
+Features, Reacher, Action, Neagley, Thriller, Prime Video
+
+Mon, 14 Sep 2026 21:00:18 GMT
+
+https://movieweb.com/prime-video-reacher-finale-neagley-premiere/
+
+'Reacher,' the Amazon Prime Video action thriller series based on the books by Lee Child and starring Alan Ritchson, has nine new episodes.
+---------
+
+# Guy Ritchie's New 9/10 Crime Thriller Suffers Major Defeat on Streaming to a New Crew
+
+TV News, The Gentlemen, Netflix, Hot on Streaming, Guy Ritchie
+
+Mon, 14 Sep 2026 21:00:18 GMT
+
+https://movieweb.com/the-gentlemen-guy-ritchie-stream-crew-girl-netflix-sept-2026/
+
+Guy Ritchie's days with Netflix might be numbered.
+---------
+
+# New John Wick-Esque Medical Action Thriller a Must-Watch "Thrill Ride" in Glowing First Reviews
+
+Movie News, The Surgeon, Action, Michelle Yeoh
+
+Mon, 14 Sep 2026 20:13:49 GMT
+
+https://movieweb.com/the-surgeon-michelle-yeoh-reviews/
+
+Michelle Yeoh notches yet another fantastic action movie.
+---------
+
+# A Deleted 'Lioness' Scene Completely Changes How You'll Watch Season 3 Episode 7's Big Ending Twist
+
+Features, Lioness, Taylor Sheridan
+
+Mon, 14 Sep 2026 20:00:15 GMT
+
+https://movieweb.com/laysla-de-oliveira-lioness-season-3-deleted-scene/
+
+'Lioness' star reveals a surprising piece of the show's history that adds new meaning to Season 3.
+---------
+
 # 16-Part Comedy Series With 100% RT Score Defies Return Slump With Major Ratings Milestone
 
 TV, Adults
