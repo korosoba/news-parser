@@ -1,3 +1,421 @@
+# The White Lotus Season 4 Release Window Officially Confirmed By HBO Exec
+
+TV, The White Lotus
+
+Tue, 15 Sep 2026 19:40:55 GMT
+
+https://screenrant.com/the-white-lotus-season-4-release-window-confirmed-casey-bloys/
+
+After season 3 released early last year, HBO boss Casey Bloys now officially confirms when audiences can expect to see The White Lotus season 4.
+---------
+
+# CBS's Canceled Show With Over 5000 Episodes Gets The Last Laugh
+
+Network TV, Masked Recs
+
+Tue, 15 Sep 2026 19:30:16 GMT
+
+https://screenrant.com/the-late-show-stephen-colbert-got-the-last-laugh/
+
+CBS has faced plenty of backlash for The Late Show with Stephen Colbert's end, but the late-night talk show went out on a high note at the 2026 Emmys.
+---------
+
+# Hombre Al Agua Review: Gael García Bernal Engineers A Stirring Call To Action [TIFF]
+
+Movies, Toronto International Film Festival, Hombre Al Agua
+
+Tue, 15 Sep 2026 19:26:14 GMT
+
+https://screenrant.com/hombre-al-agua-movie-review-tiff/
+
+Gael García Bernal's third directorial feature could've been more effective, but it strikingly condemns the ways the wealthy exploit the poor.
+---------
+
+# 8 Best Resident Evil Video Game Characters Who Appeared In The Live-Action Movies, Ranked
+
+Movies, Resident Evil
+
+Tue, 15 Sep 2026 19:21:15 GMT
+
+https://screenrant.com/resident-evil-characters-appeared-live-action-movies-ranked/
+
+While the Resident Evil movies have mostly told their own stories, some of the most iconic video game characters have appeared with varying success.
+---------
+
+# Netflix's 'Tolkien Meets Game Of Thrones' Fantasy Series Has 4 Seasons & 2 Movies
+
+Streaming TV, Masked Recs
+
+Tue, 15 Sep 2026 19:15:08 GMT
+
+https://screenrant.com/the-witcher-netflix-franchise-multiple-seasons-movies/
+
+Netflix combined the fantasy structure of The Lord of the Rings with the dark grit of Game of Thrones for a franchise with more yet to offer.
+---------
+
+# The BBC's 23-Episode Fantasy Series Deserves Higher Than Its 83% Rotten Tomatoes Score
+
+Classic TV, Masked Recs
+
+Tue, 15 Sep 2026 19:11:12 GMT
+
+https://screenrant.com/his-dark-materials-harsh-rotten-tomatoes-score/
+
+BBC and HBO co-pro series His Dark Materials is one of the best fantasy series in recent memory, which makes its 83% RT score shockingly low.
+---------
+
+# Why There’s No New High Potential Tonight (September 15) & When Season 3 Premieres
+
+Network TV, High Potential
+
+Tue, 15 Sep 2026 19:01:15 GMT
+
+https://screenrant.com/high-potential-no-new-episode-september-2026-season-3-release/
+
+Kaitlin Olson's hit series on ABC is due to release new episodes based on its past schedule, but High Potential season 3 will be a bit of a wait.
+---------
+
+# Supernatural’s New Era Is Here, All Returning Characters and Changes
+
+Comics, Supernatural
+
+Tue, 15 Sep 2026 18:57:16 GMT
+
+https://screenrant.com/supernatural-return-all-characters-changes/
+
+Supernatural's new era is here, confirming three returning characters and one fan-favorite who likely won’t return in the franchise’s next chapter.
+---------
+
+# Fox's House MD Replacement Gets Big Season 2 Update After Becoming 1 of the Biggest Shows on Streaming
+
+TV, Best Medicine, Hulu, Netflix
+
+Tue, 15 Sep 2026 19:37:49 GMT
+
+https://www.cbr.com/fox-best-medicine-season-2-rosemary/
+
+Best Medicine Season 2 will answer some lingering Season 1 questions.
+---------
+
+# The Legend of Zelda Anime Can Finally Dethrone Solo Leveling on Crunchyroll
+
+Anime, The Legend of Zelda, Solo Leveling, Crunchyroll
+
+Tue, 15 Sep 2026 19:30:11 GMT
+
+https://www.cbr.com/zelda-twilight-princess-anime-adaptation-beat-solo-leveling/
+
+Solo Leveling is the biggest anime of the 2020s, but a Legend of Zelda manga adaptation could leave it in the dust.
+---------
+
+# 5 Masterpiece Fantasy Book Series With the Best Magic Systems
+
+Movies, Fantasy
+
+Tue, 15 Sep 2026 19:30:11 GMT
+
+https://www.cbr.com/best-fantasy-book-series-with-best-magic-list/
+
+Many fantasy books have fascinating worlds and mystical beings, but these five are truly masterpieces both in writing and in magical systems.
+---------
+
+# Dungeon Crawler Carl's Samantha Returns in New Release Coming November 2026
+
+Games, Dungeon Crawler Carl
+
+Tue, 15 Sep 2026 19:25:11 GMT
+
+https://www.cbr.com/dungeon-crawler-carl-official-new-release-samantha-november-2026/
+
+Samantha from Dungeon Crawler Carl is making her grand return in a new release this November.
+---------
+
+# Sailor Moon Meets Evangelion in New Nintendo Switch 2 Exclusive
+
+Anime, Nintendo, Nintendo Switch, Sailor Moon, Neon Genesis Evangelion
+
+Tue, 15 Sep 2026 19:20:11 GMT
+
+https://www.cbr.com/orbitals-nintendo-switch-2-sailor-moon-evangelion-inspire/
+
+Orbitals' development team explains how the game is a love letter to '80s and '90s-era anime, including Sailor Moon and Neon Genesis Evangelion.
+---------
+
+# 10 Classic '90s Games That Are Unplayable Today
+
+Games, retro games, Innovation
+
+Tue, 15 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/unplayable-classic-90s-games-today/
+
+Some of the best games of the '90s, like Final Fantasy 6, are extremely hard to go back to today.
+---------
+
+# The 2-Season HBO Dark Fantasy Show Made Just for Twin Peaks Fans
+
+TV, Carnivale, HBO Max, Fantasy
+
+Tue, 15 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/hbo-carnivle-perfect-for-twin-peaks-fans/
+
+One HBO dark fantasy series was accurately described as "Twin Peaks with logic."
+---------
+
+# The Lord of the Rings' 5 Strongest Fortresses, Ranked
+
+Movies, The Lord of the Rings, Fantasy
+
+Tue, 15 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/lord-of-the-rings-strongest-castles-towers-list/
+
+Even Middle-earth's mightiest armies struggled to overcome these castles and towers in J. R. R. Tolkien's The Lord of the Rings.
+---------
+
+# Prime Video Confirms Major Streaming Expansion With Massive 5-Service Bundle
+
+TV, Prime Video
+
+Tue, 15 Sep 2026 18:57:59 GMT
+
+https://www.cbr.com/prime-video-5-service-bundle/
+
+Step aside Netflix, Prime Video's expansion is even bigger.
+---------
+
+# 10 Greatest Anime Series of the 2010s, Ranked
+
+Anime, Puella Magi Madoka Magica, Hunter x Hunter
+
+Tue, 15 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/greatest-anime-series-of-the-2010s-ranked/
+
+The 2010s were a deeply formative time for anime that featured some totemic triumphs like Hunter x Hunter, Steins;Gate, and Madoka Magica.
+---------
+
+# 5 Best Comic Strips of All Time, Ranked
+
+Books and Comics, Comics, Family, Peanuts, Artwork
+
+Tue, 15 Sep 2026 19:44:11 GMT
+
+https://collider.com/best-comic-strips-all-time-ranked/
+
+From Calvin and Hobbes to Peanuts, these iconic comic strips transformed newspapers into lasting worlds of humor, insight, and art.
+---------
+
+# DC’s The Flash Officially Returns Ahead of DCU Reboot
+
+Movie News, The Flash, DCU, Superhero, DC
+
+Tue, 15 Sep 2026 19:42:34 GMT
+
+https://collider.com/dc-the-flash-ring-collectible-images/
+
+The Flash has yet to join James Gunn's DCU, but a new release celebrates the speedster as the universe continues to expand.
+---------
+
+# Peacock’s Highest-Rated Sitcom Is Officially Dominating the Competition on Streaming
+
+TV Features, The Paper, The Office, Series, Sitcom
+
+Tue, 15 Sep 2026 19:36:11 GMT
+
+https://collider.com/the-paper-peacock-highest-rated-sitcom-the-office-spinoff/
+
+The Paper has grown beyond its Office roots, earning strong reviews as Peacock’s hilarious, sharp, and increasingly confident workplace sitcom.
+---------
+
+# 10 Brilliant Streaming Movies No One Is Talking About
+
+Movie, Apple TV, Netflix, Prime Video, Hulu
+
+Tue, 15 Sep 2026 19:24:11 GMT
+
+https://collider.com/brilliant-streaming-movies-no-one-is-talking-about/
+
+Gems like Netflix's The Stranger and Apple TV's Wolfwalkers are among the best streaming movies that sadly remain mostly ignored by general audiences.
+---------
+
+# The 10 Greatest Rock One-Hit Wonders of All Time, Ranked
+
+Music Features, Music, Rock, 70s, 80s
+
+Tue, 15 Sep 2026 19:11:11 GMT
+
+https://collider.com/best-rock-one-hit-wonders-all-time-ranked/
+
+"My Sharona" by The Knack, "All Right Now" by Free, and "No Rain" by Blind Melon are all among the best rock one-hit wonders of all time.
+---------
+
+# Quentin Tarantino Officially Announces Rare Sequel for 2026
+
+Movie News, Quentin Tarantino, The Further Mis-Adventures of Cliff Booth, Once Upon a Time in Hollywood, Books
+
+Tue, 15 Sep 2026 19:01:37 GMT
+
+https://collider.com/quentin-tarantino-once-upon-a-time-in-hollywood-sequel-cliff-booth/
+
+Ahead of Brad Pitt's return as Cliff Booth, Quentin Tarantino is officially writing a new Once Upon a Time in Hollywood sequel, releasing in 2026.
+---------
+
+# 6 Perfect Sitcoms Worth Watching Over and Over
+
+TV, Sitcom, Happy Endings, Don't Trust The B---- in Apartment 23, The Good Place
+
+Tue, 15 Sep 2026 18:41:11 GMT
+
+https://collider.com/perfect-sitcoms-worth-watching-over-and-over-ranked/
+
+The Good Place, Happy Endings, and Galavant are among the best, near-perfect sitcoms you can watch again and again.
+---------
+
+# The 10 Best Book Sequels of All Time, Ranked
+
+Books and Comics, Books, sequels, J.R.R. Tolkien, Harry Potter
+
+Tue, 15 Sep 2026 18:41:11 GMT
+
+https://collider.com/best-book-sequels-all-time-ranked/
+
+Harry Potter and the Chamber of Secrets, The Two Towers, and Through the Looking-Glass are among the best book sequels ever written.
+---------
+
+# Netflix Officially Sets Release Date for New 'Pride & Prejudice' Reboot
+
+TV News, Pride And Prejudice, Jane Austen, Emma Corrin, Jack Lowden
+
+Tue, 15 Sep 2026 17:31:00 GMT
+
+https://collider.com/netflix-pride-and-prejudice-reboot-images-release-date-december-2026/
+
+Netflix Pride & Prejudice reboot has officially announced an earlier-than-expected 2026 release date. See the first images from the new adaptation her
+---------
+
+# Daniel Craig Is Officially Returning to Theaters as James Bond
+
+Movie News, Casino Royale
+
+Tue, 15 Sep 2026 17:12:21 GMT
+
+https://collider.com/daniel-craig-james-bond-return-casino-royale-re-release-october-2026/
+
+Daniel Craig is officially back as James Bond, with the franchise’s best movie officially returning to theaters. Read on for more.
+---------
+
+# 'Landman' Finds Perfect New Cast Candidate as Taylor Sheridan Veteran Officially Confirms Interest
+
+TV News, Landman, Lioness, Drama
+
+Tue, 15 Sep 2026 19:02:11 GMT
+
+https://movieweb.com/taylor-sheridan-cast-laysla-de-oliveira-landman/
+
+A 'Lioness' star wants a part in 'Landman' and the broader Sheridanverse.
+---------
+
+# Taylor Sheridan's Highest-Rated Series Heads to Netflix for the First Time Ever Next Month
+
+TV News, Mayor of Kingstown, Coming/Leaving Streaming, Taylor Sheridan, Crime, Thriller
+
+Tue, 15 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/taylor-sheridan-mayor-of-kingstown-streaming-netflix-october-2026/
+
+While 'Yellowstone' might be what Sheridan inmost known for, his epic crime thriller is his highest-rated creation among the majority of viewers.
+---------
+
+# 8 Great Fantasy Books Recommended By George R.R. Martin
+
+TV Lists, George R.R. Martin, Fantasy
+
+Tue, 15 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/best-fantasy-books-george-r-r-martin-loves/
+
+George R.R. Martin, the beloved author of the popular series 'Game of Thrones' is based on, has recommended several books in the fantasy genre.
+---------
+
+# Prime Video Officially Launches New Deal That Changes the Streaming Game Forever
+
+TV News, Prime Video
+
+Tue, 15 Sep 2026 18:49:41 GMT
+
+https://movieweb.com/prime-video-new-streaming-bundle/
+
+AMC+, MGM+, BritBox, Starz, and PBS Masterpiece are teaming up to launch a new $29.99 per month bundle on Prime Video.
+---------
+
+# HBO Officially Addresses Fate of 'The Last of Us' Ahead of Season 3
+
+TV News, The Last of Us, Drama, HBO Max
+
+Tue, 15 Sep 2026 18:10:07 GMT
+
+https://movieweb.com/the-last-of-us-season-3-hbo-fate/
+
+HBO confirmed whether 'The Last of Us' will continue into new stories on HBO Max after its highly anticipated third season.
+---------
+
+# Dustin Hoffman's New 10/10 Heist Thriller That's One of 2026's Best Movies Gets Streaming Release
+
+Movie News, Tuner, Dustin Hoffman, Crime, Thriller, Paramount Plus
+
+Tue, 15 Sep 2026 17:30:52 GMT
+
+https://movieweb.com/dustin-hoffman-tuner-paramount-streaming-date/
+
+'Tuner,' starring Leo Woodall and Dustin Hoffman, debuts on Paramount+ on September 21, 2026.
+---------
+
+# 12 Years Later, Tyrion Lannister's Most Epic Line Is Still Unbeaten in 'Game of Thrones' History
+
+Features, Game Of Thrones, Game of Thrones, Fantasy
+
+Tue, 15 Sep 2026 17:30:13 GMT
+
+https://movieweb.com/game-of-thrones-tyrion-lannister-best-line/
+
+Tyrion’s most epic line from Game of Thrones is uttered in anger, and it perfectly sums up his entire eight-season character arc.
+---------
+
+# Jon Hamm's Twisting 2-Part Crime Thriller Is a Global Sensation on Streaming Ahead of New Season
+
+TV News, Your Friends and Neighbors, Apple TV, Hot on Streaming
+
+Tue, 15 Sep 2026 17:30:13 GMT
+
+https://movieweb.com/your-friends-and-neighbors-crime-stream-apple-sept-2026/
+
+Forget 'Mad Men,' Jon Hamm's best new series is a near-perfect two-season crime thriller.
+---------
+
+# 'South Park' Officially Rebrands for Season 29 in New Teaser
+
+TV News, South Park, Comedy Central Presents, Paramount Plus, Comedy
+
+Tue, 15 Sep 2026 17:25:55 GMT
+
+https://movieweb.com/south-park-season-29-first-look/
+
+The biting comedy 'South Park' - we mean, 'South America' - is back and better than ever.
+---------
+
+# Netflix Has Officially Fumbled Two Chances to Get the Next 'Yellowstone'
+
+Features, Yellowstone, Western, Territory, Ransom Canyon, Netflix
+
+Tue, 15 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/netflix-territory-ransom-canyon-yellowstone-comparison/
+
+Netflix almost had two Western TV shows that could have been as good as Taylor Sheridan's hit Neo-Western 'Yellowstone.'
+---------
+
 # Avengers: Doomsday Is Switching Main Characters For Only The 2nd Time In Marvel History
 
 Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
