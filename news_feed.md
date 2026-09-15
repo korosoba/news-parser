@@ -1,3 +1,333 @@
+# A 2004 PlayStation 2 Classic Is Officially Free Now With PS Plus
+
+Gaming, Mega Man, PlayStation 2, PlayStation Plus
+
+Tue, 15 Sep 2026 06:00:14 GMT
+
+https://screenrant.com/playstation-ps2-2004-classic-ps-plus-free-september-2026/
+
+This iconic 2004 PlayStation 2 classic is finally free for all to enjoy via PlayStation Plus, and it is a must-play.
+---------
+
+# Invincible Officially Returns In Huge New 2027 Crossover
+
+Gaming, Invincible, PC
+
+Tue, 15 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/invincible-universus-2027-crossover-confirmed/invincible-universus-2027-crossover-confirmed/
+
+Invincible is finally back in a massive new crossover that fans will want to check out when it launches in 2027.
+---------
+
+# Game Of Thrones: Hand Of The King Officially Confirms Return Of Jon Snow
+
+Gaming, Game of Thrones, Game of Thrones: Legends, Game Of Thrones, Jon Snow, PC
+
+Tue, 15 Sep 2026 04:30:14 GMT
+
+https://screenrant.com/game-of-thrones-hand-of-king-jon-snow-return/
+
+The King in the North officially returns in Game of Thrones: Hand of the King, ushering in a new era for Westeros and Jon Snow's triumphant comeback.
+---------
+
+# Dungeon Crawler Carl: Enchanted Big Boi Boxers Officially Releases November 2026
+
+Gaming, Dungeon Crawler Carl, RPG
+
+Tue, 15 Sep 2026 04:01:16 GMT
+
+https://screenrant.com/dungeon-crawler-carl-big-boi-boxers-november-2026/
+
+Carl's iconic boxers dice set brings tongue in cheek flair to tabletop run nights. Dungeon Crawler Carl: Enchanted Big Boi Boxers Releases Nov 2026.
+---------
+
+# Captain America May Be The Biggest Winner & Loser From Marvel Rewriting Avengers: Endgame This Month
+
+Superheroes, Avengers: Endgame, Marvel Cinematic Universe
+
+Tue, 15 Sep 2026 03:48:27 GMT
+
+https://screenrant.com/avengers-endgame-encore-captain-america-steve-rogers-sam-wilson-change/
+
+Avengers: Endgame encore is set to release later this month, and the upcoming changes will more than likely affect Captain America more than most.
+---------
+
+# Peanuts Used One Last Classic Snoopy Gag To Mark The End Of An Era
+
+Comics, Peanuts
+
+Tue, 15 Sep 2026 03:30:33 GMT
+
+https://screenrant.com/peanuts-snoopy-world-famous-author-end-era/
+
+Snoopy has been a dog of many hats in Peanuts, but the final appearance of one iconic alter ego hits harder than all others.
+---------
+
+# It's Officially The End Of An Era For The Bear
+
+Streaming TV, The Bear
+
+Tue, 15 Sep 2026 03:11:27 GMT
+
+https://screenrant.com/the-bear-emmys-2026-end-of-an-era/
+
+After years as an Emmy darling, the era of FX and Hulu's The Bear sweeping accolades throughout awards season has finally come to a close.
+---------
+
+# Emmys 2026 Snubs & Surprises: Apple TV Dominates With Widow's Bay Sweep
+
+Streaming TV, Emmy Awards
+
+Tue, 15 Sep 2026 03:00:35 GMT
+
+https://screenrant.com/emmys-2026-snubs-surprises/
+
+The Pitt, Hacks, and Widow's Bay had the most nominations at the 2026 Emmy Awards, but let's see who the biggest snubs and surprise winners were.
+---------
+
+# What The Legacy Is In Silo & Why It's Kept Secret
+
+Streaming TV, Silo
+
+Tue, 15 Sep 2026 03:00:16 GMT
+
+https://screenrant.com/silo-legacy-program-it-secret-explained/
+
+Bernard finally gives Lukas access to the Legacy in Silo season 2's episode 7, raising many questions about what it is and why it was kept hidden.
+---------
+
+# Every Big Bang Theory Character & Actor In Young Sheldon
+
+Network TV, The Big Bang Theory, Young Sheldon
+
+Tue, 15 Sep 2026 03:00:16 GMT
+
+https://screenrant.com/young-sheldon-big-bang-theory-characters-actors-return/
+
+Young Sheldon may be the prequel to The Big Bang Theory, but some characters and actors from the original show still appear in the spinoff.
+---------
+
+# The Walking Dead: Dead City Showrunner Shares His Concept for a Dillard Spinoff
+
+CBR Exclusives, The Walking Dead: Dead City, The Walking Dead
+
+Tue, 15 Sep 2026 04:08:11 GMT
+
+https://www.cbr.com/walking-dead-dead-city-dillard-spinoff-seth-hoffman/
+
+Dead City showrunner Seth Hoffman reveals his concept for a Dillard prequel spinoff starring Jimmi Simpson.
+---------
+
+# New Rocky Movie Star Gets High Praise from Critics: 'Like We're Seeing Stallone Himself'
+
+Movies, I Play Rocky
+
+Tue, 15 Sep 2026 03:54:28 GMT
+
+https://www.cbr.com/i-play-rocky-reviews-rotten-tomatoes/
+
+The casting has been called "uncanny" by critics.
+---------
+
+# 10 Untouchable Sega Dreamcast Games Nobody Remembers
+
+Games, dreamcast, sega
+
+Tue, 15 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/best-sega-dreamcast-games-forgotten-list/
+
+The Sega Dreamcast was ahead of its time, and games like Power Stone 2 never got the recognition they deserved.
+---------
+
+# 78th Emmy Awards 2026: Full List of Winners
+
+TV, Emmy Awards
+
+Tue, 15 Sep 2026 03:35:17 GMT
+
+https://www.cbr.com/78th-emmy-awards-2026-full-winners-list/
+
+The full list of Emmy Award winners has been revealed.
+---------
+
+# Taylor Sheridan Pulls the Plug on Lioness Season 3’s New Episode Format at the Perfect Time
+
+TV, Lioness, zoe saldana
+
+Tue, 15 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/lioness-season-3-episode-7-kiss-the-girls-timeline/
+
+Paramount+'s Lioness Season 3 pulls the plug on its episode format at the perfect time in Episode 7, "Kiss the Girls," setting up a massive finale.
+---------
+
+# 10 Best Garfield Comics Featuring Liz Wilson, Ranked
+
+Comics, Garfield
+
+Tue, 15 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/best-garfield-comics-featuring-liz-ranked/
+
+The famous Garfield comic strip wouldn't be the same without Dr. Liz Wilson, who has become a beloved member of Jon's family.
+---------
+
+# 10 Greatest JRPGs of All Time, Ranked
+
+Games, JRPG, Chrono Trigger, Innovation
+
+Tue, 15 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/greatest-jrpgs-all-time-ranked-list/
+
+Games like Chrono Trigger and Dragon Quest XI are the gold standard for JRPGs.
+---------
+
+# The Paper Star Confirms the Season 2 Change That Affected His ‘Whole Life’
+
+CBR Exclusives, The Paper, Peacock, The Office
+
+Tue, 15 Sep 2026 03:07:36 GMT
+
+https://www.cbr.com/the-paper-season-2-duane-shepard-barry-series-regular/
+
+The Paper star Duane Shepard Sr. reveals how his Season 2 promotion changed his life and gave Barry a bigger newsroom role.
+---------
+
+# Gundam 00 Brings Back Its Transforming Mecha With a Major New Power-Up
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam 00, merchandise, toys, bandai
+
+Tue, 15 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/gundam-00-kyrios-metallic-gloss-injection-gunpla/
+
+Bandai is set to release another Gundam model kit as an exclusive to Japanese Gundam Base stores, with this one revisiting the Anno Domini timeline.
+---------
+
+# 5 American Martial Arts Movies Nobody Talks About Anymore
+
+Movies, Action
+
+Tue, 15 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/american-martial-arts-movies-no-one-remembers-list/
+
+Martial arts movies are a key part of action movies, but there are some American films that have been completely forgotten.
+---------
+
+# Every Jane Austen Book, Ranked
+
+Books and Comics, Jane Austen, Pride & Prejudice, Sense and Sensibility, Persuasion
+
+Tue, 15 Sep 2026 04:18:11 GMT
+
+https://collider.com/jane-austen-books-ranked/
+
+From Pride and Prejudice to Northanger Abbey, each of Jane Austen's books are considered literary classics, but which novel is her absolute best?
+---------
+
+# 23 Years Later, The Lord of the Rings' Final Line Still Defines the Fantasy Trilogy
+
+Movie Features, Lord of the Rings: Return of the King, Peter Jackson, Elijah Wood, Sean Astin
+
+Tue, 15 Sep 2026 04:05:11 GMT
+
+https://collider.com/lord-of-the-rings-return-of-the-king-best-final-quote-fantasy-film/
+
+Peter Jackson's Lord of the Rings: Return of the King ends with one of the greatest final lines in fantasy film history, spoken by Sam Gamgee.
+---------
+
+# The 20 Best Feel-Good Songs Guaranteed to Turn That Frown Upside Down
+
+Music Features, Music, SpongeBob SquarePants, Monty Python, Pop
+
+Tue, 15 Sep 2026 03:56:11 GMT
+
+https://collider.com/best-feel-good-songs/
+
+"Walking on Sunshine" by Katrina and the Waves and "Ob-La-Di, Ob-La-Da" by The Beatles are among the absolute best feel-good songs of all time.
+---------
+
+# 8 Must-Watch Shows To Binge While You Wait for 'The Pitt' Season 3
+
+TV, The Pitt, ER, 9-1-1, Grey's Anatomy
+
+Tue, 15 Sep 2026 03:55:11 GMT
+
+https://collider.com/the-pitt-season-3-shows-to-watch/
+
+9-1-1, Grey's Anatomy, and High Potential are great shows to watch while you wait for the highly anticipated third season of HBO Max's The Pitt.
+---------
+
+# Jason Statham’s $28 Million Action Flop Is Officially a Streaming Hit
+
+Movie News, Jason Statham, Mutiny, The Beekeeper, Action Thriller
+
+Tue, 15 Sep 2026 03:45:11 GMT
+
+https://collider.com/jason-statham-mutiny-amazon-number-one-streaming-hit/
+
+Jason Statham’s Mutiny rebounds from a $28 million box office run to become Amazon’s No. 1 movie.
+---------
+
+# Netflix’s 11-Season Streaming Favorite Is Officially Leaving
+
+TV News, Shameless, Netflix, Emmy Rossum, Jeremy Allen White
+
+Tue, 15 Sep 2026 03:30:11 GMT
+
+https://collider.com/netflix-removing-shameless-october-2026/
+
+Netflix has announced that all episodes of Shameless will be removed from the streaming platform in October. Find out more details here.
+---------
+
+# The Emotional Paul McCartney Track That Was His Last Conversation With John Lennon
+
+Music Features, Paul McCartney, John Lennon, The Beatles, Music, Rock
+
+Tue, 15 Sep 2026 03:16:34 GMT
+
+https://collider.com/paul-mccartney-here-today-john-lennon/
+
+Paul McCartney turned his final conversation with John Lennon into one of his most emotional songs in Here Today.
+---------
+
+# Jack Quaid's Best Action Movie Is Officially Dominating Streaming Right Now
+
+Movie News, Novocaine, Netflix, John Wick, Crank
+
+Tue, 15 Sep 2026 03:00:11 GMT
+
+https://collider.com/jack-quaid-action-thriller-novocaine-streaming-success-netflix-september-2026/
+
+Jack Quaid's bonkers action thriller with shades of John Wick and Crank is officially finding new life on Netflix streaming charts.
+---------
+
+# ‘Widow's Bay’ Officially Crowned Outstanding Comedy Series at the Emmy Awards
+
+TV News, Widow's Bay, Apple TV, Matthew Rhys, Emmy Awards
+
+Tue, 15 Sep 2026 02:55:13 GMT
+
+https://collider.com/widows-bay-emmys-2026-comedy-series-winner/
+
+Widow's Bay has made history for Apple TV at the Emmys by winning the award for Outstanding Comedy Series.
+---------
+
+# ‘The Pitt’ Officially Crowned Outstanding Drama Series at the Emmy Awards
+
+TV News, The Pitt, Emmy Awards, HBO Max, Noah Wyle
+
+Tue, 15 Sep 2026 02:41:35 GMT
+
+https://collider.com/the-pitt-emmys-2026-drama-series-winner/
+
+The Pitt Season 2 has won Outstanding Drama Series at this year's Emmy Awards for the second year in a row.
+---------
+
 # Jean Smart Officially Makes Emmys History
 
 Streaming TV, Emmy Awards
