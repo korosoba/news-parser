@@ -1,3 +1,443 @@
+# Avengers: Doomsday Is Switching Main Characters For Only The 2nd Time In Marvel History
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Tue, 15 Sep 2026 16:15:15 GMT
+
+https://screenrant.com/avengers-doomsday-main-character-change-doctor-doom-iron-man/
+
+The MCU has given the Avengers franchise a new main character with Avengers: Doomsday, switching up a winning formula for just the second time.
+---------
+
+# Apple TV Found The Next Mindhunter In A Must-Watch 6-Hour Crime Thriller
+
+Streaming TV, Masked Recs
+
+Tue, 15 Sep 2026 16:04:15 GMT
+
+https://screenrant.com/black-bird-apple-tv-mindhunter-successor-crime-thriller/
+
+Mindhunter is one of TV's most tragic cancelations, but Apple TV has brought the iconic show back in spirit with Black Bird, which shares its DNA.
+---------
+
+# I Have Proof Unveils Chilling Trailer Before Fantastic Fest Premiere
+
+Exclusive, Horror
+
+Tue, 15 Sep 2026 16:00:15 GMT
+
+https://screenrant.com/video/i-have-proof-trailer-2026-fantastic-fest/
+
+Larsen Deane, Lilly Van der Meer, Augie Duke, B.J. Hendricks, Kelly Lynn Reiter, David Josh Lawrence
+---------
+
+# Forgotten Island Review: Laugh-Out-Loud DreamWorks Comedy Is Breathless, Joyful Chaos
+
+New Movies, Forgotten Island
+
+Tue, 15 Sep 2026 16:00:15 GMT
+
+https://screenrant.com/forgotten-island-movie-review/
+
+A film that fully encapsulates this new era of American studio animation, Forgotten Island is overflowing with visual creativity and manic humor.
+---------
+
+# Golden Axe Review: Paramount+'s Meta Hysteria Sets The Bar Even Higher For Video Game Adaptations
+
+Streaming TV, Golden Axe, Paramount Plus
+
+Tue, 15 Sep 2026 16:00:15 GMT
+
+https://screenrant.com/golden-axe-tv-show-review/
+
+Paramount+'s Golden Axe proves to be one of the best of the video game adaptation genre with its outstanding mix of hilarity and stylish animation.
+---------
+
+# All 6 Movies & TV Shows In Gerard Butler's Has Fallen Franchise Explained
+
+Movies, Has Fallen, Gerard Butler
+
+Tue, 15 Sep 2026 16:00:15 GMT
+
+https://screenrant.com/has-fallen-movies-tv-shows-explained/
+
+The Has Fallen franchise spans three Gerard Butler movies and a growing TV universe. Here’s every released and upcoming title explained.
+---------
+
+# James Gunn Addresses Secret DC Character Rumors For Man Of Tomorrow
+
+Movies, Man of Tomorrow, Superman, DC Universe
+
+Tue, 15 Sep 2026 15:55:44 GMT
+
+https://screenrant.com/superman-man-of-tomorrow-secret-dc-characters-james-gunn-response/
+
+James Gunn opens up about secret DC characters being rumored for his next Superman installment, Man of Tomorrow, following the completion of filming.
+---------
+
+# 7 Crime Thrillers You Need To Read, According To Harlan Coben
+
+Books, Thriller
+
+Tue, 15 Sep 2026 15:49:08 GMT
+
+https://screenrant.com/harlan-coben-thriller-book-recommendations/
+
+Books author Harlen Coben has praise for.
+---------
+
+# The Rookie Confirms The Best News About Season 9 Amid Extended Wait
+
+Network TV, The Rookie
+
+Tue, 15 Sep 2026 15:45:14 GMT
+
+https://screenrant.com/the-rookie-season-9-lucy-tim-fate-revealed-immediately-good/
+
+Learn all the major updates on Tim and Lucy as The Rookie season 9 promises quick resolutions to their dramatic abduction.
+---------
+
+# 5 Best Alan Moore Quotes In Comic History
+
+Comics, Alan Moore
+
+Tue, 15 Sep 2026 15:37:27 GMT
+
+https://screenrant.com/best-alan-moore-quotes/
+
+Alan Moore is renowned for his brilliant writing, and these iconic quotes show the mastermind at his finest.
+---------
+
+# The Weight: What Ethan Hawke Was Really Carrying
+
+Movies, The Weight
+
+Tue, 15 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/video/the-weight-what-ethan-hawke-was-really-carrying/
+
+The Weight put Ethan Hawke and the cast through some very real physical work. Director Padraic McKinley reveals what was actually inside the gold packs—and when the production swapped heavy weights for toilet paper.
+---------
+
+# 5 Best Webtoons That Deserve To Become Bigger Than Solo Leveling
+
+Anime, Solo Leveling, webtoons
+
+Tue, 15 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/best-webtoons-deserve-become-bigger-than-solo-leveling/
+
+These Webtoons with no anime adaptations have the potential to surpass Solo Leveling.
+---------
+
+# Netflix’s 3-Part Addictive Political Thriller Raises the Stakes With a Shaky Alliance
+
+TV, The Diplomat, Netflix, Thriller
+
+Tue, 15 Sep 2026 16:07:08 GMT
+
+https://www.cbr.com/netflix-the-diplomat-season-4-trailer/
+
+The Diplomat returns this October.
+---------
+
+# Fantastic Four Expands Its MCU Footprint With Major Villain Prequel
+
+Comics, Fantastic Four, The Fantastic Four: First Steps
+
+Tue, 15 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/fantastic-four-first-foes-the-wizard-1-mcu-prequel-comic/
+
+There is more to learn about the MCU's Fantastic Four in this comic book.
+---------
+
+# Ridley Scott’s Next Alien Movie Is the Franchise's Biggest Challenge
+
+Movies, Alien, ridley scott, Alien: Romulus, Alien: Earth, Alien: Covenant
+
+Tue, 15 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/ridley-scott-alien-romulus-sequel-biggest-franchise-problem/
+
+Ridley Scott has confirmed that he is returning to the Alien franchise to deliver yet another chapter in the franchise's complex timeline.
+---------
+
+# Seinfeld Quietly Lied to Fans for 180 Episodes & Nobody Noticed
+
+TV, Seinfeld, Sitcoms
+
+Tue, 15 Sep 2026 15:35:11 GMT
+
+https://www.cbr.com/seinfeld-show-about-nothing-inaccurate/
+
+Despite being called a show about nothing, Seinfeld was really about everything, and here's the evidence to prove it.
+---------
+
+# 34 Years Later, Picard's Darkest Star Trek Episode Remains 45 Minutes of Perfect Sci-Fi
+
+TV, Star Trek: The Next Generation, Sci-Fi, Paramount
+
+Tue, 15 Sep 2026 15:35:11 GMT
+
+https://www.cbr.com/star-trek-tng-darkest-picard-episode-perfect-sci-fi/
+
+Star Trek rarely pushed Picard as far as this classic TNG episode, which stripped the Enterprise captain down and stretched him beyond his limits.
+---------
+
+# Pierce Brosnan Confirms Guy Ritchie's MobLand Season 3 Filming Start After Tom Hardy Tension
+
+TV, MobLand, Pierce Brosnan
+
+Tue, 15 Sep 2026 15:29:56 GMT
+
+https://www.cbr.com/mobland-season-3-filming-starts-november-2026/
+
+With the behind-the-scenes drama now firmly in the past, MobLand Season 3 gets an amazing update from star Pierce Brosnan.
+---------
+
+# New $50 Zelda: Ocarina of Time Release Available for Preorder Now
+
+Games, The Legend of Zelda, Nintendo, The Legend of Zelda: Ocarina of Time
+
+Tue, 15 Sep 2026 15:18:12 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-release-available-for-preorder-now/
+
+The Legend of Zelda: Ocarina of Time remake is fast approaching, and pre-orders for a $50 add-on are now open, letting people pretend they're Link.
+---------
+
+# 10 Best Cozy Anime Series That Aren’t Boring
+
+Anime, Spy X Family, Mushi-Shi
+
+Tue, 15 Sep 2026 15:15:11 GMT
+
+https://www.cbr.com/best-cozy-anime-series-not-boring/
+
+Anime series like Barakamon and Spy x Family are both relaxing and exceptionally entertaining.
+---------
+
+# Star Trek-Inspired Retro Action Figures Officially Launch With New Theme Song [Exclusive]
+
+Collectibles, Kickstarter, Action Figures, Science Fiction, Star Trek
+
+Tue, 15 Sep 2026 16:00:11 GMT
+
+https://collider.com/star-trek-inspired-planetoid-raiders-theme-song/
+
+The Planetoid Raiders are coming your way, and now they have their own theme song. Listen to it now.
+---------
+
+# ‘Toxic Crusaders’ Officially Returns With a New 5-Part Release [Exclusive]
+
+Books and Comics News, Comic Book, Toxic Crusaders, The Toxic Avenger, Comedy
+
+Tue, 15 Sep 2026 16:00:11 GMT
+
+https://collider.com/toxic-crusaders-comic-book-full-issue/
+
+Matt Bors and Tristan Wright's slimy satire, Toxic Crusaders, is coming to TPB, so read the first issue for free. Read on for more.
+---------
+
+# Samuel L. Jackson’s New Taylor Sheridan Crime Series Officially Gets First Look
+
+TV News, Frisco King, Tulsa King
+
+Tue, 15 Sep 2026 15:19:50 GMT
+
+https://collider.com/taylor-sheridan-frisco-king-samuel-l-jackson-first-look-tulsa-king-spin-off/
+
+Samuel L. Jackson leads Taylor Sheridan’s Tulsa King spin-off Frisco King in new first-look images from the Paramount+ series.
+---------
+
+# Original 'Inspector Lynley' Star Officially Returns to British Crime TV in New Trailer
+
+TV News, Maigret, The Inspector Lynley Mysteries, PBS, Crime
+
+Tue, 15 Sep 2026 15:00:11 GMT
+
+https://collider.com/maigret-season-2-trailer-release-date-pbs-masterpiece/
+
+Maigret Season 2 premieres October 18 on PBS with three new mysteries and a new boss for Benjamin Wainwright’s detective.
+---------
+
+# Fantastic Fest’s New Witch Horror Movie Gets a Bloody First Look [Exclusive]
+
+Movie News, Horror, Movie Posters, The Heretiks, Fantastic Fest
+
+Tue, 15 Sep 2026 15:00:11 GMT
+
+https://collider.com/new-horror-movie-the-heretiks-poster-creepy-duck/
+
+See the exclusive poster for The Heretiks, a Halloween witch horror starring Weapons breakout Luke Speakman.
+---------
+
+# Forget ‘Parks and Recreation,’ Rob Lowe Is Officially Heading Back to School [Exclusive]
+
+Movie News, The Musical, Rob Lowe, Gillian Jacobs, Comedy
+
+Tue, 15 Sep 2026 15:00:11 GMT
+
+https://collider.com/the-musical-rob-lowe-will-brill-sneak-peek/
+
+Rob Lowe clashes with Will Brill and a determined drama club in an exclusive sneak peek from Sundance darling, The Musical.
+---------
+
+# ‘Foundation’ Star Officially Goes Dark in Brutal First Look at New Horror Film [Exclusive]
+
+Exclusives, Bloody Tennis, Fantastic Fest, Collider Exclusive Preview, Helena Zengel
+
+Tue, 15 Sep 2026 15:00:11 GMT
+
+https://collider.com/bloody-tennis-image-sandra-guldberg-kampp-fantastic-fest/
+
+A new look at the sports thriller Bloody Tennis sees Sandra Guldberg Kampp shedding blood in a cutthroat tennis academy.
+---------
+
+# HBO Officially Casts ‘Harry Potter’s Arthur Weasley Replacement Ahead of Season 2
+
+TV News, Harry Potter, Harry Potter and the Chamber of Secrets, Rafe Spall, HBO Max
+
+Tue, 15 Sep 2026 14:59:11 GMT
+
+https://collider.com/harry-potter-season-2-cast-arthur-weasley-moaning-myrtle-colin-creevey/
+
+Rafe Spall joins HBO’s Harry Potter as Arthur Weasley for Season 2, following his father Timothy Spall into the franchise.
+---------
+
+# Apple TV's Genius 10/10 Spy Series Officially Renewed for Rare Season 8
+
+TV News, Apple TV, Slow Horses, Gary Oldman, Streaming
+
+Tue, 15 Sep 2026 14:00:11 GMT
+
+https://collider.com/slow-horses-season-8-renewed/
+
+Apple TV's hit series Slow Horses with Gary Oldman and Jack Lowden has been officially renewed for Season 8.
+---------
+
+# Baz Luhrmann's 'Romeo + Juliet' Officially Returns 30 Years Later With a Brand-New Release
+
+Movie News, Romeo + Juliet, Leonardo DiCaprio, Claire Danes, Baz Luhrmann
+
+Tue, 15 Sep 2026 14:00:11 GMT
+
+https://collider.com/romeo-plus-juliet-in-concert-on-sale-date/
+
+Baz Lurhmann's Romeo + Juliet is coming to a concert hall near you. Read on for more.
+---------
+
+# Russell Crowe and Christian Bale's 122-Minute Western Epic Shoots to Success on Global Streaming
+
+Movie News, 3:10 to Yuma, Hot on Streaming, Russell Crowe, Christian Bale, Western
+
+Tue, 15 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/310-to-yuma-crowe-bale-western-streaming-hit-hbo-max-september-2026/
+
+Crowe and Bale's iconic take on a classic Western tale is enjoying newfound success on streaming thanks to HBO Max.
+---------
+
+# When 'Neagley' Season 1 Releases on Prime Video & Full Release Schedule
+
+Features, Neagley, Reacher, Prime Video, Action, Thriller
+
+Tue, 15 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/neagley-season-1-release-schedule/
+
+'Neagley,' the spin-off action thriller series of Alan Ritchson's hit 'Reacher,' will premiere on Prime Video in September 2026.
+---------
+
+# Robert Pattinson's New 94% Rated Thriller Unleashes New Trailer Ahead of This Month’s Release
+
+Movie News, Primetime, Robert Pattinson
+
+Tue, 15 Sep 2026 15:49:11 GMT
+
+https://movieweb.com/robert-pattinson-primetime-trailer-reviews/
+
+The latest trailer for 'Primetime' highlights the rave reviews the movie about 'To Catch a Predator' host Chris Hansen has received.
+---------
+
+# HBO's 'Harry Potter' Season 2 Casts Several Key Characters From 'Chamber of Secrets'
+
+TV News, Harry Potter, Fantasy, HBO Max
+
+Tue, 15 Sep 2026 15:30:39 GMT
+
+https://movieweb.com/harry-potter-season-2-cast-arthur-weasley-moaning-myrtle/
+
+HBO is pushing forward into the second season of the 'Harry Potter' reboot, as  a trio of new stars was announced for roles.
+---------
+
+# 7 Prime Video Action Thriller Series That Are Better Than 'Reacher'
+
+TV Lists, Reacher, Action, Thriller
+
+Tue, 15 Sep 2026 15:30:14 GMT
+
+https://movieweb.com/prime-video-thriller-better-reacher/
+
+Prime Video is packed with action thriller series that rival 'Reacher.' Here are 7 standout picks worth adding to your watchlist right now.
+---------
+
+# Netflix Sets December 2026 Release for New Epic That'll Make 'Game of Thrones' Seem Small
+
+TV News, Drama, Netflix
+
+Tue, 15 Sep 2026 15:25:15 GMT
+
+https://movieweb.com/netflix-empress-of-flames-release-date/
+
+The upcoming historical epic 'Empress of Flames' is a massive production.
+---------
+
+# Tim Curry's Final Role Confirmed Following Death Aged 80
+
+Movie News, Tim Curry, Barbie, Netflix
+
+Tue, 15 Sep 2026 15:23:21 GMT
+
+https://movieweb.com/tim-curry-final-role-barbie-nutcracker-netflix/
+
+Tim Curry will delight us one more time in this animated Netflix feature.
+---------
+
+# The 10 Best Movies About the Great Depression, Ranked
+
+Movie Lists, Drama, Comedy
+
+Tue, 15 Sep 2026 15:00:14 GMT
+
+https://movieweb.com/movies-about-great-depression/
+
+From Dust Bowl epics to rousing comeback tales, these films paint the era's grit through unforgettable characters.
+---------
+
+# Zack Snyder Backtracks on Praise for James Gunn’s DCU Superman Reboot
+
+Movie News, Superman, Zack Snyder, James Gunn, DCU
+
+Tue, 15 Sep 2026 14:58:47 GMT
+
+https://movieweb.com/zack-snyder-not-seen-james-gunn-superman/
+
+Despite previously praising 'Superman,' Zack Snyder has now revealed he still has not watched James Gunn's DCU film.
+---------
+
+# Apple TV's Hit Stephen King-Style Series Breaks Several Major Emmy Records
+
+TV News, Widow's Bay, Matthew Rhys, Apple TV, Mystery
+
+Tue, 15 Sep 2026 14:44:27 GMT
+
+https://movieweb.com/widows-bay-emmy-award-records/
+
+The series stunned awards night with a sweep of comedy categories and its lead actor rewriting Emmy history.
+---------
+
 # Dungeon Crawler Carl Officially Returns In 2027 For New Adaptation
 
 Gaming, Dungeon Crawler Carl, PC
