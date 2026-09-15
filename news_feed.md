@@ -1,3 +1,421 @@
+# Robert De Niro's Netflix Thriller Is So Popular, It's Cracked A Major Milestone In 3 Weeks
+
+New Movies, The Whisper Man
+
+Tue, 15 Sep 2026 22:30:15 GMT
+
+https://screenrant.com/the-whisper-man-robert-de-niro-neflix-viewership-top-10-milestone/
+
+Robert De Niro has a crime thriller that's proven to be so popular on Netflix, it's already surpassed a major milestone in just three weeks.
+---------
+
+# Dungeon Crawler Carl’s Next Release Is Officially Less Than One Month Away
+
+Comics, Dungeon Crawler Carl
+
+Tue, 15 Sep 2026 22:30:15 GMT
+
+https://screenrant.com/dungeon-crawler-carl-next-release-comic/
+
+Dungeon Crawler Carl is becoming a true transmedia phenomenon, with a new release this month for fans who can't get enough of the book series.
+---------
+
+# Marvel's New Galactus Replacement Officially Announced
+
+Comics, Galactus
+
+Tue, 15 Sep 2026 22:30:15 GMT
+
+https://screenrant.com/new-galactus-replacement-reboot-redesign-galen/
+
+'The Great Galen.'
+---------
+
+# The Walking Dead Finally, Completely Kills Its Maggie & Negan Romance
+
+Streaming TV, The Walking Dead
+
+Tue, 15 Sep 2026 22:30:15 GMT
+
+https://screenrant.com/the-walking-dead-maggie-negan-romance-over/
+
+Despite their complicated history, The Walking Dead has long teased a romance between Maggie and Negan, but that prospect is finally dead for good.
+---------
+
+# 9-1-1 Returns With An LA Volcanic Eruption In Season 10 Trailer
+
+TV, 9-1-1, 9-1-1 - Season 10
+
+Tue, 15 Sep 2026 22:19:20 GMT
+
+https://screenrant.com/9-1-1-season-10-trailer-volcanic-eruption/
+
+After season 9 debuted with a meteor shower, the opening disaster for ABC's 9-1-1 season 10 is a volcanic eruption in downtown Los Angeles.
+---------
+
+# Taylor Sheridan's 3-Part Spy Thriller Series Becomes A Global Smash Hit In 2 Streaming Services After Season 4 Promise
+
+TV, Masked Recs
+
+Tue, 15 Sep 2026 22:13:41 GMT
+
+https://screenrant.com/taylor-sheridan-lioness-spy-thriller-series-prime-video-paramount-plus-streaming-success/
+
+Taylor Sheridan's spy thriller series is now trending on two different streaming services, showing its global reach after a massive season 4 promise.
+---------
+
+# Every Resident Evil Game You Need To Play Before Requiem
+
+Gaming, Resident Evil 9, Resident Evil, Triple-A Games, PC
+
+Tue, 15 Sep 2026 22:00:15 GMT
+
+https://screenrant.com/resident-evil-games-before-requiem-re2/
+
+Resident Evil Requiem builds on decades of Resident Evil games, but you don't need to hit them all to get the necessary backstory for the new entry.
+---------
+
+# Dungeons & Dragons Meets Star Wars In Netflix's 10-Episode Fantasy Series
+
+TV, Masked Recs
+
+Tue, 15 Sep 2026 21:59:14 GMT
+
+https://screenrant.com/the-dark-crystal-age-of-resistance-netflix-movie-sequel-show/
+
+A richly imagined sci-fi fantasy that blends high stakes adventure with cinematic scale, Netflix's one-season classic deserved to last longer.
+---------
+
+# Supergirl's Redemption Will Continue In 2027 After Becoming A Major Streaming Success
+
+Superheroes, Supergirl, DC Universe
+
+Tue, 15 Sep 2026 21:50:15 GMT
+
+https://screenrant.com/supergirl-milly-alcock-2027-return-redemption-streaming-success-hbo-max/
+
+Milly Alcock's Supergirl has gone from box office bomb to global streaming success, setting up 2027 to continue her redemption for the DC Universe.
+---------
+
+# Silent Hill Unveils New Prequel, And It Looks Like A Total Nightmare
+
+Comics, Silent Hill, Silent Hill: Townfall
+
+Tue, 15 Sep 2026 21:49:01 GMT
+
+https://screenrant.com/silent-hill-townfall-prequel-comic/
+
+Silent Hill is about to have a wonderful spooky season this year, thanks to the launch of a brand-new game and a prequel chapter accompanying it.
+---------
+
+# Naruto's Original Team 7 Reunites in New First Look Ahead of 2027 Debut
+
+Anime, Naruto
+
+Tue, 15 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/naruto-ninja-show-team-7-new-first-look/
+
+Naruto, Sasuke, Sakura, and Kakashi reunite as the original Team 7, with new designs, in an upcoming 2027 release.
+---------
+
+# 10 Greatest Anime Villains of the Last 10 Years, Ranked
+
+Anime, Chainsaw Man, Jujutsu Kaisen, Demon Slayer: Kimetsu no Yaiba
+
+Tue, 15 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/greatest-anime-villains-last-ten-years-ranked/
+
+The last ten years of anime have given fans some of the greatest villains in the medium's history.
+---------
+
+# Jason Momoa's Street Fighter Movie Will Redeem Supergirl's Failure
+
+Movies, Street Fighter, Supergirl, DCU
+
+Tue, 15 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/jason-momoa-street-fighter-blanka-replace-supergirl-lobo/
+
+Jason Momoa's latest film was a critical and commercial failure, but the Street Fighter adaptation will turn his fortunes around.
+---------
+
+# The X-Men's New Status Quo Finally Solves a 5-Year-Old Problem
+
+Comics, X-Men
+
+Tue, 15 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/x-men-moving-on-from-krakoa-changing-status-quo/
+
+Leaving behind a divisive plot element may prove to be the best move for X-Men going forward.
+---------
+
+# Major NCIS Star Returns in Trailer for First New Spinoff Since Tony & Ziva Cancellation
+
+TV, NCIS: New York, NCIS, Action
+
+Tue, 15 Sep 2026 21:47:31 GMT
+
+https://www.cbr.com/ncis-new-york-trailer-ll-cool-j/
+
+NCIS is expanding again, with another familiar face set to return.
+---------
+
+# 10 Perfect Action Anime to Watch Before Jujutsu Kaisen Season 4
+
+Anime, Jujutsu Kaisen
+
+Tue, 15 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/best-action-anime-like-jjk-season-4-list/
+
+Jujutsu Kaisen season 4 is currently in production but doesn't have a release date yet. Thankfully, anime like Demon Slayer can make the wait easier.
+---------
+
+# Resident Evil Reboot Director Shares His Pick for Live-Action Lady Dimitrescu Casting
+
+TV, Resident Evil, Resident Evil Village
+
+Tue, 15 Sep 2026 21:23:21 GMT
+
+https://www.cbr.com/resident-evil-lady-dimitrescu-casting-zach-cregger/
+
+Zach Cregger didn't use established characters in his Resident Evil movie, but if he did, he knows who he'd want as Lady Dimitrescu.
+---------
+
+# Reacher's Spinoff Debuts With Franchise-Record Rotten Tomatoes Score
+
+TV, Neagley, Rotten Tomatoes
+
+Tue, 15 Sep 2026 21:18:16 GMT
+
+https://www.cbr.com/neagley-season-1-rotten-tomatoes-score/
+
+Reacher is officially a franchise, and the new spinoff set a record.
+---------
+
+# 10 Best Strategy RPGs of All Time, Ranked
+
+Games, RPG, Marvel, Final Fantasy, Nintendo
+
+Tue, 15 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/best-strategy-tactics-rpgs-all-time-ranked/
+
+Strategy RPGs are designed to test the player's brain, with some of the best games in the genre being far more stimulating than their action cousins.
+---------
+
+# Yu-Gi-Oh! Fans Finally Get an Official LEGO Exodia Set
+
+Anime, Yu-Gi-Oh!, LEGO, toys, merchandise
+
+Tue, 15 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/yu-gi-oh-exodia-lego-set-no-minifigure/
+
+Yu-Gi-Oh! fans just got what is both a seriously exciting and majorly disappointing update on the future of the franchise in LEGO.
+---------
+
+# 5 Prequel Stories Fans Want to See From The Hunger Games
+
+Movie, The Hunger Games, Suzanne Collins, Jennifer Lawrence, The Hunger Games: Sunrise on the Reaping
+
+Tue, 15 Sep 2026 22:21:11 GMT
+
+https://collider.com/5-prequel-stories-the-hunger-games/
+
+With Sunrise on the Reaping releasing in November, The Hunger Games fans are curious to see what other prequel stories might be created.
+---------
+
+# HBO's Game of Thrones Universe Officially Enters Its 'Winds of Winter' Era
+
+Movie News, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms, HBO
+
+Tue, 15 Sep 2026 22:09:22 GMT
+
+https://collider.com/game-of-thrones-no-spin-offs-in-development-casey-bloys/
+
+HBO’s Casey Bloys has confirmed no other Game of Thrones spin-offs are in development beyond A Knight of the Seven Kingdoms and House of the Dragon.
+---------
+
+# ‘Lanterns’ Officially Sets Up a Major Part of Green Lantern’s Darkest Storyline
+
+TV Features, Lanterns, HBO Max, Superman, Man of Tomorrow
+
+Tue, 15 Sep 2026 21:57:11 GMT
+
+https://collider.com/lanterns-episode-5-blackest-night-comics-storyline-meaning/
+
+Lanterns might have ended the Manhunter threat, but it's also setting the stage for one of DC Comics' darkest storylines: Blackest Night.
+---------
+
+# The 8 Most Fun R-Rated Action Movies, Ranked
+
+Movie, Action, Lists, Terminator 2: Judgment Day, John Wick
+
+Tue, 15 Sep 2026 21:55:11 GMT
+
+https://collider.com/most-fun-r-rated-action-movies-ranked/
+
+True Lies, Kill Bill: The Whole Bloody Affair, and Out for Justice are all among the most purely fun R-rated action movies ever made.
+---------
+
+# 8 Prime Video Shows I Knew Would Be Masterpieces After the First 10 Minutes
+
+TV, Prime Video, Reacher, The Boys, Invincible
+
+Tue, 15 Sep 2026 21:44:11 GMT
+
+https://collider.com/prime-video-shows-masterpieces-first-10-minutes/
+
+Prime Video series like Reacher, Invincible, The Boys, and The Legend of Vox Machina kick off in incredible fashion and then refuse to let up.
+---------
+
+# This Beautiful '90s Album Was Elevated By a Rock and Roll Legend
+
+Music Features, REM, Music, Rock
+
+Tue, 15 Sep 2026 21:42:12 GMT
+
+https://collider.com/rem-automatic-for-the-people-john-paul-jones/
+
+Former Led Zeppelin bassist John Paul Jones composed for a classical string section on R.E.M.'s beautiful album Automatic for the People.
+---------
+
+# Ryan Gosling’s ‘Eat Pray Love’-Produced Romance Finds Its Strength in Margaret Qualley | TIFF Review
+
+Movie Reviews, Margaret Qualley, Gabriel Basso, Toronto International Film Festival, TIFF, Love of Your Life
+
+Tue, 15 Sep 2026 21:23:39 GMT
+
+https://collider.com/love-of-your-life-review-margaret-qualley/
+
+Margaret Qualley anchors Love of Your Life, a moving but familiar romance about grief, travel, and finding love again for Amazon MGM Studios.
+---------
+
+# 5 True-Crime Books Better Than Any Netflix Documentary
+
+Books and Comics, Books, Netflix, Crime, Making a Murderer
+
+Tue, 15 Sep 2026 21:23:11 GMT
+
+https://collider.com/true-crime-books-better-than-any-netflix-documentary/
+
+These five true-crime books go deeper than Netflix documentaries, with gripping murder cases, strange clues, messy investigations, and overlooked deta
+---------
+
+# ‘Stargate SG-1’ Star Officially Reveals Plot Details for Prime Video’s Cancelled Sci-Fi Reboot
+
+TV News, Richard Dean Anderson, Stargate SG-1, Amazon, Stargate
+
+Tue, 15 Sep 2026 21:00:11 GMT
+
+https://collider.com/prime-video-cancelled-stargate-reboot-plot-deails-richard-dean-anderson/
+
+Stargate SG-1's Richard Dean Anderson has shared some news about the cancelled Stargate series, including its current status. Here's all to know.
+---------
+
+# Guy Ritchie's Hit Crime Series Dominates Netflix With Massive Week 2 Jump
+
+TV News, The Gentlemen, Guy Ritchie, Netflix, Theo James
+
+Tue, 15 Sep 2026 20:54:33 GMT
+
+https://collider.com/guy-ritchie-the-gentlemen-season-2-streaming-comeback-netflix-september-2026/
+
+Guy Ritchie's Netflix crime thriller is officially back on top as the filmmaker's other hit caper is about to debut on Paramount+.
+---------
+
+# 10 Best Denzel Washington Action Thriller Movies, Ranked
+
+Movie Lists, Denzel Washington, Action, Thriller
+
+Tue, 15 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/best-denzel-washington-action-thrillers/
+
+Denzel Washington's stellar action-thriller films are harder to rank than you might think, with many dividing critics and audiences.
+---------
+
+# Apple TV's Spy Thriller Masterpiece Officially Confirms Streaming Future After 7 Seasons
+
+TV News, Slow Horses, Thriller
+
+Tue, 15 Sep 2026 21:46:10 GMT
+
+https://movieweb.com/slow-horses-renewed-season-8/
+
+Apple TV reveals 'Slow Horses' prospects for Season 8.
+---------
+
+# Zack Snyder Says His Classic Action Epic Is the "Gayest Movie Ever Made"
+
+Movie News, 300, Zack Snyder, The Last Photograph, Action
+
+Tue, 15 Sep 2026 21:42:45 GMT
+
+https://movieweb.com/zack-snyder-300-gayest-movie-ever-made/
+
+Zack Snyder has officially deemed his 2006 action fantasy epic '300' the "gayest movie ever made."
+---------
+
+# Alan Ritchson's 97-Minute Action Thriller Smashes Past New 9/10 Thriller’s Entire Box-Office Run
+
+Movie News, Alan Ritchson, Runner, Box Office Milestones, The Brink of War
+
+Tue, 15 Sep 2026 21:31:13 GMT
+
+https://movieweb.com/alan-ritchson-runner-surpasses-the-brink-of-war-box-office/
+
+Runner opened solidly for Angel Studios and, in the process, outgrossed The Brink of War's full domestic total in just three days.
+---------
+
+# Jon Hamm's New Streaming Thriller Series Lands Solid Score on Rotten Tomatoes
+
+TV News, American Hostage, Jon Hamm, Thriller
+
+Tue, 15 Sep 2026 20:44:23 GMT
+
+https://movieweb.com/jon-hamm-american-hostage-rotten-tomatoes/
+
+Jon Hamm anchors a tense retelling of a 1977 Indianapolis standoff, which critics are offering a verdict on ahead of its streaming release.
+---------
+
+# $1.5 Billion Fantasy Epic Sets New Release Ahead of Netflix's Daniel Craig Reboot
+
+Movie News, The Chronicles of Narnia, The Chronicles of Narnia: The Lion, the Witch and the Wardrobe, The Chronicles of Narnia: Prince Caspian, The Chronicles of Narnia: The Voyage of the Dawn Treader, Fantasy, Blu-ray
+
+Tue, 15 Sep 2026 20:30:14 GMT
+
+https://movieweb.com/chronicles-of-narnia-trilogy-blu-ray-release/
+
+Disney is officially releasing 'The Chronicles of Narnia' film trilogy on Blu-ray ahead of Greta Gerwig's new Netflix reboot, starring Daniel Craig.
+---------
+
+# The Future of the DCU Officially Addressed After 'Lanterns'
+
+TV News, Lanterns, HBO Max, DCU
+
+Tue, 15 Sep 2026 20:06:05 GMT
+
+https://movieweb.com/future-dcu-update-hbo-lanterns/
+
+HBO's Casey Bloys talks 'The People v. Gorilla Grodd' and explains what happened regarding 'Paradise Lost' and 'Waller.'
+---------
+
+# Prime Video Officially Confirms It's the King of Action Thriller TV
+
+Features, The Terminal List, Reacher, Neagley, Prime Video, Action, Thriller
+
+Tue, 15 Sep 2026 20:00:13 GMT
+
+https://movieweb.com/prime-video-neagley-reacher-terminal-list/
+
+Prime Video has many impressive action thriller TV shows, including several that are streaming in fall 2026.
+---------
+
 # The White Lotus Season 4 Release Window Officially Confirmed By HBO Exec
 
 TV, The White Lotus
