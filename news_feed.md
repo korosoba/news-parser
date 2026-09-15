@@ -1,3 +1,366 @@
+# Jean Smart Officially Makes Emmys History
+
+Streaming TV, Emmy Awards
+
+Tue, 15 Sep 2026 01:03:34 GMT
+
+https://screenrant.com/hacks-jean-smart-emmy-2026-win-record/
+
+Jean Smart brought home the award for Outstanding Lead Actress in a Comedy Series for the fifth year in a row, accomplishing an unprecedented feat.
+---------
+
+# ACOTAR Is Secretly A Retelling Of Greek Myth, Explained
+
+Books
+
+Tue, 15 Sep 2026 01:01:14 GMT
+
+https://screenrant.com/acotar-secretly-retelling-greek-myth-hades-persephone-explained/
+
+Explore how ACOTAR intertwines Greek mythology, focusing on Hades and Persephone's influence on the story.
+---------
+
+# 7 Near-Perfect Neo-Western TV Shows Better Than Any Movie In The Genre
+
+Classic TV, Western
+
+Tue, 15 Sep 2026 01:01:14 GMT
+
+https://screenrant.com/neo-western-tv-shows-almost-perfect-better-than-movies/
+
+Classic Westerns were a staple genre for decades, but the wave of neo-Westerns has introduced some creativity to the genre, even outshining movies.
+---------
+
+# Better Call Saul Star Rhea Seehorn Officially Breaks Emmy Curse With 2026 Win
+
+Streaming TV, Emmy Awards
+
+Tue, 15 Sep 2026 00:52:58 GMT
+
+https://screenrant.com/rhea-seehorn-emmy-win-2026-breaks-better-call-saul-curse/
+
+One Better Call Saul winner continued to get snubbed by the Emmys for six years, and she's finally broken the curse with a 2026 Emmy win.
+---------
+
+# Pluribus’ Rhea Seehorn Finally Gets Her Emmy Redemption After Disappointing 4-Year Streak
+
+TV, Rhea Seehorn, Pluribus
+
+Tue, 15 Sep 2026 00:39:44 GMT
+
+https://screenrant.com/pluribus-rhea-seehorn-emmy-win-redemption/
+
+After being nominated at the Primetime Emmy Awards four times, Rhea Seehorn has finally received one of these golden accolades for Pluribus.
+---------
+
+# HBO's 10/10 High Fantasy Masterpiece Deserves Kudos For Not Trying To Be Like Game Of Thrones
+
+Streaming TV, Masked Recs
+
+Tue, 15 Sep 2026 00:30:15 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-hbo-kudos-not-game-of-thrones/
+
+In an age when any high-fantasy project tries to be as edgy as Game of Thrones, one TV series has emerged to prove there is another way.
+---------
+
+# Kraven The Hunter: 15 Marvel Easter Eggs & References Explained
+
+Superheroes, Kraven the Hunter, Sony's Spider-Man Universe, Marvel Cinematic Universe
+
+Tue, 15 Sep 2026 00:30:15 GMT
+
+https://screenrant.com/kraven-the-hunter-easter-eggs-marevel-references-explained/
+
+Kraven the Hunter features a collection of Easter eggs and Marvel references, including some very cool nods to the original comics and characters.
+---------
+
+# Naruto's Newest Release Is Officially The Perfect Way To Introduce New-Gen Fans
+
+Anime, Naruto
+
+Tue, 15 Sep 2026 00:01:14 GMT
+
+https://screenrant.com/naruto-new-book-ninja-abc-kids/
+
+The Naruto franchise is having a thrilling 2026, and this latest book is perfect for ushering in new fans.
+---------
+
+# HBO's 10-Part Time Travel Series Is Succeeding Where Every Other Franchise Fails
+
+TV, Masked Recs
+
+Tue, 15 Sep 2026 00:01:14 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-succeed-where-other-spinoffs-fail/
+
+An offbeat multiverse road trip with surprise cameos and wildly inventive worlds, HBO's R-rated sci-fi comedy breaks the golden rule of spinoffs.
+---------
+
+# 3 Classic NES Games Way Worse Than You Remember
+
+Gaming, Nintendo, nes
+
+Tue, 15 Sep 2026 00:01:14 GMT
+
+https://screenrant.com/classic-nintendo-nes-games-actually-bad/
+
+The Nintendo Entertainment System revolutionized gaming, but there are a few classic NES games that just don't hold up as well all these years later.
+---------
+
+# 5 Years Later, CBS Finally Confirms Mark Harmon's NCIS Return as Gibbs
+
+TV, NCIS, NCIS: Origins
+
+Tue, 15 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/ncis-mark-harmon-leroy-jethro-gibbs-return-to-washington-bullpen/
+
+CBS is checking off a major milestone in the upcoming 2026-2027 TV cycle, confirming Mark Harmon's official NCIS comeback in NCIS: Origins Season 3.
+---------
+
+# Hulu's Gritty New Serial Killer Thriller Climbs the Charts Again 2 Weeks After Season Finale
+
+TV, Furious, Hulu, Thriller
+
+Tue, 15 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/hulu-furious-climbs-the-charts-september-2026/
+
+This Hulu crime thriller is showing no signs of slowing down.
+---------
+
+# 10 Most Valuable Pokémon Cards From the Original 151, Ranked by Price
+
+Games, Pokemon, Pokemon TCG, Pokemon Trading Card Game, Tabletop
+
+Tue, 15 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/most-valuable-gen-1-pokemon-cards/
+
+Gen 1 Pokémon cards that collectors can still get their hands on today aren't easy to come by, with some of the most valuable selling for thousands.
+---------
+
+# Time Is Running Out to Watch Harry Potter Star's Steamy 106-Minute Drama on Netflix
+
+Movies, After
+
+Tue, 15 Sep 2026 00:30:11 GMT
+
+https://www.cbr.com/after-steamy-drama-leaving-netflix-october-2026/
+
+The steamy drama started a franchise, which is available on Netflix.
+---------
+
+# McCoy's Star Trek III Line Is the Greatest Quote in Sci-Fi History
+
+Movies, Star Trek
+
+Tue, 15 Sep 2026 00:30:11 GMT
+
+https://www.cbr.com/star-trek-iii-the-search-for-spock-greatest-bones-mccoy-quote/
+
+Doctor Leonard 'Bones' McCoy has some great quotes, but his best one explains why Star Trek is unique in sci-fi.
+---------
+
+# Transformers Gives Megatron's G1 Movie Design a 40th Anniversary Upgrade
+
+Anime, Transformers, The Transformers: The Movie, merchandise, toys, action figures
+
+Tue, 15 Sep 2026 00:20:11 GMT
+
+https://www.cbr.com/transformers-g1-megatron-anniversary-action-figure/
+
+A new collectible for Decepticon leader Megatron reimagines his Generation 1 design with a shiny anniversary sheen that honors a 40-year-old movie.
+---------
+
+# 10 Best Mecha Anime Like Gundam
+
+Anime, Gundam, mecha
+
+Tue, 15 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/best-mecha-anime-like-gundam/
+
+Mobile Suit Gundam is a legendary anime that went on to inspire a number of equally incredible mecha series.
+---------
+
+# Chris Columbus' $428M Divisive 2-Part Fantasy Adaptation Is Officially Leaving Netflix
+
+Movies, Percy Jackson: Sea of Monsters, Percy Jackson & The Olympians, Netflix
+
+Tue, 15 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/percy-jackson-movies-leaving-netflix-october-2026/
+
+Netflix users don't have much time left to stream Chris Columbus' two-part fantasy adaptation before it leaves the platform.
+---------
+
+# Leonardo DiCaprio's The Revenant is a Secret Western Remake
+
+Movies, The Revenant, Leonardo DiCaprio, Man in the Wilderness
+
+Tue, 15 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/leonardo-dicaprio-revenant-secret-man-in-the-wilderness-western-remake/
+
+It may shock you that one of Leonardo DiCaprio's most acclaimed movies is actually a remake of an iconic 55-year-old western movie.
+---------
+
+# Avengers: Doomsday Could Hide a Major Twist From One Iconic Marvel Comic
+
+Comics, Avengers: Doomsday
+
+Tue, 15 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/avenger-doomsdays-tony-stark-twist-theory/
+
+The secret to Marvel's biggest upcoming release is hiding in plain sight.
+---------
+
+# Tom Pelphrey Officially Wins Outstanding Supporting Actor in a Drama for ‘Task’
+
+TV News, Emmy Awards, Task, Tom Pelphrey, Drama
+
+Tue, 15 Sep 2026 01:04:00 GMT
+
+https://collider.com/winner-show-emmys-2026-category-winner/
+
+Tom Pelphrey has officially won the 2026 Emmy for Outstanding Supporting Actor in a Drama for Task.
+---------
+
+# Noah Wyle Officially Wins Outstanding Lead Actor in a Drama Series for ‘The Pitt’
+
+TV News, The Pitt, Noah Wyle, HBO Max, Emmy Awards
+
+Tue, 15 Sep 2026 00:53:42 GMT
+
+https://collider.com/noah-wyle-the-pitt-emmys-2026-lead-actor-drama-winner/
+
+Noah Wyle has officially won his second Emmy for Outstanding Lead Actor in a Drama Series for The Pitt.
+---------
+
+# 40 Years Later, This Iconic Fantasy Series Is Officially a Hit on Apple TV
+
+TV Features, The Real Ghostbusters, Ghostbusters, Apple TV
+
+Tue, 15 Sep 2026 00:52:11 GMT
+
+https://collider.com/apple-tv-the-real-ghostbusters-iconic-fantasy-series-topping-charts/
+
+Fans old and new are tuning into The Real Ghostbusters, which is topping Apple TV's streaming charts.
+---------
+
+# Stephen Root Officially Wins Outstanding Supporting Actor in a Comedy Series for ‘Widow's Bay’
+
+TV News, Emmy Awards, Widow's Bay, Stephen Root, Comedy
+
+Tue, 15 Sep 2026 00:44:03 GMT
+
+https://collider.com/stephen-root-widows-bay-emmys-2026-supporting-actor-comedy-winner/
+
+Stephen Root officially takes home Outstanding Supporting Actor in a Comedy Series for Widow's Bay, following Kate O'Flynn's win earlier in the night.
+---------
+
+# The 6 Most Universally Loved Games Released Since 2020, Ranked
+
+Gaming, Video Game, Animal Crossing New Horizons, Hades, Elden Ring
+
+Tue, 15 Sep 2026 00:41:11 GMT
+
+https://collider.com/most-universally-loved-video-games-since-2020-ranked/
+
+Elden Ring, Baldur's Gate 3, and the Resident Evil 4 remake are all among the best, most universally loved video game remakes released since 2020.
+---------
+
+# Rhea Seehorn Officially Wins Outstanding Lead Actress in a Drama Series for ‘Pluribus’
+
+TV News, Rhea Seehorn, Better Call Saul, Pluribus, Vince Gilligan
+
+Tue, 15 Sep 2026 00:31:47 GMT
+
+https://collider.com/rhea-seehorn-pluribus-emmys-2026-lead-actress-drama-winner/
+
+Rhea Seehorn has officially taken home the Emmy for Outstanding Lead Actress in a Drama Series for her role in Pluribus. This is her first win!
+---------
+
+# Matthew Rhys Officially Wins Outstanding Lead Actor in a Limited or Anthology Series or Movie for 'The Beast in Me'
+
+TV News, Netflix, Emmy Awards, Matthew Rhys, The Beast in Me
+
+Tue, 15 Sep 2026 00:27:54 GMT
+
+https://collider.com/matthew-rhys-the-beast-in-me-emmys-2026-outstanding-lead-actor-limited-anthology-series-movie-winner/
+
+Matthew Rhys has won his first Emmy of the night for Outstanding Lead Actor in a limited series for his role in Netflix's The Beast in Me.
+---------
+
+# Allison Janney Officially Takes Home Outstanding Supporting Actress in a Drama Series for ‘The Diplomat’
+
+TV News, Emmy Awards
+
+Tue, 15 Sep 2026 00:26:50 GMT
+
+https://collider.com/allison-janney-diplomat-emmys-2026-best-supporting-actress-drama-winner/
+
+Allison Janney officially takes home Outstanding Supporting Actress in a Drama Series for The Diplomat. This is her 8th career win.
+---------
+
+# Jean Smart Completes Her 'Hacks' Sweep With 5th Straight Emmy Win
+
+TV News, Hacks, Jean Smart, Emmy Awards, HBO Max
+
+Tue, 15 Sep 2026 00:13:29 GMT
+
+https://collider.com/jean-smart-hacks-season-5-outstanding-lead-actress-comedy-win-primetime-emmys/
+
+Jean Smart won the Primetime Emmy Award for Outstanding Lead Actress in a Comedy Series, marking her fifth straight win in five seasons for Hacks.
+---------
+
+# Kate O'Flynn Officially Wins Outstanding Supporting Actress in a Comedy Series for ‘Widow's Bay’
+
+TV News, Emmy Awards
+
+Tue, 15 Sep 2026 00:12:54 GMT
+
+https://collider.com/kate-oflynn-widows-bay-emmys-2026-supporting-actress-comedy-winner/
+
+Kate O'Flynn has officially won her first Emmy for Outstanding Supporting Actress in Widows Bay.
+---------
+
+# 9 Great Sci-Fi & Fantasy Shows Recommended by Brandon Sanderson
+
+TV Lists, Brandon Sanderson, Fantasy, Sci-Fi
+
+Tue, 15 Sep 2026 01:01:13 GMT
+
+https://movieweb.com/sci-fi-fantasy-shows-brandon-sanderson-recommends/
+
+Brandon Sanderson has recommended a number of sci-fi and fantasy shows online, and some are must-watch additions to their genres.
+---------
+
+# 78th Annual Primetime Emmy Awards Nominees and Winners
+
+TV News, Emmy Awards
+
+Tue, 15 Sep 2026 00:01:49 GMT
+
+https://movieweb.com/78th-annual-primetime-emmy-awards-nominiees-and-winners/
+
+Coming from Los Angeles, California, here are all the award winners from the 78th Primetime Emmy Awards ceremony.
+---------
+
+# CBS Is Officially Rewriting the Rules of Streaming
+
+Features, Yellowstone, Marshals, Dutton Ranch, Action
+
+Mon, 14 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/cbs-marshals-dutton-ranch-cable-paramount-plus/
+
+CBS is altering streaming trends by potentially crossing Marshals over with Paramount+'s Dutton Ranch when Season 2 returns in October.
+---------
+
 # ABC Is Breaking An 8-Year 9-1-1 Trend That Everyone Hates
 
 Network TV, 9-1-1
