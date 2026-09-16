@@ -1,3 +1,443 @@
+# New Stephen King-Like Horror Movie Sets Hulu Streaming Release Date At The Perfect Time
+
+Movies, Hokum, Adam Scott, Stephen King
+
+Wed, 16 Sep 2026 21:55:42 GMT
+
+https://screenrant.com/hokum-movie-hulu-streaming-release-date/
+
+Adam Scott's Stephen King-like supernatural horror movie from Neon is arriving very soon on Hulu, just in time for the Halloween season.
+---------
+
+# Chrono Trigger: Melodies That Transcend Time Announces Official Release
+
+Gaming, Chrono Trigger, Triple-A Games
+
+Wed, 16 Sep 2026 21:53:57 GMT
+
+https://screenrant.com/chrono-trigger-melodies-transcend-time-available-now/
+
+A new Chrono Trigger release from Square Enix is bringing back one of the greatest things about the original game in a remixed presentation.
+---------
+
+# Slow Horses: Apple TV’s Best Spy Thriller Just Returned & Is A Perfect Weekend Binge
+
+Streaming TV, Masked Recs
+
+Wed, 16 Sep 2026 21:48:15 GMT
+
+https://screenrant.com/slow-horses-season-6-apple-tv-thriller-weekend-binge/
+
+Slow Horses, Apple TV's best spy thriller series, has officially returned with its sixth season this week and is perfect to binge-watch this weekend.
+---------
+
+# Forget The Wheel Of Time, Prime Video's Better High Fantasy Show Returns In 2 Months
+
+Streaming TV, Masked Recs
+
+Wed, 16 Sep 2026 21:45:21 GMT
+
+https://screenrant.com/rings-of-power-prime-video-high-fantasy-show-season-3-november-2026/
+
+Prime's The Wheel of Time was canceled after season 3, but the platform's superior fantasy show is all set to return for its own third installment.
+---------
+
+# Henry Cavill & Guy Ritchie’s New R-Rated Thriller Is Officially One Of The Biggest Movies On Streaming
+
+Movies, Masked Recs
+
+Wed, 16 Sep 2026 21:35:37 GMT
+
+https://screenrant.com/guy-ritchie-in-the-grey-starz-streaming-success-september-2026/
+
+Henry Cavill's new R-rated spy thriller gives director Guy Ritchie the streaming boost he needs with massive success ahead of a major new release.
+---------
+
+# The Blair Witch Project Officially Returns Next Month
+
+Movies, The Blair Witch Project
+
+Wed, 16 Sep 2026 21:30:17 GMT
+
+https://screenrant.com/the-blair-witch-project-new-blu-ray/
+
+She's back
+---------
+
+# Netflix Developing New Hitchcockian-Style Movie Into Action Thriller
+
+Movies, Rear Window, Alfred Hitchcock
+
+Wed, 16 Sep 2026 21:20:48 GMT
+
+https://screenrant.com/netflix-scope-movie-development-rear-window-comparison/
+
+Netflix has a new action thriller in the works that will be inspired by one of iconic director Alfred Hitchcock's most acclaimed movies.
+---------
+
+# Guy Ritchie & Tom Hardy’s Gritty Crime Series Return Debuts With Rare Rotten Tomatoes Score
+
+TV, MobLand
+
+Wed, 16 Sep 2026 21:06:18 GMT
+
+https://screenrant.com/mobland-season-2-rotten-tomatoes-score/
+
+Guy Ritchie and Tom Hardy achieved an extremely rare feat, as their gritty crime series returns with an incredibly rare Rotten Tomatoes score.
+---------
+
+# Landman Season 3 Is Fixing Its Jon Hamm Problem
+
+Streaming TV, Landman, Demi Moore
+
+Wed, 16 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/landman-season-3-fixing-john-hamm-character-problem/
+
+Landman severely underutilized Jon Hamm's Monty Miller, but Taylor Sheridan won't be repeating that mistake with Demi Moore's Cami Miller in season 3.
+---------
+
+# How Spider-Man: Brand New Day Beat Star Wars' Box Office To Become America's Highest-Grossing Movie Ever
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe, Box Office
+
+Wed, 16 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/spiderman-brand-new-day-beat-star-wars-domestic-box-office-record-breakdown/
+
+Spider-Man: Brand New Day has become the highest-grossing movie in US box office history, but its path to beating Star Wars' record was unorthodox.
+---------
+
+# Wheel of Time Officially Returns With The One Power in 2027
+
+Games, The Wheel of Time
+
+Wed, 16 Sep 2026 21:55:11 GMT
+
+https://www.cbr.com/wheel-of-time-returns-new-story-the-one-power-2027/
+
+Wheel of Time officially returns in 2027 with The One Power, a new release set to shake things up.
+---------
+
+# Disney+ Just Added 1 New Streaming Feature Netflix Doesn’t Have
+
+TV, Disney+
+
+Wed, 16 Sep 2026 21:41:21 GMT
+
+https://www.cbr.com/disney-plus-playlists/
+
+Disney+ is adding a new streaming feature that sets it apart from other streamers.
+---------
+
+# Marshals Officially Brings Back Another Yellowstone Star for Season 2
+
+TV, Marshals, Yellowstone
+
+Wed, 16 Sep 2026 21:39:02 GMT
+
+https://www.cbr.com/marshals-season-2-jefferson-white-return-yellowstone/
+
+A Yellowstone fan favorite is officially confirmed for a return in Marshals Season 2.
+---------
+
+# Planet of the Apes Is the Perfect Sci-Fi Franchise for Star Wars Fans
+
+Movies, Planet of the Apes
+
+Wed, 16 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/planet-of-the-apes-perfect-star-wars-replacement-sci-fi-disney/
+
+While Star Wars struggles to rebuild its brand, this acclaimed sci-fi franchise is the perfect replacement for sci-fi fans.
+---------
+
+# 10 Licensed Video Games That Are So Bad They're Good
+
+Games, video game, Video Games, Friday The 13th, Jaws, The Lord of the Rings: Gollum, wwe, Superman: The New Superman Adventures, Fast and Furious, Fight Club
+
+Wed, 16 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/so-bad-its-good-licensed-games/
+
+Not every licensed franchise needs a video game, but some of the worst adaptations still have entertainment value.
+---------
+
+# Hogwarts Legacy: Fire & Blood Is Harry Potter Meets Game of Thrones
+
+Games, Hogwarts Legacy
+
+Wed, 16 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/harry-potter-meets-game-of-thrones-hogwarts-legacy-fire-and-blood/
+
+Hogwarts Legacy just received an upgrade for players looking to spend some time in Westeros!
+---------
+
+# 10 Weakest Jedi in Star Wars History, Ranked
+
+Movies, Star Wars, Sci-Fi
+
+Wed, 16 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/star-wars-weakest-jedi-ranked-list/
+
+Most Jedi in the Star Wars universe are known to be strong both physically and with the Force, but some Jedi are weaker than one would think.
+---------
+
+# Netflix’s Anya Taylor-Joy & Chris Evans Action-Adventure Unveils First Trailer
+
+Movies, Sacrifice, Netflix, Adventure
+
+Wed, 16 Sep 2026 20:47:55 GMT
+
+https://www.cbr.com/netflix-sacrifice-anya-taylor-joy-chris-evans-trailer/
+
+Anya Taylor-Joy and Chris Evans team up for a wild adventure.
+---------
+
+# Xbox Issues New Official Statement on Game Pass Day-One Releases
+
+Games, Xbox (Original), Microsoft, Video Games
+
+Wed, 16 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/xbox-new-official-statement-game-pass-day-one-releases/
+
+Microsoft has released an official statement in response to rumors that Xbox Game Pass is removing day-one releases from the service in 2027.
+---------
+
+# Dragon Ball Z Revives Goku's First Super Saiyan 3 Transformation
+
+Anime, Dragon Ball, merchandise, Dragon Ball Z
+
+Wed, 16 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/dbz-goku-ssj3-history-box-release/
+
+The new Dragon Ball Z release vividly recreates Goku’s Super Saiyan 3 form, down to the halo on his head.
+---------
+
+# /jason-statham-4-part-series-prime-video-the-expendables/
+
+Movie Features, Jason Statham, Sylvester Stallone, Prime Video, The Expendables
+
+Wed, 16 Sep 2026 21:51:11 GMT
+
+https://collider.com/jason-statham-4-part-series-prime-video-the-expendables/
+
+Sylvester Stallone's 'The Expendables' packs punch, featuring Jason Statham and as a brawny protagonist hired to take down a nefarious dictator.
+---------
+
+# It's Officially the End of an Era for Paramount Pictures
+
+Exclusives, Paramount, David Ellison
+
+Wed, 16 Sep 2026 21:51:10 GMT
+
+https://collider.com/paramount-pictures-leaving-california/
+
+Paramount is officially making good on its threats to leave California following criticism over the pending merger with Warner Bros.
+---------
+
+# 'Blue Bloods' Spin-Off Officially Casts a ‘CSI’ Legend for Season 2
+
+TV News, Boston Blue, Marg Helgenberger, CBS, CSI: Crime Scene Investigation
+
+Wed, 16 Sep 2026 21:40:19 GMT
+
+https://collider.com/boston-blue-season-2-marg-helgenberger-sarah-mother-casting/
+
+CSI's Marg Helgenberger officially joins Blue Bloods spin-off Boston Blue for a recurring role in Season 2. See who she's playing.
+---------
+
+# HBO’s ‘Harry Potter’ Series Is Officially Getting a Major Upgrade for Season 2
+
+TV Features, Harry Potter, Rafe Spall, HBO, HBO Max
+
+Wed, 16 Sep 2026 21:11:11 GMT
+
+https://collider.com/hbo-harry-potter-series-season-2-rafe-spall-arthur-weasley/
+
+Rafe Spall is joining HBO's Harry Potter series as Arthur Weasley. It's great casting and great timing, as Spall is juggling several lauded TV roles.
+---------
+
+# Taylor Sheridan's 'Marshals' Season 2 Officially Recruits Another 'Yellowstone' Star
+
+TV News, Marshals, Yellowstone, Taylor Sheridan, Luke Grimes
+
+Wed, 16 Sep 2026 20:46:52 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-marshals-season-2-cast-jefferson-white-jimmy-return/
+
+Taylor Sheridan's hit Yellowstone spin-off, Marshals, has officially added another fan-favorite from the Western franchise for Season 2.
+---------
+
+# 10 Funniest ‘80s Sitcom Characters, Ranked
+
+TV, Sitcom, The Golden Girls, Full House, Married... With Children
+
+Wed, 16 Sep 2026 20:28:11 GMT
+
+https://collider.com/funniest-1980s-sitcom-characters-ranked/
+
+The 1980s delivered not only some of the best sitcoms in history, but also some of the funniest and most memorable sitcom characters.
+---------
+
+# 10 Perfect Anime No One Is Talking About
+
+TV, Anime, Space Brothers, Kaiji, Animation
+
+Wed, 16 Sep 2026 20:05:11 GMT
+
+https://collider.com/perfect-anime-no-one-is-talking-about/
+
+From The Irresponsible Captain Tylor to Space Brothers, these anime series are incredible and worthwhile, yet very few fans have actually seen them.
+---------
+
+# ‘Ghosts’ Showrunners’ New Vampire Series Officially Gets Bloodthirsty First Look [Exclusive]
+
+Exclusives, Eternally Yours, Ghosts, CBS, Sitcom
+
+Wed, 16 Sep 2026 20:00:11 GMT
+
+https://collider.com/eternally-yours-cbs-character-posters-first-look-ghosts-showrunners/
+
+Ghosts' spooky new sister series, Eternally Yours, gets perfectly haunted new character posters ahead of its October premiere on CBS.
+---------
+
+# 'Outlander: Blood of My Blood' Is Officially Carrying the Franchise's Legacy Forward With Season 2 | Review
+
+TV Reviews, Outlander: Blood of My Blood, STARZ, Harriet Slater, Hermione Corfield
+
+Wed, 16 Sep 2026 20:00:11 GMT
+
+https://collider.com/outlander-blood-of-my-blood-season-2-review/
+
+Outlander: Blood of My Blood Season 2 hints at the start of a new era for the fantasy franchise after the flagship series' official ending.
+---------
+
+# Bob Dylan Is Officially Releasing 371 Unreleased Songs at Once
+
+Music News, Bob Dylan, A Complete Unknown, Timothée Chalamet, Music
+
+Wed, 16 Sep 2026 19:33:53 GMT
+
+https://collider.com/bob-dylan-371-songs-release-box-set-november-2026/
+
+The legendary Bob Dylan is officially debuting almost 400 unreleased songs as part of a new box set chronicling his impeccable career.
+---------
+
+# Another Original 'Yellowstone' Actor Joins Taylor Sheridan's Hit Action Thriller Spin-Off
+
+TV News, Marshals, Action, Yellowstone
+
+Wed, 16 Sep 2026 21:15:57 GMT
+
+https://movieweb.com/jefferson-white-joins-marshals-season-2/
+
+Our favorite Texas cowboy is officially back in the saddle for 'Marshals' Season 2.
+---------
+
+# The Greatest War Series/Story Was Released 25 Years Ago - And It’s Now Climbing the Streaming Ranks
+
+TV News, Band of Brothers, HBO Max, Hot on Streaming, Action
+
+Wed, 16 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/band-of-brothers-war-stream-hbo-sept-2026/
+
+Nothing has come close to this epic war series in 25 years.
+---------
+
+# Liam Hemsworth's Next Movie Is a "Ruthless" Erotic Thriller From 'Taxi Driver' Writer
+
+Movie News, Liam Hemsworth, Paul Schrader, Cara Delevingne, Sam Worthington, Drama
+
+Wed, 16 Sep 2026 20:54:52 GMT
+
+https://movieweb.com/liam-hemsworth-non-compos-mentis-paul-schrader/
+
+Liam Hemsworth and Sam Worthington play brothers locked in a love triangle with the same woman.
+---------
+
+# 'Scream 7' Star Matthew Lillard Admits He Is "Embarrassed" About Franchise Return
+
+Movie News, Scream 7, Matthew Lillard
+
+Wed, 16 Sep 2026 20:28:36 GMT
+
+https://movieweb.com/matthew-lillard-scream-7-return-embarassed/
+
+The actor said at a 30th anniversary screening of 'Scream' he regrets returning to the franchise and says he's "on the wrong side of history."
+---------
+
+# Netflix's Stephen King-Esque Mystery Thriller Officially Described as Perfect 'Stranger Things' Replacement
+
+TV News, Below, Netflix, Charlie Heaton, Stranger Things, Horror
+
+Wed, 16 Sep 2026 20:26:47 GMT
+
+https://movieweb.com/charlie-heaton-stranger-thing-netflix-below-connection/
+
+The limited series 'Below' is being set up as the next 'Stranger Things' when it premieres this fall on Netflix.
+---------
+
+# Danny Boyle Interview Ends Abruptly After Awkward Question About His New Netflix Thriller
+
+Movie News, Ink, Danny Boyle, Netflix
+
+Wed, 16 Sep 2026 20:26:35 GMT
+
+https://movieweb.com/danny-boyle-explains-ai-use-netflix-ink/
+
+Danny Boyle weighs in on one of Hollywood's most pressing hot-button topics: artificial intelligence.
+---------
+
+# Forget 'Star Wars,' Zack Snyder Wants To Adapt Warner Bros.' Long-Running Sci-Fi Franchise
+
+Movie News, Zack Snyder, Rick and Morty, Comedy
+
+Wed, 16 Sep 2026 19:17:55 GMT
+
+https://movieweb.com/zack-snyder-rick-and-morty-movie/
+
+Zack Snyder still wants to make a 'Rick and Morty' movie, despite an animated film being in development at Warner Bros. already.
+---------
+
+# One of CBS' Longest-Running & Highest Rated TV Shows Is Coming To End After 30 Years
+
+TV News, Judge Judy, Reality
+
+Wed, 16 Sep 2026 19:09:22 GMT
+
+https://movieweb.com/judy-judy-cbs-retiring/
+
+CBS will move away from one of its highest-rated reality TV shows after its star announced the end of a three-decade run of success.
+---------
+
+# After 30 Years, Jim Carrey's Darkest Comedy of All Time Is Getting a New Release
+
+Movie News, The Cable Guy, Jim Carrey, Ben Stiller, Comedy, Blu-ray
+
+Wed, 16 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/jim-carrey-the-cable-guy-4k-blu-ray/
+
+Sony Pictures Home Entertainment is preparing to release Ben Stiller and Jim Carrey's dark comedy cult classic, 'The Cable Guy,' on 4K UHD Blu-ray.
+---------
+
+# 29 Years Later, the 'Harry Potter' Reboot's New Villain Backstory Isn't the One We Need
+
+Features, Harry Potter, Fantasy
+
+Wed, 16 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/harry-potter-reboot-lucius-malfoy-quirrell-backstory/
+
+'Harry Potter and the Philosopher's Stone' will give one villain more depth, but there's another who needs a proper backstory in Season 1.
+---------
+
 # Star Wars Officially Launches A Better Version Of The Sequel Trilogy
 
 Streaming TV, Star Wars, Star Wars: Visions Presents - The Ninth Jedi
