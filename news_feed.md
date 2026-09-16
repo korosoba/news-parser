@@ -1,3 +1,344 @@
+# After 64 Years, Marvel Officially Kills Off Thor-Level Character
+
+Marvel Comics, Marvel
+
+Wed, 16 Sep 2026 00:30:15 GMT
+
+https://screenrant.com/marvel-kill-off-thor-tyr/
+
+Marvel reveals the fate of a major Thor character, who dies by the hand of a fellow Asgard figure in a shocking Avengers crossover twist.
+---------
+
+# 8 Fantasy Miniseries That Are Perfect From Start To Finish
+
+Classic TV, Fantasy
+
+Wed, 16 Sep 2026 00:30:15 GMT
+
+https://screenrant.com/fantasy-miniseries-perfect-from-start-to-finish/
+
+The fantasy genre is often defined by epics, but short fantasy TV shows can be just as exciting, with tightly written stories and excellent pacing.
+---------
+
+# Isaac Asimov Meets Steven Spielberg In One Of Apple TV's Biggest Sci-Fi Streaming Hits
+
+Movies, Masked Recs
+
+Wed, 16 Sep 2026 00:30:02 GMT
+
+https://screenrant.com/irobot-isaac-asimov-meets-steven-spielberg-apple-tv-streaming-milestone-september-2026/
+
+Isaac Asimov meets Steven Spielberg is one of the biggest sci-fi hits streaming on Apple TV, over two decades after its original debut.
+---------
+
+# 39-Episode Sci-Fi Series On HBO Max Is Like Watchmen And The Flash In One
+
+TV, Masked Recs
+
+Wed, 16 Sep 2026 00:02:14 GMT
+
+https://screenrant.com/stargirl-hbo-max-sci-fi-watchmen-meets-the-flash/
+
+One bold HBO Max sci-fi blends Watchmen style moral murk with The Flash style warmth through the unexpected optimism of the DC story's superhero.
+---------
+
+# Blade Runner: Why Roy Batty Killed Sebastian & Why It Only Happened Off-Screen
+
+Movies, Blade Runner, Harrison Ford
+
+Wed, 16 Sep 2026 00:00:16 GMT
+
+https://screenrant.com/why-roy-batty-killed-jf-sebastian-offscreen-blade-runner-movie/
+
+Blade Runner is an incredible sci-fi movie that leaves several moments open to interpretation, including one important death scene.
+---------
+
+# Apple TV's 2-Part Crime Series With One Of The Best Casts Passes A Rare Streaming Milestone
+
+TV, Masked Recs
+
+Tue, 15 Sep 2026 23:53:50 GMT
+
+https://screenrant.com/your-friends-and-neighbors-best-cast-apple-tv-streaming-milestone-september-2026/
+
+Apple TV's 2-part crime series carries one of the genre's best casts and it has just hit a rare streaming milestone as a major sensation.
+---------
+
+# It's Been 22 Years, And I Have Only One Explanation For The Sopranos' Cringiest Scene
+
+Classic TV, The Sopranos
+
+Tue, 15 Sep 2026 23:45:15 GMT
+
+https://screenrant.com/the-sopranos-carmela-cringe-scene/
+
+It's been 22 years since Carmela Soprano strode through a hallway and froze in time, and I finally have an explanation for that Sopranos scene.
+---------
+
+# It's Officially The Start Of An Era For David Boreanaz's 114-Episode War Series
+
+Classic TV, David Boreanaz
+
+Tue, 15 Sep 2026 23:32:26 GMT
+
+https://screenrant.com/david-boreanaz-seal-seal-team-netflix-new-era/
+
+David Boreanaz's seven-season war show SEAL Team is one of his best roles, and it's gotten a new burst of popularity after switching to Netflix.
+---------
+
+# It's Official: Marvel Announces A Classic Supervillain Team Is Joining MCU Lore
+
+Comics, Marvel Cinematic Universe
+
+Tue, 15 Sep 2026 23:30:15 GMT
+
+https://screenrant.com/mcu-new-villain-team-fantastic-four/
+
+So THAT'S what he looks like!
+---------
+
+# Jennifer Garner & Bradley Cooper's 5-Part 'James Bond Meets 24' Series Deserves To Be Binged
+
+Classic TV, Masked Recs
+
+Tue, 15 Sep 2026 23:30:15 GMT
+
+https://screenrant.com/alias-tv-show-like-james-bond-24/
+
+Jennifer Garner and Bradley Cooper starred in Alias together, a five-season action spy show that's James Bond meets 24, and it's better binged.
+---------
+
+# 10 NES Games That Are 10/10, No Notes
+
+Games, Nintendo, Video Games
+
+Wed, 16 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/best-nes-games-flawless-no-notes/
+
+NES games like Metroid and Castlevania are so perfect that it's hard to find anyone who doesn't love them.
+---------
+
+# 35 Must-Read Boys' Love Manhua For BL Fans
+
+Anime, Boys' Love, yaoi, manhua
+
+Wed, 16 Sep 2026 00:30:11 GMT
+
+https://www.cbr.com/must-read-boys-love-manhua-bl-fans/
+
+From Heaven Official's Blessing to Salt Friend, some of the best BL manhua have dynamic characters and romance that define the genre.
+---------
+
+# Demon Slayer Returns October 1 With Tanjiro, Shinobu and More
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Wed, 16 Sep 2026 00:20:11 GMT
+
+https://www.cbr.com/demon-slayer-seven-knights-rebirth-collaboration/
+
+Demon Slayer returns this October with a major new crossover event starring Tanjiro, Zenitsu, Giyu and Shinobu.
+---------
+
+# Zack Snyder Says There's 1 More DC Story He Needs to Tell & Now's the Perfect Time
+
+Movies, the dark knight returns, Batman, zack snyder
+
+Wed, 16 Sep 2026 00:18:25 GMT
+
+https://www.cbr.com/zack-snyder-the-dark-knight-returns-movie-update/
+
+Zack Snyder wants to bookend the superhero movie era that began with Watchmen.
+---------
+
+# 5 Weakest Magic Knight Captains in Black Clover, Ranked
+
+Anime, Black Clover
+
+Wed, 16 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/black-clover-weakest-magic-knights-ranked/
+
+Even the weakest Magic Knight Captains in Black Clover are capable of impressive feats.
+---------
+
+# Netflix’s Further Mis-Adventures of Cliff Booth is Using the Wrong Character
+
+Movies, The Further Mis-Adventures of Cliff Booth, Once Upon a Time in Hollywood, Quentin Tarantino, david fincher, Netflix
+
+Wed, 16 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/netflix-further-misadventures-cliff-booth-wrong-main-character/
+
+One of cinema's most celebrated filmmakers is producing a Netflix sequel to a Quentin Tarantino epic that is already making a huge mistake.
+---------
+
+# The Witcher’s Bloodiest Stories Return as Fans Await The Witcher 4
+
+Comics, The Witcher
+
+Wed, 16 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/the-witcher-compact-edition-bear-butterfly-ballad-two-wolves-release-date-confirmed/
+
+Join Geralt in his most brutal quests again, remastered for an all-new release.
+---------
+
+# James Bond King Zero Officially Solves the Reboot's Timeline Problem
+
+Movies, James Bond
+
+Tue, 15 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/james-bond-king-zero-solves-reboot-timeline-problem/
+
+With so much speculation about what course the new James Bond series will take, it's evident that Amazon is already telegraphing its plans.
+---------
+
+# 7 Most Perfect ‘Gilmore Girls’ Episodes, Ranked
+
+TV, Gilmore Girls, Lauren Graham, Alexis Bledel, Kelly Bishop
+
+Wed, 16 Sep 2026 00:55:11 GMT
+
+https://collider.com/perfect-gilmore-girls-episodes-ranked/
+
+From The Bracebridge Dinner to Raincoats and Recipes, here are the most perfect Gilmore Girls episodes.
+---------
+
+# The 10 Best Neo-Noir Movies in Film History
+
+Movie, David Lynch, Chinatown, Film Noir, Thriller
+
+Wed, 16 Sep 2026 00:32:11 GMT
+
+https://collider.com/best-neo-noir-movies-film-history/
+
+Chinatown, Body Heat, and Mystic River are all among the very best neo-noir thriller movies ever made.
+---------
+
+# It’s Officially the End of an Era for the Best Crime Thriller Ever Made
+
+Movie News, The Coen Brothers, Fargo, Netflix, Crime
+
+Wed, 16 Sep 2026 00:30:11 GMT
+
+https://collider.com/coen-brothers-fargo-leaving-netflix-september-2026/
+
+Netflix is officially losing one of the best crime thrillers ever made at the end of the month. Read on for all the details.
+---------
+
+# 7 Netflix Horror Shows Where Every Episode Is a Masterpiece
+
+TV, Netflix, Horror, The Haunting of Hill House, All Of Us Are Dead
+
+Wed, 16 Sep 2026 00:11:11 GMT
+
+https://collider.com/netflix-horror-shows-every-episode-masterpiece/
+
+From the Mike Flanagan show Midnight Mass to the K-drama All of Us Are Dead, every episode of these Netflix horror shows is a true masterpiece.
+---------
+
+# Matt Damon’s 10/10 Spy Thriller Trilogy Officially Takes Over Streaming Charts
+
+Movie News, Matt Damon, Bourne, Action, Thriller
+
+Wed, 16 Sep 2026 00:00:11 GMT
+
+https://collider.com/matt-damon-bourne-trilogy-streaming-success-starz-september-2026/
+
+Matt Damon's iconic spy thriller trilogy is still a streaming juggernaut as fans patiently await a new sequel. Read on for more details.
+---------
+
+# Rebecca Ferguson's Forgotten Fantasy Epic Officially Fights Its Way Up Streaming Charts
+
+Movie News, Dwayne Johnson, Hercules, Ian McShane, Rebecca Ferguson
+
+Tue, 15 Sep 2026 23:30:11 GMT
+
+https://collider.com/rebecca-ferguson-fantasy-epic-hercules-streaming-success-netflix-september-2026/
+
+Rebecca Ferguson and Dwayne Johnson's forgotten fantasy epic officially finds new life on streaming over a decade after release.
+---------
+
+# ‘Star Trek’s Best Series Is Officially Reaching the End of an Era
+
+TV Features, Star Trek: Strange New Worlds, Star Trek, Paul Wesley, Paramount+ with Showtime
+
+Tue, 15 Sep 2026 23:19:11 GMT
+
+https://collider.com/star-trek-strange-new-worlds-end-era-season-5-genre-bending/
+
+Star Trek: Strange New Worlds Season 5 will not have the same episodic genre-bending format of the rest of the series as it concludes the story.
+---------
+
+# Apple TV Officially Proves Its Streaming Dominance With a History-Making 2026 Emmys
+
+TV Features, Apple TV, Emmy Awards, Widow's Bay, Pluribus
+
+Tue, 15 Sep 2026 23:18:11 GMT
+
+https://collider.com/emmys-2026-winners-apple-tv-record-streaming-dominance/
+
+Apple TV shattered records at the 2026 Emmys with 29 wins, showcasing its streaming supremacy over the competition.
+---------
+
+# Netflix's New Sci-Fi Epic Officially Passes 1.5 Billion Minutes Watched
+
+Movie News, Netflix, The Last House, Wagner Moura, Greta Lee
+
+Tue, 15 Sep 2026 23:00:11 GMT
+
+https://collider.com/netflix-sci-fi-the-last-house-streaming-hit-august-2026/
+
+Netflix's new sci-fi hit, The Last House, has emerged as a viewership sensation despite poor reviews. Read on for more details.
+---------
+
+# Mike Flanagan’s Next Stephen King Movie Officially Hits a Major Milestone
+
+Exclusives, TIFF, Mike Flanagan, Stephen King, The Mist
+
+Tue, 15 Sep 2026 23:00:11 GMT
+
+https://collider.com/mike-flanagan-the-mist-script-halloween-update/
+
+Mike Flanagan is writing his new The Mist adaptation and expects to turn the screenplay in around Halloween.
+---------
+
+# '9-1-1' Officially Unveils L.A.'s New Disaster Premise in First Look at Season 10
+
+TV News, 9-1-1, Drama, Hulu
+
+Wed, 16 Sep 2026 00:45:35 GMT
+
+https://movieweb.com/9-1-1-season-10-promo/
+
+Call 9-1-1! The hit ABC series is back in action for Season 10, as one of the wildest natural disasters yet is teased for the new season's debut.
+---------
+
+# Samuel L. Jackson Officially Takes Over 'Tulsa King' Universe in New Taylor Sheridan Spin-Off Images
+
+TV News, Tulsa King, Samuel L. Jackson, Frisco King
+
+Wed, 16 Sep 2026 00:01:15 GMT
+
+https://movieweb.com/frisco-king-tulsa-king-spin-off-samuel-l-jackson-images/
+
+The 'Tulsa King' universe is on its way to expanding with a new look at Samuel L. Jackson in his upcoming Paramount+ spin-off.
+---------
+
+# Alan Ritchson’s New Action Thriller Fixes the Biggest ‘Reacher’ Problem
+
+Features, Runner, Alan Ritchson, Reacher, Action
+
+Tue, 15 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/runner-alan-ritchson-thriller-fix-reacher/
+
+Alan Ritchson stars in 'Runner,' a 2026 action thriller that fixes a major problem with 'Reacher' — and shows what the Prime Video show is missing.
+---------
+
 # Robert De Niro's Netflix Thriller Is So Popular, It's Cracked A Major Milestone In 3 Weeks
 
 New Movies, The Whisper Man
