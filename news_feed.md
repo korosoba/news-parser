@@ -1,3 +1,443 @@
+# Star Wars Officially Launches A Better Version Of The Sequel Trilogy
+
+Streaming TV, Star Wars, Star Wars: Visions Presents - The Ninth Jedi
+
+Wed, 16 Sep 2026 18:47:08 GMT
+
+https://screenrant.com/star-wars-sequel-trilogy-ninth-jedi-better/
+
+Nearly seven years after The Rise of Skywalker, Star Wars: The Ninth Jedi has told the story of the sequel trilogy better than Rey's movies did.
+---------
+
+# Peacock Sets Streaming History With Massive New 3-Season Series Renewal
+
+TV, The Traitors
+
+Wed, 16 Sep 2026 18:45:22 GMT
+
+https://screenrant.com/the-traitors-seasons-6-7-8-renewal-peacock/
+
+Peacock sets streaming history with a massive three-season renewal for one of television's consistently most popular and acclaimed series.
+---------
+
+# Blitzo & Stolas' Relationship Hits Rock Bottom In Hazbin Hotel Spinoff Helluva Boss Season 3
+
+TV, Helluva Boss
+
+Wed, 16 Sep 2026 18:40:57 GMT
+
+https://screenrant.com/helluva-boss-season-3-trailer-release-date-prime-video/
+
+The upcoming season of Hazbin Hotel's spinoff Helluva boss just released brand-new trailer, revealing a major conflict between its characters.
+---------
+
+# Netflix's New Jaws Meets Lovecraft Horror Series Is The Perfect Successor To 7-Season Franchise
+
+TV, Below, Stranger Things, Horror
+
+Wed, 16 Sep 2026 18:35:06 GMT
+
+https://screenrant.com/netflix-below-tv-show-jaws-meets-lovecraft-stranger-things-successor-charlie-heaton/
+
+Exclusive: Netflix's new Jaws meets Lovecraft horror series is the perfect successor to its 7-season franchise, according to one of its stars.
+---------
+
+# Sherlock's Best Successor Is So Good, It's Already Renewed For Another Season
+
+Streaming TV, Masked Recs
+
+Wed, 16 Sep 2026 18:31:15 GMT
+
+https://screenrant.com/bookish-mark-gatiss-renewed-season-3-sherlock-successor/
+
+Sherlock's best successor, Bookish, is a fantastic new detective drama, and it's already been renewed for a third season (and a bonus special).
+---------
+
+# The Odyssey's Biggest Oscars 2027 Competition Has Been Confirmed (& It Isn't Dune 3 Or Project Hail Mary)
+
+New Movies, The Odyssey, Oscars
+
+Wed, 16 Sep 2026 18:30:16 GMT
+
+https://screenrant.com/the-odyssey-oscars-2027-best-picture-competition-la-bola-negra/
+
+The Odyssey is at the forefront of most category races for the Oscars 2027, but it does have competition. Its biggest threat is a surprise.
+---------
+
+# Stephen King Compared AI Art to Emojis, and His Own Fans Aren't Having It
+
+Books, Stephen King
+
+Wed, 16 Sep 2026 18:28:59 GMT
+
+https://screenrant.com/stephen-king-responds-ai-controversy/
+
+Stephen King compares AI art to emojis after casually using it for a social media post, causing friction between him and his fans.
+---------
+
+# DC Officially Confirms Supergirl’s Design For Superman's Next Appearance
+
+TV, Masked Recs
+
+Wed, 16 Sep 2026 18:27:33 GMT
+
+https://screenrant.com/krypto-saves-the-day-superman-hbo-max-dc-supergirl-reveal/
+
+Supergirl gets an exciting new suit for Superman's next appearance, and this design for the Girl of Steel comes with another fan-favorite return.
+---------
+
+# Kaley Cuoco's New HBO Max Series Officially Announced With 15-Episode Order
+
+TV, Kaley Cuoco, Ray Romano, Joshua Jackson, Greg Berlanti
+
+Wed, 16 Sep 2026 18:14:00 GMT
+
+https://screenrant.com/kaley-cuoco-how-to-survive-without-me-hbo-max-series-order/
+
+After starring on The Big Bang Theory, The Flight Attendant, Based on a True Story and Vanished, Kaley Cuoco has a new TV project in the works.
+---------
+
+# Read An Exclusive Excerpt From Murmuration, TJ Klune's New Mind-Bending Fantasy
+
+Books
+
+Wed, 16 Sep 2026 18:00:15 GMT
+
+https://screenrant.com/murmuration-tj-klune-excerpt-exclusive/
+
+NYT Bestselling author TJ Klune's new book, Murmuration, releases this November, and ScreenRant has the exclusive excerpt of the mind-bending fantasy.
+---------
+
+# Nic Cage's True Detective Season 5 Finally Gets Official Update From HBO
+
+TV, True Detective, HBO Max, Crime
+
+Wed, 16 Sep 2026 18:47:40 GMT
+
+https://www.cbr.com/true-detective-season-5-update-hbo-nicolas-cage/
+
+True Detective Season 5 starring Nicolas Cage just got an official update from one of HBO's top executives, although it isn't what fans expected.
+---------
+
+# 5 Times Yamato Proved He Was Better For Team 7 Than Kakashi In Naruto
+
+Anime, Naruto, Naruto: Shippuden, shonen anime
+
+Wed, 16 Sep 2026 18:45:11 GMT
+
+https://www.cbr.com/team-7-naruto-shippuden-yamato-better-than-kakashi/
+
+Yamato brought unique skills, discipline, and leadership to Team 7, proving he could sometimes give Naruto and his teammates what Kakashi couldn't.
+---------
+
+# 10 Strongest Transformers Who Aren’t Autobots or Decepticons
+
+Anime, Transformers, Innovation
+
+Wed, 16 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/strongest-transformers-not-autobots-decepticons-list/
+
+Some of the strongest Transformers of all time, like Unicron, aren't actually Autobots or Decepticons.
+---------
+
+# All Star Trek 60th Anniversary Special Stories, Ranked
+
+Comics, Star Trek
+
+Wed, 16 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/every-star-trek-60th-anniversary-special-story-ranked/
+
+IDW Publishing's Star Trek 60th Anniversary Special has finally arrived, and every story within it has something different to offer fans.
+---------
+
+# 27 Years Later, The Mummy’s Greatest Line Is Still Unbeaten
+
+Movies, The Mummy
+
+Wed, 16 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/the-mummy-evelyn-line-greatest-adventure-quote/
+
+Evelyn's greatest line is a testament to The Mummy's self-aware absurdity, setting up an adventure that went on to inspire a new era of action cinema.
+---------
+
+# 10 PS2 Games Everyone Owned in the 2000s
+
+Games, PlayStation 2, Video Games, Kingdom Hearts, RPG
+
+Wed, 16 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/ps2-games-everyone-owned-2000s/
+
+Everyone who had a PS2 must've played Kingdom Hearts and Resident Evil 4 at some point.
+---------
+
+# Yelena Belova Gets a New Mission Before Avengers: Doomsday Hits Theaters
+
+Comics, Marvel
+
+Wed, 16 Sep 2026 17:23:58 GMT
+
+https://www.cbr.com/black-widow-black-white-and-red-room-announced/
+
+Marvel Comics is bringing back Yelena Belova before her next major movie event.
+---------
+
+# HBO Confirms It’s Gutting Its Game of Thrones Expansion
+
+TV, Game Of Thrones, HBO Max, Fantasy
+
+Wed, 16 Sep 2026 17:21:28 GMT
+
+https://www.cbr.com/game-of-thrones-no-new-spinoffs-hbo/
+
+HBO confirms it's hitting the brakes on further exploration of Game of Thrones.
+---------
+
+# Sailor Moon Joins New Bandai Series With First-Ever Luna Release
+
+Anime, Sailor Moon, Sailor Moon S: The Movie, merchandise, bandai
+
+Wed, 16 Sep 2026 17:20:11 GMT
+
+https://www.cbr.com/sailor-moon-luna-bandai-nui-dreamy-hug-release/
+
+Sailor Moon’s Luna joins Bandai Namco Nui's Dreamy Hug series for the first time with a giant plush inspired by the classic '90s anime movie.
+---------
+
+# Disco Elysium Successor Sets PS5 Release Date
+
+Games, Disco Elysium
+
+Wed, 16 Sep 2026 17:19:51 GMT
+
+https://www.cbr.com/zero-parades-directors-cut-ps5-release-date/
+
+ZA/UM's latest RPG has finally set its release date for PlayStation 5, and it's getting the Director's Cut treatment like Disco Elysium before it.
+---------
+
+# Tom Hardy's 2-Part Crime Thriller Is Officially One of His Best
+
+TV News, MobLand, Paramount Plus, Crime, Thriller
+
+Wed, 16 Sep 2026 18:48:43 GMT
+
+https://collider.com/tom-hardy-mobland-season-2-rotten-tomatoes-score-is-it-good/
+
+Critics are officially in love with Season 2 of Tom Hardy and Guy Ritchie's MobLand, with an RT score significantly higher than Season 1.
+---------
+
+# 'NCIS' Icon Officially Returning for LL COOL J's 'New York' Spin-Off
+
+TV News, NCIS, NCIS: New York, LL Cool J, CBS
+
+Wed, 16 Sep 2026 18:39:11 GMT
+
+https://collider.com/ll-cool-j-ncis-new-york-brian-dietzen-jimmy-palmer-return/
+
+LL COOL J's Sam Hanna isn't the only familiar face returning to NCIS, with Brian Dietzen's Jimmy Palmer now confirmed for the new spin-off!
+---------
+
+# Zack Snyder Is Officially Adapting an 83-Year-Old Novel That's as Popular as 'Harry Potter'
+
+Movie News, Zack Snyder, The Last Photograph, The Fountainhead, Toronto International Film Festival
+
+Wed, 16 Sep 2026 18:31:09 GMT
+
+https://collider.com/zack-snyder-the-fountainhead-ayn-rand-adaptation-update/
+
+Zack Snyder says his long-planned The Fountainhead adaptation is written and could become his “magnum opus.”
+---------
+
+# Netflix’s 91-Minute True Crime Thriller Officially Becomes a Global Streaming Smash
+
+Movie News, Facing El Chapo, Netflix, Thriller, Crime
+
+Wed, 16 Sep 2026 18:19:15 GMT
+
+https://collider.com/facing-el-chapo-netflix-streaming-hit-action-thriller/
+
+Netflix’s 91-minute Facing El Chapo remains a global streaming hit three weeks after its debut.
+---------
+
+# Below: One Accent Had to Make the Family Feel Real | Set Stories
+
+TV, Below
+
+Wed, 16 Sep 2026 18:15:12 GMT
+
+https://collider.com/video/below-one-accent-had-to-make-the-family-feel-real-set-stories/
+
+Josh Hartnett, Mackenzie Davis, and Charlie Heaton found more than a filming location while making Netflix’s Below in Newfoundland — they immersed themselves in the local communities, landscapes, accents, and fishing culture that shaped the series.
+---------
+
+# Reacher Officially Meets His Match in One of the Series' Most Brutal Fights Ever
+
+TV Features, Reacher, Alan Ritchson, Prime Video, Agnez Mo
+
+Wed, 16 Sep 2026 18:12:11 GMT
+
+https://collider.com/reacher-season-4-finale-fight-lila-amisha-hoth/
+
+Reacher Season 4 is in the books, with the finale delivering one of the show's most brutal fights ever between Alan Ritchson's lead and the Hoths.
+---------
+
+# ‘The Ring’ Meets ‘V/H/S’ in Official Sneak Peek at Sophie Lowe’s New Horror Movie [Exclusive]
+
+Movie News, Horror, Fantastic Fest, Thriller, Movie Clips
+
+Wed, 16 Sep 2026 18:00:11 GMT
+
+https://collider.com/posthumous-sophie-lowe-vhs-horror-clip-fantastic-fest/
+
+Sophie Lowe discovers a disturbing VHS mystery in the first clip from the Fantastic Fest horror movie Posthumous. Watch it now.
+---------
+
+# Fantastic Fest’s New Adults-Only Psychological Horror Thriller Officially Reveals First Look [Exclusive]
+
+Exclusives, Fantastic Fest, Horror, Sick, Drama
+
+Wed, 16 Sep 2026 17:00:11 GMT
+
+https://collider.com/coming-of-age-horror-film-sick-new-posters-fantastic-fest/
+
+Two new posters for the Fantastic Fest coming-of-age horror flick Sick create some creepy imagery with an unsettling extra layer of meaning.
+---------
+
+# Absurdist Horror ‘Littermates’ Officially Gets First Trailer Ahead of Fantastic Fest Debut [Exclusive]
+
+Movie News, Obsession, Fantastic Fest, Horror, Thriller
+
+Wed, 16 Sep 2026 17:00:11 GMT
+
+https://collider.com/littermates-horror-movie-trailer-fantastic-fest/
+
+New Littermates trailer teases two survivors, a mysterious cottage and disturbing rules ahead of its Fantastic Fest premiere.
+---------
+
+# Zach Cregger's 'Resident Evil' Reboot Is Officially the Horror Franchise's Best Movie
+
+Movie News, Resident Evil, Austin Abrams, Zach Cregger, Horror
+
+Wed, 16 Sep 2026 16:57:47 GMT
+
+https://collider.com/zach-cregger-resident-evil-reboot-rotten-tomatoes-score-is-it-good/
+
+Zach Cregger's Resident Evil reboot is officially the horror franchise's best movie. Read on for more details.
+---------
+
+# 10 Greatest Action Thrillers To Watch While Waiting For 'Reacher' Season 5
+
+TV Lists, Reacher, Action, Thriller, Lioness
+
+Wed, 16 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/best-action-thrillers-before-reacher-season-5/
+
+'Reacher' Season 4 ended on September 16, 2026 on Prime Video, and these action thriller TV series are the perfect recommendations before Season 5.
+---------
+
+# 10 Crime Movies That Are Action-Packed From Start to Finish
+
+Movie Lists, Action, Crime
+
+Wed, 16 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/best-action-packed-crime-movies/
+
+These crime movies are packed with intense shootouts, high-speed car chases, hand-to-hand combat, and explosive carnage.
+---------
+
+# 'Lost' Icon Josh Holloway Leads New 'Top Gun'-Esque 4-Part Video Game Adaptation on Streaming
+
+TV News, Josh Holloway, Action
+
+Wed, 16 Sep 2026 17:51:25 GMT
+
+https://movieweb.com/josh-holloway-hour-zero-ace-combat-streaming-series/
+
+Josh Holloway leads a new prequel series for the upcoming 'Ace Combat 8: Wings of Leve' game.
+---------
+
+# 'Resident Evil' Officially Lands Mind-Blowing Rotten Tomatoes Score
+
+Movie News, Resident Evil
+
+Wed, 16 Sep 2026 17:26:22 GMT
+
+https://movieweb.com/resident-evil-rotten-tomatoes-score-revealed/
+
+'Resident Evil' has landed on Rotten Tomatoes with an impressive score, which makes it the best-reviewed movie based on a video game.
+---------
+
+# Tom Hardy Officially Confirms 'MobLand's Multi-Season Timeline Spans "Over Tens of Years"
+
+TV News, MobLand, Tom Hardy, Crime
+
+Wed, 16 Sep 2026 17:14:47 GMT
+
+https://movieweb.com/mobland-tom-hardy-multi-season-timeline/
+
+Tom Hardy teases 'MobLand' as a decades-spanning saga ahead of Season 2's release.
+---------
+
+# The Biggest Ever Star Wars Movie Dethroned at the Box Office by 2026's Only $2 Billion Blockbuster
+
+Movie News, Star Wars, Box Office Milestones, Star Wars: The Force Awakens, Spider-Man: Brand New Day
+
+Wed, 16 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/spider-man-brand-new-day-breaks-force-awakens-domestic-record/
+
+After nearly a decade at the top, Star Wars: The Force Awakens is no longer the domestic box office champion.
+---------
+
+# 'Clayface' Rating Officially Begins New Era for the DCU
+
+Movie News, Clayface, DCU, Horror
+
+Wed, 16 Sep 2026 16:35:53 GMT
+
+https://movieweb.com/clayface-dcu-rating-revealed/
+
+The upcoming Batman spin-off will be rated R for gore and some brief nudity.
+---------
+
+# Chris Evans Leads First Trailer for Netflix's New Star-Studded Action-Adventure Movie
+
+Movie News, Netflix, Sacrifice, Chris Evans, Action, Adventure
+
+Wed, 16 Sep 2026 16:26:47 GMT
+
+https://movieweb.com/sacrifice-netflix-action-adventure-trailer/
+
+Chris Evans faces a hilariously grim fate in Netflix's wild new action-adventure film that features a stellar ensemble cast.
+---------
+
+# Netflix's New 10/10 Action Thriller Is Officially One of the Biggest Streaming Hits in the World
+
+TV News, Fauda, Hot on Streaming, Action, Netflix
+
+Wed, 16 Sep 2026 16:00:15 GMT
+
+https://movieweb.com/fauda-action-netflix-streaming-hit-september-2026/
+
+One of Netflix's hottest action thrillers returned with a new season last week, and it's already a global streaming hit.
+---------
+
+# After A Perfect Game, 'Resident Evil' Delivers A Near-Perfect Movie | Review
+
+3.5 star movies, Resident Evil
+
+Wed, 16 Sep 2026 16:00:15 GMT
+
+https://movieweb.com/resident-evil-review/
+
+Director Zach Cregger reboots a stale franchise with smashing success.
+---------
+
 # Marvel Unveils the King in Black's Ultimate Form, "The King In All"
 
 Comics, Marvel
