@@ -1,3 +1,388 @@
+# Wheel Of Time: The One Power Officially Releases In 2027
+
+Gaming, The Wheel of Time, PC
+
+Wed, 16 Sep 2026 05:30:15 GMT
+
+https://screenrant.com/wheel-of-time-one-power-2027-expansion-details/
+
+The Wheel of Time is making an official comeback in 2027 with the release of The One Power, taking players back to the Final Battle.
+---------
+
+# Foundation: Shared Moonlight Officially Announced
+
+Gaming, Foundation, PC
+
+Wed, 16 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/foundation-shared-moonlight-galactic-frontier-event/
+
+Foundation officially returns ahead of its next major season with the launch of Shared Moonlight.
+---------
+
+# Robert De Niro Returns To The Genre Of His Second Oscar-Winning Movie Role
+
+Movies, Robert De Niro
+
+Wed, 16 Sep 2026 04:59:25 GMT
+
+https://screenrant.com/robert-de-niro-tommy-and-me-sports-movie-casting-talks/
+
+Robert De Niro has won numerous Academy Awards, and now he is in talks to return to the genre of the movie for which he won his second Oscar.
+---------
+
+# A Knight Of The Seven Kingdoms Officially Returns September 30
+
+Gaming, Game of Thrones, Game of Thrones: Legends, A Knight Of The Seven Kingdoms
+
+Wed, 16 Sep 2026 04:30:14 GMT
+
+https://screenrant.com/knight-of-seven-kingdoms-game-of-thrones-legends-return/
+
+With season 1 wrapped up and season 2 around the corner, A Knight of the Seven Kingdoms is back with another project in Game of Thrones: Legends.
+---------
+
+# Legend Of Zelda: Majora's Mask Remake Quietly Confirmed
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Majora's Mask, Nintendo, Nintendo Switch 2
+
+Wed, 16 Sep 2026 04:15:15 GMT
+
+https://screenrant.com/legend-of-zelda-majoras-mask-remake-seemingly-confirmed/
+
+The Majora's Mask remake that we've all been hoping for has been teased earlier than expected, much to the delight of fans.
+---------
+
+# New Pokémon Rival Game Available For Free Right Now
+
+Gaming, Aniimo, Live Service Games, PC
+
+Wed, 16 Sep 2026 04:00:20 GMT
+
+https://screenrant.com/new-pokemon-rival-free-aniimo-release-september-2026/
+
+A new rival to Pokémon, which will also challenge Palworld’s reign in the industry, has just been released, and it’s completely free for all players.
+---------
+
+# 36 Years Ago, DC's Best Comic Of The 1980s Introduced The Objective Most Powerful Comic Character Of All Time
+
+Comics, DC Comics, Animal Man
+
+Wed, 16 Sep 2026 03:59:15 GMT
+
+https://screenrant.com/dc-strongest-character-ever-grant-morrison-animal-man/
+
+Post-Crisis DC introduced some truly incredible stories helping define the modern era emerging from the Bronze Age, with one godly figure above all.
+---------
+
+# Zack Snyder’s New War Thriller Officially Sets All-Time Rotten Tomatoes Record
+
+Movies, Masked Recs, Zack Snyder
+
+Wed, 16 Sep 2026 03:58:34 GMT
+
+https://screenrant.com/zack-snyder-the-last-photograph-rotten-tomatoes-score-record/
+
+As Zack Snyder's new war thriller sparked strong reactions, the movie officially sets an all-time Rotten Tomatoes record for the filmmaker.
+---------
+
+# Michael Caine Declared This Neo-Western Drama The Best TV Show Of All Time
+
+TV, Michael Caine
+
+Wed, 16 Sep 2026 03:58:15 GMT
+
+https://screenrant.com/breaking-bad-best-tv-show-michael-caine/
+
+For veteran actor Michael Caine, there's one TV show that stands out above all, and he has a long list of reasons it deserves the throne.
+---------
+
+# 6 Most Underrated Guardians of the Galaxy Team Members
+
+Comics
+
+Wed, 16 Sep 2026 03:53:39 GMT
+
+https://screenrant.com/most-underrated-guardians-galaxy-team-members/
+
+Marvel Comics' Guardians of the Galaxy have had plenty of members over the years, but these 6 are the most underrated.
+---------
+
+# Who Is the Killer? The Shards Cast Weighs in On the Explosive Finale
+
+CBR Exclusives, The Shards
+
+Wed, 16 Sep 2026 04:12:19 GMT
+
+https://www.cbr.com/the-shards-finale-killer-trawler-igby-rigney-hayes-warner/
+
+The Shards stars Igby Rigney and Hayes Warner discuss the Season 1 finale, the Trawler mystery and the show’s cliffhanger ending.
+---------
+
+# 5 Anime Series Where the Strongest Character Is Sealed Away
+
+Anime, Jujutsu Kaisen, Naruto: Shippuden, Bleach
+
+Wed, 16 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/anime-strongest-character-sealed-away/
+
+Defeating an overpowered anime character often means sealing them away
+---------
+
+# The 6-Season Crime Show Made Just for Bones Fans (& Emily Deschanel Is Perfect in Both)
+
+TV, Bones, Animal Kingdom, Crime
+
+Wed, 16 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/animal-kingdom-perfect-for-bones-fans/
+
+Emily Deschanel briefly appeared in this TNT crime drama series after Bones, which ran for six seasons between 2016 and 2022.
+---------
+
+# This Rare Garfield Comic Strip Saved The Strip From Failing
+
+Comics, Garfield
+
+Wed, 16 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/garfield-chicago-sun-times-explained/
+
+In Comic Book Legends Revealed, discover the rare Garfield comic strip that celebrated the strip being saved from disaster.
+---------
+
+# Every PlayStation Era, Ranked By Its Best Game
+
+Games, PlayStation (Original)
+
+Wed, 16 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/every-playstation-era-ranked-by-its-best-game/
+
+PlayStation has had five distinct eras defined by its consoles, and while every era has a ton of great titles, one generation stands above the rest.
+---------
+
+# Transformers Gives Optimus Prime's G1 Movie Design a New Evolution
+
+Anime, Transformers, optimus prime, The Transformers: The Movie, merchandise, toys
+
+Wed, 16 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/transformers-g1-optimus-prime-blokees-release/
+
+The newest Blokees Optimus Prime model kit homages Generation 1 while incorporating other aspects of his legacy throughout the Transformers franchise.
+---------
+
+# 23 Years Later, Banned First-Person Shooter Returns With All-New Remaster
+
+Games, Postal, retro games
+
+Wed, 16 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/postal-2-redux-funded-2027-release-remaster/
+
+Postal 2, one of the most controversial games of all time, is officially returning in 2027.
+---------
+
+# Guy Ritchie’s Hit Netflix Crime Thriller Bounces Back 1 Week After Bad Streaming Start
+
+TV, The Gentlemen, Netflix, Crime
+
+Wed, 16 Sep 2026 03:00:11 GMT
+
+https://www.cbr.com/guy-ritchie-the-gentleman-netflix-crime-thriller-streaming-ratings/
+
+After The Gentlemen suffered a bad streaming start to the second season, the Guy Ritchie hit is back in the top spot on Netflix.
+---------
+
+# Resident Evil Reboot Confirms Leon S. Kennedy's Existence With Canon-Breaking Easter Egg
+
+Movies, Resident Evil
+
+Wed, 16 Sep 2026 02:53:39 GMT
+
+https://www.cbr.com/resident-evil-movie-leon-kennedy-easter-egg/
+
+Leon S. Kennedy does exist in the Resident Evil reboot, but in a way that breaks the established lore of the franchise.
+---------
+
+# 10 Best Low Fantasy Anime of All Time, Ranked
+
+Anime, Spirited Away, Attack on Titan
+
+Wed, 16 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/best-low-fantasy-anime-of-all-time/
+
+Anime like Spirited Away and Mushishi are the best examples of the low fantasy subgenera.
+---------
+
+# What To Know About 'Neagley' Before Prime Video's 'Reacher' Spin-Off Officially Premieres
+
+TV Features, Neagley, Reacher, Maria Sten, Prime Video
+
+Wed, 16 Sep 2026 04:45:11 GMT
+
+https://collider.com/neagley-recap-reacher-spinoff-prime-video/
+
+Prime Video's new Reacher spin-off Neagley premieres today. Here's what to know before diving into the season.
+---------
+
+# 8 Miniseries That Are Perfect From Beginning to End
+
+TV, TV Miniseries, Spider-Noir, Ripley, Adolescence
+
+Wed, 16 Sep 2026 04:27:11 GMT
+
+https://collider.com/miniseries-perfect-beginning-to-end/
+
+Chernobyl, Ripley, Spider-Noir, Adolescence, and more make up our list of miniseries that are perfect from beginning to end.
+---------
+
+# ‘The Odyssey' Officially Meets 'John Wick' In This Streaming Action Thriller
+
+Movie Features, 300, The Odyssey, Zack Snyder, Gerard Butler
+
+Wed, 16 Sep 2026 04:14:11 GMT
+
+https://collider.com/300-gerard-butler-odyssey-john-wick-streaming-paramount-plus-september-2026/
+
+2006's hit Gerard Butler action film 300 combines John Wick action with an Odyssey-style ancient Greek epic.
+---------
+
+# The 6 Best Mystery Movies Released Since 2000, Ranked
+
+Movie, Mystery, Thriller, Memento, Mulholland Drive
+
+Wed, 16 Sep 2026 03:59:11 GMT
+
+https://collider.com/best-mystery-movies-since-2000-ranked/
+
+Modern thriller masterpieces like Get Out, Anatomy of a Fall, and Mulholland Dr. are all among the best mystery movies released since 2000.
+---------
+
+# 5 Failed TV Pilots Based on Movies, Ranked
+
+TV, Beverly Hills Cop, Coming to America, Tremors, Darkman
+
+Wed, 16 Sep 2026 03:58:11 GMT
+
+https://collider.com/failed-tv-pilots-based-on-movies/
+
+TV pilots based on hit movies like Beverly Hills Cop and Darkman failed to take off, but they're still worth remembering.
+---------
+
+# Every Star Wars Dark Forces and Jedi Knight Game, Ranked
+
+Gaming, Star Wars, Video Game, Sci-Fi
+
+Wed, 16 Sep 2026 03:52:11 GMT
+
+https://collider.com/star-wars-dark-forces-jedi-knight-video-games-kyle-katarn-ranked/
+
+From Dark Forces to Jedi Knight: Jedi Academy, we've definitively ranked every Star Wars video game featuring fan-favorite Kyle Katarn.
+---------
+
+# The 6 Best Fantasy Books Released Since 2020, Ranked
+
+Movie, Fantasy, Books, Brandon Sanderson, Adventure
+
+Wed, 16 Sep 2026 02:48:11 GMT
+
+https://collider.com/best-fantasy-books-since-2020-ranked/
+
+Tress of the Emerald Sea by Brandon Sanderson and Babel by R.F. Kuang are among the best fantasy books of the 2020s so far.
+---------
+
+# The 10 Best Rock Bangers Under 2 Minutes Long
+
+Music Features, Music, Lists, Queen, Van Halen
+
+Wed, 16 Sep 2026 02:44:11 GMT
+
+https://collider.com/best-rock-songs-under-2-minutes-long/
+
+"Song 2" by Blur and "All I Want" by The Offspring are among the very best rock songs under two minutes long.
+---------
+
+# Tom Hardy's Hit Crime Thriller Officially Surges Ahead of Season 2 Premiere
+
+TV News, MobLand, Paramount Plus, Thriller, Guy Ritchie
+
+Wed, 16 Sep 2026 02:00:21 GMT
+
+https://collider.com/tom-hardy-mobland-streaming-success-paramount-plus-september-2026/
+
+With the second season set to premiere this week, Tom Hardy and Guy Ritchie's crime thriller is taking over streaming.
+---------
+
+# Apple TV Officially Revives Chris Pratt’s Best Thriller
+
+Movie News, Jessica Chastain, Kathryn Bigelow, Zero Dark Thirty, Chris Pratt
+
+Wed, 16 Sep 2026 01:30:11 GMT
+
+https://collider.com/chris-pratt-war-thriller-zero-dark-thirty-streaming-success-apple-tv-september-2026/
+
+Ahead of The Terminal List's long-awaited return, Chris Pratt's acclaimed war thriller has officially returned as a certified streaming hit.
+---------
+
+# Netflix Announces Real-Life Prison Experiment Series That's Set to Be a Streaming Hit
+
+TV News, The Stanford Prison Experiment, Netflix, Reality TV
+
+Wed, 16 Sep 2026 02:58:38 GMT
+
+https://movieweb.com/netflix-announces-real-life-prison-experiment-series/
+
+Netflix's unscripted series stages a modern reenactment of Zimbardo's 1971 Stanford Prison study.
+---------
+
+# Robert De Niro Reportedly in Talks to Play Real-Life Sports Legend in Upcoming Biopic
+
+Movie News, Robert De Niro, Sports
+
+Wed, 16 Sep 2026 02:17:28 GMT
+
+https://movieweb.com/robert-de-niro-tommy-and-me-biopic/
+
+One of L.A.'s biggest sports legends is reportedly the subject of a new biopic, with Robert De Niro bringing the real-life icon to life.
+---------
+
+# 9 Greatest Detective Thriller Series You Can Binge Watch in a Weekend
+
+TV Lists, Thriller
+
+Wed, 16 Sep 2026 02:00:24 GMT
+
+https://movieweb.com/detective-thriller-tv-shows-binge-weekend/
+
+These stand-out detective thriller TV series have interesting characters and fast-paced storylines, and they are perfect to binge watch in a weekend.
+---------
+
+# Zack Snyder Reveals Adaptation of Ayn Rand's Classic Novel Will Be His Magnum Opus
+
+Movie News, Zack Snyder, The Last Photograph
+
+Wed, 16 Sep 2026 01:51:49 GMT
+
+https://movieweb.com/zack-snyder-fountainhead-ayn-rand-adaptation/
+
+The filmmaker behind 'Watchmen' and 'Man of Steel' has his sights set on another adaptation.
+---------
+
+# 10 Greatest Crime Thriller Series To Watch While Waiting For ‘True Detective’ Season 5
+
+Features, True Detective, Thriller, Crime
+
+Wed, 16 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/crime-thriller-shows-before-true-detective-season-5/
+
+The currently in-development season 5 of 'True Detective' isn't due out until 2027, but for now you can binge these equally dark crime thrillers.
+---------
+
 # After 64 Years, Marvel Officially Kills Off Thor-Level Character
 
 Marvel Comics, Marvel
