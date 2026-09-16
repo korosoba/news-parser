@@ -1,3 +1,443 @@
+# Marvel Unveils the King in Black's Ultimate Form, "The King In All"
+
+Comics, Marvel
+
+Wed, 16 Sep 2026 15:12:38 GMT
+
+https://screenrant.com/king-black-ultimate-form-knull/
+
+Knull gets a massive power upgrade.
+---------
+
+# Anya Taylor-Joy's Wild New Netflix Thriller Sacrifice Revealed In First Trailer
+
+Movies, Sacrifice
+
+Wed, 16 Sep 2026 15:11:14 GMT
+
+https://screenrant.com/sacrifice-movie-trailer-anya-taylor-joy/
+
+The first trailer for Netflix's Sacrifice offers an early look at the wild thriller movie, which stars Anya Taylor-Joy and Chris Evans.
+---------
+
+# Star Trek Confirms Captain Kirk's Last Love Interest, And It's A Legacy Character Nobody Expected
+
+Comics, Star Trek
+
+Wed, 16 Sep 2026 15:00:15 GMT
+
+https://screenrant.com/star-trek-captain-kirk-final-love/
+
+He kissed who?
+---------
+
+# La'an Is On The Edge In Star Trek: Strange New Worlds Season 4 Episode 9 (Exclusive)
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Wed, 16 Sep 2026 15:00:15 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-season-4-episode-9-exclusive-clip/
+
+EXCLUSIVE: ScreenRant presents a clip of Star Trek: Strange New Worlds season 4, episode 9, as Captain Pike grows concerned about La'an's behavior.
+---------
+
+# Pokémon TCG 30th Anniversary Celebration Has Been Ruined, Fans Complain
+
+Gaming, Pokemon Trading Card Game, tabletop games
+
+Wed, 16 Sep 2026 14:54:58 GMT
+
+https://screenrant.com/pokemon-tcg-30th-scalpers-ruined/
+
+As fans rush out to stores to enjoy the 30th anniversary set of the Pokémon TCG, scalpers are out in full force, grabbing everything they can.
+---------
+
+# Spider-Man: Brand New Day Beats US Box Office Final Boss For All Time Record
+
+Superheroes, Marvel Cinematic Universe, Spider-Man: Brand New Day, Box Office
+
+Wed, 16 Sep 2026 14:46:53 GMT
+
+https://screenrant.com/spider-man-brand-new-day-box-office-domestic-highest-grossing-movie-record/
+
+During its seventh week in theaters, Spider-Man: Brand New Day tops the all-time chart of the highest-grossing movies at the domestic box office.
+---------
+
+# The Best Dinosaur Movie Since Steven Spielberg's Jurassic Park Is #1 On Streaming In The United States
+
+Movies, Masked Recs
+
+Wed, 16 Sep 2026 14:37:43 GMT
+
+https://screenrant.com/the-end-oak-street-best-dinosaur-jurassic-park-apple-vod-streaming-success-september-2026/
+
+The best dinosaur movie since Steven Spielberg's Jurassic Park comes with major stars, impeccable CGI, a lot of bloody deaths, and it rules streaming.
+---------
+
+# DC Confirms New Green Arrow For Its Dark Rebooted Universe
+
+Comics, DC Comics, Green Arrow
+
+Wed, 16 Sep 2026 14:30:15 GMT
+
+https://screenrant.com/dc-new-second-absolute-green-arrow-reboot/
+
+The plot thickens once more before the ultimate reveal as Absolute Green Arrow inches toward the conclusion of its first arc.
+---------
+
+# All 8 Seasons Of Homeland, Ranked
+
+Classic TV, Homeland
+
+Wed, 16 Sep 2026 14:30:15 GMT
+
+https://screenrant.com/homeland-seasons-ranked/
+
+Showtime's Homeland defined a genre, but the show almost forgot that it was about terrorists for a few seasons. Which season was the best?
+---------
+
+# Mike Flanagan's Adaptation Of Stephen King's Darkest Work Is Officially One Step Closer To Release
+
+Movies, The Mist, Stephen King
+
+Wed, 16 Sep 2026 14:27:48 GMT
+
+https://screenrant.com/mike-flanagan-the-mist-movie-script-update-stephen-king/
+
+While at TIFF, Mike Flanagan has shared an exciting new update regarding his adaptation of The Mist, one of Stephen King’s darkest stories.
+---------
+
+# Harry Potter Is Already Abandoning Its Original TV Release Strategy, HBO Confirms
+
+TV, Harry Potter, hbo
+
+Wed, 16 Sep 2026 15:10:46 GMT
+
+https://www.cbr.com/hbo-harry-potter-abandoning-annual-tv-release-strategy/
+
+Harry Potter fans shouldn't get too comfortable about the idea of seeing Hogwarts on their TV screens every Christmas.
+---------
+
+# 5 Classic Toonami Anime That Are 10/10 Masterpieces
+
+Anime, toonami, Cartoon Network, Naruto
+
+Wed, 16 Sep 2026 15:00:11 GMT
+
+https://www.cbr.com/classic-toonami-anime-perfect-masterpieces/
+
+These classic anime are Toonami favorites and remain some of the best series from the network's golden era.
+---------
+
+# Daniel Craig’s Netflix Reboot of a 76-Year-Old Fantasy Classic Confirms Major Details
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, Netflix, Innovation
+
+Wed, 16 Sep 2026 14:41:29 GMT
+
+https://www.cbr.com/chronicles-of-narnia-netflix-reboot-magicians-nephew-cast-release-date/
+
+Netflix finally confirms major details about Daniel Craig's reboot of a beloved fantasy classic.
+---------
+
+# 5 Gundam Mobile Suits Stronger Than the RX-78-2
+
+Anime, Gundam, mecha
+
+Wed, 16 Sep 2026 14:15:11 GMT
+
+https://www.cbr.com/gundam-mobile-suits-stronger-than-the-rx-78-2/
+
+The RX-78-2 Gundam is the most iconic mobile suit, but it's nowhere near the strongest.
+---------
+
+# New John Wick Replacement Movie Is Crowned the Perfect Action Thriller With 100% RT Score
+
+Movies, The Surgeon, Action, Thriller
+
+Wed, 16 Sep 2026 14:09:00 GMT
+
+https://www.cbr.com/the-surgeon-2026-rotten-tomatoes-score/
+
+Michelle Yeoh and Martin Freeman's new action thriller The Surgeon debuts to a 100% Rotten Tomatoes score following its TIFF premiere.
+---------
+
+# 10 Greatest Superman Comics That Show Him at His Best
+
+Comics, Superman, DC Comics, DCU
+
+Wed, 16 Sep 2026 14:00:11 GMT
+
+https://www.cbr.com/superman-comics-that-show-the-man-of-steel-at-his-best/
+
+Superman has too many great comics to choose from, but some stand out as the best representations of what makes the Man of Steel great.
+---------
+
+# Animation Guru Laika Hosts a Rare Set Visit Ahead of Wildwood Release
+
+CBR Exclusives, Wildwood, laika
+
+Wed, 16 Sep 2026 13:25:46 GMT
+
+https://www.cbr.com/wildwood-set-visit-laika/
+
+Wildwood is finally coming to the big screen, and to celebrate, CBR was invited to an inside look at the magic of their stop-motion animation.
+---------
+
+# Shigeru Miyamoto "Regrets" Making the Lowest-Rated 3D Mario Game on Metacritic
+
+Games, Nintendo Switch, Mario, Nintendo
+
+Wed, 16 Sep 2026 13:20:11 GMT
+
+https://www.cbr.com/shigeru-miyamoto-regrets-super-mario-sunshine-switch-2-release/
+
+Super Mario Sunshine has finally joined the Nintendo Switch 2's library, but its creator, Miyamoto, isn't satisfied with how it turned out.
+---------
+
+# 10 Forgotten One Piece Characters Who Need To Make A Comeback
+
+Anime, One Piece, shonen anime
+
+Wed, 16 Sep 2026 13:15:11 GMT
+
+https://www.cbr.com/forgotten-one-piece-characters-comeback/
+
+One Piece's narrative may have forgotten these characters, but they all deserve to return and have their stories continued.
+---------
+
+# Hunger Games Replaces Katniss With Haymitch for Panem's Most Brutal Games
+
+Movies, The Hunger Games: Sunrise on the Reaping, The Hunger Games
+
+Wed, 16 Sep 2026 13:01:26 GMT
+
+https://www.cbr.com/hunger-games-sunrise-on-the-reaping-trailer/
+
+A brand new trailer for Sunrise on the Reaping teases the most deadly Hunger Games to date.
+---------
+
+# Anya Taylor-Joy Officially Returns to Netflix With First Trailer for New Chris Evans Thriller
+
+Movie News, Chris Evans, Anya Taylor-Joy, Sacrifice, Netflix
+
+Wed, 16 Sep 2026 15:11:54 GMT
+
+https://collider.com/sacrifice-trailer-anya-taylor-joy-chris-evans-netflix/
+
+Anya Taylor-Joy and Chris Evans star in Netflix’s provocative satirical thriller Sacrifice, which has officially released its first trailer.
+---------
+
+# Fantastic 'Atonement' Examines the Human Cost of the Iraq War | TIFF Review
+
+Movie Reviews, Atonement, Boyd Holbrook, Kenneth Branagh, Hiam Abbass, TIFF
+
+Wed, 16 Sep 2026 15:04:52 GMT
+
+https://collider.com/atonement-review-boyd-holbrook-kenneth-branagh/
+
+Boyd Holbrook, Hiam Abbass, and Kenneth Branagh lead Atonement, Reed Van Dyk’s deeply moving drama about war, guilt, and forgiveness.
+---------
+
+# Marvel’s New Rogue Officially Joins Sydney Sweeney and Brie Larson’s Breakout Club
+
+Movie News, Inde Navarrette, Obsession, X-Men, IMDb
+
+Wed, 16 Sep 2026 15:02:38 GMT
+
+https://collider.com/inde-navarrette-breakout-starmeter-award-rogue-marvel/
+
+Obsession star Inde Navarrette wins IMDb’s Breakout STARmeter Award ahead of her MCU debut as Rogue.
+---------
+
+# ‘Helluva Boss’ Season 3 Officially Returns With New Trailer [Exclusive]
+
+TV News, Helluva Boss, Hazbin Hotel, Animation, Prime Video
+
+Wed, 16 Sep 2026 15:00:11 GMT
+
+https://collider.com/helluva-boss-season-3-trailer-prime-video/
+
+Helluva Boss Season 3 gets its official trailer ahead of an October 14 return to Prime Video with three new episodes.
+---------
+
+# ‘Anaconda’ Meets ‘Jurassic Park’ in New Creature Feature With a Truly Gigantic Predator [Exclusive]
+
+Exclusives, Beware Boiúna, Horror, Fantastic Fest, Collider Exclusive Preview
+
+Wed, 16 Sep 2026 15:00:11 GMT
+
+https://collider.com/beware-boiuna-kiana-madeira-jessica-rothe-first-look/
+
+Kiana Madeira and Jessica Rothe face a colossal Amazon predator in first look at survival horror movie Beware Boiúna.
+---------
+
+# ‘Widow’s Bay’ Meets ‘The Meg’ in Netflix’s New Thriller Series
+
+TV Features, Netflix, The Meg, Widow's Bay, Josh Hartnett
+
+Wed, 16 Sep 2026 14:53:11 GMT
+
+https://collider.com/widows-bay-replacement-below-netflix-the-meg-josh-hartnett/
+
+Blending the themes of Widow’s Bay and The Meg, Josh Hartnett plays a fisherman fighting a mysterious sea creature in Netflix’s Below.
+---------
+
+# Celebrating 40 Years of ‘Transformers: The Movie’ With Collider Readers
+
+Animation, The Transformers: The Movie, Transformers
+
+Wed, 16 Sep 2026 14:40:11 GMT
+
+https://collider.com/video/come-with-us-to-the-transformers-the-movie-40th-anniversary-screening/
+
+“It was like time travelling!" 🚀40 years after its theatrical debut in August 1986, Collider partnered with Hasbro and Fathom Entertainment to bring The Transformers: The Movie back to the big screen for a special 40th-anniversary celebration at Landmark Sunset in Los Angeles. It was an emotional night celebrating the lasting impact of the Transformers franchise and honoring the legacy and memory of Peter Cullen. The movie is still as brilliant on the big screen as it was in 1986—but don’t just take our word for it—here’s what some of our readers thought!The Transformers: The Movie 40th Anniversary screenings debut nationwide September 17, a.k.a. Transformers Day.
+---------
+
+# New James Bond Series Officially Casts Key 007 Figure
+
+Books and Comics News, James Bond, No Time to Die, Daniel Craig, Pierce Brosnan
+
+Wed, 16 Sep 2026 14:01:11 GMT
+
+https://collider.com/young-james-bond-silverfin-cast-charlie-higson/
+
+Charlie Higson has joined the cast of Young Bond as as tutor Michael Merriot. The new audiodrama is based on Higson's novel, Young Bond: Silverfin.
+---------
+
+# Guy Ritchie's 'MobLand' Officially Returns with a Bigger, Bloodier War in Season 2 | Review
+
+TV Reviews, MobLand, Tom Hardy, Guy Ritchie, Paramount Plus
+
+Wed, 16 Sep 2026 14:01:11 GMT
+
+https://collider.com/mobland-season-2-review/
+
+MobLand returns for Season 2 with a bigger, bloodier war for the Harrigans as Guy Ritchie expands his gangster Paramount+ series starring Tom Hardy.
+---------
+
+# ‘Dungeons & Dragons’ Officially Delivers Its Best Campaign Yet With New ‘World of Warcraft’ Expansion [Exclusive]
+
+Gaming News, Dungeons and Dragons, Dungeons & Dragons, Gaming, Neil Newbon
+
+Wed, 16 Sep 2026 14:01:11 GMT
+
+https://collider.com/dungeons-and-dragons-world-of-warcraft-dungeon-masters-campaign/
+
+Explore the new Dungeons & Dragons campaign set within Azeroth with exclusive trailer and insights from the cast.
+---------
+
+# The Cast of 'Monk': Where They Are Today
+
+TV Lists, Monk
+
+Wed, 16 Sep 2026 15:01:14 GMT
+
+https://movieweb.com/monk-cast-where-are-they-now/
+
+Some stars shifted to family and private lives while others earned awards and high profile roles across stage and screen.
+---------
+
+# Zack Snyder Knows What Comic Book Movie He Wants To Make Next
+
+Movie News, Zack Snyder, Superhero, Frank Miller, Batman
+
+Wed, 16 Sep 2026 14:45:38 GMT
+
+https://movieweb.com/zack-snyder-batman-dark-knight-returns/
+
+Zack Snyder's preferred next comic book adaptation will spark debate.
+---------
+
+# 10 Best Far Side Comic Strips That Reference TV Shows
+
+TV Lists, The Far Side, Comedy, comics
+
+Wed, 16 Sep 2026 14:00:13 GMT
+
+https://movieweb.com/far-side-best-tv-references/
+
+These classic 'Far Side' comic strips prove Gary Larson had plenty to say about TV shows, from sitcoms to late-night talk shows and beyond.
+---------
+
+# 'Resident Evil' First Reactions Hail It as a Game-Changing Adaptation of the Franchise
+
+Movie News, Resident Evil
+
+Wed, 16 Sep 2026 13:53:44 GMT
+
+https://movieweb.com/zach-cregger-resident-evil-reboot-first-reactions/
+
+Zach Cregger's 'Resident Evil' reboot scored an early win during its world premiere.
+---------
+
+# Jon Bernthal & Taylor Sheridan's 100-Minute Action Thriller Is Now One of Streaming's Biggest Movies
+
+Movie News, Those Who Wish Me Dead, Hot on Streaming, Jon Bernthal, Taylor Sheridan, Action
+
+Wed, 16 Sep 2026 13:01:13 GMT
+
+https://movieweb.com/those-who-wish-me-dead-bernthal-sheridan-action-stream-netflix-sept-2026/
+
+The most recent collaboration between Bernthal and Sheridan is easily one of their best efforts, even if critics weren't that impressed.
+---------
+
+# 'Ted Lasso' Officially Confirms Jamie Tartt's Replacement
+
+Features, Brett Goldstein, Comedy, Apple TV, Juno Temple, Ted Lasso
+
+Wed, 16 Sep 2026 13:01:13 GMT
+
+https://movieweb.com/ted-lasso-officially-confirms-jamie-tartt-replacement/
+
+Roy Kent's new girlfriend in 'Ted Lasso' Season 4 not only replaces Jamie Tartt in the love triangle, but she also puts a stop to it.
+---------
+
+# 'Hunger Games: Sunrise on the Reaping' Trailer Officially Replaces Katniss Everdeen With New Rebel Hero
+
+Movie News, The Hunger Games: Sunrise on the Reaping, The Hunger Games, Action, Adventure, Sci-Fi
+
+Wed, 16 Sep 2026 13:00:41 GMT
+
+https://movieweb.com/hunger-games-sunrise-on-reaping-trailer/
+
+Lionsgate has released a new trailer for 'The Hunger Games: Sunrise on the Reaping,' transporting viewers back to Panem for the Second Quarter Quell.
+---------
+
+# Final 'Wildwood' Trailer Reveals a Dark Fantasy Epic That Makes 'Narnia' Feel Small
+
+Movie News, Wildwood, Travis Knight, Fantasy
+
+Wed, 16 Sep 2026 12:30:14 GMT
+
+https://movieweb.com/wildwood-final-trailer/
+
+Laika has released the final trailer for its next stop-motion fantasy epic, 'Wildwood,' unveiling a magical realm to rival 'The Chronicles of Narnia.'
+---------
+
+# Apple TV’s Smash Hit Spy Thriller Is So Good, It's Already Been Renewed For 2 More Seasons
+
+Features, Slow Horses, Thriller, Apple TV
+
+Wed, 16 Sep 2026 12:00:14 GMT
+
+https://movieweb.com/slow-horses-apple-tv-renewed-more-seasons/
+
+Ahead of its Season 6 premiere, Slow Horses was renewed by Apple TV for another two seasons, highlighting its continued strengths.
+---------
+
+# 7 Greatest HBO Psychological Thrillers With 8 Episodes or Less
+
+TV Lists, HBO Max, Thriller, Crime, Drama
+
+Wed, 16 Sep 2026 11:00:14 GMT
+
+https://movieweb.com/hbo-psychological-thrillers-eight-episodes-less/
+
+From 'Sharp Objects' to 'The Night Of,' these HBO psychological thrillers with eight episodes or less are perfect for your next TV binge night.
+---------
+
 # PlayStation Officially Unveils New Hardware Arriving In 2027
 
 Gaming, PlayStation
