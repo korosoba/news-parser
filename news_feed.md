@@ -1,3 +1,432 @@
+# Marvel Is Resurrecting A Forgotten Alan Moore Antihero For The Avengers' Next Massive Reboot
+
+Marvel Comics, The Avengers
+
+Thu, 17 Sep 2026 22:17:54 GMT
+
+https://screenrant.com/miracleman-joins-avengers-alan-moore/
+
+A classic Alan Moore creation joins the Avengers just in time to save the world alongside Earth's Mightiest Heroes, towering above most Marvel icons.
+---------
+
+# Blightfall Just Rewrote How Brandon Sanderson's Universe Works, and Skyward's TV Deal Confirms It
+
+Books, Brandon Sanderson, Skyward
+
+Thu, 17 Sep 2026 22:16:56 GMT
+
+https://screenrant.com/blightfall-cosmere-cytoverse-connection-brandon-skyward-tv-deal/
+
+Blightfall continues to expand the Cytoverse while also redefining how the book universe works alongside Brandon Sanderson's Cosmere.
+---------
+
+# Brad Pitt's Intense 135-Minute World War 2 Movie Is Perfect If You Like Band Of Brothers
+
+Movies, Masked Recs
+
+Thu, 17 Sep 2026 22:06:24 GMT
+
+https://screenrant.com/brad-pitt-fury-movie-like-band-of-brothers/
+
+This Brad Pitt war movie with one of the genre's most star-studded casts is the perfect call if you are a fan of HBO's Band of Brothers.
+---------
+
+# FX's New Series Based On An Iconic Video Game Is Rambo Meets Escape From New York
+
+TV, Masked Recs
+
+Thu, 17 Sep 2026 22:01:15 GMT
+
+https://screenrant.com/far-cry-tv-show-rambo-escape-from-new-york/
+
+Expect tense wilderness survival set pieces, villainous tyrants, and cinematic grit borrowing from Rambo's ruthlessness in FX's upcoming show.
+---------
+
+# From Hello Kitty to One Piece, Every Major McDonald’s Anime Collab of 2026
+
+Anime, Hello Kitty
+
+Thu, 17 Sep 2026 22:00:16 GMT
+
+https://screenrant.com/hello-kitty-happy-meal-mcdonalds-2026-pompompurin/
+
+McDonald's has done many anime collaborations in 2026, including several with Sanrio and even One Piece, so here is what you need to know about them.
+---------
+
+# 3 Nintendo DS RPGs That Are Still 10/10 Masterpieces
+
+Gaming, Nintendo DS, Triple-A Games, RPG
+
+Thu, 17 Sep 2026 22:00:15 GMT
+
+https://screenrant.com/nintendo-ds-masterpieces-rpgs/
+
+Despite its small size, the DS was the perfect destination for some huge adventures, and these three are among the very best on the system.
+---------
+
+# 7 MCU Weapons Stronger Than Thor's Stormbreaker, Ranked
+
+Movies, Marvel Cinematic Universe
+
+Thu, 17 Sep 2026 21:21:17 GMT
+
+https://screenrant.com/mcu-weapons-more-powerful-than-stormbreaker-thor-ax/
+
+Stormbreaker is one of the MCU's strongest weapons, but these seven artifacts possess powers capable of reshaping reality, time, and the multiverse.
+---------
+
+# Ian Mckellen’s Gandalf Return Revealed In First Lord Of The Rings: Hunt For Gollum Look
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Thu, 17 Sep 2026 21:17:00 GMT
+
+https://screenrant.com/lord-of-the-rings-hunt-for-gollum-ian-mckellen-gandalf-first-look/
+
+Ian Mckellen’s iteration of the iconic wizard Gandalf from the original Lord of the Rings trilogy makes his return in a new first-look video.
+---------
+
+# ABC's Modern Sitcom Masterpiece Surges As A Major Streaming Hit 9 Years Later
+
+TV, Masked Recs
+
+Thu, 17 Sep 2026 21:08:25 GMT
+
+https://screenrant.com/the-middle-abc-sitcom-masterpiece-peacock-streaming-success-september-2026/
+
+ABC may be best known right now for Abbott Elementary, but its their nearly decade old sitcom masterpiece that is a big streaming hit.
+---------
+
+# Netflix’s Stranger Things Spinoff Returns This Week Despite Mixed Reviews
+
+Streaming TV, Masked Recs
+
+Thu, 17 Sep 2026 21:07:15 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-netflix-spinoff-mixed-reviews/
+
+Netflix's divisive spinoff series Stranger Things: Tales From '85 season 2 officially returns this week despite receiving mixed reviews.
+---------
+
+# 5 European Anime That Have Aged Like Fine Wine
+
+Anime, Monster, Berserk, Fullmetal Alchemist
+
+Thu, 17 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/european-anime-aged-well/
+
+Some of the best anime of all time are set in Europe rather than Japan and are masterpieces every fan must experience.
+---------
+
+# Leonardo DiCaprio & Tom Hardy’s Brutal 10-Year-Old Western Is Making a Streaming Comeback
+
+TV, The Revenant, HBO Max, Leonardo DiCaprio
+
+Thu, 17 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/the-revenant-western-success-hbo-max-september-2026/
+
+This film earned DiCaprio his first Oscar win.
+---------
+
+# John Wick Meets Robin Hood in Andrew Garfield's New 128-Minute Action Movie
+
+Movies, The Uprising
+
+Thu, 17 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/the-uprising-is-john-wick-meets-robin-hood/
+
+The Uprising is Andrew Garfield's latest movie and it is one of the best action films since John Wick, with a period drama backdrop.
+---------
+
+# The Forgotten Five: The Superhero Story That Deserves Your Attention
+
+Comics, image comics
+
+Thu, 17 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/the-forgotten-five-1-exclusive-announcement/
+
+A brand-new indie series is about to introduce an entirely breed of heroes, and The Forgotten Five already looks like Image Comics' next breakout hit.
+---------
+
+# Nintendo Reveals New Switch 2 Console Bundle
+
+Games, Nintendo Switch
+
+Thu, 17 Sep 2026 21:52:17 GMT
+
+https://www.cbr.com/nintendo-switch-2-monster-hunter-wilds-bundle/
+
+New releases continue to arrive on Nintendo's latest console, and now a major upcoming title can be purchased alongside a Switch 2 system.
+---------
+
+# Stranger Things Spinoff Returns With Franchise-Record Rotten Tomatoes Score
+
+TV, Stranger Things: Tales from '85, Netflix, Sci-Fi
+
+Thu, 17 Sep 2026 21:31:21 GMT
+
+https://www.cbr.com/stranger-things-tales-from-85-season-2-rt-score/
+
+Stranger Things is back, but not in top form.
+---------
+
+# The Empire Strikes Back Gave Han Solo the Best Star Wars Quote
+
+Movies, Star Wars
+
+Thu, 17 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/star-wars-empire-strikes-back-han-solo-best-sci-fi-quote/
+
+One of the best lines in all of Star Wars is delivered by Han Solo, and it's still one of the hardest-hitting quotes in all of sci-fi.
+---------
+
+# 5 Classic CRPGs That Are Unplayable Today
+
+Games, The Elder Scrolls, Fallout
+
+Thu, 17 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/classic-crpgs-unplayable-today/
+
+Rushed releases and archaic design leave great ideas half-built and buried in these classic cRPGs.
+---------
+
+# God of War Meets Dark Souls in New Action RPG You Can Play Free Until September 30
+
+Games
+
+Thu, 17 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/god-of-war-meets-dark-souls-in-new-action-rpg-you-can-play-free-until-september-30/
+
+Koei Tecmo's newest addition to the world of gaming doesn't come out until March 2027, but a new gameplay demo is free to play until September 30.
+---------
+
+# This $160M Mind-Bending Sci-Fi Masterpiece Wouldn't Exist Without Christopher Nolan's Batman Trilogy
+
+Exclusives, Inception, The Dark Knight, Hans Zimmer, Christopher Nolan
+
+Thu, 17 Sep 2026 22:00:11 GMT
+
+https://collider.com/hans-zimmer-christopher-nolan-the-dark-knight-inception/
+
+Hans Zimmer says Christopher Nolan’s Batman success convinced Hollywood to give the filmmaker the money required to make Inception.
+---------
+
+# 7 Fantasy Books You Can Finish in a Weekend
+
+Books and Comics, Fantasy, A Knight Of The Seven Kingdoms, J.R.R. Tolkien, The Last Unicorn
+
+Thu, 17 Sep 2026 21:52:11 GMT
+
+https://collider.com/fantasy-books-read-in-one-weekend/
+
+The Hobbit, The Last Unicorn, Tooth and Claw, and A Knight of the Seven Kingdoms are the ultimate page-turners for a full weekend of reading.
+---------
+
+# The 10 Best Sci-Fi Books of All Time, According to Goodreads
+
+Books and Comics, Books, Sci-Fi, Andy Weir, George Orwell
+
+Thu, 17 Sep 2026 21:45:11 GMT
+
+https://collider.com/best-sci-fi-books-all-time-goodreads/
+
+The Martian by Andy Weir, The Handmaid's Tale by Margaret Atwood, and 1984 by George Orwell are among the best sci-fi books according to Goodreads.
+---------
+
+# ‘Monster: The Lizzie Borden Story’ Creator Officially Explains Aileen Wuornos’ Role in Series
+
+Exclusives, Monster: The Lizzie Borden Story, Ian Brennan, Ryan Murphy, Netflix
+
+Thu, 17 Sep 2026 21:22:11 GMT
+
+https://collider.com/monster-lizzie-borden-story-netflix-aileen-wuornos-role/
+
+‘Monster: The Lizzie Borden Story’ Ian Brennan explains Aileen Wuornos’ role in the Netflix crime series and reveals the killers they’ve scrapped.
+---------
+
+# 10 Action Movies With the Best Fighting
+
+Movie, Action, John Wick: Chapter 4, The Raid: Redemption, Hero
+
+Thu, 17 Sep 2026 21:20:11 GMT
+
+https://collider.com/action-movies-best-fighting/
+
+From Atomic Blonde to Drunken Master II, these action movies have the greatest, most exhilarating, and all-around impressive fighting in the genre.
+---------
+
+# 10 Best Classic Film Noir Movies That Defined the Genre, Ranked
+
+Movie, Classics, Double Indemnity, Thriller, Film Noir
+
+Thu, 17 Sep 2026 21:10:12 GMT
+
+https://collider.com/best-classic-film-noir-movies/
+
+Double Indemnity, Sunset Boulevard, and Laura are among the very best classic film noir movies that define the genre.
+---------
+
+# John Carpenter’s Real-Life Nightmare Inspired His First Original Graphic Novel [Exclusive]
+
+Horror, John Carpenter, Graphic Novel
+
+Thu, 17 Sep 2026 21:00:11 GMT
+
+https://collider.com/john-carpenter-cathedral-graphic-novel-dream-origin-sandy-king/
+
+Sandy King reveals how one unusually complete John Carpenter dream became the terrifying new graphic novel Cathedral.
+---------
+
+# The 6 Most Fun Movies Released Since 2000, Ranked
+
+Movie, Mad Max: Fury Road, Pirates of the Caribbean: The Curse of the Black Pearl, The Incredibles, Spider-Man: Into The Spider-Verse
+
+Thu, 17 Sep 2026 20:57:11 GMT
+
+https://collider.com/most-fun-movies-since-2000-ranked/
+
+From The LEGO Movie to The Incredibles, these crowd-pleasers pack laughs, thrills and nonstop rewatch value today.
+---------
+
+# Apple TV's New Biopic 'Tenzing' Officially Rewrites What History Got Wrong | TIFF Review
+
+Movie Reviews, Tom Hiddleston, TIFF, Toronto International Film Festival, Tenzing, Apple TV
+
+Thu, 17 Sep 2026 20:33:23 GMT
+
+https://collider.com/tenzing-movie-review-tom-hiddleston-genden-phuntsok/
+
+Genden Phuntsok and Tom Hiddleston lead Jennifer Peedom’s moving Apple TV biopic about Tenzing Norgay and the 1953 Everest climb.
+---------
+
+# '9-1-1's Bonkers Episode Rewrote the Show Forever
+
+TV Features, 9-1-1, ABC, Procedural
+
+Thu, 17 Sep 2026 20:25:11 GMT
+
+https://collider.com/9-1-1-season-2-earthquake-episode-changed-everything/
+
+9-1-1’s “7.1” episode introduced the series' first multi-episode disaster and crucial new characters, giving the audience a new perspective.
+---------
+
+# 15 Years Later, Zack Snyder Officially Announces Director's Cut of Action Fantasy Cult Classic
+
+Movie News, Zack Snyder, Sucker Punch, Action, Fantasy
+
+Thu, 17 Sep 2026 22:15:30 GMT
+
+https://movieweb.com/sucker-punch-zack-snyder-directors-cut/
+
+One of Zack Snyder's biggest cult classics from more than a decade ago is set to be released again with a director's cut.
+---------
+
+# 9 Biggest Questions After 'Star Trek: Strange New Worlds' Season 4 Episode 9
+
+TV Lists, Star Trek: Strange New Worlds, Star Trek, Sci-Fi
+
+Thu, 17 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-season-4-episode-9-questions/
+
+'Star Trek: Strange New Worlds' Season 4, Episode 9, brings up some major questions for the beloved entry in the popular sci-fi TV franchise.
+---------
+
+# Richard Gere's Infamous Gerbil Rumor Explored In Detail Across 12-Part Series
+
+TV News, Richard Gere, Documentary
+
+Thu, 17 Sep 2026 21:40:39 GMT
+
+https://movieweb.com/gerbil-richard-gear-rumor-thr-series/
+
+A new podcast will explore a shocking three-decade-old urban legend involving acting legend Richard Gere and a gerbil.
+---------
+
+# Forget 'Violent Night,' a New Christmas Action Movie Trailer Promises a Bloody Time This Holiday
+
+Movie News, Christmas at the Kringles, Christmas, Horror, Thriller
+
+Thu, 17 Sep 2026 21:14:28 GMT
+
+https://movieweb.com/christmas-at-the-kringles-trailer/
+
+Move over McClane, you've got competition.
+---------
+
+# Zack Snyder Confirms Plan to Bring 'Escape From New York' Remake Into The Future
+
+Movie News, Escape From New York, Zack Snyder
+
+Thu, 17 Sep 2026 21:04:05 GMT
+
+https://movieweb.com/zack-snyder-escape-from-new-york-remake-details/
+
+Zack Snyder reveals his plans for 'Escape to New York ' and comments on Jeffrey Dean Morgan's interest in playing Snake Plissken.
+---------
+
+# Star Trek's Latest 'Voyager' Tribute Abruptly Ends a Promising Villain Arc
+
+Features, star trek: strange new worlds, Star Trek, Star Trek: Voyager, Sci-Fi
+
+Thu, 17 Sep 2026 21:01:13 GMT
+
+https://movieweb.com/strange-new-worlds-laan-villain-arc-over/
+
+La'An has long been teased to become a threat before 'Strange New Worlds' ends, but the Star Trek franchise has other ideas. Read on for more.
+---------
+
+# 'SNL' Officially Promotes Two Cast Members as Show Overhauls Lineup After Major Exits
+
+Movie News, Saturday Night Live, Network TV
+
+Thu, 17 Sep 2026 20:53:05 GMT
+
+https://movieweb.com/snl-jane-wickline-ashley-padilla-season-52/
+
+'Saturday Night Live' revamps its roster for Season 52 with two deserved promotions.
+---------
+
+# Jason Statham's 116-Minute "Taken Meets John Wick" Action Thriller Remains a Global Streaming Smash
+
+Movie News, Jason Statham, A Working Man, Hot on Streaming, Action, Prime Video
+
+Thu, 17 Sep 2026 20:30:14 GMT
+
+https://movieweb.com/jason-statham-a-working-man-action-prime-video-stream-september-2026/
+
+More than a year after it first hit theaters, Statham's near-perfect action thriller still has what it takes to draw in a crowd.
+---------
+
+# Benedict Cumberbatch Breaks Bad in First Trailer for New Guy Ritchie Thriller
+
+Movie Trailers, Wife and Dog, Benedict Cumberbatch, Anthony Hopkins, Rosamund Pike, Thriller
+
+Thu, 17 Sep 2026 20:21:01 GMT
+
+https://movieweb.com/benedict-cumberbatch-wife-and-dog-trailer-guy-ritchie/
+
+Benedict Cumberbatch, Rosamund Pike, and Anthony Hopkins unite for this moody new thriller.
+---------
+
+# 34 Years Later, ‘Calvin and Hobbes’s Most Unforgettable Line Remains the Best in Comic Strip History
+
+Features, comics, Calvin and Hobbes
+
+Thu, 17 Sep 2026 20:01:15 GMT
+
+https://movieweb.com/calvin-and-hobbes-best-quote-stargazing/
+
+Bill Watterson's iconic line is the best in comic strip history. It’s even transcended the series as a reflection of the way we view the world.
+---------
+
 # Firefly's Movie Did What Almost No Cancelled Sci-Fi Show Has Ever Managed
 
 Movies, Firefly, Serenity
