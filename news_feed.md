@@ -1,3 +1,355 @@
+# Why Resident Evil's Title Doesn't Make Sense For The New Movie
+
+Movies, Resident Evil
+
+Thu, 17 Sep 2026 00:00:15 GMT
+
+https://screenrant.com/resident-evil-title-doesnt-make-sense-for-new-movie/
+
+Resident Evil means a lot of different things to a lot of different people, but one of the most fundamental does not apply to Zach Cregger’s film.
+---------
+
+# Phoolan Review: Biopic Of India's Bandit Queen Excels With Its Narrowed Focus [TIFF]
+
+New Movies, Toronto International Film Festival, Phoolan
+
+Wed, 16 Sep 2026 23:55:15 GMT
+
+https://screenrant.com/phoolan-movie-2026-review-tiff/
+
+Phoolan depicts a harrowing 48-hours in the life of Phoolan Devi, and though its action is somewhat lackluster, its themes are deeply resonant.
+---------
+
+# Game Of Thrones Officially Confirms The End Of An Era
+
+Streaming TV, Game of Thrones
+
+Wed, 16 Sep 2026 23:46:36 GMT
+
+https://screenrant.com/game-of-thrones-no-more-tv-spinoffs-end-era/
+
+After wrapping up a wildly successful year, the Game of Thrones franchise officially suggests that it is shifting its focus in all the right ways.
+---------
+
+# Liam Neeson's R-Rated Sci-Fi Horror Movie Tears Through Epic Streaming Milestone
+
+Movies, Masked Recs
+
+Wed, 16 Sep 2026 23:11:21 GMT
+
+https://screenrant.com/liam-neeson-cold-storage-mgm-plus-streaming-milestone-september-2026/
+
+Liam Neeson's R-rated sci-fi horror movie tears through an epic streaming milestone, months after it was first released on the streaming service.
+---------
+
+# Star Wars Meets Game Of Thrones In HBO Max's 10/10 Sci-Fi Saga That They Both Copied
+
+Movies, Masked Recs
+
+Wed, 16 Sep 2026 23:06:09 GMT
+
+https://screenrant.com/star-wars-meets-game-of-thrones-dune-movies-copy-influence/
+
+Star Wars and Game of Thrones meet in this hit space opera franchise that is a masterpiece both copied, but whose new wave was inspired by them.
+---------
+
+# 31 Years Ago, Harry Bosch’s Best Quote Defined Michael Connelly's Book Franchise
+
+Books, Bosch, Michael Connelly
+
+Wed, 16 Sep 2026 23:02:33 GMT
+
+https://screenrant.com/harry-bosch-quote-defines-michael-connelly-franchise/
+
+Three decades ago, Harry Bosch's best line became the foundation for dozens of novels and TV episodes, still resonating with readers 31 years later.
+---------
+
+# Steven Spielberg's 5-Season Sci-Fi Show Is The Walking Dead With Aliens
+
+Classic TV, Masked Recs
+
+Wed, 16 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/falling-skies-walking-dead-with-aliens/
+
+Falling Skies borrows the basic premise of The Walking Dead, but makes a key change: it swaps out the zombie apocalypse for an alien invasion.
+---------
+
+# Steam Gamers Are Being Warned Not To Play New Free 8/10 RPG
+
+Gaming, Steam, PC, RPG
+
+Wed, 16 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/steam-gamers-warned-dont-play-new-freebie/
+
+If you're a fan of RPGs and looking for a new free title in the genre, maybe skip this new Steam game everyone is warning to miss out on.
+---------
+
+# 10 NCIS Episodes To Watch In Preparation For Michael Weatherly's Return As Tony DiNozzo In Season 24
+
+Network TV, NCIS
+
+Wed, 16 Sep 2026 22:30:16 GMT
+
+https://screenrant.com/ncis-episodes-rewatch-michael-weatherly-tony-dinozzo-return/
+
+The essential NCIS episodes to watch, including those that best highlight Tony DiNozzo's journey, before his exciting season 24 comeback.
+---------
+
+# Beloved CSI Star Sets First Major TV Return After CBS Franchise’s Ending
+
+TV, Boston Blue, Boston Blue - Season 2, Marg Helgenberger
+
+Wed, 16 Sep 2026 22:22:01 GMT
+
+https://screenrant.com/boston-blue-season-2-csi-star-marg-helgenberger-cast/
+
+When one of CBS’ hit procedurals returns this fall, the cast will be joined by one of the original stars of the long-running CSI franchise.
+---------
+
+# 1 Day After Hitting Netflix, a Thriller Nobody's Heard of Is 1 of Streaming's Top Movies
+
+Movies, lifetime, Netflix, Thriller
+
+Thu, 17 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/the-seemingly-perfect-family-thriller-success-netflix-september-2026/
+
+The film puts the spotlight on a powerful partnership that's been quietly dominating the charts.
+---------
+
+# 15 Most Mature Anime Streaming on Crunchyroll, Right Now
+
+Anime, Crunchyroll
+
+Wed, 16 Sep 2026 23:45:11 GMT
+
+https://www.cbr.com/crunchyroll-most-mature-anime-ranked/
+
+More mature anime are often appealing to older fans, and Crunchyroll has a full catalog of some of the best mature anime on streaming.
+---------
+
+# NCIS Fan Favorite Officially Joins LL Cool J's New Spinoff
+
+TV, NCIS: New York, NCIS
+
+Wed, 16 Sep 2026 23:34:12 GMT
+
+https://www.cbr.com/ncis-new-york-brian-dietzen-cameo/
+
+The first episode of the newest NCIS spinoff includes a special reunion for LL Cool J's Sam Hanna.
+---------
+
+# Zelda: Ocarina of Time Finally Fixes the 3DS Remake's Only Failure
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Wed, 16 Sep 2026 23:20:11 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-remake-switch-2-3ds-comparison/
+
+The Legend of Zelda: Ocarina of Time's upcoming Switch 2 remake is improving on the one part of the 3DS remake that has been universally criticized.
+---------
+
+# Hayden Panettiere's 91% RT ABC Show Becomes No. 1 on PVOD After Getting Scrubbed From Netflix
+
+TV, Nashville, ABC, musical
+
+Wed, 16 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/hayden-panettiere-abc-nashville-pvod-success-september-2026/
+
+This musical drama starring Hayden Panettiere used her real-life traumas in the series.
+---------
+
+# 8 Greatest Classic Westerns Worth Watching Again and Again, Ranked
+
+Movies, Western
+
+Wed, 16 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/best-westerns-to-rewatch-list/
+
+Classic Westerns helped shape Hollywood for decades, and many of the genre's best movies remain just as entertaining to watch all these years later.
+---------
+
+# Charlie Hunnam's Favorite Sons of Anarchy Episode Is the Most Disturbing 47 Minutes in TV History
+
+TV, Sons of Anarchy, charlie hunnam, Crime
+
+Wed, 16 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/sons-of-anarchy-charlie-hunnam-obie-death-favorite-episode/
+
+Charlie Hunnam believes that, of all the losses Jax experienced throughout the show, one episode changed his character for the worse.
+---------
+
+# Kiki's Delivery Service Meets Animal Crossing in New Cozy Steam Game With Over 7,000 Wishlists
+
+Anime, Kiki's Delivery Service, Steam
+
+Wed, 16 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/sushi-on-wheels-steam-cooking-fest/
+
+The worlds of Studio Ghibli and Nintendo collide in an upcoming indie game about a cute anthropomorphic kitty who runs a sushi delivery service.
+---------
+
+# 10 Strongest Knights in Anime History, Ranked
+
+Anime, Sword Art Online, Black Clover, Saint Seiya
+
+Wed, 16 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/strongest-anime-knights-ranked/
+
+The strongest knights in anime combine weapons with magic, supernatural bodies and advanced technology.
+---------
+
+# Paramount+ 3-Season Drama With 100% RT Is 1 of the Most-Watched Shows on Streaming
+
+TV, Colin from Accounts, Paramount Plus, Drama
+
+Wed, 16 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/colin-from-accounts-comedy-success-paramount-plus-september-2026/
+
+This Australian series is soaring on streaming, despite recent cancellation.
+---------
+
+# Blizzard Boss Officially Addresses 'Diablo 5' and 'StarCraft' Reboot Release Windows
+
+Gaming News, Blizzard, Video Game, Action, Sci-Fi
+
+Thu, 17 Sep 2026 00:00:11 GMT
+
+https://collider.com/blizzard-diablo-5-starcraft-reboot-release-dates-explained/
+
+Blizzard has officially clarified the debut dates for Diablo 5 and the StarCraft reboot after announcing a lengthy release timeline for both.
+---------
+
+# X-Men Officially Reveals Magneto's Replacement
+
+Books and Comics News, X-Men, Magneto, Marvel Comics, Superhero
+
+Wed, 16 Sep 2026 23:35:57 GMT
+
+https://collider.com/x-men-quentin-quire-new-magneto-replacement/
+
+Marvel officially reveals a new Magneto replacement in the new X-Men #37. See who’s stepping into the legacy.
+---------
+
+# Yelena Belova Officially Gets New Series Before 'Avengers: Doomsday'
+
+Books and Comics News, Avengers: Doomsday, Black Widow, Marvel Comics, Marvel
+
+Wed, 16 Sep 2026 23:32:43 GMT
+
+https://collider.com/black-widow-new-marvel-comic-yelena-belova/
+
+Before her return in Avengers: Doomsday, Yelena Belova is officially suiting up for a brand-new mission. Read on for more details.
+---------
+
+# Mark Wahlberg’s Forgotten Sci-Fi Thriller Officially Disappears From Free Streaming
+
+Movie, Mark Wahlberg, Infinite, Sci-Fi, Thriller
+
+Wed, 16 Sep 2026 23:30:11 GMT
+
+https://collider.com/mark-wahlberg-sci-fi-infinite-leaving-free-streaming-tubi-september-2026/
+
+Mark Wahlberg's critically panned sci-fi thriller about past-life memories and hidden abilities is leaving free streaming sooner than expected.
+---------
+
+# Taylor Sheridan Officially Meets His Match With 2026’s Wackiest Horror Movie
+
+Movie News, Scary Movie, Taylor Sheridan, Paramount Plus, Horror
+
+Wed, 16 Sep 2026 23:00:11 GMT
+
+https://collider.com/scary-movie-streaming-success-paramount-plus-september-2026/
+
+Taylor Sheridan is officially getting a run for his money on streaming thanks to a surprising horror challenger. Read on for more details.
+---------
+
+# Star Trek Officially Confirms Captain Archer's Return for New October Release
+
+TV News, Star Trek: Enterprise, Star Trek, Scott Bakula, Games
+
+Wed, 16 Sep 2026 22:10:06 GMT
+
+https://collider.com/star-trek-captain-archer-return-october-2026/
+
+Star Trek: Enterprise's Captain Archer officially returns to the franchise next month for a brand-new release! Read on for more.
+---------
+
+# Mike Flanagan Officially Confirms 3 Secret Horror Cameos in ‘Carrie’
+
+Exclusives, Mike Flanagan, Carrie, Carla Gugino, TIFF
+
+Wed, 16 Sep 2026 22:00:11 GMT
+
+https://collider.com/carrie-mike-flanagan-carla-gugino-hamish-linklater-cameos/
+
+Mike Flanagan reveals hidden Carrie voice cameos from horror legend and Flana-fam regulars in the new Stephen King adaptation.
+---------
+
+# Prime Video's 6-Season Space Opera Epic Is Everything 'Firefly' Should Have Been
+
+Features, Prime Video, Sci-Fi, Firefly, The Expanse
+
+Thu, 17 Sep 2026 00:00:14 GMT
+
+https://movieweb.com/prime-video-space-opera-epic-firefly-expanse/
+
+This show expanded the very idea of what a high-quality space adventure show could be.
+---------
+
+# Netflix's New "Taken Meets Daredevil" Action Thriller Is Officially the Biggest Movie on Streaming
+
+Movie News, Action, Thriller, Netflix
+
+Wed, 16 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/netflix-gandhari-biggest-streaming-action-thriller/
+
+The Netflix original action thriller is another big hit for the popular streaming platform.
+---------
+
+# John Wayne's 100% Rotten Tomatoes Action Western Saved His Career After a 9-Year Box Office Slump
+
+Features, Stagecoach, Action, Western, John Wayne
+
+Wed, 16 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/john-wayne-stagecoach-saved-career/
+
+John Wayne's influential action Western with 100% on Rotten Tomatoes saved his career and launched his rapport with John Ford.
+---------
+
+# 6 Biggest Changes 'Reacher' Season 4 Made to Lee Child's "Gone Tomorrow"
+
+TV Lists, Reacher, Action
+
+Wed, 16 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/reacher-season-4-book-changes/
+
+2009's "Gone Tomorrow" is the source material for 'Reacher' Season 4, but Prime Video wasn't exactly faithful to the Lee Child book. Read on for more.
+---------
+
+# Forget ‘Sherlock,’ the Greatest Detective Duo on TV Premiered in a Mystery Masterpiece 33 Years Ago
+
+Features, The X-Files, Sci-Fi, Sherlock, Mystery
+
+Wed, 16 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/x-files-mulder-scully-sherlock-comparison/
+
+'Sherlock,' the BBC series starring Benedict Cumberbatch and Martin Freeman, has a perfect detective duo, but these characters are even better.
+---------
+
 # New Stephen King-Like Horror Movie Sets Hulu Streaming Release Date At The Perfect Time
 
 Movies, Hokum, Adam Scott, Stephen King
