@@ -1,3 +1,333 @@
+# Dungeon Crawler Carl Meets Dead Rising In New Zombie RPG You Can Play Free Now
+
+Gaming, Steam, Triple-A Games
+
+Thu, 17 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/dungeon-crawler-carl-meets-dead-rising-free-zombie-demo/
+
+If you're a fan of Dungeon Crawler Carl, you'll want to check out this irreverent and highly stylized game that you can play free now.
+---------
+
+# Game Of Thrones Is Officially Bringing Back Arya Stark In 2027
+
+Gaming, Game of Thrones, Game of Thrones: War for Westeros, PC
+
+Thu, 17 Sep 2026 04:30:15 GMT
+
+https://screenrant.com/game-of-thrones-arya-stark-return-war-for-westeros/
+
+It is official: Arya Stark is finally returning in a brand-new Game of Thrones project releasing in 2027.
+---------
+
+# Star Trek: The Original Series Officially Returns October 2026
+
+Gaming, Star Trek, Star Trek: The Original Series, Star Trek - Season 1, Star Trek - Season 2, Star Trek - Season 3, PC
+
+Thu, 17 Sep 2026 04:00:22 GMT
+
+https://screenrant.com/star-trek-original-series-fluxx/
+
+Star Trek: The Original Series is officially making a triumphant return in October thanks to an exciting 60th anniversary celebration.
+---------
+
+# 10 Best Superheroes Created In The Last 10 Years
+
+Comics
+
+Thu, 17 Sep 2026 03:50:28 GMT
+
+https://screenrant.com/best-superheroes-created-past-10-years/
+
+Explore the 10 best new superheroes introduced in the last decade across Marvel, DC, and Image Comics.
+---------
+
+# Every Way Matt Reeves’ The Batman Trilogy Has Teased The Court of Owls Before Part II
+
+Superheroes, The Batman Part II, The Batman, DC Universe
+
+Thu, 17 Sep 2026 03:38:21 GMT
+
+https://screenrant.com/every-way-matt-reeves-the-batman-has-teased-the-court-of-owls-part-ii/
+
+The potential evidence continues to build that The Batman - Part II will feature the debut of the Court of Owls, a major cabal of villains in Gotham.
+---------
+
+# Sheriff Country & Fire Country Crossover Romance Teased By Morena Baccarin & Max Thieriot
+
+TV, Sheriff Country, Fire Country
+
+Thu, 17 Sep 2026 03:22:57 GMT
+
+https://screenrant.com/sheriff-country-fire-country-crossover-romance-max-thieriot-morena-baccarin-tease/
+
+Ahead of another two-hour crossover event between Sheriff Country and Fire Country, a new romance has been teased between the two shows.
+---------
+
+# Crystal Lake First Reaction: Friday The 13th Prequel Series Intrigues With Jason Voorhees' Origins [TIFF]
+
+Streaming TV, Crystal Lake, Toronto International Film Festival
+
+Thu, 17 Sep 2026 03:20:15 GMT
+
+https://screenrant.com/crystal-lake-tiff-premiere-first-reaction/
+
+Crystal Lake compels with its initial episodes due to a gut-wrenching turn from Linda Cardellini and intriguing reveals about the Voorhees family.
+---------
+
+# 5 Years Later, Disney's Near-Perfect Sci-Fi Fantasy Series Is Getting The Season 2 It Deserved
+
+Streaming TV, Masked Recs
+
+Thu, 17 Sep 2026 03:01:24 GMT
+
+https://screenrant.com/visionquest-wandavision-season-2-disney-tv-show/
+
+It has been five years since Disney’s near-perfect fantasy drama’s premiere, and it is finally getting the season 2 it has deserved for a long time.
+---------
+
+# Game Of Thrones: The Dragon's Divide Officially Announced
+
+Gaming, Game Of Thrones, Game of Thrones, Game Of Thrones: Dragonfire, PC, House of the Dragon
+
+Thu, 17 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-dragons-divide-announcement/
+
+Game of Thrones: The Dragon's Divide is a bold new chapter in George R.R. Martin's A Song of Ice and Fire universe, coming soon.
+---------
+
+# Why Walker Season 5 Never Happened
+
+Classic TV, Walker, Upcoming Releases
+
+Thu, 17 Sep 2026 02:45:15 GMT
+
+https://screenrant.com/walker-season-5-updates/
+
+The CW's remake of the classic '90s action series has enjoyed four seasons on the air, but Walker season 5 is now canceled.
+---------
+
+# The Walking Dead: Dead City’s Lauren Cohan Explains Maggie’s ‘New Normal’ After Glenn
+
+TV, The Walking Dead: Dead City, The Walking Dead
+
+Thu, 17 Sep 2026 04:22:16 GMT
+
+https://www.cbr.com/walking-dead-dead-city-lauren-cohan-maggie-glenn/
+
+Lauren Cohan breaks down the meaning behind Maggie’s wedding ring moment and how it reflects her emotional growth in Season 3.
+---------
+
+# Vin Diesel Goes Viral Teasing Long-Gestating Sequel to 11-Year-Old Fantasy Action Flick
+
+Movies, The Last Witch Hunter, The Last Witch Hunter 2
+
+Thu, 17 Sep 2026 03:57:11 GMT
+
+https://www.cbr.com/vin-diesel-the-last-witch-hunter-2-bts-photos/
+
+Vin Diesel hints at big news for the anticipated sequel.
+---------
+
+# The Paper Showrunners Detail the Real-Life ‘Bad City’ Story That Inspires Season 2
+
+TV, The Paper, The Office, Peacock
+
+Thu, 17 Sep 2026 03:54:48 GMT
+
+https://www.cbr.com/the-paper-season-2-bad-city-real-life-story/
+
+The Paper creators Greg Daniels and Michael Koman explain how Bad City inspired Ned's investigation of the Glass Club in Season 2.
+---------
+
+# Every Pokémon Starter Trio, Ranked Worst to Best
+
+Games, Pokemon, Nintendo
+
+Thu, 17 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/pokemon-starter-trios-ranked-worst-to-best/
+
+From Bulbasaur, Squirtle, and Charmander to Sprigatito, Quaxly, and Fuecoco, some Pokémon starter trios are better than others.
+---------
+
+# Solo Leveling Confirms Sung Jinwoo's Long-Awaited Return in New Cinematic Trailer
+
+Anime, Solo Leveling
+
+Thu, 17 Sep 2026 03:36:27 GMT
+
+https://www.cbr.com/solo-leveling-karma-cinematic-trailer-tokyo-game-show/
+
+The untold story of Sung Jinwoo's 27-year war against the Monarchs finally comes to light when Solo Leveling: Karma releases later in 2026.
+---------
+
+# The X-Files Told a 218-Episode Lie About Scully That Nobody Talks About
+
+TV, The X-Files, Sci-Fi, fox
+
+Thu, 17 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/the-x-files-scully-enduring-series-lie-explained/
+
+The X-Files was built on a clear dichotomy between Mulder and Scully, but the show couldn’t sustain the skeptic’s role over many seasons.
+---------
+
+# 10 Best Garfield Comic Strips About Irma's Diner
+
+Comics, Garfield
+
+Thu, 17 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/best-garfield-comic-strips-set-in-irmas-diner/
+
+Irma's Diner is the hub of some of the funniest comic strips in Jim Davis' Garfield beloved series, largely due to the sarcastic comedy of Irma.
+---------
+
+# 8 Greatest Cozy Mystery Movies of All Time, Ranked
+
+Movies, Mystery, Knives Out, The Sheep Detectives
+
+Thu, 17 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/best-cozy-mystery-movies-of-all-time-ranked-list/
+
+The cozy mystery genre has some of the best and most rewatchable movies, and the best have stood the test of time.
+---------
+
+# 10 Biggest Dragons in Anime History, Ranked
+
+Anime, Dragon Ball, One Piece
+
+Thu, 17 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/biggest-dragons-in-anime-history-ranked/
+
+Dragons are among the most popular mythical creatures, and anime like Dragon Ball and One Piece contain some of the biggest in history.
+---------
+
+# 10 Hardest PS1 RPGs of All Time, Ranked
+
+Games, PlayStation (Original), RPG
+
+Thu, 17 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/hardest-ps1-rpgs-all-time-ranked/
+
+PS1 games like Beyond the Beyond are some of the hardest RPGs ever made.
+---------
+
+# Hulu's 11-Part Sitcom Came to the End of an Era After One Major Episode
+
+TV Features, Modern Family, Sitcom, ABC, Comedy
+
+Thu, 17 Sep 2026 04:06:11 GMT
+
+https://collider.com/modern-family-sitcom-joe-jay-gloria-bringing-up-baby-episode/
+
+The Modern Family episode "Bringing Up Baby" changed the show for the better thanks to the addition of Joe.
+---------
+
+# 16 Years Later, ‘Criminal Minds’ Most Devastating Episode Remains the Best 42 Minutes on TV
+
+TV Features, Criminal Minds, Series, CBS, Crime
+
+Thu, 17 Sep 2026 03:52:11 GMT
+
+https://collider.com/criminal-minds-100-saddest-episode-hotch-haley-death/
+
+Criminal Minds’ “100” remains its most devastating episode 16 years later. Here’s why Haley’s death and Hotch’s grief still hit so hard.
+---------
+
+# 7 Horror Films to Prepare You for Zach Cregger's Resident Evil
+
+Movie, Resident Evil, World War Z, 28 Days Later, Barbarian
+
+Thu, 17 Sep 2026 03:03:12 GMT
+
+https://collider.com/must-see-horror-films-to-prepare-you-for-zach-creggers-resident-evil/
+
+7 must see outbreak horror films to watch before Zach Cregger's Resident Evil hits theaters September 18.
+---------
+
+# 9 Essential Mick Herron Books You Must Read at Least Once
+
+Books and Comics, Slow Horses, Thriller, Mystery, Books
+
+Thu, 17 Sep 2026 03:01:11 GMT
+
+https://collider.com/mick-herron-essential-books/
+
+From Down Cemetery Road to the debut of the Slough House series Slow Horses, these essential Mick Herron books are worth reading at least once.
+---------
+
+# 22 Years Later, This Sci-Fi Series Doesn't Have a Single Bad Episode
+
+TV Features, The 4400, Mahershala Ali, Sci-Fi, Billy Campbell, USA Network
+
+Thu, 17 Sep 2026 02:56:11 GMT
+
+https://collider.com/the-4400-perfect-sci-fi-series/
+
+The 4400 is a long-forgotten abduction series that was one of the best sci-fi shows on television.
+---------
+
+# 'House' Fans Have To Watch ABC’s 7-Part Bonkers Medical Series
+
+TV Features, The Good Doctor, House, Freddie Highmore, ABC
+
+Thu, 17 Sep 2026 01:42:19 GMT
+
+https://collider.com/abc-good-doctor-medical-series-house/
+
+The Good Doctor offers a heartwarming twist on medical dramas, making it a perfect fit for fans of House.
+---------
+
+# Before Zach Cregger's 'Resident Evil,' It's Officially Time to Revisit the Franchise's Best Entry
+
+Movie Features, Resident Evil, Paul W.S. Anderson, Milla Jovovich
+
+Thu, 17 Sep 2026 01:03:11 GMT
+
+https://collider.com/resident-evil-retribution-best-video-game-adaptation-netflix-streaming-september-2026/
+
+Ahead of Zach Cregger's Resident Evil reboot, it's a great time to revisit 2012's Resident Evil: Retribution, an overlooked gem in the franchise.
+---------
+
+# 9 Greatest Superhero Shows With Fewer Than 40 Episodes
+
+TV, Superhero, Spider-Noir, Loki, Daredevil
+
+Thu, 17 Sep 2026 00:06:11 GMT
+
+https://collider.com/best-superhero-shows-under-40-episodes/
+
+Prime Video's Spider-Noir, Disney+'s Loki, and Netflix's Daredevil are among the greatest superhero shows that have less than 40 episodes total.
+---------
+
+# 10 Fantasy Book Series That Are Better Than 'Harry Potter'
+
+TV Lists, Fantasy, Harry Potter
+
+Thu, 17 Sep 2026 02:00:24 GMT
+
+https://movieweb.com/fantasy-book-series-better-harry-potter/
+
+If you grew up on 'Harry Potter' and think it's the peak of fantasy, there are even bigger worlds and book series waiting for you to discover them.
+---------
+
+# Guy Ritchie's 9/10 Netflix Crime Thriller Is Officially the Biggest Series on Streaming
+
+TV News, Guy Ritchie, Crime, Thriller, The Gentlemen, Hot on Streaming
+
+Thu, 17 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/the-gentlemen-season-2-netflix-streaming-tudum-hit-september-2026/
+
+After the debut of Season 2, the TV spin-off remains one of the most successful Netflix series in recent history.
+---------
+
 # Why Resident Evil's Title Doesn't Make Sense For The New Movie
 
 Movies, Resident Evil
