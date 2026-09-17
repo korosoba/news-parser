@@ -1,3 +1,443 @@
+# Firefly's Movie Did What Almost No Cancelled Sci-Fi Show Has Ever Managed
+
+Movies, Firefly, Serenity
+
+Thu, 17 Sep 2026 19:01:23 GMT
+
+https://screenrant.com/firefly-serenity-movie-cancelled-sci-fi-show-return-success/
+
+Nathan Fillion's Firefly movie managed to do something rare for canceled Sci-Fi shows, and that is why Serenity remains a special genre release.
+---------
+
+# Peter Krause's TV Comeback Is A Major Headache For Networks
+
+TV, 9-1-1, Peter Krause, NBC
+
+Thu, 17 Sep 2026 19:01:24 GMT
+
+https://screenrant.com/line-of-fire-nbc-headache-cbs-abc/
+
+Peter Krause leads a cinematic conspiracy thriller that aims to graft streaming intensity onto network broadcast rules, changing the game forever.
+---------
+
+# DC Officially Unveils New Harley Quinn
+
+Gaming, LEGO Batman: Legacy of the Dark Knight, Harley Quinn, DC
+
+Thu, 17 Sep 2026 19:00:24 GMT
+
+https://screenrant.com/dc-new-harley-quinn-unveiled/
+
+Harley Quinn has had many fascinating reinventions and appearances, but her latest appearance is proof of how iconic one was, in particular.
+---------
+
+# Zack Snyder’s Remake Of Kurt Russell Sci-Fi Classic Gets First Plot Details
+
+Movies, Escape From New York
+
+Thu, 17 Sep 2026 18:54:43 GMT
+
+https://screenrant.com/zack-snyder-escape-to-new-york-remake-plot-timeline-zack-snyder/
+
+Zack Snyder is developing an Escape From New York remake, and the filmmaker has shared the first details about what his vision will entail.
+---------
+
+# Foundation Season 3 Ending Explained
+
+Streaming TV, Foundation
+
+Thu, 17 Sep 2026 18:45:16 GMT
+
+https://screenrant.com/foundation-season-3-ending-explained/
+
+Dive into the shocking twists and turns of Foundation season 3's finale, including the surprising reveal of the Mule's true identity.
+---------
+
+# 6 Years Later, Darth Maul’s Best Line In The Clone Wars Is Still His Greatest Star Wars Moment
+
+Classic TV, Star Wars: The Clone Wars, Darth Maul, Star Wars
+
+Thu, 17 Sep 2026 18:45:15 GMT
+
+https://screenrant.com/darth-maul-best-star-wars-quote-the-clone-wars/
+
+Darth Maul delivered his greatest quote from The Clone Wars in season 7 back in 2020, and it's still his best moment in Star Wars six years later.
+---------
+
+# Dungeons & Dragons Reveals First Look at New Series (Early Review)
+
+Comics, Dungeons & Dragons
+
+Thu, 17 Sep 2026 18:30:45 GMT
+
+https://screenrant.com/dungeons-dragons-series-early-review/
+
+The 2020s are truly shaping up to be a new Golden Age for Dungeons & Dragons fans, with a slew of new content spanning TV shows, movies, and more.
+---------
+
+# MobLand's Harrigan Family Tree Explained
+
+Streaming TV, MobLand
+
+Thu, 17 Sep 2026 18:30:16 GMT
+
+https://screenrant.com/mobland-harrigan-family-tree-explained/
+
+Guy Ritchie's new crime drama series follows the exploits of the Harrigans, a crime family running drugs and guns through modern-day London.
+---------
+
+# Netflix's Smash Hit Period Drama Is So Good, It's Already Been Renewed For 2 More Seasons
+
+Streaming TV, Masked Recs
+
+Thu, 17 Sep 2026 18:30:15 GMT
+
+https://screenrant.com/bridgerton-netflix-renewed-more-seasons/
+
+Netflix's steamy Regency saga rotates central romances across a sprawling family cast to preserve tension and fresh perspectives, creating a huge hit.
+---------
+
+# Classic Justice League Villain Gets Killed Off In Dark DC Reboot
+
+Comics, Justice League, Green Arrow
+
+Thu, 17 Sep 2026 18:30:15 GMT
+
+https://screenrant.com/justice-league-villain-merlyn-absolute-green-arrow-death/
+
+One of DC's greatest marksmen just bit the dust in DC's second-most popular comic outside of Absolute Batman, and it was quite the sendoff.
+---------
+
+# Apple TV’s Anya Taylor-Joy Sci-Fi Hit Is Getting Another Chance on Streaming
+
+Movies, The Gorge, Apple TV, Sci-Fi
+
+Thu, 17 Sep 2026 19:00:19 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-gorge-sci-fi-thriller-apple-tv-success-september-2026/
+
+Anya Taylor-Joy's underrated sci-fi horror, The Gorge, is one of the most-watched movies on streaming.
+---------
+
+# 8 Greatest Netflix Movies Worth Watching Again and Again, Ranked
+
+Movies, Netflix
+
+Thu, 17 Sep 2026 19:00:19 GMT
+
+https://www.cbr.com/best-netflix-movies-to-rewatch-list/
+
+Satirical comedy, practical effects action, and the most addictive soundtrack can be found in these Netflix films that can be rewatched on repeat.
+---------
+
+# How Neagley Connects To The Reacher Universe, Explained
+
+CBR Exclusives, Neagley
+
+Thu, 17 Sep 2026 18:30:11 GMT
+
+https://www.cbr.com/neagley-reacher-universe-connections-explained/
+
+A familiar world stretches beyond Chicago as Neagley confronts cult territory and relentless physical demands.
+---------
+
+# 8 Strongest Humans in Dragon Ball, Ranked
+
+Anime, Dragon Ball, Akira Toriyama
+
+Thu, 17 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/dragon-ball-official-strongest-humans-ranked/
+
+Dragon Ball's humans have been gradually overlooked, but there are still some incredibly powerful individuals who can do serious damage in battle.
+---------
+
+# 60 Years Later, Star Trek Revives Classic Stories With the Characters Fans Still Love
+
+Comics, Star Trek
+
+Thu, 17 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/star-trek-engage-warp-drive-release-date-confirmed/
+
+Star Trek fans are about to get the chance to dive into some of the franchise's most underrated stories starring characters from The Original Series
+---------
+
+# 31-Year-Old SNES RPG Returns on PS5 & Switch 2 With $199 Release January 2027
+
+Games, Nintendo
+
+Thu, 17 Sep 2026 17:57:17 GMT
+
+https://www.cbr.com/terranigma-snes-rpg-ps5-switch-2-gaia-edition/
+
+A classic Super Nintendo JRPG is finally coming to North America really next year, and its re-release is being celebrated with a $199 special edition.
+---------
+
+# Barbie 2 Gets New Hope After Major Warner Bros. Deal
+
+Movies, Barbie, warner bros
+
+Thu, 17 Sep 2026 17:40:36 GMT
+
+https://www.cbr.com/barbie-2-new-hope-after-warner-bros-noah-baumbach-deal/
+
+A major new deal that Warner Bros. just closed offers fans their best update yet on the future of Barbie 2 at the studio.
+---------
+
+# Nintendo Revealed The Legend of Zelda Movie's Timeline Placement
+
+Movies, The Legend of Zelda, Nintendo
+
+Thu, 17 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/legend-of-zelda-movie-timeline-placement-confirmation/
+
+Where will the live-action The Legend of Zelda film adaptation fall on the timeline of the video games?
+---------
+
+# Hulu to Stream This Year's 'Top Tier' Horror Film Overshadowed by Obsession and Backrooms
+
+Movies, Hokum
+
+Thu, 17 Sep 2026 17:20:31 GMT
+
+https://www.cbr.com/hokum-hulu-streaming-release-date/
+
+The highly-rated horror film didn't reach the levels of attention of Obsession and Backrooms, but it should have.
+---------
+
+# Evangelion Transforms Its Most Iconic Mecha With a Monstrous New Awakening
+
+Anime, Neon Genesis Evangelion, Godzilla, merchandise, toys
+
+Thu, 17 Sep 2026 17:20:11 GMT
+
+https://www.cbr.com/evangelion-unit-01-g-awakening-form-first-look/
+
+The newest Evangelion vs. Godzilla crossover model kit once again fuses one of anime's most iconic giant robots with Toho's King of the Monsters.
+---------
+
+# Before ‘Game of Thrones,’ George R. R. Martin Worked on This Forgotten 56-Episode Fantasy Series
+
+TV Features, George R.R. Martin, Game Of Thrones, Beauty and the Beast, Fantasy
+
+Thu, 17 Sep 2026 18:58:18 GMT
+
+https://collider.com/george-rr-martin-forgotten-fantasy-series-beauty-and-the-beast/
+
+Before Game of Thrones, George R. R. Martin helped shape CBS’ forgotten 56-episode fantasy series Beauty and the Beast.
+---------
+
+# 'Doctor Who' Officially Begins a New Era With New Sci-Fi Reboot
+
+TV News, Doctor Who, BBC
+
+Thu, 17 Sep 2026 18:31:01 GMT
+
+https://collider.com/doctor-who-season-16-reboot-confirmed/
+
+The BBC has confirmed that Doctor Who Season 16 is officially happening, starting a competitive process for the sci-fi series’ fresh start.
+---------
+
+# New 'Lincoln Lawyer' Rival Officially Casts a Taylor Sheridan Legend
+
+TV News, Edie Falco, Fox, Drama, Ridley Scott
+
+Thu, 17 Sep 2026 18:13:07 GMT
+
+https://collider.com/edie-falco-lincoln-lawyer-replacement-crime-thriller-katie-greaves/
+
+Edie Falco, star of The Sopranos, Nurse Jackie, and Mayor of Kingstown, will officially star in TV's next Lincoln Lawyer replacement.
+---------
+
+# 'Prey' Star Officially Reveals First Details About New Mike Flanagan-Backed Original Horror
+
+Exclusives, Amber Midthunder, Mike Flanagan, Horror, TIFF
+
+Thu, 17 Sep 2026 18:11:10 GMT
+
+https://collider.com/rot-amber-midthunder-mike-flanagan-horror-role-alexandra-magistro/
+
+Amber Midthunder teases a “very new” role in Mike Flanagan-produced body horror Rot, saying it pushes her out of her comfort zone.
+---------
+
+# ‘John Wick’ Meets ‘The Equalizer’ in Jon Bernthal’s 10/10 Action Sleeper Hit Officially on Apple TV
+
+Movie News, The Accountant, Jon Bernthal, J.K. Simmons, Ben Affleck
+
+Thu, 17 Sep 2026 18:00:11 GMT
+
+https://collider.com/jon-bernthal-the-accountant-streaming-apple-tv-september/
+
+J.K. Simmons also stars in the film.
+---------
+
+# Legendary James Bond Villain Officially Joins New Call of Duty
+
+Gaming News, Mads Mikkelsen, Call of Duty, Call of Duty: Modern Warfare, Gaming
+
+Thu, 17 Sep 2026 17:51:04 GMT
+
+https://collider.com/call-of-duty-modern-warfare-4-trailer-mads-mikkelsen/
+
+Ahead of Taylor Sheridan's film adaptation, Call of Duty has officially recruited a James Bond icon for the next chapter of the Modern Warfare saga.
+---------
+
+# New Survival Sci-Fi Movie Officially Named Highest-Rated Video Game Adaptation of All Time
+
+Movie News, Resident Evil, Zach Cregger, Austin Abrams, Gaming
+
+Thu, 17 Sep 2026 17:45:25 GMT
+
+https://collider.com/resident-evil-reboot-rotten-tomatoes-score-highest-rated-video-game-adaptation/
+
+Zach Cregger's Resident Evil reboot has defied high expectations to become the best-reviewed video game movie ever made.
+---------
+
+# 'Top Gun: Maverick' Director's 'Miami Vice' Remake Officially Casts Villain
+
+Movie News, Miami Vice, John Leguizamo, Michael B. Jordan, Joseph Kosinski
+
+Thu, 17 Sep 2026 17:25:29 GMT
+
+https://collider.com/miami-vice-remake-cast-john-leguizamo/
+
+Joseph Kosinski's Miami Vice '85 has officially cast its villain to star opposite Michael B. Jordan and Austin Butler. Read on for more details.
+---------
+
+# Jimmy Olsen’s New DCU Series Officially Gets “Very Unexpected” Update [Exclusive]
+
+TV News, Superman, The People v. Gorilla Grodd, DCU, Skyler Gisondo
+
+Thu, 17 Sep 2026 17:18:28 GMT
+
+https://collider.com/superman-spin-off-jimmy-olsen-the-people-v-gorilla-grodd-dcu-skyler-gisondo/
+
+Skyler Gisondo teases Jimmy Olsen’s DCU return in The People v. Gorilla Grodd, calling the HBO Max series “very unexpected.
+---------
+
+# 8 Fantasy Books That Are Perfect From Beginning to End
+
+Books and Comics, Fantasy, Harry Potter and the Prisoner of Azkaban, The Lord of the Rings, The Chronicles of Narnia: The Lion, the Witch and the Wardrobe
+
+Thu, 17 Sep 2026 17:18:11 GMT
+
+https://collider.com/fantasy-books-perfect-beginning-to-end/
+
+The Lord of the Rings, The Lion, the Witch and the Wardrobe, and more make up our list of fantasy books that are perfect from beginning to end.
+---------
+
+# Move Over Cinderella, New Netflix Trailer Flips the Script on Classic Fairytale Villains
+
+Movie News, Steps, Netflix, Fantasy
+
+Thu, 17 Sep 2026 19:02:19 GMT
+
+https://movieweb.com/steps-cinderella-netflix-trailer/
+
+'Descendants' fans rejoice! Netflix plans to release their own Cinderella adaptation this fall.
+---------
+
+# 10 Greatest Action Thriller Movies Set Entirely on Moving Vehicles
+
+Movie Lists, Action, Thriller
+
+Thu, 17 Sep 2026 19:00:24 GMT
+
+https://movieweb.com/greatest-action-thriller-movies-moving-vehicles/
+
+These movies transcend their small settings to deliver massive action. Whether by plane, boat, train, or taxi cab, the thrills land.
+---------
+
+# Alan Ritchson’s New Action Thriller Spin-off Is Already One of the Biggest Shows in the World
+
+TV News, Neagley, Prime Video, Hot on Streaming, Reacher
+
+Thu, 17 Sep 2026 18:30:14 GMT
+
+https://movieweb.com/neagley-reacher-action-stream-prime-sept-2026/
+
+The first official 'Reacher' spin-off is finally here.
+---------
+
+# Netflix's 'Narnia' Reboot Reveals First Official Look at Aslan, Confirms Gender-Swap Casting
+
+Movie News, Narnia: The Magician's Nephew, Netflix, Greta Gerwig, Meryl Streep
+
+Thu, 17 Sep 2026 18:22:39 GMT
+
+https://movieweb.com/narnia-netflix-aslan-first-image-meryl-streep/
+
+'The world of Narnia is on its way to a new interpretation on Netflix, complete with a new take on one of its biggest characters.
+---------
+
+# 23 Years Later, Aragorn's Best Line Is Still the Most Beautiful Quote in 'The Lord of the Rings'
+
+Features, The Lord of the Rings, Great Line, Fantasy
+
+Thu, 17 Sep 2026 18:00:15 GMT
+
+https://movieweb.com/lord-of-rings-best-aragorn-quote/
+
+Aragorn (Viggo Mortensen) has a particularly memorable quote from one movie in the popular fantasy 'Lord of the Rings' franchise.
+---------
+
+# 'Star Wars' Officially Responds After $2 Billion Blockbuster Becomes Biggest Film in US History
+
+Movie News, Star Wars, Spider-Man: Brand New Day, Sci-Fi, Superhero, Fantasy
+
+Thu, 17 Sep 2026 16:39:26 GMT
+
+https://movieweb.com/star-wars-the-force-awakens-spider-man-brand-new-day-box-office/
+
+'Spider-Man: Brand New Day' topped 'Stars Wars' after a decade in the box-office top spot.
+---------
+
+# Anne Hathaway's New Sci-Fi Epic Hailed as "Best Dinosaur Movie in Decades" Dominates Streaming
+
+Movie News, The End of Oak Street, Hot on Streaming, Action
+
+Thu, 17 Sep 2026 16:30:14 GMT
+
+https://movieweb.com/end-of-oak-street-action-dinosaur-stream-amazon-sept-2026/
+
+Grown men can finally ask each other what their favorite dinosaur is without looking weird.
+---------
+
+# 8 Great Crime Thriller Series That Are a Perfect One-Night Binge
+
+Features, Thriller
+
+Thu, 17 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/crime-thriller-series-one-night-binge/
+
+A truly captivating crime thriller leaves you yearning for the next episode, and these eight series beg to be completed in one sitting.
+---------
+
+# The Ending of 'Interview with the Vampire,' Explained
+
+Features, Interview with the Vampire
+
+Thu, 17 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/interview-with-the-vampire-ending-explained/
+
+Everything you need to know about the ending of 'Interview with the Vampire' and how it correlates to the original material.
+---------
+
+# John Wick Director Takes Aim at Another Keanu Reeves Action Classic in New Trailer
+
+Movie News, How to Rob a Bank, David Leitch, Comedy
+
+Thu, 17 Sep 2026 15:42:18 GMT
+
+https://movieweb.com/how-to-rob-a-bank-nicholas-hoult-trailer-2/
+
+One of the first directors from the 'John Wick' saga delivered the second trailer for his new movie, evoking memories of another classic film.
+---------
+
 # Nicholas Hoult Teaches The Internet How To Rob A Back In John Wick Director’s Action-Packed New Movie Trailer
 
 Movies, How to Rob a Bank
