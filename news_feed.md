@@ -1,3 +1,388 @@
+# Brandon Sanderson Addresses New Wheel Of Time Adaptation Return
+
+TV, Brandon Sanderson, The Wheel of Time
+
+Fri, 18 Sep 2026 00:31:19 GMT
+
+https://screenrant.com/brandon-sanderson-wheel-of-time-adaptation-return-response/
+
+Fantasy author, Brandon Sanderson, revealed whether he would be taking part in the adaptation of the hit fantasy novel series The Wheel of Time.
+---------
+
+# The Boys Meets Reacher In A Scene From Prime Video's New 8-Episode Action Spinoff
+
+Streaming TV, Masked Recs
+
+Fri, 18 Sep 2026 00:30:15 GMT
+
+https://screenrant.com/neagley-jerry-o-connell-cameo-boys-meets-reacher/
+
+Following Reacher's success was always going to be hard, but Neagley has done it while including a genius "meta" scene that would have fit The Boys.
+---------
+
+# Trailer Park Boys: 15 Hilarious Rickyisms We've Added To Our Vocabulary
+
+Classic TV, Trailer Park Boys
+
+Fri, 18 Sep 2026 00:15:15 GMT
+
+https://screenrant.com/trailer-park-boys-hilarious-ricky-quotes/
+
+Fans of the Canadian comedy series Trailer Park Boys will know that Ricky has a unique way of expressing himself, and we love it!
+---------
+
+# MCU: The Strongest And Weakest Members Of The Avengers
+
+Movies, Marvel Cinematic Universe, The Avengers
+
+Fri, 18 Sep 2026 00:00:15 GMT
+
+https://screenrant.com/mcu-marvel-weakest-vs-most-powerful-avengers/
+
+The MCU may be full of mighty heroes, but who is the strongest Avenger, and which members of the group have the weakest powers?
+---------
+
+# Keanu Reeves' Iconic '90s Action Movie Getting A Sequel After 35 Years Can Save A Franchise
+
+TV, Masked Recs
+
+Thu, 17 Sep 2026 23:59:15 GMT
+
+https://screenrant.com/point-break-sequel-tv-show-save-franchise/
+
+Keanu Reeves's adrenaline soaked cult action classic is set to be reborn for streaming, reinventing the original movie's thrills and heist twists.
+---------
+
+# Henry Cavill's Warhammer 40K Series Gets Epic New Tease From Mike Flanagan
+
+TV, Warhammer 40k, Warhammer
+
+Thu, 17 Sep 2026 23:53:40 GMT
+
+https://screenrant.com/henry-cavill-warhammer-40k-show-scale-mike-flanagan-tease/
+
+Mike Flanagan joined Henry Cavill's Warhammer 40,000 series back in June, and now he has some teasing words about the Amazon MGM Studios project.
+---------
+
+# Justin Hartley's 94% RT Series Is A Must-Binge For Tracker Fans Before It Leaves Streaming
+
+Classic TV, Masked Recs
+
+Thu, 17 Sep 2026 23:30:18 GMT
+
+https://screenrant.com/this-is-us-justin-hartley-must-watch-tracker-fans/
+
+Justin Hartley will reprise his starring role in Tracker this October, but before that, check him out in This Is Us before it disappears from Tubi.
+---------
+
+# Chris Pratt's Divisive $303M Sci-Fi Movie Surges On Streaming 10 Years Later
+
+Movies, Masked Recs
+
+Thu, 17 Sep 2026 23:23:22 GMT
+
+https://screenrant.com/chris-pratt-passengers-movie-lionsgate-plus-streaming-success-september-2026/
+
+Chris Pratt's divisive sci-fi movie is surging on streaming a decade after grossing over $300 million at the box office worldwide in 2016.
+---------
+
+# Netflix Has A New Massive Streaming Hit With Near-Perfect Fantasy Adventure
+
+Movies, Masked Recs
+
+Thu, 17 Sep 2026 23:03:41 GMT
+
+https://screenrant.com/puss-in-boots-the-last-wish-netflix-streaming-success-september-2026/
+
+Netflix's streaming charts have a massive fantasy hit taking over, and it is one of the best fantasy movies of all time, explaining its success.
+---------
+
+# Image Comics' Breakout Horror Hit Mercy Gets An Exciting New Sequel
+
+Comics, image comics
+
+Thu, 17 Sep 2026 23:00:16 GMT
+
+https://screenrant.com/image-comics-merciless-horror-comic/
+
+Have mercy
+---------
+
+# FX’s Far Cry Series Keeps Getting Bigger as Widow’s Bay Star Joins Cast
+
+TV, Far Cry, FX
+
+Fri, 18 Sep 2026 00:29:11 GMT
+
+https://www.cbr.com/far-cry-tv-series-cast-brendan-gleeson-jennifer-jason-leigh/
+
+FX just expanded the cast of its Far Cry series in a big way, including adding a start from the Emmy-winning series Widow's Bay.
+---------
+
+# Cowboy Bebop's Sci-Fi Successor Confirms Toonami Return
+
+Anime, Lazarus, Cowboy Bebop, toonami
+
+Fri, 18 Sep 2026 00:20:11 GMT
+
+https://www.cbr.com/lazarus-toonami-return-date-confirm/
+
+Shinichiro Watanabe's latest anime series will air on the programming block later this month.
+---------
+
+# 10 Classic Anime Movies That Are 10/10 Masterpieces
+
+Anime, Studio Ghibli, Ghost in the Shell
+
+Fri, 18 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/classic-anime-movies-masterpieces/
+
+These classic anime movies were perfect when they released, and they're still masterpieces today.
+---------
+
+# 2026’s R-Rated Shark Thriller Is Suddenly Surging on Streaming
+
+Movies, Deep Water, Thriller, MGM+
+
+Fri, 18 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/deep-water-disaster-survival-shark-thriller-mgm-success-september-2026/
+
+Deep Water, a shark thriller from Deep Blue Sea director, is one of the most-watched movies on streaming.
+---------
+
+# Wyatt Earp's Coldest Tombstone Quote is the Best in Western History
+
+Movies, Western, Tombstone, val kilmer
+
+Fri, 18 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/tombstone-wyatt-earp-coldest-line-ever/
+
+In 1993, Kurt Russell and Val Kilmer made Westerns cool again with Tombstone, and one key Wyatt Earp line is as cold as it gets.
+---------
+
+# 10 Anime to Watch While You Wait for Black Clover Season 2
+
+Anime, Black Clover
+
+Thu, 17 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/best-anime-to-watch-before-black-clover-season-2/
+
+Black Clover Season 2 will finally be released in just a few short weeks, but here are ten action-packed anime to watch in the meantime.
+---------
+
+# 10 Greatest Transformers Combiners, Ranked by Power
+
+Anime, Transformers
+
+Thu, 17 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/greatest-transformers-combiners-ranked-power-list/
+
+Transformers combiners like Predaking have proven to be incredibly powerful.
+---------
+
+# Quentin Tarantino's $321M War Flick Is Back on the Rise 17 Years Later
+
+TV, Inglourious Basterds, Hulu, War
+
+Thu, 17 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/quentin-tarantino-inglourious-basterds-hulu-streaming-success-september-2026/
+
+This 2009 alternate history film is soaring on streaming, following its Hulu debut.
+---------
+
+# Bryan Cranston's Favorite Breaking Bad Scene Is as Close to Perfect as TV Gets
+
+TV, Breaking Bad, Bryan Cranston, Crime
+
+Thu, 17 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/breaking-bad-bryan-cranston-favorite-scene-perfect-tv-moment/
+
+Breaking Bad had some incredibly dark moments, but one of the darkest remains a scene that Bryan Cranston still loves even now.
+---------
+
+# 10 Horror Movie Masterpieces Nobody Talks About Anymore
+
+Movies, Horror, Day of the Dead, From Beyond
+
+Thu, 17 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/forgotten-horror-movie-masterpieces-list/
+
+With so many horror movies to choose from, some are bound to fall between the cracks, and these 10 masterpieces have been unfortunately forgotten.
+---------
+
+# Stargate Officially Finds a New Free Streaming Home After Prime Video’s Scrapped Reboot
+
+TV News, Prime Video, Stargate SG-1, Stargate: Atlantis, YouTube
+
+Fri, 18 Sep 2026 00:30:11 GMT
+
+https://collider.com/stargate-atlantis-free-streaming-youtube-september-2026/
+
+Stargate: Atlantis is officially coming to free streaming after Prime Video cancelled the anticipated reboot series.
+---------
+
+# 'Yellowstone's Cancelled Spin-Off Just Got a Surprising 'Marshals' Update
+
+TV Features, Marshals, Yellowstone, Taylor Sheridan, Luke Grimes
+
+Fri, 18 Sep 2026 00:13:11 GMT
+
+https://collider.com/marshals-yellowstone-taylor-sheridan-jimmy-jefferson-white/
+
+Jefferson White reprises his role as Jimmy in Marshals, reuniting with Kayce Dutton for Season 2.
+---------
+
+# LEGO Officially Reveals First-Ever 'Yu-Gi-Oh!' Set
+
+TV News, Yu-Gi-Oh!, Yu-Gi-Oh, Lego, Anime
+
+Fri, 18 Sep 2026 00:00:11 GMT
+
+https://collider.com/lego-ideas-yu-gi-oh-set/
+
+Yu-Gi-Oh! may be getting its first-ever official LEGO set after the toy giant recently unveiled its contest winner.
+---------
+
+# 8 Sci-Fi Shows With Time Travel That Are 10/10 Masterpieces
+
+TV, Sci-Fi, Rick and Morty, Loki, The Flash
+
+Thu, 17 Sep 2026 23:39:11 GMT
+
+https://collider.com/sci-fi-shows-time-travel-masterpieces/
+
+From the beloved MCU series Loki to the animated sitcom Rick and Morty, these sci-fi shows that feature time travel are genuine masterpieces.
+---------
+
+# 'Thursday Murder Club' Creator Officially Sets New Mystery Series at Netflix
+
+TV News, The Thursday Murder Club, Netflix, Helen Mirren, Mystery
+
+Thu, 17 Sep 2026 23:30:12 GMT
+
+https://collider.com/thursday-murder-club-creator-netflix-detective-series/
+
+Thursday Murder Club creator Richard Osman is officially teaming with Netflix for a brand-new detective series.
+---------
+
+# ‘Stranger Things’ Officially Returns to Netflix Today
+
+TV News, Stranger Things, Stranger Things: Tales from '85, Netflix
+
+Thu, 17 Sep 2026 23:15:11 GMT
+
+https://collider.com/netflix-stranger-things-tales-from-85-season-2-release-september-2026/
+
+Netflix's Stranger Things officially returns to the platform today with brand-new episodes. Read on for more details.
+---------
+
+# The 10 Best Crime Miniseries of All Time, Ranked
+
+TV, Crime, TV Miniseries, Adolescence, Sharp Objects
+
+Thu, 17 Sep 2026 23:12:11 GMT
+
+https://collider.com/best-crime-miniseries-all-time-ranked/
+
+Everyone loves a great crime miniseries, and these great shows are among the best, from Dopesick to Griselda.
+---------
+
+# Captain Kirk Officially Gets a Fairytale Romance in ‘Star Trek: Strange New Worlds’
+
+Exclusives, Star Trek: Strange New Worlds, Paul Wesley, Star Trek, Sci-Fi
+
+Thu, 17 Sep 2026 23:00:11 GMT
+
+https://collider.com/star-trek-strange-new-worlds-kirk-laan-romance-paul-wesley/
+
+Paul Wesley explains why Kirk is drawn to La’an and why their growing Star Trek: Strange New Worlds connection “just works.”
+---------
+
+# 'Harry Potter' Season 2 Delay Officially Addressed by HBO Boss
+
+TV News, Harry Potter, Harry Potter and the Sorcerer's Stone, HBO
+
+Thu, 17 Sep 2026 23:00:11 GMT
+
+https://collider.com/hbo-harry-potter-future-seasons-release-schedule-casey-bloys/
+
+HBO boss Casey Bloys has officially confirmed a likely longer wait for future seasons of the Harry Potter reboot series.
+---------
+
+# 'Slow Horses' Season 6 Officially Says Goodbye to a Beloved Character
+
+TV Features, Slow Horses, Apple TV, Jonathan Pryce, Jack Lowden
+
+Thu, 17 Sep 2026 22:58:11 GMT
+
+https://collider.com/slow-horses-season-6-premiere-david-cartwright-death-river-grandfather/
+
+Slow Horses Season 6 begins with a devastating loss for River Cartwright as the team faces a new threat.
+---------
+
+# Amazon's 103-Minute 'Punisher' Substitute Revenge Action Thriller Continues to Soar on Streaming
+
+Movie News, The Punisher, Hot on Streaming, Action, Thriller
+
+Fri, 18 Sep 2026 00:30:14 GMT
+
+https://movieweb.com/vengeance-punisher-action-thriller-streaming-hit-amazon-september-2026/
+
+Even though revenge has always been part of the action genre, few movies have felt as relentless as this one.
+---------
+
+# Law & Order: SVU Confirms New York's #1 Hero of 2026 Officially Appears in Season 28
+
+TV News, Law & Order: Special Victims Unit, Drama, Network TV
+
+Thu, 17 Sep 2026 23:10:47 GMT
+
+https://movieweb.com/law-order-svu-jalen-brunson-season-28/
+
+NBC's 'Law & Order: SVU' dives back into New York's crime spree in Season 28, including a guest appearance by a real New York legend.
+---------
+
+# Gerard Butler's 95-Minute "Stephen King Meets the Matrix" Action Thriller Shoots Onto Free Streaming
+
+Movie News, Gerard Butler, Action, Thriller, Gamer, Coming/Leaving Streaming, Tubi
+
+Thu, 17 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/gerard-butler-gamer-action-stream-free-september-2026/
+
+If he wants to live...he'll have to play.
+---------
+
+# "Bad Boys Meets Reacher" in Alan Ritchson's New 97-Minute Action Thriller
+
+Features, Runner, Reacher, Action
+
+Thu, 17 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/runner-alan-ritchson-reacher-bad-boys-comparison/
+
+Alan Ritchson's new action movie is essentially a mash-up of 'Bad Boys' and 'Reacher,' and it gives viewers a brief replacement for the latter.
+---------
+
+# Apple TV's 10/10 Post-Apocalyptic Sci-Fi Smash Is Officially One of the Biggest Shows on Streaming
+
+TV News, Pluribus, Hot on Streaming, Sci-Fi, Thriller, Apple TV
+
+Thu, 17 Sep 2026 22:30:14 GMT
+
+https://movieweb.com/pluribus-sci-fi-thriller-streaming-hit-apple-september-2026/
+
+Following the Emmy Awards earlier this week, one of Apple's best TV shows is back with a vengeance on streaming.
+---------
+
 # Marvel Is Resurrecting A Forgotten Alan Moore Antihero For The Avengers' Next Massive Reboot
 
 Marvel Comics, The Avengers
