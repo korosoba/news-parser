@@ -1,3 +1,443 @@
+# Remake Of 11-Year-Old Robert De Niro Movie Ends The Odyssey Box Office Streak
+
+Movies, Box Office, The Intern, The Odyssey
+
+Fri, 18 Sep 2026 20:13:22 GMT
+
+https://screenrant.com/the-intern-korean-robert-de-niro-remake-the-odyssey-box-office-streak-ended/
+
+The Odyssey has had its weeks-long streak on a major box office chart ended by the remake of a decade-old movie starring Robert De Niro.
+---------
+
+# Marvel Reveals Official First Look At New Ghost Rider
+
+Marvel Comics, Ghost Rider
+
+Fri, 18 Sep 2026 20:10:41 GMT
+
+https://screenrant.com/marvel-new-ghost-rider-ghostlocke/
+
+Marvel shares a first glimpse at the new Ghost Rider's design and backstory, which already teases major changes to the Spirit of Vengeance's lore.
+---------
+
+# Guy Ritchie's The Gentlemen Season 3 Story & Major Location Changes Confirmed By Theo James
+
+TV, The Gentlemen
+
+Fri, 18 Sep 2026 20:10:40 GMT
+
+https://screenrant.com/the-gentlemen-season-3-story-direction-location-changes/
+
+Guy Ritchie's The Gentlemen season 3 is already gaining momentum with an even bigger scale and key location changes confirmed by star Theo James.
+---------
+
+# 3 Best Netflix Series To Binge-Watch This Weekend (Sept 18–20, 2026)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 18 Sep 2026 20:02:16 GMT
+
+https://screenrant.com/best-netflix-shows-to-binge-weekend-september-18-2026/
+
+The best Netflix series to watch this weekend, Sept 18–20, 2026, are The Fixers, Stranger Things: Tales From '85 & Monster: The Lizzie Borden Story.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (September 19-20)
+
+Movies, Disney+, Recommendation
+
+Fri, 18 Sep 2026 20:00:48 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-september-19/
+
+Alexandra Daddario's fantasy epic, Milo Ventimiglia's heartfelt drama, and a major fantasy franchise release are the best movies on Disney+.
+---------
+
+# NCIS Pulls Off A Dormant 16-Year Gimmick For 2026's Most Important Comeback
+
+TV, NCIS, NCIS: New York
+
+Fri, 18 Sep 2026 19:58:15 GMT
+
+https://screenrant.com/ncis-new-york-tragedy-premise-spinoff-launch-gimmick/
+
+A classic procedural trope resurfaces as Sam Hanna confronts a personal loss that reshapes a fresh NCIS chapter, expanding the franchise's story.
+---------
+
+# Paradise Lost Review: Train To Busan Director's New Movie Rivetingly Explores AI's Role In Grief [TIFF]
+
+New Movies, Toronto International Film Festival
+
+Fri, 18 Sep 2026 19:36:14 GMT
+
+https://screenrant.com/paradise-lost-movie-2026-review-tiff/
+
+Paradise Lost is a riveting psychological thriller that uses AI, grief, and a mother’s impossible choice to explore the darker side of human nature.
+---------
+
+# Disney Confirms Once Upon A Time Replacement In New Fantasy Series
+
+TV
+
+Fri, 18 Sep 2026 19:35:19 GMT
+
+https://screenrant.com/disney-plus-coven-academy-trailer-release-date/
+
+The fan-favorite fantasy series Once Upon A Time has a worthy successor in an upcoming Disney+ series, which has just unveiled its first footage.
+---------
+
+# Prime Video's The Boys x Dragon Ball Z Series Can Last Another 4 Seasons
+
+Streaming TV, Masked Recs
+
+Fri, 18 Sep 2026 19:30:15 GMT
+
+https://screenrant.com/invincible-last-4-more-seasons/
+
+Invincible has become one of Prime Video's best original series, but the superhero drama can survive for years, just like The Boys and Dragon Ball Z.
+---------
+
+# Zachary Levi Officially Addresses Tangled's Live-Action Flynn Rider Casting & Remake
+
+Movies, Tangled, Zachary Levi
+
+Fri, 18 Sep 2026 19:27:43 GMT
+
+https://screenrant.com/tangled-live-action-flynn-rider-casting-zachary-levi-response/
+
+EXCLUSIVE: Tangled is getting the live-action treatment in 2028, and original voice actor Zachary Levi reveals his views on the upcoming remake.
+---------
+
+# End Of Absolute Batman Story Arc Delayed As Scott Snyder Updates Fans
+
+Comics, Absolute Batman, Batman
+
+Fri, 18 Sep 2026 20:05:43 GMT
+
+https://www.cbr.com/absolute-batman-story-arc-scott-snyder-update/
+
+This current stage of Absolute Batman's life is not over yet.
+---------
+
+# 3 Perfect Action Shows to Binge Now That Reacher Season 4 Is Over
+
+TV, Reacher, Lioness, Action
+
+Fri, 18 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/perfect-bingeable-action-shows-like-reacher-list/
+
+These action series promise intense thrills and highs to keep fans entertained now that Reacher has wrapped up it's fourth season.
+---------
+
+# 28-Year-Old Fantasy Classic Just Dethroned Spider-Man: Brand New Day in Popularity
+
+Movies, Practical Magic, Fantasy
+
+Fri, 18 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/28-year-old-fantasy-classic-just-dethroned-spider-man-brand-new-day-in-popularity/
+
+A classic film starring two legendary actresses has soared to the top of the charts.
+---------
+
+# Resident Evil Is Already the Greatest Video Game Movie Of All Time
+
+Movies, Resident Evil
+
+Fri, 18 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/resident-evil-best-video-game-movie-of-all-time/
+
+The decision to set the film around the Raccoon City incident has made for the best entry in the franchise.
+---------
+
+# H2SH Could Be Proof That Batman’s Best Stories Aren’t Over
+
+Comics, Batman, Hush, DC Comics, batman day
+
+Fri, 18 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/h2sh-officially-proves-batman-still-has-great-stories-left-to-tell/
+
+DC Comics' most iconic hero, Batman, continues to inspire some of the greatest stories in comics, more than eight decades since his introduction.
+---------
+
+# Sailor Moon Serves Up 12 Original Manga Designs in Sweet New Collection
+
+Anime, Sailor Moon, merchandise, food
+
+Fri, 18 Sep 2026 19:35:29 GMT
+
+https://www.cbr.com/sailor-moon-meiji-up-gummy-new-release/
+
+Sailor Moon and Meiji reunite for their biggest collaboration yet, with 12 new Up Gummy designs featuring Naoko Takeuchi's manga artwork.
+---------
+
+# Ocarina of Time Switch 2 Remake Changes Zelda's Iconic Ending Scene
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time
+
+Fri, 18 Sep 2026 19:33:11 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-ending-cutscene-change/
+
+That memorable scene where Link and Princess Zelda meet again at the end of Ocarina of Time looks like it happens differently in the Switch 2 remake.
+---------
+
+# Nintendo Gives New Official Statement on Switch 2’s Future
+
+Games, Nintendo, Nintendo Switch
+
+Fri, 18 Sep 2026 19:25:11 GMT
+
+https://www.cbr.com/nintendo-new-official-statement-switch-2-future/
+
+The Switch 2 had a controversial first year, but Nintendo has released a new official statement about the console's future.
+---------
+
+# Amazon Responds to Harassment Allegations on Set of Criminal Comic Adaptation
+
+TV, Criminal, Prime Video, Crime
+
+Fri, 18 Sep 2026 19:23:45 GMT
+
+https://www.cbr.com/amazon-responds-to-harassment-allegations-on-set-of-criminal-comic-adaptation/
+
+Amazon's lawyers have called the lawsuit 'meritless.'
+---------
+
+# 5 Strongest Gundam Weapons, Ranked
+
+Anime, Mobile Suit Gundam, Gundam
+
+Fri, 18 Sep 2026 19:15:11 GMT
+
+https://www.cbr.com/5-strongest-gundam-weapons-ranked/
+
+Mobile Suit Gundam is often praised for its iconic mobile suits, but there are also some heavy-duty weapons that can do some serious destruction!
+---------
+
+# Apple TV Officially Reveals Its Biggest Expansion Yet
+
+TV News, Apple TV, Apple, Widow's Bay, Emmy Awards
+
+Fri, 18 Sep 2026 19:35:07 GMT
+
+https://collider.com/apple-tv-expansion-59-new-countries/
+
+Apple TV is officially expanding its reach to over 59 countries. Find out which ones and when here.
+---------
+
+# Jensen Ackles' Return Officially Confirmed for 'Tracker' Season 4
+
+TV News, Tracker, Jensen Ackles, CBS
+
+Fri, 18 Sep 2026 19:31:37 GMT
+
+https://collider.com/tracker-season-4-jensen-ackles-return-confirmed/
+
+Justin Hartley has confirmed details about Jensen Ackles' official return as Russell Shaw in Tracker Season 4, premiering October 4, 2026.
+---------
+
+# The 10 Greatest Hard Sci-Fi Books of the Last 5 Years, Ranked
+
+Books and Comics, Books, Science Fiction, Sci-Fi, Project Hail Mary
+
+Fri, 18 Sep 2026 19:30:11 GMT
+
+https://collider.com/best-hard-sci-fi-books-last-5-years-ranked/
+
+Great books like Project Hail Mary and There Is No Antimemetics Division are among the best entries into the hard sci-fi subgenre in the last 5 years.
+---------
+
+# ‘Big Bang Theory’ Fans Officially Flock to ‘Young Sheldon’s Hit Spin-Off
+
+TV News, Georgie & Mandy's First Marriage, HBO Max, Big Bang Theory, Young Sheldon
+
+Fri, 18 Sep 2026 19:29:21 GMT
+
+https://collider.com/georgie-and-mandys-first-marriage-streaming-success-hbo-max-september-2026/
+
+Georgie & Mandy's First Marriage is climbing the streaming charts just weeks before the Big Bang Theory spin-off returns for Season 3.
+---------
+
+# ‘Law & Order’ Officially Celebrates the End of an Era Next Month
+
+TV News, Law & Order, Law and Order, NBC, Reid Scott
+
+Fri, 18 Sep 2026 19:23:19 GMT
+
+https://collider.com/law-order-season-26-reid-scott-exit-detective-vincent-reily-release-date-october-2026/
+
+Law & Order Season 26 premieres on October 8, featuring the emotional departure of a main cast member alongside a complex brother storyline.
+---------
+
+# Netflix's 6-Part Miniseries' Opening Credits Is So Good, I Can't Stop Thinking About It
+
+TV Features, The Perfect Couple, Netflix, Nicole Kidman
+
+Fri, 18 Sep 2026 19:21:11 GMT
+
+https://collider.com/netflix-perfect-couple-opening-credits/
+
+The Perfect Couple's opening credits dance number is confusing and perplexing, but that's honestly what makes it so incredible.
+---------
+
+# DC’s Best Sci-Fi Hero Almost Appeared in New ‘Big Bang Theory’ Spin-Off
+
+TV News, Stuart Fails to Save the Universe, Lanterns, HBO Max, Science Fiction
+
+Fri, 18 Sep 2026 19:19:02 GMT
+
+https://collider.com/big-bang-theory-spin-off-stuart-fails-to-save-the-universe-cut-green-lantern-cameo/
+
+Stuart Fails to Save the Universe almost featured Green Lantern in its DC crossover, but HBO had other plans for the Big Bang Theory spin-off.
+---------
+
+# 6 Flawless Miniseries With No Weak Episodes, Ranked
+
+TV, TV Miniseries, Sharp Objects, Chernobyl, Band of Brothers
+
+Fri, 18 Sep 2026 19:09:11 GMT
+
+https://collider.com/best-miniseries-no-weak-episodes/
+
+Explore top miniseries that impress with every episode, showcasing perfect storytelling and performances, from Chernobyl to Band of Brothers.
+---------
+
+# Hans Zimmer Reveals the Moment That Changed ‘The Lion King’ Forever [Exclusive]
+
+Exclusives, The Lion King, Disney, Hans Zimmer, Musical
+
+Fri, 18 Sep 2026 19:00:11 GMT
+
+https://collider.com/hans-zimmer-the-lion-king-score-father-death/
+
+Hans Zimmer reveals he didn’t want to score The Lion King before Mufasa’s death forced him to confront losing his own father as a child.
+---------
+
+# Benedict Cumberbatch Enters His John Wick Era in First Trailer for Guy Ritchie Crime Thriller
+
+Movie News, Guy Ritchie, Benedict Cumberbatch, Rosamund Pike, Wife and Dog
+
+Fri, 18 Sep 2026 18:58:57 GMT
+
+https://collider.com/guy-ritchie-benedict-cumberbatch-wife-and-dog-teaser-trailer/
+
+The first teaser for director Guy Ritchie's upcoming thriller sees Benedict Cumberbatch channeling his inner John Wick. Find out more here.
+---------
+
+# DC's Crossover With HBO's Hit Sci-Fi Show Recasts Two Iconic Characters
+
+Features, Stuart Fails to Save the Universe, DCU, Superhero, HBO Max, Sci-Fi, Comedy, The Big Bang Theory, Kevin Sussman
+
+Fri, 18 Sep 2026 20:00:14 GMT
+
+https://movieweb.com/tbbt-stuart-spinoff-dc-crossover-flash-mr-freeze/
+
+'Stuart Fails to Save the Universe' unexpectedly introduces iconic DC characters The Flash and Mr. Freeze, who are portrayed by two new actors.
+---------
+
+# The 50 Highest-Grossing Movies Of All Time, Fixed By Adjusting For Ticket Sales
+
+Features, Box Office
+
+Fri, 18 Sep 2026 19:19:37 GMT
+
+https://movieweb.com/highest-grossing-movies-ticket-sales/
+
+Spider-Man: Brand New Day is the box office champ by gross. Tickets sold tell a very different story.
+---------
+
+# 18 Biggest Video Game References & Easter Eggs in Zach Cregger's 'Resident Evil'
+
+Movie Lists, Resident Evil, Zach Cregger, Easter Eggs, Horror
+
+Fri, 18 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/resident-evil-2026-video-game-references-easter-eggs/
+
+Did you catch all the 'Resident Evil' references and Easter eggs that director Zach Cregger hid in the new horror franchise reboot?
+---------
+
+# One of the Biggest Roblox Games With 29.5B Visits Getting Action Thriller Adaptation
+
+Movie News, ROBLOX: The Movie
+
+Fri, 18 Sep 2026 18:52:19 GMT
+
+https://movieweb.com/99-nights-in-the-forest-roblox-sam-raimi-movie/
+
+After drawing 29.5 billion visits on Roblox, 99 Nights in the Forest is now getting an action-thriller movie adaptation.
+---------
+
+# Alan Ritchson Eyed to Replace Jason Momoa in "Starship Troopers Meets Halo" Sci-Fi Thriller
+
+Movie News, Alan Ritchson, Helldivers, Jason Momoa
+
+Fri, 18 Sep 2026 18:49:30 GMT
+
+https://movieweb.com/alan-ritchson-jason-momoa-helldivers-live-action-movie/
+
+Alan Ritchson is reportedly being eyed to replace Jason Momoa in the live-action Helldivers adaptation.
+---------
+
+# 13 Years Later, Brad Pitt's $540 Million Action Thriller Sequel Officially Moving Forward
+
+Movie News, World War Z, World War Z 2, Brad Pitt
+
+Fri, 18 Sep 2026 18:04:25 GMT
+
+https://movieweb.com/world-war-z-sequel-edward-berger-director/
+
+After years of development hell, Brad Pitt is returning for 'World War Z' and has recruited 'Conclave' director Edward Berger to direct.
+---------
+
+# 31 Years Later, Quentin Tarantino's Forgotten Cult Classic Sets New Release
+
+Movie News, Four Rooms, Quentin Tarantino, Robert Rodriguez, Comedy, Blu-ray
+
+Fri, 18 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/quentin-tarantino-four-rooms-4k-blu-ray/
+
+Kino Lorber is preparing a 4K Blu-ray and Blu-ray release of Quentin Tarantino and Robert Rodriguez's forgotten cult classic 'Four Rooms.'
+---------
+
+# Apple TV's Original Sci-Fi Space Epic Is So Good, It Spawned 6 Seasons and a Spin-off
+
+Features, Sci-Fi, For All Mankind, Star City, Apple TV
+
+Fri, 18 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/for-all-mankind-apple-tv-sci-fi-success/
+
+Apple TV is known for its high-quality sci-fi TV shows, and one long-running space epic series even has a great spin-off.
+---------
+
+# Daniel Craig's 'Narnia' Officially Reveals 'Lord of the Rings' Connection
+
+Features, Narnia: The Magician's Nephew, The Lord of the Rings, Fantasy
+
+Fri, 18 Sep 2026 17:54:09 GMT
+
+https://movieweb.com/netflix-narnia-lord-of-the-rings-connection/
+
+Daniel Craig's upcoming 'Narnia' reboot clearly knows its audience, as the latest look features a quiet 'Lord of the Rings' connection.
+---------
+
+# Jimmy Olsen's New DCU Series Completely Flips Expectations Upside Down, Confirms Star
+
+Exclusives, DCU
+
+Fri, 18 Sep 2026 17:46:07 GMT
+
+https://movieweb.com/jimmy-olsen-show-people-gorilla-grodd-skyler-gisondo/
+
+The star of DC Studios' Jimmy Olsen series set the stage for how the story will go against what most expect to see on the small screen.
+---------
+
 # Brad Pitt’s World War Z 2 Return Confirmed In Major Director Update
 
 Movies, World War Z 2
