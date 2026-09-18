@@ -1,3 +1,432 @@
+# 14 Years Later, The Wheel Of Time's The Dark One Officially Returns In New Release
+
+Gaming, The Wheel of Time, PC
+
+Fri, 18 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/wheel-of-time-war-of-the-dragon-dark-one-return/
+
+The Dark One officially returns in Wheel of Time's upcoming newest release to take on The Dragon Reborn in a brand-new adaptation.
+---------
+
+# David Fincher Meets William Gibson In 45-Episode Thriller With 1 Of The Greatest Finales
+
+Classic TV, Masked Recs
+
+Fri, 18 Sep 2026 05:00:07 GMT
+
+https://screenrant.com/mr-robot-david-fincher-william-gibson-thriller/
+
+One of the greatest techno-thrillers of our time perfectly combines some of the best elements from David Fincher and William Gibson’s storytelling.
+---------
+
+# A Nintendo DS Icon Officially Returns December 2026
+
+Gaming, Nintendo DS, Triple-A Games
+
+Fri, 18 Sep 2026 04:30:15 GMT
+
+https://screenrant.com/nintendo-ds-icon-returns-professor-layton/
+
+One of the shining beacons of the DS library is returning in a new adventure, and we recently got an actual release date after a long wait.
+---------
+
+# Game Of Thrones: A Song Of Ice & Fire Officially Unveiled
+
+Gaming, A Song of Ice and Fire, Game of Thrones, Game Of Thrones, PC
+
+Fri, 18 Sep 2026 04:00:20 GMT
+
+https://screenrant.com/game-of-thrones-song-of-ice-and-fire-announced/
+
+Game of Thrones: A Song of Ice & Fire is an exciting new experience for longtime fans of George R.R. Martin's legendary fantasy franchise.
+---------
+
+# Batman's Most Extreme Assassin Team Confirms Its Strongest Member In Dark Reboot
+
+Comics, Batman
+
+Fri, 18 Sep 2026 03:59:16 GMT
+
+https://screenrant.com/absolute-batman-league-shadows-strongest-member/
+
+A clandestine splinter faction of one of DC's most iconic criminal organizations just settled its strongest member in its most popular continuity.
+---------
+
+# October 7 Will Be A Huge Day For Judge Dredd Fans
+
+Comics, Judge Dredd
+
+Fri, 18 Sep 2026 03:30:16 GMT
+
+https://screenrant.com/judge-dredd-new-future-better-world-sequel/
+
+Judge Dredd is about to embark on a new era that closely follows a storyline in 2000 AD's past, and it'll be here a lot sooner than you think.
+---------
+
+# All 4 Seasons Of Reacher, Ranked
+
+Streaming TV, Reacher, Reacher - Season 1, Reacher - Season 2, Reacher - Season 3, Reacher - Season 4
+
+Fri, 18 Sep 2026 03:00:16 GMT
+
+https://screenrant.com/reacher-tv-show-seasons-ranked/
+
+All four seasons of Reacher have included exciting action sequences and amazing characters, cementing it as one of the best shows on Prime Video.
+---------
+
+# There's Only One Comic Title Charles M. Schulz Hated More Than Peanuts, And It's Easily The 1990s' Best Strip
+
+Comics, Peanuts, Masked Recs
+
+Fri, 18 Sep 2026 02:30:15 GMT
+
+https://screenrant.com/peanuts-creator-schulz-worst-series-title/
+
+Schulz was known to be stubborn when it came to the Peanuts series, but one series came along in the '90s with a title he hated more than his own.
+---------
+
+# Every Isekai Anime Coming To Streaming In September and October 2026 (And Where to Watch Them)
+
+Anime, Isekai
+
+Fri, 18 Sep 2026 02:15:44 GMT
+
+https://screenrant.com/every-isekai-anime-streaming-september-2026/
+
+The Fall 2026 anime season kicks off early, and isekai fans have many new and returning series to watch during the final months of the year.
+---------
+
+# Transformers' Long-Lost G1 Megatron Commercial Finally Found After 40 Years
+
+Anime, Transformers, The Transformers
+
+Fri, 18 Sep 2026 03:59:11 GMT
+
+https://www.cbr.com/transformers-g1-megatron-commercial-found/
+
+Footage of the UK commercial for the Transformers Generation 1 Megatron toy has been found, showcasing how the brand was promoted across the pond.
+---------
+
+# Stephen King's 10/10 Classic Is 1 of the World's Most Popular Movies 32 Years Later
+
+Movies, The Shawshank Redemption
+
+Fri, 18 Sep 2026 03:55:25 GMT
+
+https://www.cbr.com/the-shawshank-redemption-drama-imdb-success-september-2026/
+
+The film is even more popular than ever after over three decades.
+---------
+
+# 10 Anime Where the Main Character Is a Villainess
+
+Anime, Isekai
+
+Fri, 18 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/best-villainess-anime-list/
+
+Anime like My Next Life As a Villainess let viewers embrace their dark sides.
+---------
+
+# DC Rejected First Choice for Stuart Fails to Save the Universe's Superhero Crossover
+
+TV, Stuart Fails to Save the Universe
+
+Fri, 18 Sep 2026 03:39:42 GMT
+
+https://www.cbr.com/stuart-fails-to-save-the-universe-the-flash/
+
+A major DC superhero pops up in the new episode of Stuart Fails to Save the Universe, but he wasn't the first choice.
+---------
+
+# 29 Years Later, Kelsey Grammer's Favorite Frasier Episode Is Still the Most Perfect 30 Minutes in Sitcom History
+
+TV, Frasier, Sitcoms, kelsey grammer
+
+Fri, 18 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/frasier-ham-radio-kelsey-grammer-favorite-episode/
+
+Although Frasier has introduced a plethora of incredible episodes, Kelsey Grammer's favorite episode still stands out after nearly 30 years.
+---------
+
+# 10 Weirdest Things About the Original Garfield Comics, Ranked
+
+Comics, Garfield
+
+Fri, 18 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/weirdest-things-about-early-garfield-comics/
+
+For readers accustomed to the current popular character, some of Jim Davis's older Garfield comics may seem a bit weirder than his later strips.
+---------
+
+# 10 Pokémon From Red & Blue That Still Need Evolutions
+
+Games, Pokemon, Nintendo
+
+Fri, 18 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/pokemon-red-blue-no-evolutions-list/
+
+A few of the original 151 Pokémon from Red & Blue still haven't gotten evolutions.
+---------
+
+# 40 Years Later, Gundam Finally Gives 1 of Its Biggest Mecha a First-Ever Release
+
+Anime, Mobile Suit Gundam, Mobile Suit Zeta Gundam, merchandise, toys, action figures, bandai
+
+Fri, 18 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/gundam-zz-quin-mantha-bandai-robot-spirits/
+
+One of the biggest mobile suits in the Universal Century Gundam timeline is finally joining Bandai's premiere mecha-based action figure line.
+---------
+
+# Liam Neeson Seals His Fate As An Action Star After The Fix
+
+CBR Exclusives, The Fix, liam neeson
+
+Fri, 18 Sep 2026 03:04:11 GMT
+
+https://www.cbr.com/liam-neeson-the-fix-action-movies-guy-in-chair/
+
+Liam Neeson explains why playing CIA handler Larry was not the change of pace he expected in The Fix.
+---------
+
+# South Park Brings Back Animation Icon as the Voice of Kenny 27 Years Later
+
+TV, South Park
+
+Fri, 18 Sep 2026 03:00:30 GMT
+
+https://www.cbr.com/south-park-mike-judge-return-kenny/
+
+South Park quietly brought back a major guest star after nearly three decades.
+---------
+
+# 5 Best Snoopy Comics of All Time, Ranked
+
+Books and Comics, Snoopy, Peanuts, Comics, Family
+
+Fri, 18 Sep 2026 04:51:11 GMT
+
+https://collider.com/best-snoopy-comics-all-time-ranked/
+
+From Joe Cool to Happiness Is a Warm Puppy, these Snoopy comics capture the beagle’s funniest personas, sweetest moments, and lasting charm.
+---------
+
+# 5 Mystery Books That Deserve a TV Adaptation
+
+TV, Books, Mystery, Agatha Christie, Philip K. Dick
+
+Fri, 18 Sep 2026 04:07:11 GMT
+
+https://collider.com/mystery-books-deserve-tv-adaptation/
+
+From the Agatha Christie classic The Murder of Roger Ackroyd to the sci-fi novel Time Out of Joint, these mystery books should be adapted for TV.
+---------
+
+# 12 Years Later, Jimmy Fallon’s ‘Tonight Show’ Has Officially Found an Unexpected Ratings Boost
+
+TV Features, The Tonight Show Starring Jimmy Fallon, NBC, Jimmy Fallon, Peacock
+
+Fri, 18 Sep 2026 03:35:11 GMT
+
+https://collider.com/jimmy-fallon-tonight-show-ratings-sports-nfl-nba/
+
+NBC and Jimmy Fallon are harnessing the power of sports with lead-ins and fan-first comedy, and it's taking The Tonight Show to new heights.
+---------
+
+# 'Star Trek: The Original Series' Lost One of Its Most Important Characters in This Game-Changing Move
+
+TV Features, Star Trek: The Original Series, Star Trek, Sci-Fi, Gene Roddenberry
+
+Fri, 18 Sep 2026 03:04:11 GMT
+
+https://collider.com/star-trek-original-series-jeffrey-hunter-captain-pike/
+
+Jeffrey Hunter refused to continue playing Captain Pike in Star Trek: The Original Series, leading Gene Roddenberry to cast William Shatner.
+---------
+
+# Kit Harington Officially Breaks Silence on ‘Harry Potter’ Casting
+
+TV News, Harry Potter, Kit Harington, Harry Potter and the Chamber of Secrets, HBO
+
+Fri, 18 Sep 2026 02:00:21 GMT
+
+https://collider.com/kit-harington-hbo-harry-potter-backlash-response/
+
+Game of Thrones star Kit Harington, who will star as Gilderoy Lockhart in Harry Potter Season 2, has addressed his role in the series.
+---------
+
+# Green Lantern's 26-Episode Series Is So Good, It's Perfect for HBO 'Lanterns' Fans
+
+TV Features, Green Lantern: The Animated Series, Josh Keaton, Kevin Michael Richardson, Bruce Timm
+
+Fri, 18 Sep 2026 01:57:11 GMT
+
+https://collider.com/green-lantern-animated-series-tubi-streaming-free/
+
+Green Lantern: The Animated Series is a must-watch for fans of the franchise looking for more Hal Jordan after Lanterns, now free to stream on Tubi.
+---------
+
+# ‘Outlander: Blood of My Blood’ Recap: What To Remember Before the Prequel Officially Returns for Season 2
+
+TV Features, Outlander: Blood of My Blood, Outlander, STARZ, Starz
+
+Fri, 18 Sep 2026 01:36:11 GMT
+
+https://collider.com/outlander-blood-of-my-blood-recap-before-season-2/
+
+We recap the biggest moments and key twists in Outlander: Blood of My Blood before the Outlander prequel returns for Season 2 this week.
+---------
+
+# ‘Star Trek’ Officially Confirms Captain Kirk’s New Love Interest
+
+Books and Comics News, Star Trek, IDW, Star Trek: Picard, Star Trek: Generations
+
+Fri, 18 Sep 2026 01:30:11 GMT
+
+https://collider.com/star-trek-captain-kirk-the-last-starship-love-interest/
+
+In the new comics series Star Trek: The Last Starship, Captain Kirk has a strange new romance. Read on for more.
+---------
+
+# Longtime John Carpenter Producer Declares "Nothing's as Frightening as Reality" in Modern Horror [Exclusive]
+
+Books and Comics News, John Carpenter, Horror, Graphic Novel
+
+Fri, 18 Sep 2026 01:00:11 GMT
+
+https://collider.com/john-carpenter-producer-sandy-king-modern-america-reality-horror/
+
+John Carpenter’s longtime producer Sandy King explains why modern America is scarier than anything in their new graphic novel, Cathedral.
+---------
+
+# Alan Ritchson’s New ‘Reacher’ Spin-Off Officially Dominates in Prime Video Debut
+
+TV News, Neagley, Reacher, Prime Video, Alan Ritchson
+
+Fri, 18 Sep 2026 01:00:11 GMT
+
+https://collider.com/reacher-spin-off-neagley-streaming-success-prime-video-september-2026/
+
+The first Reacher spin-off, Neagley, has soared to the top of Prime Video streaming charts after all episodes premiered on September 16.
+---------
+
+# The 38-Year-Old Cyberpunk Action Masterpiece That's Still Dominating at the Box Office
+
+Movie News, Box Office Milestones, Akira
+
+Fri, 18 Sep 2026 03:00:14 GMT
+
+https://movieweb.com/akira-rerelease-box-office-beats-andrew-garfield-the-uprising/
+
+Nearly four decades after its original release, Akira has returned to theaters.
+---------
+
+# Prime Video's New Bingeworthy 8-Part Legal Thriller Is Now One of the Biggest Shows on Streaming
+
+TV News, Prime Video, Hot on Streaming, Thriller
+
+Fri, 18 Sep 2026 03:00:14 GMT
+
+https://movieweb.com/the-trial-prime-video-thriller-streaming-hit-september-2026/
+
+When it comes to compelling dramas, this is one of the best of 2026.
+---------
+
+# 10 Greatest 'Peanuts' Comic Strips of the 1990s, Ranked
+
+Movie Lists, comics, Peanuts
+
+Fri, 18 Sep 2026 03:00:14 GMT
+
+https://movieweb.com/greatest-peanuts-comic-strips-1990s/
+
+These are the 10 best Peanuts comic strips of the 1990s, ranked according to Charles Schulz's brilliant sense of humor.
+---------
+
+# 'Tracker' Season 4 Officially Puts Its Biggest Mystery on Hold Despite Major Cast Comeback
+
+TV News, Tracker, Action, Network TV
+
+Fri, 18 Sep 2026 02:56:32 GMT
+
+https://movieweb.com/tracker-jensen-ackels-season-4-russell-mystery/
+
+That Season 3 secret isn't getting any answers just yet.
+---------
+
+# 14 Biggest Questions After 'Resident Evil' 2026
+
+Movie Lists, Resident Evil, Horror, Thriller
+
+Fri, 18 Sep 2026 02:37:48 GMT
+
+https://movieweb.com/resident-evil-2026-big-questions/
+
+A guide to answering all your burning questions after Zach Cregger's new 'Resident Evil' video game adaptation.
+---------
+
+# Charlize Theron Officially Sets Adaptation of the Biggest Mafia Action Web Comic of All Time
+
+TV News, Charlize Theron, Action
+
+Fri, 18 Sep 2026 02:18:41 GMT
+
+https://movieweb.com/the-mafia-nanny-charlize-theron-adaptation/
+
+Theron is going "nanny mode" in her latest action project, 'The Mafia Nanny.'
+---------
+
+# Brad Pitt's New Action Thriller Hailed as One of the Year's "Most Unforgettable" Movies
+
+Movie News, Heart of the Beast, Brad Pitt, Action, Thriller
+
+Fri, 18 Sep 2026 02:07:47 GMT
+
+https://movieweb.com/heart-of-the-beast-brad-pitt-critic-reactions/
+
+Brad Pitt and David Ayer are back together, and critics have plenty to say about their latest collaboration.
+---------
+
+# 'The Walking Dead' Spin-Off Sets New Release After Explosive Finale of 100% RT Rated Season
+
+TV News, The Walking Dead: Dead City, The Walking Dead, Horror, Blu-ray
+
+Fri, 18 Sep 2026 01:30:16 GMT
+
+https://movieweb.com/the-walking-dead-dead-city-season-3-blu-ray/
+
+AMC Studios is preparing a Blu-ray release of 'The Walking Dead: Dead City' Season 3, following the explosive finale of the 100% RT rated season.
+---------
+
+# 'The Big Bang Theory' Officially Replaces Sheldon Cooper
+
+Features, Young Sheldon, The Big Bang Theory, Stuart Fails to Save the Universe, Comedy, Sci-Fi, Jim Parsons
+
+Fri, 18 Sep 2026 01:30:16 GMT
+
+https://movieweb.com/tbbt-stuart-spinoff-officially-replaces-sheldon-cooper/
+
+'Stuart Fails to Save the Universe' changes 'TBBT' franchise forever by introducing Amy's new husband, Jay Garrick, as Sheldon's replacement.
+---------
+
+# The Greatest Western Sequel of All Time Is Officially Streaming Free on YouTube
+
+Features, For a Few Dollars More, Western
+
+Fri, 18 Sep 2026 01:00:31 GMT
+
+https://movieweb.com/for-a-few-dollars-more-streaming-youtube/
+
+The best Western sequel of all time was actually part of a trilogy that is regarded as one of the foundational collections in Western cinema.
+---------
+
 # Brandon Sanderson Addresses New Wheel Of Time Adaptation Return
 
 TV, Brandon Sanderson, The Wheel of Time
