@@ -1,3 +1,399 @@
+# 29 Years Later, Goku's Canonical Last Appearance Is Still The Greatest Dragon Ball Story Akira Toriyama Didn't Write
+
+Anime, Dragon Ball, Dragon Ball GT
+
+Fri, 18 Sep 2026 22:31:15 GMT
+
+https://screenrant.com/goku-last-dragon-ball-appearance-gt-greatest-story-akira-toriyama/
+
+Despite not being penned by Akira Toriyama, this iconic sequel gave Goku his most emotionally perfect ending.
+---------
+
+# Beloved Netflix Drama Comes To An End After 5 Seasons
+
+TV, Sweet Magnolias
+
+Fri, 18 Sep 2026 22:30:32 GMT
+
+https://screenrant.com/sweet-magnolias-netflix-cancelelation/
+
+Netflix has officially decided to part ways with one of its hit dramas after a five-season run, bringing the beloved characters' stories to and end.
+---------
+
+# The Muppets' Major Crossover With A $34.9 Billion Mega-Franchise Is Officially 1 Week Away
+
+Marvel Comics, The Muppets
+
+Fri, 18 Sep 2026 21:46:06 GMT
+
+https://screenrant.com/muppets-marvel-crossover-week-away/
+
+The Muppets celebrate seventy-one years of history with one of their biggest and most ambitious crossovers to date, releasing September 30.
+---------
+
+# Netflix’s 4-Part Michael Connelly Series Has 1 More Chance To Beat Suits
+
+Streaming TV, Masked Recs
+
+Fri, 18 Sep 2026 21:45:16 GMT
+
+https://screenrant.com/the-lincoln-lawyer-season-5-chance-to-beat-suits-streams-netflix/
+
+Suits has yet to be topped as streamings go-to bingeable legal drama, but a Netflix show awaiting its final season is coming close to beating it.
+---------
+
+# Why David Fincher Didn't Return To Direct Social Network Sequel Finally Confirmed By Aaron Sorkin
+
+Movies, The Social Reckoning, The Social Network
+
+Fri, 18 Sep 2026 21:39:25 GMT
+
+https://screenrant.com/the-social-reckoning-no-david-fincher-return-explained-aaron-sorkin/
+
+Aaron Sorkin clarifies why David Fincher did not direct the sequel to The Social Network, but reveals how he still influenced it the new movie.
+---------
+
+# Netflix Stranger Things' New Episodes Are Officially The End Of An Era For Steve Harrington
+
+TV, Stranger Things, Stranger Things: Tales from '85
+
+Fri, 18 Sep 2026 21:31:19 GMT
+
+https://screenrant.com/netflix-stranger-things-tales-from-85-season-2-steve-no-appearance/
+
+Netflix's new Stranger Things episodes brought a harsh change of pace for Steve Harrington, ending his longest era on the sci-fi franchise.
+---------
+
+# Every Rise Of The Ronin Romance Option, Ranked Worst To Best
+
+Gaming, Rise of the Ronin
+
+Fri, 18 Sep 2026 21:14:18 GMT
+
+https://screenrant.com/rise-ronin-romance-options-ranked-best-veiled-vow/
+
+There are plenty of characters to romance in Team Ninja's Rise of the Ronin, but some offer much more satisfying relationships than others.
+---------
+
+# Batman Names The 1 Villain He’ll Use Lethal Force Against (And It Isn’t Joker)
+
+DC Comics, Batman
+
+Fri, 18 Sep 2026 21:08:44 GMT
+
+https://screenrant.com/batman-lethal-force-vandal-savage/
+
+Batman has no problem dealing what would otherwise be a killing blow on an iconic Batman villain who is able to take such a hit and get back up.
+---------
+
+# 3 Best Paramount+ Series To Binge-Watch This Weekend (Sept 18–20, 2026)
+
+Streaming TV, Paramount Plus, What to Watch on Paramount+
+
+Fri, 18 Sep 2026 21:04:15 GMT
+
+https://screenrant.com/best-paramount-plus-shows-to-binge-weekend-september-18-2026/
+
+The top three Paramount+ shows worth watching this weekend, September 18–20, 2026, are South Park season 29, Lioness season 3 & MobLand season 2.
+---------
+
+# Top-Ranked Fantasy Show of Summer 2026 Recommended 'If You Like Game of Thrones'
+
+Anime, Game Of Thrones, Mushoku Tensei: Jobless Reincarnation, voice actors
+
+Fri, 18 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/mushoku-tensei-va-game-of-thrones-recommendation/
+
+The series' voice actors have showered the it with praise despite its controversy, urging viewers to check it out for its Game of Thrones-like scale.
+---------
+
+# 10 Best Fantasy Anime That Will Never Get Another Season
+
+Anime, Fantasy
+
+Fri, 18 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/best-fantasy-anime-not-getting-more-seasons-list/
+
+Fantasy anime like The Twelve Kingdoms will never get another season despite their quality.
+---------
+
+# Stranger Things Gets Bad News on Netflix 1 Day After Dropping New Spinoff Episodes
+
+TV, Stranger Things: Tales from '85, Stranger Things, Netflix
+
+Fri, 18 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/stranger-thing-tales-from-85-spinoff-bad-news-on-netflix/
+
+Season 2 of the Stranger Things spinoff takes off with disappointing results.
+---------
+
+# Michelle Yeoh's The Surgeon is John Wick Meets The Pitt
+
+Movies, The Surgeon
+
+Fri, 18 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/michelle-yeoh-the-surgeon-is-john-wick-meets-the-pitt/
+
+Michelle Yeoh has been an action star for years, but her new film brings together John Wick and The Pitt for the action event of the year.
+---------
+
+# Kingdom of Zod’s Shocking Twist Could Change DC Comics Forever
+
+Comics, Superman, general zod, DC Comics
+
+Fri, 18 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/kingdom-of-zod-ursa-twist-dc-comics-changes/
+
+DC's Kingdom of Zod crossover initially put General Zod back in the spotlight, but it’s shaking things up by elevating a classic Superman villain.
+---------
+
+# 10 Sega Genesis Games That Aged Like Fine Wine
+
+Games, sega, Sega Genesis
+
+Fri, 18 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/best-sega-genesis-games-aged-like-fine-wine-list/
+
+Sega Genesis games like Comix Zone keep getting better with age.
+---------
+
+# 7 Anime Gods Stronger Than Beerus
+
+Anime, Dragon Ball
+
+Fri, 18 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/anime-gods-stronger-than-beerus-dragon-ball/
+
+Beerus is volatile and overwhelming in every form, but he is far from the strongest god in anime.
+---------
+
+# Fans Are Rediscovering David Fincher’s $327M Killer Thriller 31 Years Later
+
+Movies, Se7en, Brad Pitt, david fincher
+
+Fri, 18 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/seven-david-fincher-movie-popular-september-2026/
+
+One of Fincher's best, and an all-time classic, is finding new life over three decades since its release.
+---------
+
+# 10 21st Century Action Movies Better Than John Wick, Ranked
+
+Movies, Action
+
+Fri, 18 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/21st-century-action-movies-better-than-john-wick-list/
+
+These action movies are absolutely stellar and certainly give John Wick a run for its money.
+---------
+
+# Attack on Titan Returns October 23 With New Official Trailer
+
+Anime, Attack on Titan, Attack on Titan: The Crimson Bow and Arrow
+
+Fri, 18 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/attack-on-titan-crimson-bow-and-arrow-new-trailer-release/
+
+Attack on Titan is heading back to the big screen next month for the return of a critically acclaimed chapter, Crimson Bow and Arrow.
+---------
+
+# The 10 Best Fifth Generation Consoles, Ranked
+
+Gaming, Video Game, Nintendo, PlayStation (Original), Atari
+
+Fri, 18 Sep 2026 22:19:11 GMT
+
+https://collider.com/best-fifth-generation-video-game-consoles-ranked/
+
+The fifth generation of video game consoles included several heavy hitters, like the Nintendo 64 and the PlayStation, but which of them is the best?
+---------
+
+# ABC's 'High Potential' Replacement Officially Sets Release Date
+
+TV News, High Potential, R.J. Decker, ABC, Scott Speedman
+
+Fri, 18 Sep 2026 22:00:11 GMT
+
+https://collider.com/rj-decker-season-2-release-date-abc/
+
+ABC has officially set a release date for Season 2 best new crime thriller series, RJ Decker, replacing High Potential in their Fall schedule.
+---------
+
+# The 10 Best Opening Lines From Stephen King Books, Ranked
+
+Books and Comics, The Dark Tower, It, Salem's Lot, Misery
+
+Fri, 18 Sep 2026 21:59:11 GMT
+
+https://collider.com/best-stephen-king-opening-lines-books-ranked/
+
+There are countless iconic opening lines found in the books of Stephen King, including those from The Dark Tower: The Gunslinger and Misery.
+---------
+
+# 3 Movies Taking Over Prime Video This Weekend (Sep 19-20)
+
+Movie, Demon Slayer: Kimetsu no Yaiba, Weapons, Bombshell, Prime Video
+
+Fri, 18 Sep 2026 21:48:11 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-september-19-2026/
+
+Demon Slayer: Kimetsu no Yaiba, Weapons, and Bombshell make up our list of the best movies to watch on Prime Video the weekend of September 19.
+---------
+
+# Forget ‘Bridgerton,’ Nicola Coughlan’s Most Intense TV Role Is in This British Sleeper Hit
+
+TV Features, Big Mood, Tubi, Bridgerton, Nicola Coughlan
+
+Fri, 18 Sep 2026 21:44:11 GMT
+
+https://collider.com/nicola-coughlan-big-mood-british-comedy-best-role/
+
+Nicola Coughlan delivers one of her best performances in Big Mood, the chaotic British comedy that returned for Season 2 in 2026.
+---------
+
+# The 10 Greatest Coming-of-Age Adventure Movies of All Time, Ranked
+
+Movie, Adventure, Stand by Me, The Goonies, Moonrise Kingdom
+
+Fri, 18 Sep 2026 21:35:11 GMT
+
+https://collider.com/best-coming-of-age-adventure-movies-ranked/
+
+From The Goonies to Stand by Me, these are the best movies that blend the thrilling quality of adventure with the relatable idealism of growing up.
+---------
+
+# The 10 Best Rock Music Videos of the '90s, Ranked
+
+Music Features, Rock, Music, 1990s, Nirvana
+
+Fri, 18 Sep 2026 21:21:12 GMT
+
+https://collider.com/best-rock-music-videos-90s-ranked/
+
+We've ranked the best rock music videos of the 1990s, including visuals from Nirvana, Soundgarden, and Nine Inch Nails.
+---------
+
+# The 8 Scariest Monsters in Books, Ranked
+
+Books and Comics, Harry Potter, Books, Horror, Stephen King
+
+Fri, 18 Sep 2026 21:05:11 GMT
+
+https://collider.com/scariest-book-monsters-ranked/
+
+From Cthulhu to Pennywise, these are the scariest monsters that fiction novels and novellas have to offer
+---------
+
+# Tom Hardy's Unforgettable Survival Movie Is Officially the Best Western on Netflix
+
+Movie Features, Tom Hardy, The Revenant, Alejandro Gonzalez Inarritu, Western
+
+Fri, 18 Sep 2026 20:50:11 GMT
+
+https://collider.com/tom-hardy-the-revenant-survival-western-movie-netflix/
+
+The Revenant is a Western about survival and revenge that stars Leonardo DiCaprio and Tom Hardy, and is one of its decade's most memorable movies.
+---------
+
+# Forget ‘Doctor Who,’ This 28-Episode Sci-Fi Series Is the Perfect Replacement
+
+TV Features, Timeless, NBC, Doctor Who, Series
+
+Fri, 18 Sep 2026 20:42:11 GMT
+
+https://collider.com/timeless-doctor-who-replacement-time-travel-sci-fi-series/
+
+Timeless is the perfect Doctor Who replacement, blending time travel, history, action, humor, and an addictive mystery.
+---------
+
+# Ridley Scott's 'Blade Runner' Sequel Series Unveils New First-Look Photos Ahead of Premiere
+
+Movie News, Ridley Scott, Blade Runner
+
+Fri, 18 Sep 2026 21:55:30 GMT
+
+https://movieweb.com/blade-runner-2099-michelle-yeoh-hunter-schafer-images/
+
+New first-look images from Ridley Scott’s Blade Runner sequel series have arrived.
+---------
+
+# 'Wheel of Time' Author Admits Amazon Adaptation Had "Ever Widening Gulf" From Books
+
+TV News, The Wheel of Time, Fantasy
+
+Fri, 18 Sep 2026 21:17:29 GMT
+
+https://movieweb.com/wheel-of-time-brandon-sanderson-show-thoughts/
+
+Brandon Sanderson gets candid about Prime Video's 'The Wheel of Time' in the aftermath of its cancelation.
+---------
+
+# Prime Video's Best Action Thriller Series Smashes 1 Billion Minute Streaming Milestone
+
+TV News, Alan Ritchson, Reacher, Prime Video, Action, Thriller, Hot on Streaming
+
+Fri, 18 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/alan-ritchson-reacher-prime-video-streaming-milestone-september-2026/
+
+With a charming smile and snarky one-liners, the most beloved action hero in modern television keeps dominating the charts.
+---------
+
+# 2 of the Best Modern Thrillers Are Getting Sequels, and Release Dates Have Now Been Confirmed
+
+Movie News, Heart Eyes, Crawl, Thriller, Horror
+
+Fri, 18 Sep 2026 20:48:09 GMT
+
+https://movieweb.com/heart-eyes-crawl-sequels-release-dates/
+
+Paramount Pictures has set 'Crawl 2' for release on July 16, 2027, and 'Heart Eyes 2' for February 4, 2028.
+---------
+
+# FX's 'Rambo Meets Lost' Video Game Adaptation Adds 'Harry Potter' Alum & More to All-Star Cast
+
+TV Shows, Brendan Gleeson, Far Cry, Jennifer Jason Leigh
+
+Fri, 18 Sep 2026 20:45:55 GMT
+
+https://movieweb.com/far-cry-brendan-gleeson-show-cast/
+
+'Harry Potter' alum Brendan Gleeson and four others join the all-star cast of the television adaptation of a popular video game franchise.
+---------
+
+# Amazon's 3-Part Epic Streaming Series With 44 Million Viewers Officially Comes to an End
+
+TV News, Prime Video, House of David
+
+Fri, 18 Sep 2026 20:28:37 GMT
+
+https://movieweb.com/house-of-david-amazon-final-season-3/
+
+Prime Video’s House of David, which reportedly drew 44 million viewers worldwide, is now officially moving toward its final chapter.
+---------
+
+# In Just 1 Day, 'Resident Evil' Reboot Breaks 24-Year Franchise Box Office Record
+
+Movie News, Resident Evil, Horror
+
+Fri, 18 Sep 2026 20:20:42 GMT
+
+https://movieweb.com/resident-evil-2026-box-office-thursday/
+
+It's about to be a career-defining weekend for 'Weapons' director Zach Cregger.
+---------
+
 # Remake Of 11-Year-Old Robert De Niro Movie Ends The Odyssey Box Office Streak
 
 Movies, Box Office, The Intern, The Odyssey
