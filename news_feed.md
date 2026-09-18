@@ -1,3 +1,443 @@
+# Brad Pitt’s World War Z 2 Return Confirmed In Major Director Update
+
+Movies, World War Z 2
+
+Fri, 18 Sep 2026 17:39:18 GMT
+
+https://screenrant.com/world-war-z-sequel-brad-pitt-edward-berger-reunion/
+
+A massive director update has confirmed that Brad Pitt will be back for the anticipated World War Z sequel, as the zombie movie finally takes off.
+---------
+
+# Person of Interest Season 6: Why The Show Was Cancelled
+
+Classic TV, Person of Interest
+
+Fri, 18 Sep 2026 17:30:16 GMT
+
+https://screenrant.com/person-interest-season-6-cancelled-reason-story/
+
+Here's why Person of Interest, which brought in good ratings for CBS, was suddenly cancelled, and what the series could have explored in season 6.
+---------
+
+# DC's New Batman & Robin Replacement Officially Announced
+
+Comics, Batman, Robin
+
+Fri, 18 Sep 2026 17:17:37 GMT
+
+https://screenrant.com/new-batman-and-robin-replacement-details/
+
+DC has officially revealed the first images of Batman and Robin’s replacements, giving fans an early look at what the future holds for the iconic duo.
+---------
+
+# George Actor Is Unrecognizable In Young Sheldon's Surprise New Release
+
+Network TV, Young Sheldon, The Big Bang Theory
+
+Fri, 18 Sep 2026 17:15:16 GMT
+
+https://screenrant.com/young-sheldon-book-lance-barber-return/
+
+Two years after the Cooper patriarch's death that preceded its end, Young Sheldon is coming back with a new release, with Lance Barber's involvement.
+---------
+
+# Alan Ritchson In Talks To Replace Jason Momoa In Big Budget Sci-Fi Video Game Movie
+
+Movies, Helldivers, Alan Ritchson
+
+Fri, 18 Sep 2026 17:08:44 GMT
+
+https://screenrant.com/helldivers-movie-alan-ritchson-jason-momoa-replacement-negotiations/
+
+Alan Ritchson looks to have found his next major sci-fi action movie as he enters talks to replace Jason Momoa for a big-budget game adaptation.
+---------
+
+# Ryan Gosling’s New Blade Runner Replacement Hunts Replicants In Gritty New Prime Video Series Images
+
+TV, Blade Runner 2099, Blade Runner 2099 - Season 1
+
+Fri, 18 Sep 2026 17:06:58 GMT
+
+https://screenrant.com/blade-runner-2099-michelle-yeoh-hunter-schafer-images/
+
+Ryan Gosling’s Blade Runner franchise is expanding with a spinoff series, and Prime Video has now teased fans with three brand new images.
+---------
+
+# Zach Cregger's Resident Evil Breaks Franchise Box Office Record Within Hours Of Debut
+
+Movies, Box Office, Horror, Resident Evil
+
+Fri, 18 Sep 2026 17:03:18 GMT
+
+https://screenrant.com/resident-evil-2026-box-office-opening-domestic-result/
+
+Barbarian and Weapons director Zach Cregger's Resident Evil adaptation breaks an all-time record for the film franchise within hours of its debut.
+---------
+
+# Netflix Just Dropped Its Biggest Remake Yet of a 38-Year-Old Hollywood Classic
+
+TV, Netflix, Masked Recs
+
+Fri, 18 Sep 2026 17:00:17 GMT
+
+https://screenrant.com/the-scandal-dangerous-liasons-netflix-adaptation/
+
+After 38 years, Keanu Reeves and John Malkovich's iconic period drama is back with a new remake on Netflix with an even more exciting cast.
+---------
+
+# After 3 Years Away, Netflix's Answer To Lost Is Officially Returning With A New Show
+
+Streaming TV, Masked Recs, Lost
+
+Fri, 18 Sep 2026 17:00:17 GMT
+
+https://screenrant.com/manifest-netflix-spinoff-return-good/
+
+Manifest, Netflix’s Lost replacement show, is still popular 3 years later, so the streamer is continuing the world with a spinoff series.
+---------
+
+# Pokémon's Next Anime Era Is Officially Here
+
+Anime, Pokemon, Pokémon Horizons
+
+Fri, 18 Sep 2026 17:00:05 GMT
+
+https://screenrant.com/pokemon-next-anime-era-horizons-season-3-part-4/
+
+Pokémon's next big anime era is here, with Pokémon Horizons: Season 3—Rising Hope Part 4 out now on Netflix. Here is everything you need to know.
+---------
+
+# Avatar: The Last Airbender's New 10-Episode Series Brings Back Katara vs. Zuko
+
+Anime, Avatar: The Last Airbender
+
+Fri, 18 Sep 2026 17:35:11 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-chibi-minis-katara-vs-zuko/
+
+The most underrated Avatar: The Last Airbender series is back with another brand-new episode, and this time it's Katara vs. Zuko for Aang's fate.
+---------
+
+# Sydney Sweeney's Gundam Is Mandatory Viewing For Transformers Fans
+
+Movies, Gundam
+
+Fri, 18 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/sydney-sweeney-gundam-must-watch-for-transformers-fans/
+
+Giant robot movies seemed like a thing of the past, but this beloved franchise is returning to save the day.
+---------
+
+# Bleach: Thousand-Year Blood War Just Fumbled a Major Bankai
+
+Anime, Bleach: Thousand Year Blood War, shonen anime, Bleach
+
+Fri, 18 Sep 2026 17:15:11 GMT
+
+https://www.cbr.com/bleach-tybw-fumbled-aizen-bankai/
+
+Bleach fans who expected Aizen's Bankai were sorely disappointed by TYBW Episode 48
+---------
+
+# Alan Ritchson Replaces Jason Momoa in Sony’s New Space Opera Based on a Hit Video Game
+
+Movies, Helldivers, Sci-Fi
+
+Fri, 18 Sep 2026 17:10:44 GMT
+
+https://www.cbr.com/alan-ritchson-helldivers-movie-replaces-jason-momoa/
+
+Sony's epic sci-fi video game adaptation has found its replacement for Jason Momoa.
+---------
+
+# Marvel Officially Confirms Punisher's New Design
+
+Comics, The Punisher
+
+Fri, 18 Sep 2026 17:08:58 GMT
+
+https://www.cbr.com/marvel-officially-confirms-punisher-new-design/
+
+In a CBR exclusive preview, discover the Punisher's brand-new costume design that he will use specifically for winter missions
+---------
+
+# Dexter: Resurrection Is Changing Its Rules for Dead Characters in Season 2
+
+TV, Dexter: Resurrection, Dexter
+
+Fri, 18 Sep 2026 17:00:11 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-angel-batista-return/
+
+Dexter: Resurrection Season 2 has a surprising character return that breaks the franchise's rules.
+---------
+
+# The Greatest Dystopian Thriller of the 21st Century Returns to Theaters 20 Years Later
+
+Movies, V For Vendetta, Thriller
+
+Fri, 18 Sep 2026 16:59:30 GMT
+
+https://www.cbr.com/v-for-vendetta-tickets-theaters-20th-anniversary/
+
+A modern classic work of dystopian cinema is returning to theaters for its 20th anniversary.
+---------
+
+# Wolverine Fights the Hulk for the Fate of the Planet
+
+Comics, Wolverine, Hulk
+
+Fri, 18 Sep 2026 16:22:37 GMT
+
+https://www.cbr.com/wolverine-infernal-hulk-preview-fight-planet/
+
+In a CBR exclusive preview of next week's Infernal Hulk vs. Wolverine #1, see Wolverine fight a Hulk he's never faced before
+---------
+
+# Pokémon MMO With Multiple Regions Reportedly in Development at Game Freak
+
+Games, Pokemon
+
+Fri, 18 Sep 2026 16:20:11 GMT
+
+https://www.cbr.com/pokemon-official-mmo-multiple-regions-in-development/
+
+The dream of Pokémon fans for decades seems to finally be real, with a new official MMO reportedly in development.
+---------
+
+# Most Underrated Konoha Ninjas In Naruto
+
+Anime, Naruto, Naruto: Shippuden
+
+Fri, 18 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/most-underrated-konoha-ninjas-naruto/
+
+These exceptional Konoha ninjas deserve more recognition for their abilities, accomplishments, and contributions to Naruto.
+---------
+
+# 'Doctor Who’ Officially Ruled Out A Legendary Cast Member's Return
+
+TV Features, Doctor Who, BBC, AMC+
+
+Fri, 18 Sep 2026 17:16:11 GMT
+
+https://collider.com/doctor-who-bbc-michael-troughton-not-returning-on-screen/
+
+Doctor Who has seen many of its former Doctors return to the screen, but Michael Troughton said he won't be one of them.
+---------
+
+# 'Reacher's Alan Ritchson Officially Replacing Jason Momoa in Sony's 'Helldivers'
+
+Movie News, Helldivers, Alan Ritchson, Justin Lin, Jason Momoa
+
+Fri, 18 Sep 2026 17:10:40 GMT
+
+https://collider.com/alan-ritchson-helldivers-movie/
+
+Following Jason Momoa's exit, Sony's Helldivers movie has officially found its replacement in Reacher star Alan Ritchson. Read on for more!
+---------
+
+# Rockstar Games Officially Removes Major GTA Content
+
+Gaming News, GTA 5, Grand Theft Auto 6, Rockstar Games, Gaming
+
+Fri, 18 Sep 2026 17:06:09 GMT
+
+https://collider.com/grand-theft-auto-5-removing-music-before-gta-6/
+
+Rockstar has begun removing original music from Grand Theft Auto 5 due to licensing restrictions, officially marking the end of an era for the game.
+---------
+
+# Prime Video’s ‘Yellowstone’ Replacement Officially Surges Into Global Top 10
+
+TV News, Blue Ridge: The Series, Prime Video, Blue Ridge, Yellowstone
+
+Fri, 18 Sep 2026 17:04:32 GMT
+
+https://collider.com/blue-ridge-the-series-streaming-success-prime-video-september-2026/
+
+Prime Video's answer to Taylor Sheridan's Yellowstone has surged into the global top 10 after the second season joined streaming.
+---------
+
+# 7 Forgotten Netflix Romance Movies That Are Perfect From Start to Finish
+
+Movie, Netflix, Romance, The Half of It, Someone Great
+
+Fri, 18 Sep 2026 17:04:11 GMT
+
+https://collider.com/forgotten-netflix-romance-movies-perfect-start-to-finish/
+
+From the coming of age film The Half of It to the Gina Rodriguez comedy Someone Great, these forgotten Netflix romance movies are truly flawless.
+---------
+
+# 'The Witcher' Meets 'Interview With the Vampire' in the Fantasy Hit Taking Over the World
+
+Gaming News, The Witcher 3: Wild Hunt, The Witcher, CD Projekt Red, Gaming
+
+Fri, 18 Sep 2026 17:02:25 GMT
+
+https://collider.com/witcher-replacement-the-blood-of-the-dawnwalker-new-game-plus-update/
+
+2026's hit The Witcher replacement, The Blood of the Dawnwalker, is officially adding a highly requested feature.
+---------
+
+# 10 Forgotten Movies That Have the Most Fun
+
+Movie, The Sweetest Thing, Running Scared, The Hudsucker Proxy, The Brothers Bloom
+
+Fri, 18 Sep 2026 16:06:11 GMT
+
+https://collider.com/forgotten-movies-have-most-fun/
+
+Movies like Matinee and The Quick and the Dead are mostly forgotten by fans, which is a shame considering how much fun they have with their premises.
+---------
+
+# Ryan Murphy's 'Monster: The Lizzie Borden Story' Is a Campy, Frustrating, Occasionally Moving Watch | Review
+
+TV Reviews, Ryan Murphy, Monster: The Lizzie Borden Story, Rebecca Hall, Charlie Hunnam
+
+Fri, 18 Sep 2026 16:00:11 GMT
+
+https://collider.com/monster-lizzie-borden-review-ryan-murphy/
+
+Monster: The Lizzie Borden Story tries to use the famous Victorian murder case to tell a story about sexism, but suffers from a muddled execution.
+---------
+
+# Crunchyroll’s Next ‘Solo Leveling’ Is Officially Coming in 2027
+
+TV Features, Solo Leveling, Crunchyroll, Anime, Trailer Teaser
+
+Fri, 18 Sep 2026 15:52:11 GMT
+
+https://collider.com/crunchyroll-solo-leveling-replacement-series-sss-class-revival-hunter-2027/
+
+SSS-Class Revival Hunter premieres on Crunchyroll in January 2027. The new series has a lot in common with Solo Leveling, and will draw the same fans.
+---------
+
+# Mahershala Ali’s Official ‘Blade’ Replacement Gets New Look 3 Weeks Before Release [Exclusive]
+
+Movie News, Your Mother Your Mother Your Mother, Mahershala Ali, Blade, Bassam Tariq
+
+Fri, 18 Sep 2026 15:00:11 GMT
+
+https://collider.com/mahershala-ali-your-mother-your-mother-your-mother-new-look/
+
+Your Mother Your Mother Your Mother, the new assassin thriller starring Mahershala Ali, gets an official sneak peek from Amazon MGM.
+---------
+
+# Daniel Craig Debuts as the Magician in First-Look Photos of Netflix's 'Narnia' Reboot
+
+Movie News, Narnia: The Magician's Nephew, Netflix, Daniel Craig
+
+Fri, 18 Sep 2026 17:38:56 GMT
+
+https://movieweb.com/narnia-daniel-craig-netflix-magician-image/
+
+New looks at Daniel Craig and Emma Mackey in Greta Gerwig's highly anticipated adaptation of 'Narnia: The Magician's Nephew.'
+---------
+
+# 'I Am Legend 2' Writer Vows Will Smith's Long-Awaited Action Sequel Still Happening
+
+Movie News, I Am Legend, I Am Legend 2, Will Smith
+
+Fri, 18 Sep 2026 17:38:29 GMT
+
+https://movieweb.com/i-am-legend-2-will-smith-update/
+
+'I Am Legend 2' is not stuck in development hell.
+---------
+
+# Netflix's 7-Episode Western Is the '1883' Follow-Up Taylor Sheridan Fans Have Been Looking For
+
+Features, Taylor Sheridan, Western, 1883, Netflix
+
+Fri, 18 Sep 2026 17:30:14 GMT
+
+https://movieweb.com/netflix-western-godless-1883-sheridan-follow-up/
+
+Netflix's 7-episode Western series delivers the sweeping frontier drama Taylor Sheridan fans loved in '1883,' with its own story and cast.
+---------
+
+# 6 Harlan Coben Netflix Thrillers That Hook You in the First Episode
+
+TV Lists, Thriller, Netflix, Harlan Coben, I Will Find You
+
+Fri, 18 Sep 2026 17:30:14 GMT
+
+https://movieweb.com/harlan-coben-netflix-thrillers-hook-first-episode/
+
+Netflix offers plenty of great shows based on Harlan Coben's books, but these thrillers will hook you the fastest — and then not let you go.
+---------
+
+# The 9 Best Dystopian TV Series on Netflix
+
+TV Lists, Netflix
+
+Fri, 18 Sep 2026 17:00:16 GMT
+
+https://movieweb.com/dystopian-tv-shows-on-netflix/
+
+From surveillance states to post-apocalyptic wastelands, these 9 dystopian TV series on Netflix explore chilling visions of the future.
+---------
+
+# Gal Gadot's New 84-Minute Action Thriller Flop Continues to Dominate Global Streaming Charts
+
+Movie News, Gal Gadot, The Runner, Prime Video, Action, Thriller
+
+Fri, 18 Sep 2026 17:00:15 GMT
+
+https://movieweb.com/the-runner-gal-gadot-streaming-hit-about-amazon-september-2026/
+
+Despite a negative reception from critics, the film is still unstoppable on streaming.
+---------
+
+# 10 Great Martial Arts Movies Like 'Ip Man'
+
+Movie Lists, IP Man, Action
+
+Fri, 18 Sep 2026 17:00:15 GMT
+
+https://movieweb.com/martial-arts-movies-like-ip-man/
+
+Donnie Yen's 'Ip Man' film series expertly combines martial arts choreography with historical proceedings, and a few other movies do the same.
+---------
+
+# Tom Hardy Explains Why His MobLand Character Doesn't Have a Backstory
+
+TV News, MobLand, Tom Hardy, Crime, Drama
+
+Fri, 18 Sep 2026 16:00:15 GMT
+
+https://movieweb.com/mobland-tom-hardy-harry-backstory/
+
+Tom Hardy explained to MovieWeb why his 'MobLand' protagonist has no backstory and why he prefers to keep Harry Da Souza's past a mystery.
+---------
+
+# 8 Near-Perfect Cop Thrillers Better Than 'The Rookie'
+
+TV Lists, The Rookie, Thriller, True Detective
+
+Fri, 18 Sep 2026 16:00:15 GMT
+
+https://movieweb.com/cop-thriller-tv-shows-rookie-comparison/
+
+'The Rookie,' the cop thriller series starring Nathan Fillion and airing on ABC, isn't the only impressive TV show in the genre.
+---------
+
+# Russell Crowe's "Must-Watch" Survival Thriller Arrives in Theaters as Exclusive New Clip Surfaces
+
+Movie News, Russell Crowe, The Weight, Ethan Hawke
+
+Fri, 18 Sep 2026 15:58:02 GMT
+
+https://movieweb.com/russell-crowe-the-weight-hits-theatres-exclusive-clip/
+
+An exclusive new clip from The Weight offers a fresh look at Ethan Hawke and Russell Crowe’s survival thriller ahead of release.
+---------
+
 # Netflix's Narnia Backlash Explained, From Major Book Change To Meryl Streep's Aslan
 
 Movies, Narnia: The Magician's Nephew
