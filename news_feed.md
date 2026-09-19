@@ -1,3 +1,399 @@
+# Lizzie Borden True Story & Why She Was Acquitted Of Murdering Her Parents
+
+Streaming TV, Monster: The Lizzie Borden Story
+
+Sat, 19 Sep 2026 00:37:09 GMT
+
+https://screenrant.com/lizzie-borden-history-axe-murder-parents-trial-acquittal/
+
+The history of Lizzie Borden was heavily, heavily fictionalized in Netflix's Monster: The Lizzie Borden Story, and here's the true story.
+---------
+
+# 25 K-Dramas About Falling In Love With The Boss
+
+TV, K-Drama
+
+Sat, 19 Sep 2026 00:30:15 GMT
+
+https://screenrant.com/k-dramas-about-falling-love-boss/
+
+K-dramas have a way of hooking in audiences with their dynamic storylines and these examples of the 'falling in love with the boss' formula are great.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (September 19-20)
+
+Movies, Prime Video, Recommendation
+
+Sat, 19 Sep 2026 00:18:15 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-september-19/
+
+The best movies to watch on Prime Video this weekend are a Jon Bernthal spy thriller, an epic full of magic, and an intense horror thriller.
+---------
+
+# After 85 Years, Marvel Kills Off A Beloved Superhero Icon
+
+Marvel Comics, Captain America
+
+Sat, 19 Sep 2026 00:15:17 GMT
+
+https://screenrant.com/marvel-kills-bucky-barnes-winter-soldier/
+
+A major Avenger dies in Marvel's main continuity, defying the whole superhero community to save the world, and paying the ultimate price for it.
+---------
+
+# HBO's 5-Part Miniseries Will Restore Your Faith In TV
+
+Streaming TV, Masked Recs
+
+Sat, 19 Sep 2026 00:00:16 GMT
+
+https://screenrant.com/chernobyl-hbo-miniseries-restore-faith-in-tv/
+
+HBO is the home of prestige drama but outdid itself with the hard-hitting but must-watch masterpiece, Chernobyl, which is a perfect miniseries.
+---------
+
+# New Avengers: Doomsday Reveal May Have Just Spoiled One Classic X-Men's Grim Fate
+
+Movies, Avengers: Doomsday
+
+Fri, 18 Sep 2026 23:33:13 GMT
+
+https://screenrant.com/avengers-doomsday-spoiled-x-men-cyclops-fate/
+
+New promotional material for the highly anticipated MCU film, Avengers: Doomsday, may have just spoiled one of the original X-Men's fate.
+---------
+
+# Marvel Confirms Yet Again That Reed Richards Is The Worst Superhero
+
+Comic-Con, Fantastic Four
+
+Fri, 18 Sep 2026 23:28:16 GMT
+
+https://screenrant.com/reed-richards-bad-hero-marvel-worst/
+
+The morally corrupt Reed Richards strikes again.
+---------
+
+# 40 Years Later, Alan Moore's Canon Ending For The Original Superman Is Aging Like Fine Wine
+
+Comics, Alan Moore, Superman
+
+Fri, 18 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/superman-canon-ending-alan-moore/
+
+Happily ever after
+---------
+
+# NCIS Meets Mass Effect In New Cyberpunk Sci-Fi Thriller
+
+Gaming, NCIS, Mass Effect, Sci-Fi, PC, Steam
+
+Fri, 18 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/ncis-meets-mass-effect-new-cyberpunk-thriller/
+
+This upcoming sci-fi crime thriller is a perfect release for cyberpunk fans looking for Mass Effect meets NCIS, arriving in 2027.
+---------
+
+# 3 Best Movies To Watch On Netflix This Weekend (September 19-20)
+
+Movies, Netflix, Recommendation
+
+Fri, 18 Sep 2026 22:44:46 GMT
+
+https://screenrant.com/best-netflix-movies-watch-weekend-september-19/
+
+The best movies on Netflix this weekend are led by Alan Ritchson and Henry Cavill's R-rated action thriller, alongside a dark thriller and a horror.
+---------
+
+# 10 Most Unreadable Manga of All Time
+
+Anime, JoJo's Bizarre Adventures, Kingdom, Tokyo Ghoul, Manga
+
+Sat, 19 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/most-unreadable-manga-of-all-time/
+
+These manga series make fans work for every page, with confusing stories and impossibly dense artwork that make them unreadable.
+---------
+
+# Naruto Officially Brings Back Orochimaru's Legendary Sannin Era on September 24
+
+Anime, Naruto
+
+Sat, 19 Sep 2026 00:40:05 GMT
+
+https://www.cbr.com/naruto-mobile-orochimaru-legendary-sannin-release/
+
+The new animated release takes the character back to his villainous prime.
+---------
+
+# Star Trek Gave Captain Kirk the Greatest Quote in Sci-Fi History
+
+Movies, Star Trek
+
+Sat, 19 Sep 2026 00:30:11 GMT
+
+https://www.cbr.com/star-trek-iii-the-search-for-spock-captain-kirk-best-quote-sci-fi-history/
+
+While "the needs of the many outweigh the needs of the few" is a beloved Star Trek quote,  Kirk turned it around to make it an even more powerful line
+---------
+
+# 10 Hardest Soulslike Games of All Time, Ranked
+
+Games, Elden Ring, Dark Souls, Sekiro: Shadows Die Twice, Video Games
+
+Sat, 19 Sep 2026 00:30:11 GMT
+
+https://www.cbr.com/hardest-soulslike-games-all-time-ranked/
+
+Soulslike Games have often challenged players and tested their patience, but none have captured the magic or difficulty quite like these ten titles.
+---------
+
+# 10 Space Opera Manga Everyone Should Read At Least Once
+
+Anime, Manga, scifi
+
+Sat, 19 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/space-opera-manga-everyone-should-read/
+
+A good space opera manga can make a lonely planet feel as important as an empire or turn one encounter into a reason to keep reading.
+---------
+
+# ABC's The Lincoln Lawyer Replacement Is a Streaming Sensation After Returning With New Episodes
+
+TV, R.J. Decker, Disney+, Crime
+
+Sat, 19 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/rj-decker-crime-success-hulu-disney-plus-september-2026/
+
+Days after Season 2's premiere, R.J. Decker is rising up the charts on both Hulu and Disney+ in the U.S.
+---------
+
+# Nicolas Cage’s Raising Arizona Quote Is the Most Powerful Line of the 80s
+
+Movies, Raising Arizona
+
+Sat, 19 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/nicolas-cage-raising-arizona-best-80s-movie-quote/
+
+The '80s gave cinema one masterpiece blockbuster after another, but Nicolas Cage's indie caper gave the decade its greatest ending quote.
+---------
+
+# Joey Wheeler's Iconic Yu-Gi-Oh! Cards Get An Upgrade In New Set
+
+Games, Yu-Gi-Oh!, Tabletop
+
+Sat, 19 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/joey-wheeler-yu-gi-oh-cards-upgrade-beyond-the-brave/
+
+It's a new era for Time Wizard and Red-Eyes Black Dragon, as Joey Wheeler's iconic Yu-Gi-Oh! cards are being upgraded this October in a new set.
+---------
+
+# Best Anime That Started in the Last 10 Years, Ranked
+
+Anime, Frieren: Beyond Journey's End, Jujutsu Kaisen, The Apothecary Diaries
+
+Fri, 18 Sep 2026 23:45:11 GMT
+
+https://www.cbr.com/best-anime-started-last-decade-ranked/
+
+From action hits to modern classics, these ten anime have defined the last decade of anime.
+---------
+
+# 5 Best Upper Moons in Demon Slayer, Ranked by Design
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer
+
+Fri, 18 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/demon-slayer-upper-moon-best-designs-ranked/
+
+After getting thrashed by Tanjiro, the blood-thirsty Upper Moons of Demon Slayer have to face tough competition based on their character design.
+---------
+
+# Ncuti Gatwa’s Doctor Who Officially Returns for New Release With the 9th and 10th Doctors
+
+Collectibles, Doctor Who, Funko
+
+Sat, 19 Sep 2026 00:45:11 GMT
+
+https://collider.com/doctor-who-9th-10th-doctors-funko-pop-images-release-date-november-2026/
+
+After the BBC confirmed Doctor Who will return, a brand-new release for the timey-wimey franchise is set for 2026.
+---------
+
+# Gal Gadot’s 'Taken' Replacement Officially Falls Flat on Prime Video
+
+Movie News, Gal Gadot, The Runner, Prime Video, Action
+
+Sat, 19 Sep 2026 00:45:11 GMT
+
+https://collider.com/gal-gadot-the-runner-streaming-drop-prime-video-september-2026/
+
+Gal Gadot's critically panned Prime Video action-thriller, The Runner, had a lukewarm debut according to the latest Nielsen report. Find out more.
+---------
+
+# The 6 Most Fun Movies Released Since 2010
+
+Movie, Everything Everywhere All at Once, Mad Max: Fury Road, Spider-Man: Into The Spider-Verse, Top Gun: Maverick
+
+Sat, 19 Sep 2026 00:45:11 GMT
+
+https://collider.com/most-fun-movies-since-2010-ranked/
+
+From Top Gun: Maverick to Everything Everywhere All at Once, these wildly inventive films make every minute fly by.
+---------
+
+# CBS' 2-Part Crime Series Is Officially Heading Down a Disappointing Path
+
+TV Features, Matlock, CBS, Kathy Bates, Skye P. Marshall
+
+Sat, 19 Sep 2026 00:39:11 GMT
+
+https://collider.com/matlock-season-3-behind-the-scenes-update-episode-count/
+
+CBS' Matlock has been struggling with behind-the-scenes turmoil that could lead to the early cancellation of the beloved series.
+---------
+
+# ‘S.W.A.T.’ Officially Returns in 1 Week
+
+TV News, S.W.A.T. Exiles, STARZ, Shemar Moore, S.W.A.T.
+
+Sat, 19 Sep 2026 00:30:11 GMT
+
+https://collider.com/swat-exiles-release-date-starz-september-2026/
+
+Shemar Moore's SWAT officially returns next week with the premiere of the new sequel series.
+---------
+
+# Chris Pratt’s $1.3 Billion Sci-Fi Blockbuster Officially Finds a New Streaming Home
+
+Movie News, Chris Pratt, Jurassic World, Sci-Fi, Adventure
+
+Sat, 19 Sep 2026 00:25:11 GMT
+
+https://collider.com/chris-pratt-jurassic-world-fallen-kingdom-streaming-hulu-september-2026/
+
+Chris Pratt’s $1.3 billion blockbuster Jurassic World: Fallen Kingdom has just found a new streaming home. Here's where to watch the dino-mayhem
+---------
+
+# HBO Boss Officially Teases the Future of DC
+
+TV News, Lanterns, Casey Bloys, Kyle Chandler, Aaron Pierre
+
+Sat, 19 Sep 2026 00:15:11 GMT
+
+https://collider.com/dc-lanterns-season-2-hbo-boss-casey-bloys/
+
+HBO boss Casey Bloys addresses a potential Lanterns Season 2 after the DC spin-off's rave reviews.
+---------
+
+# 10 Greatest Fantasy Shows on Netflix That Are 10/10, No Notes
+
+TV, Fantasy, Netflix, Avatar: The Last Airbender, Wednesday
+
+Sat, 19 Sep 2026 00:02:11 GMT
+
+https://collider.com/best-fantasy-shows-netflix-perfect-no-notes/
+
+From the darkly humorous Wednesday to the animated masterpiece Avatar: The Last Airbender, these are the best fantasy shows streaming on Netflix.
+---------
+
+# 'Mad Men' Meets 'True Detective' in Jon Hamm's Newest Crime Thriller | Review
+
+TV Reviews, American Hostage, Crime, Jon Hamm, Giovanni Ribisi
+
+Sat, 19 Sep 2026 00:00:11 GMT
+
+https://collider.com/american-hostage-jon-hamm-mgm-plus-review/
+
+MGM+'s American Hostage is a thrilling adaptation of true events with stellar performances from Jon Hamm and Giovanni Ribisi.
+---------
+
+# Alan Ritchson and Henry Cavill’s Explosive Action Team-Up Officially Hits Netflix
+
+Movie News, Henry Cavill, Alan Ritchson, The Ministry of Ungentlemanly Warfare, Netflix
+
+Sat, 19 Sep 2026 00:00:11 GMT
+
+https://collider.com/henry-cavill-alan-ritchson-ministry-of-ungentlemanly-warfare-streaming-netflix-september-2026/
+
+Henry Cavill and Alan Ritchson's action-packed Guy Ritchie movie is officially taking over Netflix. Read on for more.
+---------
+
+# HBO's 'Harry Potter' Officially Redesigns Major Magical Artifacts, Confirms 5 New Changes
+
+TV News, Harry Potter, HBO Max, Fantasy
+
+Sat, 19 Sep 2026 00:22:53 GMT
+
+https://movieweb.com/harry-potter-series-wands-new-images/
+
+HBO's 'Harry Potter' reboot changes the design of the wands used by Harry, Ron Weasley, Hermione Granger, Draco Malfoy, and Neville Longbottom.
+---------
+
+# The 'Resident Evil' Movie's Final Monster Is a Deep Cut From the Franchise's Most Forgotten Game
+
+Features, Resident Evil, Horror
+
+Sat, 19 Sep 2026 00:00:16 GMT
+
+https://movieweb.com/resident-evil-movie-nyx-outbreak-file-2/
+
+Zach Cregger's 'Resident Evil' puts an original spin on one of the survival horror game franchise's most obscure enemies.
+---------
+
+# Forget James Bond, Netflix Star's 161-Minute Spy Thriller Masterpiece Gets Exciting New Release
+
+Features, The Secret Agent
+
+Fri, 18 Sep 2026 23:43:23 GMT
+
+https://movieweb.com/the-secret-agent-criterion-release/
+
+Read our exclusive interview with the filmmaker behind one of 2025's best movies.
+---------
+
+# Forget 'Lioness,' Taylor Sheridan's 9-Part Western Sequel Is Taking Over Streaming
+
+TV News, Dutton Ranch, Paramount Plus, Hot on Streaming, Taylor Sheridan, Lioness
+
+Fri, 18 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/dutton-ranch-taylor-sheridan-stream-paramount-sept-2026/
+
+Taylor Sheridan's best new show is back on streaming ahead of its second season.
+---------
+
+# Netflix’s Masterpiece Western Remake Was So Good, It Was Renewed a Season in Advance
+
+Features, Little House on the Prairie, Netflix, Western
+
+Fri, 18 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/little-house-on-the-prairie-netflix-renewed-two-seasons/
+
+Netflix's remake of 'Little House on the Prairie' was renewed for Season 2 before Season 1 aired. And it just might get bigger from here.
+---------
+
+# HBO's Harry Potter Reboot Is Officially Ditching the Most Iconic Part of Daniel Radcliffe's Era
+
+TV News, Harry Potter, Daniel Radcliffe, Fantasy, HBO Max
+
+Fri, 18 Sep 2026 22:43:58 GMT
+
+https://movieweb.com/harry-potter-series-hanz-zimmer-john-williams-music/
+
+HBO's Harry Potter reboot will be vastly different from the beloved film franchise.
+---------
+
 # 29 Years Later, Goku's Canonical Last Appearance Is Still The Greatest Dragon Ball Story Akira Toriyama Didn't Write
 
 Anime, Dragon Ball, Dragon Ball GT
