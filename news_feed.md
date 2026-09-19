@@ -1,3 +1,366 @@
+# Apple TV’s Neuromancer Ends An Era For Cyberpunk Sci-Fi
+
+Streaming TV, Neuromancer
+
+Sat, 19 Sep 2026 05:04:25 GMT
+
+https://screenrant.com/apple-tv-neuromancer-cyberpunk-sci-fi-end-era/
+
+Apple TV’s Neuromancer is the very first major adaptation of the iconic William Gibson novel, and it is seemingly ending an era for cyberpunk sci-fi.
+---------
+
+# Dungeon Crawler Carl Officially Begins A New Era November 2026
+
+Gaming, Dungeon Crawler Carl, PC
+
+Sat, 19 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/dungeon-crawler-carl-unstoppable-expansions-confirmed/
+
+Dungeon Crawler Carl has become one of the most popular LitRPG series of all time in recent years, and the franchise enters a new era this November.
+---------
+
+# Mass Effect: Legion Officially Releases December 2026
+
+Gaming, Mass Effect
+
+Sat, 19 Sep 2026 04:30:15 GMT
+
+https://screenrant.com/mass-effect-legion-december-2026/
+
+Pre-order the Mass Effect: Legion Figure, available December 2026. Celebrate the iconic character from the series!
+---------
+
+# Lord Of The Rings: Legolas Officially Announced
+
+Gaming, The Lord of the Rings
+
+Sat, 19 Sep 2026 04:00:20 GMT
+
+https://screenrant.com/lord-of-the-rings-legolas-statue-announced/
+
+Discover the new Legolas Sixth Scale Figure from Lord of the Rings, available for pre-order. Stay updated on release info!
+---------
+
+# Christina Chong Faced Her Hardest Challenge In Star Trek: Strange New Worlds' "Once La'an A Time" (Exclusive)
+
+TV, Star Trek, Star Trek: Strange New Worlds
+
+Sat, 19 Sep 2026 03:57:59 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-christina-chong-season-4-interview/
+
+ScreenRant interviews Christina Chong about La'an fighting her fairy tale self, romance with James Kirk, and her dog Runa joining Strange New Worlds.
+---------
+
+# Cult Classic Japanese Video Game Is Officially Getting A Live-Action Movie Adaptation
+
+Movies, Lollipop Chainsaw
+
+Sat, 19 Sep 2026 03:02:32 GMT
+
+https://screenrant.com/lollipop-chainsaw-japanese-game-live-action-movie/
+
+A live-action adaptation of a cult classic Japanese video game is officially on the way, bringing the hit franchise to the big screen.
+---------
+
+# 29 Years Later, Charlie Brown's Best Quote On Grief Proves Just How Deep Peanuts Really Is
+
+Comics, Peanuts
+
+Sat, 19 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/peanuts-charlie-brown-best-quote-grief-deep/
+
+Peanuts is a melancholy staple among classic comic strips, but some of what Charlie Brown believes says a lot about how helpful his mindset really is.
+---------
+
+# Final Fantasy, Chrono Trigger Collide In New JRPG You Can Play Free
+
+Gaming
+
+Sat, 19 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/final-fantasy-meets-chrono-trigger-free-demo-download/
+
+Mixing two of the greatest JRPGs of all time is a tall order, but this particular RPG looks like it's pulling it off, and you can try it for free.
+---------
+
+# Reacher Season 4's Ending Breaks 2 Big Franchise Traditions
+
+Streaming TV, Reacher, Reacher - Season 4
+
+Sat, 19 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/reacher-season-4-ending-breaks-tradition/
+
+Reacher season 4’s ending seems different from all previous instalments because it cleverly breaks two major traditions followed by the franchise.
+---------
+
+# David Ayer & Brad Pitt Clashed Over Final Cut For New Survival Thriller In New Report
+
+Movies, Heart of the Beast, Brad Pitt
+
+Sat, 19 Sep 2026 02:59:26 GMT
+
+https://screenrant.com/heart-of-the-beast-david-ayer-brad-pitt-final-cut-clash-report/
+
+A new report detailed that competing Heart of the Beast cuts emerged after Brad Pitt and David Ayer disagreed over the film's tone.
+---------
+
+# Long Anime Series Where Every Arc Is a Masterpiece
+
+Anime, Fullmetal Alchemist: Brotherhood, Hunter x Hunter
+
+Sat, 19 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/long-anime-every-arc-masterpiece/
+
+These long-running anime stand out by delivering memorable and expertly crafted arcs throughout their stories.
+---------
+
+# Timothée Chalamet's $634M Prequel to a 10/10 Fantasy Classic Is Climbing Fast on Streaming
+
+Movies, Wonka
+
+Sat, 19 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/wonka-fantasy-success-netflix-september-2026/
+
+Chalamet's fantasy film was a smash hit on its release, and is only growing.
+---------
+
+# 10 Best Cute Garfield Comic Strips, Ranked
+
+Comics, Garfield
+
+Sat, 19 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/cutest-garfield-comic-strips-ranked/
+
+Garfield, the sarcastic, Monday-hating, lasagna-loving cat, can actually be pretty cute sometimes.
+---------
+
+# The 5-Season Netflix Crime Show With 97% RT That the Algorithm Silently Buried
+
+TV, Top Boy, Netflix, Crime
+
+Sat, 19 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/netflix-top-boy-underrated-gangster-series/
+
+Crime shows remain iconic even now, but with so many hits on the streamer, it's easy to overlook one of Netflix's most underrated hidden gems.
+---------
+
+# Super Mario 64: Ocarina of Time Is the Crossover Fans Have Waited 40 Years For
+
+Games, The Legend of Zelda, Nintendo, Video Games
+
+Sat, 19 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/super-mario-64-ocarina-of-time-fan-game/
+
+There is a new Mario and Zelda crossover game that fans absolutely need to play.
+---------
+
+# New Solo Leveling Manhwa Chapter Revives the 1 Monarch Who Beat Sung Jinwoo
+
+Anime, Solo Leveling:ARISE, Solo Leveling
+
+Sat, 19 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/solo-leveling-arise-diana-lopez-hunter-origin-webtoon/
+
+Solo Leveling's newest S-Rank Hunter, Diana Lopez, shares a common enemy with Sung Jinwoo: Rakan, the Monarch of Fangs and King of the Beasts.
+---------
+
+# The 10% Rotten Video Game Movie That Lost $80M Is Suddenly a Top 10 Streaming Hit
+
+Movies, Borderlands, Action
+
+Sat, 19 Sep 2026 03:00:11 GMT
+
+https://www.cbr.com/the-10-rotten-video-game-movie-that-lost-80m-is-suddenly-a-top-10-streaming-hit/
+
+An adaptation that seemed doomed from the start seeks redemption, not unlike its cast of characters.
+---------
+
+# 10 Perfect Supernatural Anime to Watch Before Jujutsu Kaisen Season 4
+
+Anime, Jujutsu Kaisen, Yu Yu Hakusho, Blue Exorcist
+
+Sat, 19 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/supernatural-anime-to-watch-before-jjk-season-4/
+
+Jujutsu Kaisen is one of the best modern supernatural anime, so naturally fans would look for similar series to tide them over until Season 4.
+---------
+
+# 10 Metroidvanias You Can Finish in Under 10 Hours
+
+Games, Video Games, Metroid
+
+Sat, 19 Sep 2026 02:15:11 GMT
+
+https://www.cbr.com/metroidvanias-you-can-finish-under-10-hours/
+
+Classic Metroidvanias like Metroid and Castlevania easily be finished in a day.
+---------
+
+# Brendan Fraser's $422M Creature Feature Is a Free Streaming Sensation 27 Years Later
+
+Movies, The Mummy, The Mummy: Tomb of the Dragon Emperor, Tubi
+
+Sat, 19 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/brendan-fraser-the-mummy-free-streaming-success/
+
+This 1999 action adventure fantasy is soaring on streaming.
+---------
+
+# Netflix's 2-Part Unhinged Docuseries Will Actually Give You Nightmares
+
+TV Features, Worst Ex Ever, Netflix, True Crime, Documentary
+
+Sat, 19 Sep 2026 03:41:11 GMT
+
+https://collider.com/netflix-worst-ex-ever-true-crime-docuseries/
+
+Netflix's Worst Ex Ever proves that nothing is more horrific than when love turns into rage. Its first season perfectly lays out the show's intent.
+---------
+
+# HBO Max Officially Says Goodbye to One of Cinema’s Greatest Directorial Debuts
+
+Movie News, Pather Panchali, Satyajit Ray, Wes Anderson, HBO Max
+
+Sat, 19 Sep 2026 03:25:12 GMT
+
+https://collider.com/satyajit-ray-pather-panchali-greatest-directorial-debuts-leaving-hbo-max-september-2026/
+
+Released in 1955 and hugely influential to Wes Anderson, one of the greatest directorial debuts ever made is about to be removed from HBO Max.
+---------
+
+# Narnia Officially Returns for 2026 Release Ahead of Netflix Reboot
+
+Movie News, The Chronicles of Narnia, Fantasy, Narnia: The Magician's Nephew, The Chronicles of Narnia: The Lion, the Witch and the Wardrobe
+
+Sat, 19 Sep 2026 02:30:12 GMT
+
+https://collider.com/chronicles-of-narnia-trilogy-blu-ray-release-date-october-2026/
+
+Ahead of its planned Netflix reboot, The Chronicles of Narnia trilogy is getting a new release. Read on for more.
+---------
+
+# Harlan Coben’s New Netflix Thriller Officially Sets New Record
+
+TV News, I Will Find You, Harlan Coben, Netflix, Thriller
+
+Sat, 19 Sep 2026 02:15:11 GMT
+
+https://collider.com/harlan-coben-i-will-find-you-netflix-record-september-2026/
+
+Harlan Coben's latest Netflix sensation is making history on the streaming service. Get all the details here.
+---------
+
+# Netflix Officially Has a New Global Hit on Their Hands
+
+Movie News, Netflix, Thriller, Action, Taken
+
+Sat, 19 Sep 2026 02:00:21 GMT
+
+https://collider.com/netflix-thriller-gandhari-streaming-success-september-2026/
+
+A new action thriller has quietly become a massive sleeper hit on Netflix. Read on for all the details.
+---------
+
+# 'Merlin' Meets 'Percy Jackson and the Olympians' in Hulu's 2-Part Fantasy Thriller
+
+TV Features, Atlantis, Fantasy, Hulu, BBC
+
+Sat, 19 Sep 2026 01:55:11 GMT
+
+https://collider.com/atlantis-bbc-merlin-meets-percy-jackson-and-the-olympians/
+
+Atlantis is a delightful mix of Greek myths and humor; the charming series is a must-watch for lovers of Merlin and Percy Jackson.
+---------
+
+# ‘Stranger Things’ Officially Sets the Date for New October Release
+
+Collectibles, Stranger Things, Stranger Things: Tales from '85, Funko
+
+Sat, 19 Sep 2026 01:45:11 GMT
+
+https://collider.com/stranger-things-demogorgon-funko-pop-images-release-date-october-2026/
+
+As new episodes from the franchise hit Netflix, Stranger Things is officially set for a brand-new release this October.
+---------
+
+# Barbie’s Best Fantasy Adventure Officially Hits Netflix Ahead of 2026 Remake
+
+Movie News, Barbie, Barbie in the Nutcracker, Tim Curry, Netflix
+
+Sat, 19 Sep 2026 01:45:11 GMT
+
+https://collider.com/barbie-in-the-nutcracker-streaming-netflix-september-2026/
+
+The animated movie that started Barbie's film legacy has found a new audience on streaming ahead of its upcoming Netflix remake.
+---------
+
+# The 10 Worst Family Movies in Film History
+
+Movie, Artemis Fowl, Nukie, Family, Son of the Mask
+
+Sat, 19 Sep 2026 01:41:11 GMT
+
+https://collider.com/worst-family-movies-film-history/
+
+Critically lambasted disasters like Son of the Mask, Artemis Fowl, and Superbabies: Baby Geniuses 2 are among the worst family and kids movies ever.
+---------
+
+# Brad Pitt's Next Great Action Blockbuster Officially Releases in 1 Week
+
+Movie News, Heart of the Beast, Brad Pitt, David Ayer, J.K. Simmons
+
+Sat, 19 Sep 2026 01:30:11 GMT
+
+https://collider.com/brad-pitt-heart-of-the-beast-release-date-september-2026/
+
+The next action movie with the potential to be a massive blockbuster officially hits theaters around the world in just one week.
+---------
+
+# 28 Years Later, Jackie Chan's 95-Minute Action Thriller That Created Rotten Tomatoes Is Still a Masterpiece
+
+Features, Rush Hour, Action, Thriller
+
+Sat, 19 Sep 2026 02:00:24 GMT
+
+https://movieweb.com/jackie-chan-rush-hour-masterpiece/
+
+One of the most beloved action thrillers of the 1990s is still a classic that inadvertently left an indelible mark on the film industry.
+---------
+
+# Henry Cavill's New Action Thriller Officially Gets Crushed by Alan Ritchson's 9/10 Box-Office Surprise
+
+Movie News, Box Office Milestones, In the Grey, Runner
+
+Sat, 19 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/alan-ritchson-runner-beats-henry-cavill-in-the-grey-box-office/
+
+Alan Ritchson’s Runner has already outgrossed Henry Cavill’s In the Grey at the domestic box office.
+---------
+
+# 10 TV Series That Are Both Sci-Fi and Fantasy
+
+TV Shows, Sci-Fi, Fantasy
+
+Sat, 19 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/tv-shows-sci-fi-and-fantasy/
+
+Sci-fi and fantasy are often kept at arm's length from one another, but a collision between the genres can be fantastic. Read on for more.
+---------
+
 # Lizzie Borden True Story & Why She Was Acquitted Of Murdering Her Parents
 
 Streaming TV, Monster: The Lizzie Borden Story
