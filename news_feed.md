@@ -1,3 +1,432 @@
+# The MCU’s Newest Hit Proves Marvel Was Right To Repeat A Controversial Move For Its Third Time
+
+Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Sat, 19 Sep 2026 16:55:15 GMT
+
+https://screenrant.com/mcu-spider-man-brand-new-day-fourth-movie-solo-hero-right/
+
+The MCU's latest success came from the franchise being willing to repeat a move that had drawn more divisive reception not all that long ago.
+---------
+
+# Narnia’s New Movie Prequel Avoids The Biggest Issue With Film Prequels
+
+Movies
+
+Sat, 19 Sep 2026 16:40:14 GMT
+
+https://screenrant.com/narnia-the-magicians-nephew-story-prequel-problem-avoid/
+
+Our early information about the new Narnia prequel paints a promising picture for it that already sets up how it'll avoid a common prequel complaint.
+---------
+
+# DC Officially Reveals Lex Luthor's New Design, And It's His Best So Far
+
+DC Comics, Lex Luthor
+
+Sat, 19 Sep 2026 16:30:18 GMT
+
+https://screenrant.com/lex-luthor-new-design-best/
+
+Lex Luthor's new warsuit design is his most beautifully detailed, and it symbolizes the most powerful version of Superman's archnemesis to date.
+---------
+
+# Edgar Allan Poe Meets Harry Potter In Netflix's Hit Fantasy Series With 16 Episodes
+
+Streaming TV, Masked Recs
+
+Sat, 19 Sep 2026 16:30:18 GMT
+
+https://screenrant.com/wednesday-netflix-harry-potter-edgar-allan-poe/
+
+Fall means dark academia and spooky season, and Netflix's Wednesday, a great blend of Edgar Allan Poe and Harry Potter, is the perfect autumn binge.
+---------
+
+# Zach Cregger's Resident Evil Ending & The Main Takeaway Confirmed By Star Austin Abrams
+
+Movies, Resident Evil
+
+Sat, 19 Sep 2026 16:20:27 GMT
+
+https://screenrant.com/zach-creggers-resident-evil-ending-explained-austin-abrams/
+
+Austin Abrams breaks down the Resident Evil movie's shocking ending and explains why Zach Cregger's final twist works so well for Bryan.
+---------
+
+# 2027 Officially Has Two Sylvester Stallone Replacements In Franchise Reboots (& They're Totally Different)
+
+Movies, Masked Recs
+
+Sat, 19 Sep 2026 16:20:17 GMT
+
+https://screenrant.com/sylvester-stallone-replacement-movies-cliffhanger-john-rambo-reboots/
+
+Two major Sylvester Stallone movie franchises will return in 2027 - it's just that Sly himself won't be appearing in either one of them.
+---------
+
+# 10 Biggest Harry Potter Characters HBO Hasn't Cast Yet
+
+Streaming TV, Harry Potter
+
+Sat, 19 Sep 2026 16:15:17 GMT
+
+https://screenrant.com/harry-potter-hbo-characters-not-cast-yet-2026/
+
+The Harry Potter TV show is set to cover all the books over the course of a decade, but some big and important characters haven't been cast yet.
+---------
+
+# Batman's Official New Harley Quinn Is A Hit With Fans
+
+Gaming, LEGO Batman: Legacy of the Dark Knight, Triple-A Games, PC
+
+Sat, 19 Sep 2026 16:12:13 GMT
+
+https://screenrant.com/lego-batman-new-harley-quinn-casting/
+
+A new actress has officially taken on the role of Harley Quinn, and her take is striking a chord with fans of Batman: The Animated Series.
+---------
+
+# 19 Years Later, Even Marvel Knows This Civil War Moment Aged Like Milk
+
+Comics, Marvel
+
+Sat, 19 Sep 2026 16:01:15 GMT
+
+https://screenrant.com/civil-war-captain-america-sally-floyd-return/
+
+Nearly 20 years after the Civil War event ended, Marvel is using a new series to address one of the crossover's most controversial scenes.
+---------
+
+# The Boys Is Switching Main Characters For The Second Time Next Year
+
+Streaming TV, The Boys
+
+Sat, 19 Sep 2026 16:01:15 GMT
+
+https://screenrant.com/the-boys-soldier-boy-main-character-change/
+
+The Boys is switching main characters yet again when Soldier Boy stars in Vought Rising, but maybe this franchise never had a "main character."
+---------
+
+# Carrot Top Hospitalized After Suicide Attempt, Weekend Shows Canceled
+
+Movies, Comedy
+
+Sat, 19 Sep 2026 16:46:23 GMT
+
+https://www.cbr.com/carrot-top-hospitalized-suicide-attempt/
+
+Famed comedian and actor Carrot Top remains hospitalized after a suicide attempt.
+---------
+
+# 10 Biggest Video Game Easter Eggs in the Resident Evil Movie, Ranked
+
+Movies, Resident Evil
+
+Sat, 19 Sep 2026 16:31:11 GMT
+
+https://www.cbr.com/resident-evil-movie-video-game-easter-eggs-list/
+
+Zach Cregger's Resident Evil is officially the best video game movie ever made, and it's chock-full of Easter eggs straight from the games.
+---------
+
+# Prime Video Breaks Lee Child's Reacher Rules to Update a Decades-Old Piece of Neagley Lore
+
+TV, Neagley, Reacher, Jack Reacher
+
+Sat, 19 Sep 2026 16:31:11 GMT
+
+https://www.cbr.com/prime-video-updated-neagley-lore-breaks-reacher-rules/
+
+A specific trait of Frances Neagley comes straight from Lee Child's Reacher books, but the spinoff makes this tragic detail work even better.
+---------
+
+# 10 Complete Mecha Anime Series That Are 10/10, No Notes
+
+Anime, mecha, Gundam
+
+Sat, 19 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/complete-mecha-anime-series-flawless-no-notes/
+
+Most of the greatest mecha anime ever have already been completed.
+---------
+
+# TNT's New Political Thriller Puts a High Value Target in the Hot Seat
+
+TV, High Value Target: The Hunt for Saddam
+
+Sat, 19 Sep 2026 16:00:11 GMT
+
+https://www.cbr.com/tnt-political-thriller-high-value-target-hunt-for-saddam-exclusive-clip/
+
+The action is heating up in an exclusive new clip from TNT's new political thriller that debuted to an impressive 100% Rotten Tomatoes score.
+---------
+
+# Star Trek V: The Final Frontier Gave Kirk the Best Quote in Sci-Fi History
+
+Movies, Star Trek V: The Final Frontier, william shatner, Sci-Fi
+
+Sat, 19 Sep 2026 15:30:14 GMT
+
+https://www.cbr.com/star-trek-v-the-final-frontier-captain-kirk-greatest-quote-in-sci-fi-history/
+
+Captain James T. Kirk is an iconic sci-fi hero, and in what's seen as Star Trek's 'worst' movie, he delivers his and, possibly sci-fi's greatest line.
+---------
+
+# 7 Perfect 10/10 Cartoon Network Masterpieces Nobody Remembers
+
+Anime, Cartoon Network
+
+Sat, 19 Sep 2026 15:15:11 GMT
+
+https://www.cbr.com/perfect-cartoon-network-masterpieces-forgotten/
+
+Cartoon Network built its reputation on iconic franchises, but some of its most inventive shows took much stranger paths.
+---------
+
+# The 5-Season JJ Abrams Classic Hailed as '1 of the Best Sci-Fi Series Ever Broadcast'
+
+TV, Person of Interest, Sci-Fi, Innovation
+
+Sat, 19 Sep 2026 15:00:11 GMT
+
+https://www.cbr.com/jj-abrams-person-of-interest-sci-fi-ai-series/
+
+It's rare for a network TV show to be considered among the best in sci-fi, but this CBS show is exactly that.
+---------
+
+# Studio Ghibli Brings Back Totoro, Howl & More for Exclusive October 3 Debut
+
+Anime, Studio Ghibli, The Boy and the Heron, Howl's Moving Castle, Porco Rosso, My Neighbor Totoro, Princess Mononoke
+
+Sat, 19 Sep 2026 15:00:11 GMT
+
+https://www.cbr.com/studio-ghibli-zen-exhibition-october-3/
+
+Studio Ghibli's upcoming "Zen" exhibition features classic anime icons such as Princess Mononoke's San, the lovable forest spirit, Totoro and more.
+---------
+
+# Bleach's Final Episodes Actually Need the Delayed Release
+
+Anime, Bleach: Thousand Year Blood War
+
+Sat, 19 Sep 2026 15:00:11 GMT
+
+https://www.cbr.com/bleach-final-episodes-delayed-release-needed/
+
+Studio Pierrot postponing Bleach: TYBW's final episodes might be the best thing for the anime.
+---------
+
+# The 8 Most Fun Pixar Movies of All Time, Ranked
+
+Movie, Pixar, The Incredibles, Monsters Inc., Animation
+
+Sat, 19 Sep 2026 16:52:11 GMT
+
+https://collider.com/most-fun-pixar-movies-all-time-ranked/
+
+The Incredibles, Finding Nemo, and Toy Story are among the best, most purely fun Pixar animated movies ever made.
+---------
+
+# ‘Widow’s Bay’ Creator Katie Dippold Has One Big Goal for Season 2
+
+Exclusives, Widow's Bay, The Paper, Lost, The Office
+
+Sat, 19 Sep 2026 16:47:21 GMT
+
+https://collider.com/widows-bay-season-2-ideas-apple-tv-katie-dippold-interview/
+
+Katie Dippold shares behind-the-scenes secrets from Widow's Bay alongside Lost's Damon Lindelof and The Office's Greg Daniels during group interview.
+---------
+
+# ‘Reacher’ Season 4 Star Officially Breaks Down His Character’s Shock Finale Decision
+
+Exclusives, Reacher, Christopher Rodriguez Marquette, Alan Ritchson, Prime Video
+
+Sat, 19 Sep 2026 16:46:06 GMT
+
+https://collider.com/reacher-season-4-finale-meaning-christopher-rodriguez-marquette-interview/
+
+Reacher Season 4's Christopher Rodriguez Marquette officially breaks down his character's unexpected final decision in Alan Ritchson's series.
+---------
+
+# Star Wars’ Big Screen Failure Is Officially the World's 2nd Biggest Movie
+
+Movie News, The Mandalorian and Grogu, Star Wars, Disney+, Jon Favreau
+
+Sat, 19 Sep 2026 16:45:11 GMT
+
+https://collider.com/star-wars-the-mandalorian-and-grogu-streaming-success-disney-plus-september-2026/
+
+After struggling at the box office, Disney's first Star Wars movie in almost a decade is officially finding redemption on streaming.
+---------
+
+# 10 Forgotten Movies That Are More Relevant Today
+
+Movie, Brazil, Sorcerer, Ace In The Hole, Strange Days
+
+Sat, 19 Sep 2026 16:36:11 GMT
+
+https://collider.com/forgotten-movies-more-relevant-today/
+
+Sci-fi gems like Silent Running and piercing thrillers like Sorcerer may be largely forgotten by most, but they're more relevant than ever in 2026.
+---------
+
+# 55 Years Later, Stanley Kubrick's Best Line Is Still a Top 3 All-Time Sci-Fi Quote
+
+Movie Features, A Clockwork Orange, Sci-Fi, Science Fiction, Stanley Kubrick
+
+Sat, 19 Sep 2026 16:18:11 GMT
+
+https://collider.com/a-clockwork-orange-stanley-kubrick-best-line-sci-fi/
+
+Stanley Kubrick made a phenomenal adaptation of A Clockwork Orange right after 2001: A Space Odyssey, and it stands as just as iconic and quotable.
+---------
+
+# Jon Hamm’s New Crime Thriller Officially Premieres in 24 Hours
+
+TV News, Jon Hamm, American Hostage, Giovanni Ribisi, Thriller
+
+Sat, 19 Sep 2026 16:15:11 GMT
+
+https://collider.com/jon-hamm-american-hostage-release-date-mgm-plus-september-2026/
+
+Jon Hamm’s new crime thriller is officially less than 24 hours away. Find out when and where you can watch it here.
+---------
+
+# Rebecca Hall Is Keeping Her Ideas for the Next ‘Monster’ Story Under Lock and Key
+
+Exclusives, Monster: The Lizzie Borden Story, Rebecca Hall, Netflix, Crime
+
+Sat, 19 Sep 2026 16:06:11 GMT
+
+https://collider.com/monster-lizzie-borden-story-netflix-rebecca-hall/
+
+Rebecca Hall discusses her favorite pieces of unhinged dialogue and filming that projectile vomit scene in Monster: The Lizzie Borden Story.
+---------
+
+# 'MobLand's Tom Hardy and Joanne Froggatt React to Their Surprising Season 2 Premiere Twist
+
+TV, MobLand, Tom Hardy, Joanne Froggatt, Paramount Plus
+
+Sat, 19 Sep 2026 16:01:11 GMT
+
+https://collider.com/mobland-season-2-premiere-tom-hardy-joanne-froggatt/
+
+Tom Hardy and Joanne Froggatt discuss the intense family dynamics in MobLand Season 2's premiere episode.
+---------
+
+# ‘SNL UK’ Cast Teases Weekend Update Is Officially Getting More Bonkers Than Ever
+
+Interviews, Saturday Night Live UK, SNL, Saturday Night Live, Lorne Michaels
+
+Sat, 19 Sep 2026 16:01:11 GMT
+
+https://collider.com/snl-uk-saturday-night-live-paddy-young-emma-sidi-ayoade-bamgboye-interview/
+
+SNL UK stars Emma Sidi, Ayoade Bamgboye and Paddy Young reveal live-show chaos, character secrets and dream hosts.
+---------
+
+# 'The Batman Part II' Director Matt Reeves Shares New Image to Celebrate Batman Day
+
+Movie News, The Batman Part II, Superhero, Matt Reeves
+
+Sat, 19 Sep 2026 16:34:13 GMT
+
+https://movieweb.com/matt-reeeves-the-batman-2-new-look/
+
+To celebrate Batman Day, Matt Reeves shared a new photo from the set that teases a mysterious new location for 'The Batman' sequel.
+---------
+
+# 11 Years Later, Jason Statham's Highest Rated Movie Still Hasn't Gotten A Sequel
+
+Features
+
+Sat, 19 Sep 2026 16:30:14 GMT
+
+https://movieweb.com/jason-statham-highest-rated-movie-need-sequel/
+
+Over a decade after its release, Jason Statham's highest-rated movie still hasn't gotten a sequel, despite strong reviews and lasting fan demand.
+---------
+
+# New Transformers Movie Officially Confirms the End of an Era For 42-Year-Old Sci-Fi Franchise
+
+Features, Transformers, Peter Cullen
+
+Sat, 19 Sep 2026 16:30:14 GMT
+
+https://movieweb.com/transformers-optimus-prime-awakening-peter-cullen/
+
+'Optimus Prime: Awakening' is an emotional goodbye to Peter Cullen's time as Optimus Prime following the actor's death.
+---------
+
+# 10 Binge-Worthy TV Series Perfect For Fans of 'Ted Lasso'
+
+TV Lists, Comedy, Apple TV, Ted Lasso, Bill Lawrence, Brett Goldstein
+
+Sat, 19 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/binge-worthy-tv-shows-like-ted-lasso/
+
+There's nothing quite like 'Ted Lasso,' but these feel-good TV shows are perfect recommendations for lovers of Apple TV's hilarious sports comedy.
+---------
+
+# Netflix Is Officially Removing Iconic 128-Episode Series From Its Streaming Library Next Month
+
+TV News, Dawson's Creek, Coming/Leaving Streaming, Drama, Netflix
+
+Sat, 19 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/dawsons-creek-leaving-netflix-october-2026/
+
+Viewers only have a short time left to binge one of the most influential TV shows ever made before it departs Netflix.
+---------
+
+# Forget ‘Reacher,’ Prime Video’s Grittier Action Thriller Takes Over in 1 Month
+
+Features, The Terminal List, Action, Prime Video, Reacher
+
+Sat, 19 Sep 2026 15:30:20 GMT
+
+https://movieweb.com/terminal-list-season-2-return-reacher-comparison/
+
+After Reacher Season 4 and Neagley, Prime Video is set to continue its action thriller dominance with a grittier new release in October.
+---------
+
+# Every Movie Scarlett Johansson & Chris Evans Starred in Together, Ranked
+
+Movie Lists, Scarlett Johansson, Chris Evans
+
+Sat, 19 Sep 2026 15:00:15 GMT
+
+https://movieweb.com/scarlett-johansson-chris-evans-movies-together/
+
+Scarlett Johansson and Chris Evans have shared the screen in several movies together. Here's every one of them, ranked from worst to best.
+---------
+
+# David Tennant’s Masterpiece Netflix Thriller Is the Perfect Harlan Coben Replacement
+
+Features, Inside Man, Netflix, David Tennant, Harlan Coben, Thriller
+
+Sat, 19 Sep 2026 15:00:14 GMT
+
+https://movieweb.com/david-tennant-inside-man-harlan-coben-comparison/
+
+David Tennant's impressive Netflix thriller TV series is a perfect recommendation for those who enjoy Harlan Coben's mystery books and shows.
+---------
+
+# Jon Bernthal's Action Thriller Cult Classic Makes Official Comeback on Streaming
+
+Movie News, The Accountant, Apple TV, Hot on Streaming, Jon Bernthal, Action
+
+Sat, 19 Sep 2026 14:00:14 GMT
+
+https://movieweb.com/the-accountant-jon-bernthal-action-stream-apple-sept-2026/
+
+This film deserved so much better in 2016.
+---------
+
 # Punisher's New Costume and Logo Officially Unveiled By Marvel
 
 Comics, The Punisher
