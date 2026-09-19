@@ -1,3 +1,399 @@
+# 7 Crime Shows You Need To Watch, According To Michael Connelly
+
+Classic TV, Michael Connelly
+
+Sat, 19 Sep 2026 21:30:16 GMT
+
+https://screenrant.com/michael-connelly-crime-tv-show-recommendations/
+
+If you are looking for a great crime TV show to settle in and binge, there could be no one better to turn to than Bosch author Michael Connelly.
+---------
+
+# 15 Best Japanese Horror Movies Of All Time, Ranked
+
+Movies, Horror, Ju-On: The Grudge, Ringu, Onibaba, Kwaidan, Godzilla, Cure, Audition, Tetsuo: The Iron Man
+
+Sat, 19 Sep 2026 21:30:16 GMT
+
+https://screenrant.com/best-japanese-horror-movies-all-time-ranked/
+
+From The Grudge to Godzilla, these Japanese horror classics explored terror through ghosts, monsters, psychological terror, and unforgettable imagery.
+---------
+
+# The 10 Best Tim Burton Movies, Ranked
+
+Movies, Tim Burton, Corpse Bride, Ed Wood, Batman, Batman Returns, Beetlejuice, Big Fish, Frankenweenie, Edward Scissorhands, Pee-Wee's Big Adventure, Sleepy Hollow
+
+Sat, 19 Sep 2026 21:15:15 GMT
+
+https://screenrant.com/the-best-tim-burton-movies-ranked/
+
+Tim Burton's unique blend of gothic fantasy, dark humor, and outsider heroes produced some of cinema's most memorable and distinctive films.
+---------
+
+# Superman's Forgotten Superpower Officially Returns To DC Canon
+
+DC Comics, Superman
+
+Sat, 19 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/superman-lie-detector-superpower/
+
+One of Superman's most underused powers returns at the perfect moment, allowing the Man of Steel to save precious time during an apocalyptic scenario.
+---------
+
+# Christopher Nolan's 10/10 Masterpiece Still Has The Greatest Opening Line In Sci-Fi Movie History
+
+Classic Movies, The Prestige, Sci-Fi
+
+Sat, 19 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/christopher-nolan-the-prestige-best-sci-fi-movie-opening-line-quote/
+
+Christopher Nolan is responsible for the greatest opening line in sci-fi movie history, and it came in his often-overlooked masterpiece.
+---------
+
+# We're Officially 6 Months Away From A $1.2 Billion Adventure Movie Franchise's Return
+
+Movies, Sonic the Hedgehog, Sonic the Hedgehog 4
+
+Sat, 19 Sep 2026 20:45:15 GMT
+
+https://screenrant.com/sonic-the-hedgehog-4-return-2027-milestone/
+
+One of Hollywood's powerhouse franchises officially returns in six months year, with the $1.2 billon hit bringing in 2 legendary characters.
+---------
+
+# 8 Best X-Men Comic Covers That Are Considered Near-Perfect
+
+Marvel Comics, X-Men, Marvel
+
+Sat, 19 Sep 2026 20:45:00 GMT
+
+https://screenrant.com/xmen-comic-covers-perfect/
+
+The X-Men span six decades and have been treated to some of the best covers in all of Marvel Comics, commemorating how great their stories are.
+---------
+
+# Carrie First Reaction: Mike Flanagan Gives New Life To Stephen King’s Classic Horror Story [TIFF]
+
+Streaming TV, Toronto International Film Festival, Carrie
+
+Sat, 19 Sep 2026 20:37:42 GMT
+
+https://screenrant.com/carrie-tiff-premiere-first-reaction/
+
+Mike Flanagan’s Carrie brings Stephen King’s horror story into the modern era, tackling social media and school violence with surprising depth.
+---------
+
+# Netflix's 4-Part Psychological Crime Series Can Easily Last Another 6 Seasons
+
+Streaming TV, Masked Recs
+
+Sat, 19 Sep 2026 20:34:32 GMT
+
+https://screenrant.com/monster-netflix-tv-show-six-more-seasons/
+
+Netflix's psychological crime series Monster, which just premiered its fourth season centered on Lizzie Borden, is practically made to be 10 seasons.
+---------
+
+# How To Unlock Every Mutation In Grounded
+
+Game Guides, Grounded, PC
+
+Sat, 19 Sep 2026 20:30:17 GMT
+
+https://screenrant.com/unlock-mutation-grounded/
+
+Newly out of Early Access, Grounded provides players with more than thirty different mutations to unlock through exploration and combat.
+---------
+
+# Meryl Streep is Netflix's Narnia Reboot's Aslan Replacement
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, Netflix
+
+Sat, 19 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/netflix-narnia-reboot-meryl-streep-aslan-replacement/
+
+We have finally been given a first look at Greta Gerwig's upcoming Narnia reboot, The Magician's Nephew, and a glimpse at a reinvented fantasy icon.
+---------
+
+# 10 Near-Perfect '90s Anime That Are Forgotten Masterpieces
+
+Anime
+
+Sat, 19 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/near-perfect-90s-anime-masterpieces-forgotten/
+
+Countless forgotten ‘90s anime took risks with unconventional pacing, morally complicated characters and endings that refused to offer easy answers.
+---------
+
+# Sam Raimi's Award-Winning Creature Feature Officially Sets Sequel Release Date
+
+Movies, Crawl
+
+Sat, 19 Sep 2026 21:09:49 GMT
+
+https://www.cbr.com/crawl-2-release-date/
+
+The horror sequel finally emerges from development hell.
+---------
+
+# Yu Yu Hakusho Reunites Kurama With His Original Demon Form in Exclusive New Anime Artwork
+
+Anime, Yu Yu Hakusho
+
+Sat, 19 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/yu-yu-hakusho-yoko-kurama-new-anime-art/
+
+Yu Yu Hakusho's Kurama returns to his demonic roots to reveal the 'secret' behind his elegantly polished appearance.
+---------
+
+# Showtime's Hit 7-Season Drama Is Leaving Netflix Amid Uncertain Future
+
+TV, Nurse Jackie, Netflix, Showtime
+
+Sat, 19 Sep 2026 20:46:06 GMT
+
+https://www.cbr.com/showtime-nurse-jackie-leaving-netflix/
+
+This Emmy-winning dark comedy-drama leaves Netflix in October.
+---------
+
+# David Hasselhoff's 11% Rotten Creature Feature Is 1 of Netflix's Biggest Films 18 Years Later
+
+Movies, Anaconda 3: Offspring
+
+Sat, 19 Sep 2026 20:35:12 GMT
+
+https://www.cbr.com/anaconda-3-horror-streaming-success-netflix-september-2026/
+
+The forgotten horror sequel resurfaces as one of the biggest movies on Netflix.
+---------
+
+# The 8-Episode Tom Hardy Crime Show That's Better Than MobLand
+
+TV, tom hardy, Taboo, Crime
+
+Sat, 19 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/taboo-tom-hardy-underrated-crime-drama/
+
+Tom Hardy's passion project is a must-watch for fans of his latest crime drama series, Mobland.
+---------
+
+# Amanda Seyfried’s New Netflix Anti-Cinderella Movie Unveils First Trailer
+
+Movies, Steps
+
+Sat, 19 Sep 2026 20:25:05 GMT
+
+https://www.cbr.com/steps-trailer-netflix-cinderella-movie-amanda-seyfried/
+
+The hotly-anticipated anti-Cinderella film starring Ali Wong and Amanda Seyfried finally has its first trailer, and Steps looks absolutely incredible.
+---------
+
+# 10 Greatest Anime Series of the 2020s So Far, Ranked
+
+Anime, Solo Leveling, Jujutsu Kaisen, The Apothecary Diaries
+
+Sat, 19 Sep 2026 20:15:12 GMT
+
+https://www.cbr.com/best-anime-series-2020s-ranked/
+
+Some of the best anime series of all time have been released in the past six years, including hits like Jujutsu Kaisen and The Apothecary Diaries.
+---------
+
+# Say Goodbye to Major Streaming Plan as Disney+ Quietly Confirms Phaseout
+
+TV, Disney+
+
+Sat, 19 Sep 2026 20:07:25 GMT
+
+https://www.cbr.com/disney-plus-subscriber-agreement-ads-update/
+
+An update to Disney+'s Subscriber Agreement reveals advertisements may be shown on all content, including on ad-free plans.
+---------
+
+# Jason Statham's Intense Action Thriller From 15 Years Ago Was So Good, No One Realized It Was a Remake
+
+Movie Features, Jason Statham, The Mechanic, Charles Bronson, Prime Video
+
+Sat, 19 Sep 2026 21:30:12 GMT
+
+https://collider.com/jason-statham-the-mechanic-remake-action-thriller-15-years-later/
+
+15 years ago, Jason Statham starred in The Mechanic, which was a remake of Charles Bronson's action thriller.
+---------
+
+# Netflix Is Removing Taylor Kitsch’s Forgotten ‘Sicario’ Replacement
+
+Movie News, Savages, Taylor Kitsch, Netflix, Oliver Stone
+
+Sat, 19 Sep 2026 21:30:12 GMT
+
+https://collider.com/taylor-kitsch-savages-leaving-netflix-october-2026/
+
+Taylor Kitch's divisive crime-thriller directed by Oliver Stone is about to be removed from Netflix. Find out more.
+---------
+
+# Quentin Tarantino's 10/10 War Thriller Is Officially Taking Over Streaming
+
+Movie News, Inglourious Basterds, World War II, Quentin Tarantino, Brad Pitt
+
+Sat, 19 Sep 2026 21:15:11 GMT
+
+https://collider.com/quentin-tarantino-inglourious-basterds-streaming-hulu-september-2026/
+
+Quentin Tarantino’s $321 million WW2 epic Inglourious Basterds, starring Brad Pitt among many others, has officially landed on Hulu.
+---------
+
+# 10 Detective Books That Are Page-Turners From Start to Finish
+
+Books and Comics, Books, Mystery, Thriller, The Maltese Falcon
+
+Sat, 19 Sep 2026 21:14:11 GMT
+
+https://collider.com/detective-books-page-turners-start-to-finish/
+
+The Hound of the Baskervilles by Sir Arthur Conan Doyle and The Maltese Falcon by Dashiell Hammett are among the best detective books ever written.
+---------
+
+# NBC's 6-Part Action Series Is Taking Over Streaming Before the Reboot Officially Premieres
+
+TV Features, The Rockford Files, NBC, Crime, David Boreanaz
+
+Sat, 19 Sep 2026 21:10:11 GMT
+
+https://collider.com/rockford-files-original-detective-series-james-garner/
+
+Before The Rockford Files reboot, explore the '70s original detective series that made waves on NBC starring James Garner.
+---------
+
+# Gerard Butler’s Sleeper Action Hit Officially Becomes a Streaming Smash
+
+Movie News, Plane, Gerard Butler, Mike Colter, Prime Video
+
+Sat, 19 Sep 2026 21:00:11 GMT
+
+https://collider.com/gerard-butler-plane-streaming-success-prime-video-september-2026/
+
+Gerard Butler's sneakiest box office smash hit is quietly being rediscovered on streaming only a few years later.
+---------
+
+# The 6 Best Video Games Released Since 2010, Ranked
+
+Gaming, Video Game, Legend of Zelda: Breath of the Wild, Mass Effect, Portal
+
+Sat, 19 Sep 2026 20:38:11 GMT
+
+https://collider.com/best-video-games-since-2010-ranked/
+
+Mass Effect 2, Baldur's Gate 3, and The Legend of Zelda: Breath of the Wild are among the best video games released since the year 2010.
+---------
+
+# Vin Diesel’s ‘The Witcher’-Style Action Fantasy Is Officially Leaving Netflix
+
+Movie News, Vin Diesel, The Last Witch Hunter, Fantasy, Netflix
+
+Sat, 19 Sep 2026 20:30:11 GMT
+
+https://collider.com/vin-diesel-the-last-witch-hunter-leaving-netflix-october-2026/
+
+Vin Diesel's failed fantasy franchise-starter, also featuring Elijah Wood and Michael Caine, is about to leave Netflix.
+---------
+
+# Sarah Paulson Shines as a Bright Light in the Disappointing 'Closing Night' | TIFF Review
+
+Movie Reviews, Closing Night, Cody Fern, Sarah Paulson, TIFF
+
+Sat, 19 Sep 2026 20:29:26 GMT
+
+https://collider.com/sarah-paulson-closing-night-movie-cody-fern/
+
+Sarah Paulson excels alongside Naomi Watts and Dianne Wiest in family drama Closing Night, but the film never fully comes together.
+---------
+
+# The 6 Most Fun Movies Released Since 1990, Ranked
+
+Movie, Toy Story, Mad Max: Fury Road, Pirates of the Caribbean: The Curse of the Black Pearl, Jurassic Park
+
+Sat, 19 Sep 2026 20:04:11 GMT
+
+https://collider.com/most-fun-movies-since-1990-ranked/
+
+From The Matrix to Mad Max: Fury Road, these films prove great fun never ages, delivering pure movie magic forever.
+---------
+
+# 'Lioness' Season 4: Everything We Know
+
+Features, Lioness, Thriller, Action
+
+Sat, 19 Sep 2026 21:30:15 GMT
+
+https://movieweb.com/lioness-season-4-everything-we-know/
+
+From confirmation and casting to plot points and potential release timelines, learn all there is to know about Paramount+'s Lioness Season 4.
+---------
+
+# Netflix’s Best Psychological Thriller Since 'Mindhunter' Keeps Getting Better
+
+Features, Thriller, Netflix, The Beast in Me, Mindhunter
+
+Sat, 19 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/beast-in-me-netflix-thriller-matthew-rhys-performance/
+
+Netflix's 'Mindhunter' remains an impressive thriller series,
+---------
+
+# 6 Greatest Prime Video Sci-Fi Thrillers No One Talks About
+
+TV Lists, Sci-Fi, Thriller, Prime Video
+
+Sat, 19 Sep 2026 20:30:14 GMT
+
+https://movieweb.com/prime-video-forgotten-sci-fi-thrillers/
+
+Prime Video has more sci-fi thrillers than 'Fallout' and 'The Expanse,' and these forgotten series deserve a second look from subscribers.
+---------
+
+# Netflix Suddenly Cancels Hit 5-Part Series After 6 Years
+
+TV News, Sweet Magnolias, Romance, Netflix
+
+Sat, 19 Sep 2026 20:00:14 GMT
+
+https://movieweb.com/netflix-cancels-sweet-magnolias/
+
+The town of Serenity prepares a heartfelt goodbye as five seasons close, leaving ten final episodes of cozy romance and kinship.
+---------
+
+# Liam Neeson's 99-Minute 'Stranger Things'-Esque Sci-Fi Thriller Continues to Soar on Streaming
+
+Movie News, Liam Neeson, Cold Storage, Hot on Streaming, Sci-Fi, Thriller
+
+Sat, 19 Sep 2026 20:00:14 GMT
+
+https://movieweb.com/liam-neeson-cold-storage-streaming-hit-september-2026/
+
+Once again, Liam Neeson saves the world and home viewers are going crazy for him.
+---------
+
+# Every Sergio Leone Western Movie, Ranked
+
+Movie Lists, Western, Sergio Leone
+
+Sat, 19 Sep 2026 20:00:14 GMT
+
+https://movieweb.com/sergio-leone-western-movies-ranked/
+
+Sergio Leone's Western movies are all popular and critically acclaimed, but some are better than others.
+---------
+
 # DC Confirms Villain For Wonder Woman's Next Appearance, And Her Design Is A Nightmare
 
 DC Comics, Wonder Woman
