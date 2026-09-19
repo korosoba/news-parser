@@ -1,3 +1,344 @@
+# Hannah Waddingham’s New Prime Video Action Series Cancelled After One Season
+
+TV, Ride or Die
+
+Sat, 19 Sep 2026 23:46:37 GMT
+
+https://screenrant.com/ride-or-die-hannah-waddingham-prime-video-cancelled/
+
+Hannah Waddington's Prime Video show has been cancelled after just one season, however, it may not be the end for the action comedy series.
+---------
+
+# All 30 Episodes Of This Netflix Crime Series Are Great From Start To Finish
+
+Streaming TV, Masked Recs
+
+Sat, 19 Sep 2026 23:45:15 GMT
+
+https://screenrant.com/dead-to-me-all-episodes-great-netflix/
+
+With only thirty episodes over the course of its run, Dead to Me is a top Netflix crime comedy with strong characters and consistent storytelling.
+---------
+
+# 10 Near-Perfect '90s Kids Movies That Remain Essential Viewing Today
+
+Movies, The Lion King, Jumanji, Toy Story, The Iron Giant, The Mighty Ducks, Home Alone, Free Willy, Casper, Matilda, The Addams Family
+
+Sat, 19 Sep 2026 23:15:15 GMT
+
+https://screenrant.com/near-perfect-1990s-kids-movies-essential-viewing/
+
+Many incredible kids' films were released during the 90s, and these titles have stood the test of time and remain relevant more than 20 years later.
+---------
+
+# Reacher Hints Another Lee Child Book Has Happened Offscreen
+
+Streaming TV, Reacher
+
+Sat, 19 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/reacher-st-louis-tripwire-off-screen/
+
+Reacher is adapting the Lee Child books out of order, and a key scene in the Neagley spinoff hints that one fan favorite book has already happened.
+---------
+
+# DC's Very First Supervillain Isn't Just One Of Their Creepiest, He's One Of Their Best
+
+Comics, Superman, DC Comics
+
+Sat, 19 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/ultra-humanite-dc-first-supervillain-best/
+
+No matter what body this baddie is in, they are creepy and cool
+---------
+
+# 5 Best Characters From Final Fantasy 6
+
+Gaming, Final Fantasy, Triple-A Games, RPG, PC
+
+Sat, 19 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/final-fantasy-6-best-characters/
+
+Final Fantasy 6 is considered by many the very best game in the series, and a lot of the love it gets is due to its incredible cast of characters.
+---------
+
+# 7 DC Villains Gotham Got Very, Very Wrong
+
+Classic TV, Gotham
+
+Sat, 19 Sep 2026 22:47:17 GMT
+
+https://screenrant.com/gotham-dc-villains-bad/
+
+Gotham had some highs and lows as a Batman prequel series, but there were too many changes made when it came to iconic villains who ended up nerfed.
+---------
+
+# Zach Cregger's New Sci-Fi Movie Is The Next 2001: A Space Odyssey
+
+Movies, Zach Cregger, The Flood
+
+Sat, 19 Sep 2026 22:35:24 GMT
+
+https://screenrant.com/zach-cregger-the-flood-2001-a-space-odyssey-comparison/
+
+Zach Cregger's upcoming science fiction film will be reminiscent of Stanley Kubrick’s iconic 1968 movie 2001: A Space Odyssey.
+---------
+
+# 10 Greatest American Novels Of The Last 10 Years
+
+Books
+
+Sat, 19 Sep 2026 22:33:16 GMT
+
+https://screenrant.com/greatest-american-novels-2016-to-2026/
+
+Discover the most impactful American novels from the past 10 years, exploring diverse themes and voices.
+---------
+
+# Every iPhone Release In Chronological Order
+
+Tech, iPhone, Apple
+
+Sat, 19 Sep 2026 22:30:21 GMT
+
+https://screenrant.com/iphone-apple-release-chronological-order-smartphone/
+
+This list counts down every Apple iPhone release in order, starting in 2007, more than a decade ago, to the latest iPhone 15 series smartphones.
+---------
+
+# Greatest Short Anime of the Last 10 Years, Ranked
+
+Anime, Pluto, Cyberpunk: Edgerunners
+
+Sat, 19 Sep 2026 23:45:11 GMT
+
+https://www.cbr.com/best-short-anime-last-decade-ranked/
+
+These short anime series prove that great stories do not need hundreds of episodes to make an impact.
+---------
+
+# 5 Most Influential Anime of the 2010s, Ranked
+
+Anime, Attack on Titan, Demon Slayer: Kimetsu no Yaiba
+
+Sat, 19 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/most-influential-anime-2010s-ranked/
+
+Anime like Attack on Titan and Your Name defined the medium in the 2010s and left a lasting impact.
+---------
+
+# Narnia: The Magician's Nephew Is Avoiding a Rings of Power Mistake
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, The Lord of the Rings: The Rings of Power
+
+Sat, 19 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/narnia-magicians-nephew-fix-rings-of-power-mistake/
+
+The Lord of the Rings: The Rings of Power was missing a major part of J. R. R. Tolkien's story, but Netflix's new movie will make amends for that.
+---------
+
+# Gundam Transforms Its Most Iconic Mecha With 370-Year-Old Japanese Art
+
+Anime, Mobile Suit Gundam, merchandise
+
+Sat, 19 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/gundam-strict-g-japan-plate-set/
+
+STRICT-G's latest Mobile Suit Gundam merchandise beautifully combines the iconic Mecha anime franchise with the art of Japanese Kutani plates.
+---------
+
+# 5 Open-World Games Where Players Create Their Own Goals
+
+Games, open world, No Man's Sky, Video Games
+
+Sat, 19 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/open-world-games-players-create-the-goals/
+
+Some of gaming's best open-world titles stray from the norm and leave it up to the player to create their own goals.
+---------
+
+# John Wick Meets Speed In Prime Video's Gritty New 93-Minute Action Thriller
+
+Movies, The Passenger
+
+Sat, 19 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/the-passenger-is-john-wick-meets-speed/
+
+'The Passenger' turns a common man into a survivor in the face of adversity in Prime Video's new thriller.
+---------
+
+# 10 Top Green Lantern Storylines of the 2020s, Ranked
+
+Comics, DC Comics, Green Lantern
+
+Sat, 19 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/best-green-lantern-storylines-2020s-ranked/
+
+The 2020s have been a surprisingly good decade for the Four Corpsmen.
+---------
+
+# Netflix’s New 6-Part Creature Feature Is Reviving Spielberg & Carpenter Horror for the 2020s
+
+TV, Netflix, Horror, Below
+
+Sat, 19 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/netflix-below-reviving-steven-spielberg-john-carpenter-horror/
+
+If you're looking for a thrilling new creature feature to watch in 2026, look no further than a new sci-fi horror set to land on Netflix in October.
+---------
+
+# Robert De Niro’s New Crime Thriller Officially Becomes a Streaming Smash Hit
+
+Movie News, Robert De Niro, The Whisper Man, Netflix, Adam Scott
+
+Sat, 19 Sep 2026 23:45:11 GMT
+
+https://collider.com/robert-de-niro-the-whisper-man-streaming-hit-netflix-september-2026/
+
+Robert De Niro’s new serial killer thriller The Whisper Man has become a huge Netflix streaming hit.
+---------
+
+# Forget 'NCIS', ABC's 2-Part Detective Series Is One of the Biggest Shows in the World
+
+TV Features, Kaitlin Olson, High Potential, NCIS, Procedural
+
+Sat, 19 Sep 2026 23:36:11 GMT
+
+https://collider.com/high-potential-abc-detective-series-streaming-september-2026/
+
+High Potential is a top streaming hit on Hulu and Disney+, and it is redefining the detective genre.
+---------
+
+# Netflix Officially Says Goodbye to Clint Eastwood’s Brutal Western Classic
+
+Movie News, Clint Eastwood, High Plains Drifter, John Wayne, Netflix
+
+Sat, 19 Sep 2026 23:30:11 GMT
+
+https://collider.com/high-plains-drifter-clint-eastwood-western-leaving-netflix-october-2026/
+
+Clint Eastwood's Western masterpiece, the movie that altered his identity in Hollywood, is about to be removed from Netflix.
+---------
+
+# HBO’s 10-Part War Masterpiece Is Officially Taking Over Streaming Again
+
+TV News, Band of Brothers, HBO Max, Tom Hanks, Steven Spielberg
+
+Sat, 19 Sep 2026 23:15:12 GMT
+
+https://collider.com/wwii-miniseries-band-of-brothers-streaming-success-hbo-max-september-2026/
+
+The greatest World War II miniseries in history is officially finding new life 25 years after it was first released.
+---------
+
+# Netflix Officially Says Goodbye to Paul Rudd’s 10/10 Teen Classic
+
+Movie News, Clueless, Drama, Jane Austen, Netflix
+
+Sat, 19 Sep 2026 23:00:11 GMT
+
+https://collider.com/paul-rudd-clueless-leaving-netflix-october-2026/
+
+An iconic ’90s teen comedy that was based on a Jane Austen novel is leaving Netflix, giving fans one last chance to stream the Paul Rudd classic.
+---------
+
+# This Bonkers 100-minute Comedy Streaming on Hulu Got the Director Arrested
+
+Movie Features, Hulu, Back to the Future, Good Time, Nirvana the Band the Show
+
+Sat, 19 Sep 2026 22:51:12 GMT
+
+https://collider.com/bonkers-100-minute-comedy-nirvana-the-band-the-show-the-movie-streaming-on-hulu-got-the-director-arrested/
+
+Nirvana the Band the Show the Movie, directed by Matthew Johnson, uses Guerrilla film-making to create tension and comedy
+---------
+
+# Brad Pitt’s $110M Historical Epic Is Officially Taking Over a New Streamer
+
+Movie News, Babylon, Damien Chazelle, Margot Robbie, Brad Pitt
+
+Sat, 19 Sep 2026 22:45:11 GMT
+
+https://collider.com/brad-pitt-historical-epic-babylon-streaming-hulu-paramount-plus-september-2026/
+
+Margot Robbie and Brad Pitt’s $110 million box office bomb Babylon has officially returned to streaming. Here's everything you should know.
+---------
+
+# Denzel Washington's "Supremely Annoying" Crime Thriller Officially Escapes Netflix
+
+Movie News, Denzel Washington, Spike Lee, Clive Owen, Inside Man
+
+Sat, 19 Sep 2026 22:30:11 GMT
+
+https://collider.com/spike-lee-denzel-washington-inside-man-leaving-netflix-october-2026/
+
+One of the most acclaimed heist movies of the 21st century, starring Denzel Washington in the lead role, is about to be removed from Netflix.
+---------
+
+# Netflix Officially Says Goodbye to a 'Harry Potter' Icon's Forgotten Spy Thriller
+
+Movie News, Ralph Fiennes, Official Secrets, Netflix, Keira Knightley
+
+Sat, 19 Sep 2026 22:15:11 GMT
+
+https://collider.com/ralph-fiennes-official-secrets-leaving-netflix-october-2026/
+
+A Harry Potter icon stars in the spy thriller Official Secrets, which is officially leaving Netflix soon. Kiera Knightley also stars.
+---------
+
+# 10 Best Superhero Shows Since 2010, Ranked
+
+TV, Superhero, My Hero Academia, Invincible, Daredevil
+
+Sat, 19 Sep 2026 22:08:11 GMT
+
+https://collider.com/best-superhero-shows-since-2010-ranked/
+
+Netflix's Daredevil, Prime Video's Invincible, and The CW's Superman & Lois are all among the greatest superhero shows released since the year 2010.
+---------
+
+# The Best Joke In The Resident Evil Movie Is Invisible If You Have Never Played The Games
+
+Features, Resident Evil, Zach Cregger
+
+Sat, 19 Sep 2026 22:30:17 GMT
+
+https://movieweb.com/resident-evil-movie-best-joke-typewriter/
+
+The best joke in Zach Cregger's 'Resident Evil' is a cleverly placed Easter egg that only people who have played the games will catch.
+---------
+
+# ‘Resident Evil’ Future Franchise Connections Addressed by Director
+
+Movie News, Resident Evil, Horror, Zach Cregger
+
+Sat, 19 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/resident-evil-zach-cregger-game-connections/
+
+Zach Cregger has addressed ideas for future potential franchise growth.
+---------
+
+# Forget Liam Neeson, Russell Crowe's New 111-Minute Action Film Is Officially a Major Streaming Hit
+
+Movie News, Hot on Streaming, Russell Crowe, The Get Out
+
+Sat, 19 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/russell-crowe-the-get-out-paramount-hit-sept-2026/
+
+The Get Out barely made a dent at the box office, yet the Russell Crowe thriller is already outperforming bigger titles on Paramount+ in the U.S.
+---------
+
 # 7 Crime Shows You Need To Watch, According To Michael Connelly
 
 Classic TV, Michael Connelly
