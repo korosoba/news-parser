@@ -1,3 +1,443 @@
+# DC Confirms Villain For Wonder Woman's Next Appearance, And Her Design Is A Nightmare
+
+DC Comics, Wonder Woman
+
+Sat, 19 Sep 2026 19:00:15 GMT
+
+https://screenrant.com/absolute-wonder-woman-cheetah-design-nightmare/
+
+DC confirms Wonder Woman will fight her archnemesis, who will debut a terrifying transformation that puts most of Batman and Superman's foes to shame.
+---------
+
+# Grey's Anatomy Completely Replaces Derek & Meredith In Season 23
+
+Network TV, Grey's Anatomy
+
+Sat, 19 Sep 2026 19:00:15 GMT
+
+https://screenrant.com/greys-anatomy-season-23-meredith-derek-replacement-lucas-simone/
+
+Grey's Anatomy season 23's trailer hinted at several potential storylines, but one in particular threatens to definitively replace Meredith and Derek.
+---------
+
+# AHS 13 Could Finally Make Its Shared Universe Matter
+
+TV, Originals, American Horror Story
+
+Sat, 19 Sep 2026 19:00:15 GMT
+
+https://screenrant.com/video/ahs-13-is-much-bigger-than-another-coven-reunion/
+
+After years of mostly self-contained stories, American Horror Story Season 13 is turning the franchise’s interconnected history into the centerpiece of an unusually ambitious new chapter.
+---------
+
+# 5 Best Games For Fans Of Building In Zelda: Tears Of The Kingdom
+
+Gaming, The Legend of Zelda: Tears of the Kingdom, Satisfactory
+
+Sat, 19 Sep 2026 19:00:15 GMT
+
+https://screenrant.com/best-zelda-tears-of-kingdom-building-games/
+
+Explore several engaging games for fans of building in Zelda: TOTK. Unleash your creativity with fun mechanics!
+---------
+
+# 35 Years Later, ABC's 62-Episode Medical Drama Is Still The Best Vietnam War Show Ever Made
+
+Classic TV, Masked Recs
+
+Sat, 19 Sep 2026 18:31:15 GMT
+
+https://screenrant.com/china-beach-best-vietnam-war-tv-show-all-time/
+
+A rare union of medical drama and wartime realism, ABC's gritty and unflinching series follows medics and volunteers as the war reshapes their lives.
+---------
+
+# Does Wedge Die In FF7 Remake?
+
+Gaming, Final Fantasy 7 Remake, Final Fantasy
+
+Sat, 19 Sep 2026 18:30:15 GMT
+
+https://screenrant.com/does-wedge-die-in-ff7-remake/
+
+Wedge's fate in Final Fantasy 7 Remake is heavily implied, and a concrete answer to whether he lives or dies ultimately arrives in FF7 Rebirth.
+---------
+
+# Adria Arjona & Onslaught Team Break Down The Movie’s Bloodiest Scenes
+
+Videos, Onslaught, Adria Arjona
+
+Sat, 19 Sep 2026 18:29:14 GMT
+
+https://screenrant.com/video/onslaught-adria-arjona-dan-stevens-drew-starkey-adam-wingard-interview/
+
+Onslaught filmmaker Adam Wingard and stars Adria Arjona, Dan Stevens, and Drew Starkey reveal the inspirations for their new thriller and discuss the bloodiest days on set.
+---------
+
+# Golden Axe Season 2's Game-Adapting Plans Teased By Paramount+ Showrunners
+
+TV, Golden Axe, Sega, Paramount Plus
+
+Sat, 19 Sep 2026 18:19:26 GMT
+
+https://screenrant.com/golden-axe-season-2-plans-game-adaptations/
+
+Exclusive: Mike McMahan and Joe Chandler tease their Golden Axe season 2 plans and how they want to keep adapting the iconic Sega games.
+---------
+
+# Resident Evil Interview with Zach Cregger & Austin Abrams
+
+Interviews, Resident Evil, Zach Cregger, Austin Abrams
+
+Sat, 19 Sep 2026 18:19:09 GMT
+
+https://screenrant.com/video/resident-evil-zach-cregger-austin-abrams-horror-comedy-interview/
+
+Resident Evil director Zach Cregger explains how he fine-tuned the balance of comedy and horror in his new movie, and why he was committed to bringing the infamous IP to the big screen through a unique storyline. Star Austin Abrams, meanwhile, shares which scenes he found the most challenging to shoot.
+---------
+
+# The Big Bang Theory's Newest Spinoff Officially Avoids Young Sheldon's Big Problem
+
+Streaming TV, The Big Bang Theory, Young Sheldon
+
+Sat, 19 Sep 2026 18:15:15 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-avoid-young-sheldon-problem-big-bang-theory/
+
+Stuart Fails to Save the Universe expanded the world of The Big Bang Theory yet again, and the HBO Max comedy succeeds where Young Sheldon failed.
+---------
+
+# Marvel’s R-Rated Superhero Smash Hit Is Surging on Streaming
+
+Movies, Marvel, Marvel Comics, MCU, Deadpool, Deadpool 2, Deadpool & Wolverine, Deadpool & Wolverine (2024)
+
+Sat, 19 Sep 2026 19:04:58 GMT
+
+https://www.cbr.com/marvel-r-rated-superhero-smash-hit-is-surging-on-streaming/
+
+The movie that was almost never made by Marvel has sliced its way back atop streaming.
+---------
+
+# 5 Best HBO Shows From the 2010s, Ranked
+
+TV, HBO Max, True Detective, Game Of Thrones, Innovation
+
+Sat, 19 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/best-hbo-shows-2010s-list/
+
+HBO is known for having some of the best television shows in the business, but something about the 2010s was particularly special.
+---------
+
+# Paramount+'s Passenger Gets Scarier With Every Watch
+
+Movies, Horror, Passenger
+
+Sat, 19 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/horror-movie-passenger-is-scarier-every-watch/
+
+This underrated horror gem got lost in the theatrical shuffle, but deserves to be rediscovered on streaming.
+---------
+
+# Japan Crowns Its Most-Recommended Anime in 2026 (& It’s Not One Piece)
+
+Anime, One Piece, Demon Slayer: Kimetsu no Yaiba, Naruto
+
+Sat, 19 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/japan-most-recommended-anime-survey/
+
+A new survey has revealed Japan's most-recommended anime, with One Piece securing only the third spot.
+---------
+
+# SNES Gets New $130 Portable Console That Plays Original Cartridges
+
+Games, Nintendo
+
+Sat, 19 Sep 2026 18:30:11 GMT
+
+https://www.cbr.com/snes-new-portable-console-plays-original-cartridges-2026/
+
+A new version of the SNES is being released, one that can not only play original cartridges, but is completely portable.
+---------
+
+# 7 Most Useless Dragon Ball Transformations, Ranked
+
+Anime, Dragon Ball, Akira Toriyama
+
+Sat, 19 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/most-useless-dragon-ball-transformations-ranked/
+
+Dragon Ball made a name for itself through its powerful and prolific transformations, but some of these forms have no real purpose at all.
+---------
+
+# Alan Ritchson Is Replaced as Prime Video’s No. 1 Hero as Reacher Is Officially Dethroned
+
+TV, Reacher, Neagley, Prime Video
+
+Sat, 19 Sep 2026 18:12:21 GMT
+
+https://www.cbr.com/alan-ritchson-reacher-replaced-as-prime-video-no-1-hero/
+
+After weeks of sitting on Prime Video's streaming throne, Reacher has been moved ... by a familiar face.
+---------
+
+# CBS’ Young Sheldon Follow-Up Scores a Big Streaming Win Weeks Before New Episodes
+
+TV, Georgie & Mandy's First Marriage, The Big Bang Theory, HBO Max
+
+Sat, 19 Sep 2026 18:04:51 GMT
+
+https://www.cbr.com/geogie-and-mandys-first-marriage-sitcom-hbo-max-success-september-2026/
+
+Georgie & Mandy's First Marriage is taking over the streaming charts on HBO Max yet again, and all just weeks ahead of its next season.
+---------
+
+# Star Trek’s 7-Season Sci-Fi Classic Is Officially No. 1 on Streaming 31 Years Later
+
+TV, Star Trek, Star Trek: Voyager
+
+Sat, 19 Sep 2026 18:04:43 GMT
+
+https://www.cbr.com/star-trek-voyager-sci-fi-streaming-success-september-2026/
+
+As the modern era of Star Trek comes to a close, a blast from the past is dominating the streaming charts.
+---------
+
+# Magneto's Incredibly Necessary Origin Story May Be Forgotten By The MCU
+
+Comics, X-Men
+
+Sat, 19 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/magneto-origin-story-may-be-forgotten-by-the-mcu/
+
+Magneto's arrival in the MCU raises plenty of questions about how his origin story is set to be handled.
+---------
+
+# 10 Years Later, CBS Is Returning to an Unexpected Genre
+
+TV Features, CBS, Moonlight, Eternally Yours, Twilight
+
+Sat, 19 Sep 2026 19:07:11 GMT
+
+https://collider.com/cbs-eternally-yours-moonlight-vampire-drama-10-years-later/
+
+CBS's new series, Eternally Yours, comes a decade after the network tried to break into the vampire fad with Moonlight.
+---------
+
+# Netflix Is Officially Killing Keanu Reeves' Forgotten Fantasy Flop
+
+Movie News, Keanu Reeves, Netflix, 47 Ronin, Fantasy
+
+Sat, 19 Sep 2026 19:00:11 GMT
+
+https://collider.com/keanu-reeves-fantasy-47-ronin-leaving-netflix-october-2026/
+
+Keanu Reeves’ forgotten fantasy action movie 47 Ronin is officially leaving Netflix, giving fans one last chance to stream the samurai epic.
+---------
+
+# The 10 Best Closing Lines in Book History, Ranked
+
+Books and Comics, The Lord of the Rings, The Great Gatsby, The Dark Tower, Frankenstein
+
+Sat, 19 Sep 2026 18:53:11 GMT
+
+https://collider.com/best-book-closing-lines-ranked/
+
+The best closing lines in book history can be found in classics like The Great Gatsby, Nineteen Eighty-Four, and The Lord of the Rings.
+---------
+
+# Anya Taylor-Joy's Genre-Defining Horror Hit Is Officially Leaving Netflix
+
+Movie News, Anya Taylor-Joy, The Witch, Robert Eggers, Netflix
+
+Sat, 19 Sep 2026 18:30:11 GMT
+
+https://collider.com/anya-taylor-joy-horror-the-witch-leaving-netflix-october-2026/
+
+Anya Taylor-Joy's pre-Split horror hit, directed by Robert Eggers, is about to be removed from Netflix. Find out more.
+---------
+
+# Netflix Officially Has a Major Viewership Problem
+
+TV Features, Netflix, Stranger Things, The Gentlemen, Ransom Canyon
+
+Sat, 19 Sep 2026 18:27:12 GMT
+
+https://collider.com/netflix-viewership-long-gaps-between-seasons-cancellation-2026-report/
+
+A new report confirms that Netflix is losing viewers due to long gaps between season releases, impacting its biggest flagship shows.
+---------
+
+# Bad Apples: Saoirse Ronan Left Set Ready to Direct | Set Stories
+
+Movie, Bad Apples
+
+Sat, 19 Sep 2026 18:15:11 GMT
+
+https://collider.com/video/bad-apples-saoirse-ronan-left-set-ready-to-direct-set-stories/
+
+Saoirse Ronan reveals how Bad Apples helped crystallize her desire to direct, after taking a hands-on approach to supporting young actors Nia and Eddie during filming.
+---------
+
+# Marvel's Most Important Sci-Fi Reboot Is Officially Leaving Netflix
+
+Movie News, Spider-Man: Homecoming, Spider-Man: Brand New Day, MCU, Netflix
+
+Sat, 19 Sep 2026 18:00:11 GMT
+
+https://collider.com/spider-man-homecoming-leaving-netflix-october-2026/
+
+Netflix is losing a Tom Holland-led Spider-Man movie as Brand New Day starts to slow in theaters. Here's everything you should know.
+---------
+
+# The Greatest Action Movie From Every Year of the Past Decade
+
+Movie, Top Gun: Maverick, Action, One Battle After Another, Avengers: Endgame
+
+Sat, 19 Sep 2026 17:57:12 GMT
+
+https://collider.com/greatest-action-movie-every-year-2015-2025/
+
+Avengers: Endgame, Top Gun: Maverick, One Battle After Another, and more make up our list of the best action movie from every year of the past decade.
+---------
+
+# The 10 Worst Romantic Movies in Film History
+
+Movie, Date Movie, Romance, From Justin to Kelly, 365 Days
+
+Sat, 19 Sep 2026 17:52:11 GMT
+
+https://collider.com/worst-romantic-movies-film-history/
+
+Gigli, 365 Days, and From Justin to Kelly are all among the very worst romantic movies in the history of cinema.
+---------
+
+# ‘Widow’s Bay’ Star’s New Fantasy Series Was Inspired by ‘Sonic the Hedgehog’ and ‘Dragon’s Lair’
+
+Exclusives, Golden Axe, Paramount Plus, Matthew Rhys, Danny Pudi
+
+Sat, 19 Sep 2026 17:38:40 GMT
+
+https://collider.com/golden-axe-paramount-plus-matthew-rhys-liam-mcintyre-lisa-gilroy-danny-pudi/
+
+The cast and crew of Golden Axe talk about some of the new fantasy adaptation's biggest influences from Sonic to Dragon's Lair.
+---------
+
+# 9 Most Powerful Characters in 'Invincible,' Ranked
+
+TV Lists, Invincible, Superhero
+
+Sat, 19 Sep 2026 19:00:15 GMT
+
+https://movieweb.com/most-powerful-invincible-characters-ranked/
+
+A ranking of the most powerful superheroes in Amazon Prime's Invincible.
+---------
+
+# 'Resident Evil' Star Reveals the Most "Harrowing" Stunt Filmed for the New Adaptation
+
+Movie News, Resident Evil, Horror
+
+Sat, 19 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/resident-evil-austin-abrams-harrowing-stunt/
+
+Austin Abrams revisits the 'Resident Evil' scene that could have killed him.
+---------
+
+# 5 Mike Flanagan Netflix Miniseries You Can Binge in a Single Weekend
+
+TV Lists, Mike Flanagan, Netflix, Horror
+
+Sat, 19 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/mike-flanagan-netflix-miniseries-binge-watch/
+
+Before Mike Flanagan's 'Carrie' premieres on Prime Video on October 7, 2026, watch his five Netflix thriller miniseries.
+---------
+
+# ‘Pirates of the Caribbean 6’ Has a Problem Even the Original Stars Can’t Fix
+
+Features, Pirates of the Caribbean, Pirates of the Caribbean 6, Action
+
+Sat, 19 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/pirates-of-the-caribbean-6-cast-repetitive/
+
+'Pirates of the Caribbean 6' could continue the popular pirate action-adventure movie franchise, but the original cast members can't fix this.
+---------
+
+# 10 Marvel Weapons More Powerful Than The Infinity Stones
+
+Movie Lists, Marvel Cinematic Universe, comics, Avengers: Endgame
+
+Sat, 19 Sep 2026 18:45:14 GMT
+
+https://movieweb.com/10-marvel-weapons-powerful-infinity-stones/
+
+Here are 10 Marvel weapons more powerful than the Infinity Stones, considering how they've been used in the past and their proven canon potential.
+---------
+
+# 20 Years Later, Christian Bale’s Underrated War Thriller Is Officially Streaming Free on YouTube
+
+Features, Rescue Dawn, Christian Bale, War
+
+Sat, 19 Sep 2026 18:30:14 GMT
+
+https://movieweb.com/rescue-dawn-christian-bale-free-youtube/
+
+Christian Bale has given several impressive performances, including in 'The Fighter,' and this war thriller is now free on YouTube.
+---------
+
+# The $1.5-Billion Action Masterpiece That Saved Cinema Is an Official Streaming Hit Ahead of Sequel
+
+Movie News, Top Gun: Maverick, Hot on Streaming, Action
+
+Sat, 19 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/top-gun-maverick-action-streaming-hit-paramount-plus-september-2026/
+
+Four years after it captivated audiences, the action epic is still making the streaming charts crumble.
+---------
+
+# HBO's Most Criminally Overlooked Crime Thriller Has 8 Perfect Episodes
+
+Features, Crime
+
+Sat, 19 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/the-night-of-hbo-thriller-perfect-episodes/
+
+HBO's most underrated crime thriller has eight episodes and a talented cast, and it never got the recognition it should have.
+---------
+
+# Forget 'Lioness': Prime Video's 4-Season Masterpiece Is Still the King of Action Spy Thriller Shows
+
+Features, Tom Clancy's Jack Ryan, Jack Ryan, Action, Thriller
+
+Sat, 19 Sep 2026 17:30:15 GMT
+
+https://movieweb.com/jack-ryan-prime-video-spy-thriller-masterpiece/
+
+Taylor Sheridan's explosive series 'Lioness' is currently the best spy thriller running, but it hasn't matched up to Prime Video's genre king.
+---------
+
+# New 'Resident Evil' Shatters Franchise Box Office Records with Huge Opening Day
+
+Movie News, Resident Evil, Horror
+
+Sat, 19 Sep 2026 17:17:53 GMT
+
+https://movieweb.com/resident-evil-breaks-franchise-opening-record/
+
+'Resident Evil' grossed $26.3 million on its opening day, and is on track to an opening weekend between $53 to $60 million.
+---------
+
 # The MCU’s Newest Hit Proves Marvel Was Right To Repeat A Controversial Move For Its Third Time
 
 Movies, Marvel Cinematic Universe, Spider-Man: Brand New Day
