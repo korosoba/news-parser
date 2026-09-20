@@ -1,3 +1,432 @@
+# The Walking Dead Is Switching Main Characters, Perhaps For The Last Time
+
+Streaming TV, The Walking Dead
+
+Sun, 20 Sep 2026 21:30:15 GMT
+
+https://screenrant.com/the-walking-dead-switch-main-characters-last-time/
+
+The TWD spotlight is once again shifting focus to a new set of characters, and there's no certainty it will have the chance to do so again.
+---------
+
+# 52 Years Later, The Godfather Part II's Best Line Is Still One Of The Greatest Quotes In Gangster Movie History
+
+Classic Movies, The Godfather Part II
+
+Sun, 20 Sep 2026 21:15:16 GMT
+
+https://screenrant.com/the-godfather-part-2-best-quote-gangster-movie-history/
+
+There was a quote from The Godfather Part II that remains one of the best quotes in gangster movie history, and the way it was filmed is perfection.
+---------
+
+# Guy Ritchie & Jason Statham’s R-Rated Thriller That Broke A 16-Year Streak Is One Of The Biggest Movies In The World
+
+Movies, Masked Recs
+
+Sun, 20 Sep 2026 21:09:59 GMT
+
+https://screenrant.com/guy-ritchie-jason-statham-wrath-of-man-streak-break-starz-streaming-success-september-2026/
+
+Guy Ritchie's R-rated action thriller starring Jason Statham has become one of the biggest movies in the world on streaming, and it broke a streak.
+---------
+
+# Best High Fantasy Books Of The 2020s
+
+Books, Fantasy
+
+Sun, 20 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/best-high-fantasy-books-of-the-2020s/
+
+Lord of the Rings is often considered the classic high fantasy series, but the genre is going from strength to strength with these new books.
+---------
+
+# 35 Years Later, Charlie Brown & Snoopy's First Meeting Remains Peanuts' Most Heartwarming Moment
+
+Comics, Peanuts
+
+Sun, 20 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/charlie-brown-snoopy-meeting-peanuts-most-heartwarming-moment/
+
+An overlooked piece of Peanuts history finally revealed the deeply emotional origin of pop culture's greatest friendship.
+---------
+
+# Star Wars: 20 Greatest Quotes From The Original Trilogy, Ranked
+
+Star Wars, Star Wars: Episode IV - A New Hope, Star Wars: Episode V - The Empire Strikes Back, Star Wars: Episode VI - Return of the Jedi
+
+Sun, 20 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/star-wars-original-trilogy-best-quotes-ranked/
+
+Almost 50 years later, the original Star Wars trilogy still has some of the very best and most memorable movie quotes in all of cinematic history.
+---------
+
+# Baldur's Gate 3 Fans Rush To Cancel Preorders For Official Prequel
+
+Books, Baldur's Gate 3, PC
+
+Sun, 20 Sep 2026 20:54:21 GMT
+
+https://screenrant.com/baldurs-gate-3-astarion-prequel-bad-fan-reaction/
+
+Fans who got an early look aren't impressed with Baldur's Gate 3's official prequel, and now those who've preordered are rethinking their decision.
+---------
+
+# Netflix's Monster Killer Shortlist For Season 5 & Beyond Confirmed By Showrunner
+
+TV, Monster: The Lizzie Borden Story
+
+Sun, 20 Sep 2026 20:51:31 GMT
+
+https://screenrant.com/netfix-monster-season-5-killer-candidate-shortlist-ian-brennan/
+
+The showrunner named several potential subjects and explained why choosing the next true crime story has proven so difficult for the series.
+---------
+
+# Netflix’s First Philip K. Dick Show Will Make Blade Runner Look Optimistic
+
+Streaming TV, Masked Recs
+
+Sun, 20 Sep 2026 20:45:16 GMT
+
+https://screenrant.com/netflix-philip-k-dick-future-is-ours-blade-runner-optimistic/
+
+Netflix is giving us its first Philip K. Dick small-screen adaptation, and its source material suggests that it will be even bleaker than Blade Runner
+---------
+
+# MCU Actor’s New Update Is Bad News For People Hoping For One Perfect Sequel
+
+Movies, Marvel Cinematic Universe, Werewolf by Night
+
+Sun, 20 Sep 2026 20:45:16 GMT
+
+https://screenrant.com/mcu-werewolf-by-night-actor-sequel-update-actor-comments/
+
+The latest update about one unique MCU release is bad news for anyone who'd been hoping for a sequel to potentially emerge on the near horizon.
+---------
+
+# Chainsaw Man Mangaka Addresses Part 2's Stressful Release Schedule
+
+Anime, Chainsaw Man
+
+Sun, 20 Sep 2026 21:36:11 GMT
+
+https://www.cbr.com/chainsaw-man-tatsuki-fujimoto-interview-we-are-aliens/
+
+Contrary to what Chainsaw Man Part 2's detractors often claim, Fujimoto thinks drawing manga a weekly deadline actually made his characters better.
+---------
+
+# Batman vs. the Shredder Is Still the Best Animated Superhero Fight Scene
+
+Movies, Batman, Teenage Mutant Ninja Turtles, Batman Vs. Teenage Mutant Ninja Turtles
+
+Sun, 20 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/batman-vs-tmnt-best-superhero-movie-fight-of-the-decade/
+
+This overlooked animated film from 2019 featured a showdown between Batman and a surprising foe, and the scene has not been topped since.
+---------
+
+# 5 Anime Sorcerers Stronger Than Gojo Satoru
+
+Anime, Jujutsu Kaisen
+
+Sun, 20 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/anime-sorcerers-stronger-than-gojo-satoru/
+
+Gojo Satoru is the strongest sorcerer in Jujutsu Kaisen, but he isn't the most powerful magic user in all of anime.
+---------
+
+# SNES and Sega Genesis Get 2 New Official Physical Releases in 2027
+
+Games, retro games, sega, Nintendo
+
+Sun, 20 Sep 2026 21:10:12 GMT
+
+https://www.cbr.com/snes-sega-genesis-new-official-physical-release-2027/
+
+A new game is coming to the Super Nintendo and Sega Genesis next year.
+---------
+
+# Will Smith's $159M Heist Flick the World Forgot About Is Back on the Rise
+
+Movies, Focus, STARZ, will smith
+
+Sun, 20 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/will-smith-focus-crime-comedy-drama-starz-success-september-2026/
+
+Will Smith's crime comedy-drama Focus is rising on streaming 11 years later.
+---------
+
+# Netflix's Facing El Chap is Mandatory Viewing For Sicario Fans
+
+Movies, Sicario, Facing El Chapo, Western
+
+Sun, 20 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/netflix-new-action-thriller-mandatory-viewing-sicario-fans/
+
+This nerve-shredding neo-Western functions as a spiritual sibling to Denis Villeneuve and Taylor Sheridan's drug cartel masterpiece.
+---------
+
+# Anya Taylor-Joy's 137-Minute Viking Epic Is Back as 1 of the World’s Most-Watched Movies
+
+Movies, The Northman
+
+Sun, 20 Sep 2026 20:38:37 GMT
+
+https://www.cbr.com/the-northman-fantasy-streaming-success-september-2026/
+
+The fantasy action flick is back in the spotlight as one of the most popular movies in the world on streaming.
+---------
+
+# The 431-Episode NBC Western That's Perfect for Tombstone Fans
+
+TV, Western, Tombstone, Bonanza
+
+Sun, 20 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/bonanza-perfect-western-tombstone-fans/
+
+Anyone who wants to feel the same tension and passion as the beloved Tombstone must see NBC's classic, timeless series.
+---------
+
+# The Walking Dead: Streets Of Survival Is A Mercifully Short Chore Of A Brawler
+
+Games, The Walking Dead, Video Games
+
+Sun, 20 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/the-walking-dead-streets-of-survival-review/
+
+The Walking Dead: Streets of Survival is an extremely short adaptation of the TV Show, with overly basic gameplay and unnecessary padding.
+---------
+
+# 10 Greatest Anime Series of the 2010s, Ranked Worst to Best
+
+Anime, My Hero Academia, Mob Psycho 100
+
+Sun, 20 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/greatest-anime-series-of-the-2010s-worst-to-best/
+
+The 2010s offered a goldmine of unforgettable anime series, with even the worst of the best leaving a mark on fans that'll never fade.
+---------
+
+# Netflix's 'Lincoln Lawyer' Replacement Is Officially Leaving Streaming
+
+Movie News, Anatomy of a Fall, Sandra Hüller, Netflix, Project Hail Mary
+
+Sun, 20 Sep 2026 21:30:11 GMT
+
+https://collider.com/anatomy-of-a-fall-leaving-netflix-september-2026/
+
+Catch the gripping legal thriller Anatomy of a Fall, starring Sandra Hüller from Project Hail Mary, before it leaves Netflix. Find out more here.
+---------
+
+# The Top Song From Every Pearl Jam Album
+
+Music Features, Pearl Jam, Rock, Eddie Vedder, Music
+
+Sun, 20 Sep 2026 21:23:11 GMT
+
+https://collider.com/pearl-jam-top-songs-every-album/
+
+A description of the best song off of every alternative grunge rock Pearl Jam studio album from 1991 to 2024.
+---------
+
+# Ryan Murphy's New Hulu Crime Thriller Officially Returns With New Release
+
+TV News, The Shards, FX, Drama, Ryan Murphy
+
+Sun, 20 Sep 2026 21:15:12 GMT
+
+https://collider.com/the-shards-fx-original-music-soundtrack-release-october-2026/
+
+A month after airing its season finale, FX's The Shards is getting a new release in October. Get all the details here.
+---------
+
+# 'Castle's Intense Behind-the-Scenes Drama Is Darker Than You Think
+
+TV Features, Castle, Stana Katic, Nathan Fillion, ABC
+
+Sun, 20 Sep 2026 21:14:11 GMT
+
+https://collider.com/castle-nathan-fillion-stana-katic-feud/
+
+ABC's Castle ended abruptly, but alleged drama behind the scenes between Nathan Fillion and Stana Katic reportedly led to the show's cancellation.
+---------
+
+# Fan-Favorite ‘King of the Hill’ Star Officially Joins ‘GTA 6’ Cast
+
+Gaming News, Grand Theft Auto, Grand Theft Auto 6, Stephen Root, Rockstar Games
+
+Sun, 20 Sep 2026 21:00:12 GMT
+
+https://collider.com/gta-6-stephen-root-brian-heder-king-of-the-hill/
+
+King of the Hill star Stephen Root has confirmed that he voices drug smuggler Brian Heder in Rockstar Games’ Grand Theft Auto 6.
+---------
+
+# The 6 Best War Films of the 2020s So Far, Ranked
+
+Movie, War, All Quiet on the Western Front, Quo Vadis, Aida?, The Zone of Interest
+
+Sun, 20 Sep 2026 20:56:11 GMT
+
+https://collider.com/best-war-films-2020s-so-far-ranked/
+
+From The Zone of Interest to Warfare, these war movies expose fear, survival, and the cost of impossible choices.
+---------
+
+# Netflix’s 22-Episode Sci-Fi Thriller Is Still One of the Best Ever Made 5 Years Later
+
+TV Features, Squid Game, Netflix, Sci-Fi, Stranger Things
+
+Sun, 20 Sep 2026 20:42:11 GMT
+
+https://collider.com/netflix-best-sci-f-thriller-series-squid-game/
+
+Five years later, Netflix’s biggest sci-fi phenomenon still hasn’t been beaten, with more than 2.2 billion hours viewed.
+---------
+
+# MGM+’s Biggest Horror Hit Is Officially Scaring Away Audiences
+
+TV News, From, MGM, Drama, Horror
+
+Sun, 20 Sep 2026 20:30:11 GMT
+
+https://collider.com/from-mgm-streaming-drop-september-2026/
+
+Despite receiving strong critical acclaim, viewers are struggling to stay invested in MGM+'s horror show. Learn more here.
+---------
+
+# ‘Peanuts’ Creator Charles Schulz Never Repeated This Major Charlie Brown Mistake
+
+Books and Comics
+
+Sun, 20 Sep 2026 20:23:11 GMT
+
+https://collider.com/charles-schulz-peanuts-adults-mistake/
+
+Charles Schulz once experimented with adult characters in Peanuts, but decided they had no place in Charlie Brown’s world.
+---------
+
+# ‘Greyhound’ Star Officially Goes Full ‘True Detective’ for Apple TV Next Month
+
+TV News, Nocturne, Apple TV, Crime, Thriller
+
+Sun, 20 Sep 2026 20:00:11 GMT
+
+https://collider.com/stephen-graham-nocturne-apple-tv-release-date-october-30/
+
+A detective and a serial killer engage in a dangerous game in Apple TV's upcoming thriller. Get all the details here.
+---------
+
+# Mike Flanagan’s New Stephen King Thriller Hailed as a Timely Adaptation
+
+TV News, Horror, Carrie, Stephen King, Mike Flanagan
+
+Sun, 20 Sep 2026 21:39:41 GMT
+
+https://movieweb.com/mike-flanagan-carrie-first-reactions/
+
+Mike Flanagan continues his winning streak of Stephen King adaptations.
+---------
+
+# New Batman Movie Officially Replaces Bruce Wayne as the Dark Knight
+
+Movie News, Batman, Batman: Knightfall Part 1: Knightfall
+
+Sun, 20 Sep 2026 21:25:09 GMT
+
+https://movieweb.com/batman-knightfall-knightquest-trailer-dc/
+
+'Batman: Knightfall - Part 2: Knightquest' sees Jean-Paul Valley take over the role of Batman to face off againist Bane again.
+---------
+
+# The Best Historical War Adaptation Since 'Band of Brothers' Was So Good, It Went Past the Book Story
+
+Features, Shogun (2024), Band of Brothers, HBO Max, War
+
+Sun, 20 Sep 2026 21:15:14 GMT
+
+https://movieweb.com/shogun-season-2-past-book-story/
+
+Following the highly acclaimed first season, FX's greatest historical war series is continuing beyond the events of the novel for Season 2.
+---------
+
+# Before Amazon's Reboot, One of the Best James Bond Films Shows How to Reset 007 on Streaming
+
+Movie News, James Bond, GoldenEye, Hot on Streaming, Thriller
+
+Sun, 20 Sep 2026 21:00:15 GMT
+
+https://movieweb.com/goldeneye-streaming-hit-vod-vudu-september-2026/
+
+The 1995 action icon that reignited the love for cinema's most beloved spy has found success again on streaming.
+---------
+
+# 26 Years After ‘Peanuts’ Ended, Charlie Brown’s Wisest Quote Is Still Unbeaten
+
+Features, Peanuts, Comedy
+
+Sun, 20 Sep 2026 20:45:15 GMT
+
+https://movieweb.com/peanuts-charlie-brown-wisest-quote/
+
+Charlie Brown can be pessimistic at times, but his wisest quote in 'Peanuts' history is one that we'd all benefit from remembering more often.
+---------
+
+# New 'Clayface' Teaser Plunges the DCU Into R-Rated Horror
+
+Movie News, Clayface, Horror
+
+Sun, 20 Sep 2026 20:43:30 GMT
+
+https://movieweb.com/clayface-dcu-r-rated-horror-tv-spot/
+
+The latest teaser for 'Clayface' teases more of the character's final monstrous form.
+---------
+
+# The 10 Best Far Side Comics About Pets
+
+Movie Lists, The Far Side, Comedy, Gary Larson, comics
+
+Sun, 20 Sep 2026 20:30:14 GMT
+
+https://movieweb.com/best-far-side-comics-about-pets/
+
+Gary Larson has included pets in many of his 'The Far Side' comic strips, and these are the funniest ones that feature people and their dogs.
+---------
+
+# 10 Biggest Questions After 'Lioness' Season 3, Episode 8's Plot Twist Ending, Explained
+
+TV Lists, Lioness, Taylor Sheridan, Action, Thriller
+
+Sun, 20 Sep 2026 20:15:15 GMT
+
+https://movieweb.com/lioness-season-3-finale-biggest-questions/
+
+'Lioness' Season 3 ends with a shocking connection to Season 1, raising as many questions as it answers — including what's next for Joe.
+---------
+
+# Sergio Leone's First Western Masterpiece Got Him Sued by Another Legendary Filmmaker
+
+Features, A Fistful of Dollars, Yojimbo, Western
+
+Sun, 20 Sep 2026 19:45:14 GMT
+
+https://movieweb.com/a-fistful-of-dollars-yojimbo-lawsuit-explained/
+
+Sergio Leone's 'A Fistful of Dollars' is widely regarded as a Western masterpiece, but he was sued by another legend for having a similar film.
+---------
+
 # 7 True Crime Miniseries That Are Perfect From Start To Finish
 
 Classic TV
