@@ -1,3 +1,355 @@
+# Cartman's 20 Funniest South Park Quotes
+
+Streaming TV, South Park
+
+Sun, 20 Sep 2026 02:30:17 GMT
+
+https://screenrant.com/south-park-best-cartman-quotes/
+
+South Park's Eric Cartman is responsible for some of the greatest memes and gags of all time, and here are his most hilarious quotes and moments.
+---------
+
+# Netflix's Canceled 10/10 Sci-Fi Series With 24 Episodes Just Keeps Getting Better
+
+Classic TV, Masked Recs
+
+Sun, 20 Sep 2026 02:30:15 GMT
+
+https://screenrant.com/sense8-netflix-keeps-getting-better/
+
+Netflix cancelled one of its greatest and most ambitious sci-fi shows almost 10 years ago, but the series in question still keeps getting better.
+---------
+
+# DC Is Getting Rid Of A Major Batman Villain, And It’s A Big Mistake
+
+DC Comics, Batman, DC
+
+Sun, 20 Sep 2026 02:30:15 GMT
+
+https://screenrant.com/absolute-batman-scarecrow-end-mistake/
+
+DC's most successful and popular book right now is threatening to part ways with its greatest villain, though all may not be as it seems here.
+---------
+
+# 10 Times Iron Man’s Tech Was Stolen and Used Against the Heroes
+
+Marvel Comics, Iron Man, Marvel
+
+Sun, 20 Sep 2026 02:30:15 GMT
+
+https://screenrant.com/iron-man-tech-stolen-used-against-heroes/
+
+Discover 10 instances where Iron Man's technology was misused against heroes.
+---------
+
+# SNL's 25 Best Seasons, Ranked
+
+Network TV, Saturday Night Live
+
+Sun, 20 Sep 2026 02:15:15 GMT
+
+https://screenrant.com/saturday-night-live-best-seasons/
+
+Saturday Night Live has taken its place amongst some of the greatest TV shows of all time. These seasons are the best that SNL has to offer.
+---------
+
+# Ranking The 7 Best Sci-Fi Movies Released Since 2020
+
+Movies, Sci-Fi
+
+Sun, 20 Sep 2026 02:02:53 GMT
+
+https://screenrant.com/best-sci-fi-movies-since-2020/
+
+Every year of the 2020s so far has produced multiple exciting Sci-Fi movies, but these are the best of each year, ranked to find the ultimate winner.
+---------
+
+# 11 Years Later, This Six-Part Sci-Fi Masterpiece Is Still Everything Stranger Things Should Have Been
+
+Comics, Masked Recs
+
+Sun, 20 Sep 2026 02:00:25 GMT
+
+https://screenrant.com/paper-girls-everything-stranger-things-should-be/
+
+Released before Stranger Things, this completed six-part masterpiece perfectly executed the ultimate 80s sci-fi premise.
+---------
+
+# Forget Jack Ryan, Prime Video's 4-Part Series Is The New King Of Action Thriller Shows
+
+Streaming TV, Masked Recs
+
+Sun, 20 Sep 2026 02:00:25 GMT
+
+https://screenrant.com/reacher-prime-video-new-king-action-thrillers/
+
+Prime Video once had several flagship action TV shows that could have taken the top spot, but Reacher has cemented its status as the platform's best.
+---------
+
+# 10 Perfect 2000s Anime Series Everyone Is Still Talking About
+
+Anime, Fullmetal Alchemist: Brotherhood, Bleach
+
+Sun, 20 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/perfect-2000s-anime-everyone-still-talks-about/
+
+2000s anime classics like Code Geass and Gintama are still relevant and passionately discussed by fans.
+---------
+
+# Disney Lorcana's New Ink Drop Mechanic, Explained
+
+Games, Disney Lorcana, TCG, Tabletop
+
+Sun, 20 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/disney-lorcana-new-ink-drop-mechanic/
+
+Disney's Lorcana is updating its system and this latest mechanic is sure to be a game-changer.
+---------
+
+# Netflix's New 6-Episode Miniseries Based on a Jane Austen Classic Is TV's Next Big Main Event
+
+TV, Netflix, Romance
+
+Sun, 20 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/netflix-pride-and-prejudice-miniseries/
+
+Netflix will breathe new life into a Jane Austen classic with a 2026 miniseries featuring an impressive cast.
+---------
+
+# Gandalf's First Lines Are The Hobbit's Funniest Quote
+
+Movies, The Lord of the Rings, The Hobbit, The Hobbit: An Unexpected Journey
+
+Sun, 20 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/the-hobbit-gandalf-funniest-quote-fantasy-history/
+
+Peter Jackson's The Hobbit: An Unexpected Journey included a memorably comedic quote spoken by Sir Ian McKellen as Gandalf the Grey.
+---------
+
+# Resident Evil Director Wrote a Batman Script With an Unusual Twist
+
+Movies, Batman
+
+Sun, 20 Sep 2026 01:48:50 GMT
+
+https://www.cbr.com/zach-cregger-joker-batman-movie/
+
+Zach Cregger describes the unmade Batman movie script he wrote, and it's reminiscent of his Resident Evil reboot.
+---------
+
+# 10 Isekai Anime Series With the Best Worldbuilding, Ranked
+
+Anime
+
+Sun, 20 Sep 2026 01:45:11 GMT
+
+https://www.cbr.com/isekai-anime-series-best-worldbuilding-ranked/
+
+Isekai anime are often criticized for their generic settings, but these series excel when it comes to worldbuilding.
+---------
+
+# 10 PS1 Games Everyone Owned in the '90s
+
+Games, Video Games, Final Fantasy, Resident Evil, PlayStation (Original)
+
+Sun, 20 Sep 2026 01:25:11 GMT
+
+https://www.cbr.com/common-ps1-games-everyone-owned-in-the-90s/
+
+Everyone who owned a PS1 definitely had several of these games in their collection during the '90s.
+---------
+
+# Fullmetal Alchemist: Brotherhood Gets New Equivalent Exchange Release in 2027
+
+Anime, Fullmetal Alchemist, Fullmetal Alchemist Brotherhood
+
+Sun, 20 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/fullmetal-alchemist-brotherhood-equivalent-exchange-collectors-edition-2027/
+
+Roy Mustang, Riza Hawkeye and the Elric brothers return for a new series of awesome collectibles scheduled to hit stores next year.
+---------
+
+# 10 Forgotten Fantasy Anime That Have Aged Like Fine Wine
+
+Anime, Scrapped Princess, Those Who Hunt Elves
+
+Sun, 20 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/forgotten-fantasy-anime-aged-like-fine-wine/
+
+Anime is full of flawless fantasy series, but titles like Those Who Hunt Elves and Scrapped Princess have become cult classics that deserve more love.
+---------
+
+# 6 Greatest Digimon Games of All Time, Ranked
+
+Games, Digimon
+
+Sun, 20 Sep 2026 00:30:11 GMT
+
+https://www.cbr.com/greatest-digimon-games-of-all-time-ranked/
+
+Digimon has reinvented itself across decades of games with farm mechanics, turn-based depth, branching visual novel choices, and huge rosters.
+---------
+
+# The Greatest Action Franchise of All Time Is Officially Streaming for Free
+
+Movie Features, Keanu Reeves, John Wick, Action
+
+Sun, 20 Sep 2026 01:41:11 GMT
+
+https://collider.com/john-wick-movie-franchise-streaming-free-pluto-tv-september-2026/
+
+All four installments of Keanu Reeves' action-packed John Wick franchise are now streaming for free on Pluto TV.
+---------
+
+# 8 Most Influential Fantasy Shows of All Time, Ranked
+
+TV, Fantasy, Game Of Thrones, Buffy The Vampire Slayer, Supernatural
+
+Sun, 20 Sep 2026 01:33:11 GMT
+
+https://collider.com/most-influential-fantasy-shows-all-time-ranked/
+
+Buffy the Vampire Slayer, Game of Thrones, Supernatural, True Blood, and more make up our list of the most influential fantasy shows of all time.
+---------
+
+# 10 Greatest Agatha Christie Hercule Poirot Books, Ranked
+
+Books and Comics, Agatha Christie, Murder on the Orient Express, Death on the Nile, The ABC Murders
+
+Sun, 20 Sep 2026 01:03:11 GMT
+
+https://collider.com/best-agatha-christie-hercule-poirot-books-ranked/
+
+Hercule Poirot is one of Agatha Christie's most famous detectives, featured in mystery books like The A.B.C. Murders, but which book is the best?
+---------
+
+# Hulu's 3-Part Sitcom Is Officially Surging the Streaming Charts
+
+TV Features, Happy Endings, Sitcom, Hulu, ABC
+
+Sun, 20 Sep 2026 01:01:11 GMT
+
+https://collider.com/happy-endings-sitcom-apple-tv-store/
+
+15 years after its debut, Happy Endings is climbing the charts on the Apple TV store. The hilarious ABC series is still worth a watch years later.
+---------
+
+# Pokémon Officially Solves a Months-Long Mystery
+
+Gaming News, Pokémon, Gaming, Merchandise, Games
+
+Sun, 20 Sep 2026 01:00:11 GMT
+
+https://collider.com/pokemon-tcg-30th-celebration-secret-rgb-mew-cards-confirmed/
+
+Pokémon has officially confirmed that three mysterious RGB Mew cards hidden inside the Pokémon TCG’s 30th Celebration set are real.
+---------
+
+# 'Widow's Bay' Creator's Failed Franchise Reboot Is Officially Leaving Netflix
+
+Movie News, Ghostbusters, Paul Feig, Melissa McCarthy, Netflix
+
+Sun, 20 Sep 2026 00:45:11 GMT
+
+https://collider.com/ghostbusters-2016-answer-the-call-leaving-netflix-october-2026/
+
+A franchise reboot that was review-bombed into oblivion is about to be removed from Netflix. Find out more.
+---------
+
+# 10 Most Essential HBO Miniseries, Ranked
+
+TV, HBO, TV Miniseries, Band of Brothers, Chernobyl
+
+Sun, 20 Sep 2026 00:34:11 GMT
+
+https://collider.com/essential-hbo-miniseries-ranked/
+
+From the epic war masterpiece Band of Brothers to the crime thriller Mare of Easttown, these HBO miniseries are the most essential to the network.
+---------
+
+# FX’s 98%-Rated Neo-Western Is the Perfect Binge Before Season 2
+
+TV Features, The Lowdown, Ethan Hawke, FX, Hulu
+
+Sun, 20 Sep 2026 00:32:11 GMT
+
+https://collider.com/fx-best-neo-western-series-the-lowdown-binge-before-season-2/
+
+FX’s 98%-rated neo-Western returns for Season 2 in October, making now the perfect time to catch up on Ethan Hawke’s acclaimed series.
+---------
+
+# Universal's Forgotten Vampire Thriller Is Officially Back From the Dead on Streaming
+
+Movie News, The Last Voyage of The Demeter, Horror, Thriller, Dracula
+
+Sun, 20 Sep 2026 00:30:11 GMT
+
+https://collider.com/the-last-voyage-of-the-demeter-dracula-movie-streaming-peacock-september-2026/
+
+Universal’s horror flop The Last Voyage of the Demeter has officially found a new streaming home on Peacock.
+---------
+
+# David Fincher’s Highest-Grossing Thriller Is Officially Getting Cut From Netflix
+
+Movie News, Netflix, David Fincher, Gone Girl, The Further Mis-Adventures of Cliff Booth
+
+Sun, 20 Sep 2026 00:15:11 GMT
+
+https://collider.com/david-fincher-gone-girl-leaving-netflix-october-2026/
+
+Ahead of David Fincher's long-awaited theatrical comeback, Netflix is removing his highest-grossing hit from the platform.
+---------
+
+# The 10 Best 'Reacher' Fight Scenes, Ranked
+
+Features, Reacher, Action, Thriller
+
+Sun, 20 Sep 2026 02:30:12 GMT
+
+https://movieweb.com/best-reacher-fight-scenes-ranked/
+
+Prime Video's ultra-popular action thriller series 'Reacher' is at its best when its massive, charismatic star is knocking out villains and henchmen.
+---------
+
+# Kurt Russell's 10-Part "Lost Meets Godzilla" Sci-Fi Thriller Is Officially One of Apple TV's Biggest Hits
+
+TV News, Hot on Streaming, Apple TV, Kurt Russell, Monarch: Legacy of Monsters
+
+Sun, 20 Sep 2026 02:00:24 GMT
+
+https://movieweb.com/monarch-legacy-of-monsters-apple-tv-top-10-sept-2026/
+
+More than four months after its Season 2 finale, Monarch: Legacy of Monsters has climbed back into Apple TV's global top 10.
+---------
+
+# Chris Evans' Dystopian Action Thriller Officially Dethroned by Michael Fassbender's $46 Million Sci-Fi Epic at the Box Office
+
+Movie News, Box Office Milestones, Hope, Michael Fassbender, Chris Evans, Snowpiercer
+
+Sun, 20 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/hope-beats-snowpiercer-us-box-office-korean-sci-fi-sept-2026/
+
+Na Hong-jin’s Hope has already outgrossed Snowpiercer in the United States, ending a long-standing benchmark for Korean sci-fi.
+---------
+
+# Kit Harington's Modern Remake of 167-Year-Old Classic Is the Biggest New Release on Streaming
+
+TV News, A Tale Of Two Cities, Hot on Streaming, Amazon
+
+Sun, 20 Sep 2026 00:00:14 GMT
+
+https://movieweb.com/kit-harington-a-tale-of-two-cities-mgm-hit-sept-2026/
+
+Kit Harington’s A Tale of Two Cities has quickly turned into a real MGM+ breakout.
+---------
+
 # Hannah Waddingham’s New Prime Video Action Series Cancelled After One Season
 
 TV, Ride or Die
