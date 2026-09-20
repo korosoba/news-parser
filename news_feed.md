@@ -1,3 +1,399 @@
+# 7 Near-Perfect Vampire Shows On Netflix
+
+Streaming TV, Netflix
+
+Sun, 20 Sep 2026 23:45:15 GMT
+
+https://screenrant.com/near-perfect-netflix-vampire-shows/
+
+Netflix already has some standout shows, but with Halloween coming up, now is the time to choose which of the best vampire series to watch next.
+---------
+
+# Netflix Has A New #2 Show, And It's So Good It Scored A Rare Instant Renewal
+
+TV, Netflix, Masked Recs
+
+Sun, 20 Sep 2026 23:30:16 GMT
+
+https://screenrant.com/early-spring-netflix-instant-renewal/
+
+Breaking streaming records as the first Chinese television series to hit the global top two, this workplace romance just secured an instant sequel.
+---------
+
+# Ethan Hawke's HBO Max Batman Series Is Back With New Episodes At The Perfect Time
+
+TV, Masked Recs
+
+Sun, 20 Sep 2026 23:19:37 GMT
+
+https://screenrant.com/ethan-hawke-batwheels-hbo-max-batman-tv-show-september-2026-episodes/
+
+Ethan Hawke returns as Batman again in his DC series on HBO Max, and the show's new episodes could not have arrived at a better time for Bruce Wayne.
+---------
+
+# 6 First Contact Sci-Fi Movies That Are Even Better Than Project Hail Mary
+
+Movies, Project Hail Mary
+
+Sun, 20 Sep 2026 23:15:15 GMT
+
+https://screenrant.com/6-first-contact-sci-fi-movies-that-are-even-better-than-project-hail-mary/
+
+Project Hail Mary remains the best sci-fi movie released in 2026 based on box office numbers, but there are several sci-fi films that are better.
+---------
+
+# Best Selling Fantasy Books Of All Time
+
+Books
+
+Sun, 20 Sep 2026 23:15:15 GMT
+
+https://screenrant.com/best-selling-fantasy-books-of-all-time/
+
+Discover the 6 best-selling fantasy books that shaped the genre and captivated readers worldwide.
+---------
+
+# 10 Iconic Green Lanterns Who Aren’t Human
+
+Comics
+
+Sun, 20 Sep 2026 23:03:54 GMT
+
+https://screenrant.com/iconic-green-lanterns-not-human/
+
+Humans have produced some of the most famous Green Lanterns ever, but these iconic alien members are just as important to the Corps’ history.
+---------
+
+# The Punisher Meets John Wick In New Cyberpunk Action Game
+
+Gaming, The Punisher, John Wick
+
+Sun, 20 Sep 2026 23:00:15 GMT
+
+https://screenrant.com/punisher-meets-john-wick-cyberpunk-thriller/
+
+Explore Spine, a new cyberpunk action game blending Gun Fu with epic storytelling in a dystopian world.
+---------
+
+# 9 Best Comic Writers Of The 2010s
+
+Comics, DC Comics
+
+Sun, 20 Sep 2026 22:58:29 GMT
+
+https://screenrant.com/best-comic-writers-2010s/
+
+Authorship is the comic book industry's defining currency and 2010s produced some of the medium's most distinctive voices.
+---------
+
+# 10 Greatest DC Comics Characters Introduced In the 1980s
+
+Comics, DC Comics
+
+Sun, 20 Sep 2026 22:56:45 GMT
+
+https://screenrant.com/greatest-dc-characters-1980s/
+
+The most important characters responsible for laying the foundation for DC Comics' greatest years.
+---------
+
+# All 11 Super Saiyans In Official Dragon Ball Canon
+
+Anime, Dragon Ball
+
+Sun, 20 Sep 2026 22:30:15 GMT
+
+https://screenrant.com/all-11-super-saiyans-in-official-dragon-ball-canon/
+
+The Dragon Ball franchise has introduced many transformations but few are as iconic as Super Saiyan, here are the character's who've unlocked it.
+---------
+
+# 10 Classic Manga That Are Unreadable Today
+
+Anime, Manga, Innovation
+
+Sun, 20 Sep 2026 23:45:11 GMT
+
+https://www.cbr.com/classic-manga-aged-badly-list/
+
+Manga like Love Hina and Chobits haven't aged well.
+---------
+
+# The Apothecary Diaries' Best Couple Won't Be Jinshi & Maomao Anymore
+
+Anime, The Apothecary Diaries, seinen
+
+Sun, 20 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/the-apothecary-diaries-season-3-best-couple/
+
+As eager fans gather at the edge of the Fall 2026 Anime Season, The Apothecary Diaries' return promises an even better couple than Jinshi and Maomao.
+---------
+
+# After 6 Years, Netflix's $100M John Wick Replacement Is Chris Hemsworth's Best Action Movie
+
+Movies, chris hemsworth, Extraction, Netflix
+
+Sun, 20 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/netflix-extraction-chris-hemsworth-john-wick-replacement/
+
+John Wick redefined action movies, but one Chris Hemsworth action spectacle is still the best replacement.
+---------
+
+# Linda Cardellini Confirms Major Tribute to Friday the 13th's Betsy Palmer in Crystal Lake
+
+TV, Crystal Lake
+
+Sun, 20 Sep 2026 22:38:30 GMT
+
+https://www.cbr.com/crystal-lake-betsy-palmer-tribute-linda-cardellini/
+
+Fans of the original Friday the 13th will appreciate the Betsy Palmer tribute.
+---------
+
+# Henry Cavill’s In the Grey Is The Best Heist Thriller On Streaming
+
+Movies, In the Grey
+
+Sun, 20 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/henry-cavill-in-the-grey-best-heist-thriller-on-streaming/
+
+Henry Cavill's latest action film failed to find an audience in theaters, but it's still the greatest heist movie that fans can stream.
+---------
+
+# 10 Greatest Metroidvanias of the 2020s So Far, Ranked
+
+Games, Video Games, Metroid, metroidvania
+
+Sun, 20 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/greatest-metroidvanias-2020s-so-far-ranked/
+
+Metroidvanias continue rise in popularity, with some of the genres greatest titles emerging in the 2020s.
+---------
+
+# Apple TV Crime Thriller Gets Another Delay 1 Year After Being Controversially Shelved
+
+TV, The Savant
+
+Sun, 20 Sep 2026 22:06:14 GMT
+
+https://www.cbr.com/the-savant-apple-tv-2027-release/
+
+The series will end up seeing the light of day, but much later than had been expected.
+---------
+
+# My Hero Academia Officially Returns September 22 With New 10th Anniversary Release
+
+Anime, My Hero Academia, Crunchyroll, Shonen Jump
+
+Sun, 20 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/my-hero-academia-10th-anniversary-september-22-release/
+
+My Hero Academia is officially back with a brand-new 10th-anniversary release arriving September 22.
+---------
+
+# Star Trek Broke Its Reset Button With 1 Chilling Captain Picard Episode
+
+TV, Star Trek: The Next Generation, Star Trek, Sci-Fi, Innovation
+
+Sun, 20 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/star-trek-the-next-generation-family-episode-picard-ptsd/
+
+Building from his Borg assimilation, Star Trek's "Family" forwent the franchise's typical formula to introduce a decades-long Picard storyline.
+---------
+
+# Two Classic Pulp Superheroes Now Have Official Amazon Stores
+
+Comics, Flash Gordon, The Phantom
+
+Sun, 20 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/flash-gordon-the-phantom-amazon-storefronts/
+
+Two of the most beloved pulp heroes of all time now have their very own Amazon storefronts, and the offerings span entire generations.
+---------
+
+# Starz’s Steamy Hit Is Officially Taking Over Streaming
+
+TV News, P-Valley, STARZ, Drama, Musical
+
+Sun, 20 Sep 2026 23:45:11 GMT
+
+https://collider.com/starz-p-valley-streaming-success-september-2026/
+
+Four years later, Starz hit drama is back on the streaming charts, and for one final season. Get all the details here.
+---------
+
+# Rami Malek’s Sci-Fi Thriller Officially Becomes a Streaming Smash Hit
+
+TV News, Mr. Robot, USA Network, Sci-Fi, Rami Malek
+
+Sun, 20 Sep 2026 23:30:11 GMT
+
+https://collider.com/rami-malek-mr-robot-streaming-success-itunes-september-2026/
+
+As he continues to get acclaim for his recent performance, Rami Malek's hit sci-fi thriller is surging on streaming services. Get all the details.
+---------
+
+# Prime Video's Forgotten 7-Part Superhero Satire Is the Perfect Replacement for 'The Boys'
+
+TV Features, I'm a Virgo, Prime Video, Boots Riley, Comedy
+
+Sun, 20 Sep 2026 23:27:11 GMT
+
+https://collider.com/im-a-virgo-prime-video-perfect-the-boys-replacement/
+
+Prime Video's I'm a Virgo is the perfect series for viewers who like their superheroes gritty, realistic, and human.
+---------
+
+# Quentin Tarantino's Historical Masterpiece Officially Hits Prime Video Ahead of Sequel
+
+Movie News, Quentin Tarantino, Once Upon a Time in Hollywood, Prime Video, The Further Mis-Adventures of Cliff Booth
+
+Sun, 20 Sep 2026 23:15:11 GMT
+
+https://collider.com/quentin-tarantino-once-upon-a-time-in-hollywood-prime-video-streaming-september-2026/
+
+Quentin Tarantino's personal favorite film, Once Upon a Time in Hollywood, lands on Prime Video soon. Here's all to know.
+---------
+
+# Netflix Officially Says Goodbye to a Perfect 4-Part Fantasy Series Next Week
+
+Movie News, The Good Place, Netflix, Michael Schur, NBCUniversal
+
+Sun, 20 Sep 2026 23:00:11 GMT
+
+https://collider.com/the-good-place-leaving-netflix-international-september-2026/
+
+Netflix is removing one of the most perfect fantasy series, The Good Place, from international regions soon. Find out more details here.
+---------
+
+# James Bond Meets 'The Americans' in Prime Video's 2-Part Spy Thriller Series
+
+TV Features, Susanne Bier, The Night Manager, Tom Hiddleston, Prime Video
+
+Sun, 20 Sep 2026 22:46:11 GMT
+
+https://collider.com/the-night-manager-james-bond-meets-americans-prime-video/
+
+When you're done with The Perfect Couple, try The Night Manager. The BBC spy miniseries has all the hallmarks of Susanne Bier's excellence.
+---------
+
+# 2025’s Killer Clown Horror Hit Is Officially Back From the Dead on Streaming
+
+Movie News, Clown in a Cornfield, Horror, HBO Max, Streaming
+
+Sun, 20 Sep 2026 22:45:11 GMT
+
+https://collider.com/clown-in-a-cornfield-streaming-hit-hbo-max-september-2026/
+
+Clown in a Cornfield is officially staging a streaming comeback, giving the underrated 2025 slasher hit a bloody new lease on life.
+---------
+
+# Taylor Sheridan's Breakout Western Official Takes Over Global Streaming
+
+TV News, Taylor Sheridan, Yellowstone, Paramount Plus, Streaming
+
+Sun, 20 Sep 2026 22:30:11 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-streaming-hit-paramount-plus-september-2026/
+
+Taylor Sheridan’s hit Western series Yellowstone is officially surging on global streaming, proving the franchise remains a major draw for viewers.
+---------
+
+# 5 Modern Sci-Fi Books That Are Perfect From the First Page to the Last
+
+Books and Comics, Sci-Fi, Science Fiction, The Hunger Games, The Martian
+
+Sun, 20 Sep 2026 22:21:13 GMT
+
+https://collider.com/modern-sci-fi-books-perfect-first-page-to-last/
+
+From the dystopian phenomenon The Hunger Games to the space survival novel The Martian, these modern sci-fi books are truly flawless and entertaining.
+---------
+
+# ‘Pokémon’ Fans May Officially Be Getting the Game They’ve Wanted
+
+Gaming News, Pokémon, Gaming, Games, Pokemon GO
+
+Sun, 20 Sep 2026 22:15:11 GMT
+
+https://collider.com/pokemon-mmo-multiple-regions-rumor/
+
+A new rumor claims Game Freak is building toward a massive Pokémon MMO that could allow players to explore multiple regions.
+---------
+
+# ‘Game of Thrones’ Officially Just Solved the Streaming Era's Biggest Problem
+
+Features, A Knight Of The Seven Kingdoms, Game of Thrones, Fantasy, House of the Dragon
+
+Sun, 20 Sep 2026 23:30:14 GMT
+
+https://movieweb.com/game-of-thrones-knight-seven-kingdoms-season-2-fix-hotd-wait/
+
+Long waits between seasons are a major problem for streaming-era shows, but 'Game of Thrones' just solved it for its own franchise.
+---------
+
+# Tom Hardy & Guy Ritchie New Crime Series Officially Beats the Taylor Sheridan Universe on Streaming
+
+TV News, Tom Hardy, Guy Ritchie, Taylor Sheridan, MobLand, Hot on Streaming
+
+Sun, 20 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/mobland-beats-taylor-sheridan-paramount-streaming-september-2026/
+
+The Harrigans have returned, and they have defeated all the other families on streaming.
+---------
+
+# 'Lioness' Officially Sets Up Joe’s Replacement For Season 4
+
+Features, Lioness, Thriller, Action
+
+Sun, 20 Sep 2026 22:45:15 GMT
+
+https://movieweb.com/lioness-joe-repalcement-cruz-season-4/
+
+The bombshell season 3 finale of Taylor Sheridan's 'Lioness' left many questions unanswered, but it also provided a path forward for the show.
+---------
+
+# Henry Cavill's TV Spin-off of a Prime Video Streaming Sensation Will Be Peak Sci-Fi
+
+Features, Warhammer 40k, Sci-Fi, Prime Video, Henry Cavill
+
+Sun, 20 Sep 2026 22:30:14 GMT
+
+https://movieweb.com/henry-cavill-secret-level-warhammer-40k-spinoff/
+
+In addition to the live-action Warhammer 40,000 series, Henry Cavill is producing a new spin-off sci-fi event for Prime Video.
+---------
+
+# It’s Officially the End of an Era for ‘The Hunger Games’ After 18 Years
+
+Features, The Hunger Games, The Hunger Games: Sunrise on the Reaping, Sci-Fi
+
+Sun, 20 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/hunger-games-sunrise-reaping-last-district-12-story/
+
+'The Hunger Games' franchise is making a comeback with 'Sunrise on the Reaping' in November, but it will mark the end of an era for the series.
+---------
+
+# One of the Best James Bond Films Ever Made Hits Big on Streaming and Shows Amazon How to Reboot 007
+
+Movie News, James Bond, GoldenEye, Hot on Streaming, Thriller
+
+Sun, 20 Sep 2026 21:00:15 GMT
+
+https://movieweb.com/james-bond-goldeneye-streaming-hit-vod-vudu-september-2026/
+
+The 1995 action icon that reignited the love for cinema's most beloved spy has found success again on streaming.
+---------
+
 # The Walking Dead Is Switching Main Characters, Perhaps For The Last Time
 
 Streaming TV, The Walking Dead
