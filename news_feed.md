@@ -1,3 +1,410 @@
+# 7 True Crime Miniseries That Are Perfect From Start To Finish
+
+Classic TV
+
+Sun, 20 Sep 2026 19:10:00 GMT
+
+https://screenrant.com/true-crime-miniseries-perfect-from-start-to-finish/
+
+These seven true crime miniseries deliver gripping stories, unforgettable performances, and compelling narratives from start to finish.
+---------
+
+# Invincible Season 5 Is Sadly Replacing A Fan-Favorite Character
+
+Streaming TV, Invincible
+
+Sun, 20 Sep 2026 19:09:54 GMT
+
+https://screenrant.com/invincible-season-5-thragg-replace-main-villain/
+
+One of Invincible’s most beloved and important characters will sadly no longer be the focus of the superhero TV show's upcoming fifth season.
+---------
+
+# 10 Biggest And Most Important Marvel Comics Villains Of All Time
+
+Comics, Marvel
+
+Sun, 20 Sep 2026 19:00:17 GMT
+
+https://screenrant.com/most-important-marvel-comic-villains-ever/
+
+Every Marvel Comics hero needs a villain to make them better, and these are the best of the worst.
+---------
+
+# Why Reacher Season 5 Can't Follow The Book It's Based On
+
+Streaming TV, Reacher
+
+Sun, 20 Sep 2026 19:00:17 GMT
+
+https://screenrant.com/reacher-season-5-not-follow-book/
+
+Season 5 of Prime Video's Reacher will be based on the book "Make Me," but Amazon's TV adaptation should avoid a like-for-like translation.
+---------
+
+# Peanuts Meets Pokémon Snap In Gorgeous New Cozy Game Coming September 29
+
+Gaming, Pokemon Snap (1999), Peanuts, TOEM 2
+
+Sun, 20 Sep 2026 19:00:17 GMT
+
+https://screenrant.com/peanuts-meets-pokemon-snap-toem-2/
+
+Blending comic strip coziness with a photography scavenger hunt like in Pokémon Snap, TOEM 2 is an upcoming game you don't want to miss.
+---------
+
+# Glen Powell & Hulu's Hit Series Planning To End With Season 3, Confirms Creator
+
+TV, Chad Powers
+
+Sun, 20 Sep 2026 18:43:54 GMT
+
+https://screenrant.com/glen-powell-chad-power-three-season-plan-michael-waldron/
+
+Glen Powell's series is planning its exit, as the creator of Hulu's series has officially confirmed which season will unfortunately be its end.
+---------
+
+# Disney Star's New 201-Year-Old Medieval Horror Adaptation Earns Stellar Rotten Tomatoes Score
+
+Movies, Masked Recs
+
+Sun, 20 Sep 2026 18:11:23 GMT
+
+https://screenrant.com/jonah-hauer-king-the-face-of-horror-rotten-tomatoes-score/
+
+A Disney alum who portrayed a dashing prince is not so charming in this new medieval horror, which earned a strong score on Rotten Tomatoes.
+---------
+
+# Justified Meets Tracker In Amazon’s Latest Streaming Hit Still Waiting On A Future Update
+
+TV, Masked Recs
+
+Sun, 20 Sep 2026 18:08:28 GMT
+
+https://screenrant.com/blue-ridge-series-justified-meets-tracker-prime-video-streaming-success-september-2026/
+
+A two-part action drama, which may call to mind Justified and Tracker, is putting up a strong showing on Prime Video despite an uncertain future.
+---------
+
+# 10 Greatest Zombie Movies Of All Time, Ranked
+
+Movies, Horror, 28 Days Later, Night of the Living Dead, Dawn of the Dead, Day of the Dead, Dead Alive, Re-Animator, Shaun of the Dead, Train to Busan, Blood Quantum
+
+Sun, 20 Sep 2026 18:05:16 GMT
+
+https://screenrant.com/best-zombie-movies-all-time-ranked/
+
+From Shaun of the Dead to Train to Busan, these are the zombie movie masterpieces that transformed horror and defined the undead genre.
+---------
+
+# ABC’s Best Show Is About To Cross A Major Milestone That Defines Its Future
+
+TV, Abbott Elementary
+
+Sun, 20 Sep 2026 18:04:15 GMT
+
+https://screenrant.com/abbott-elementary-100th-episode-milestone/
+
+Sustained acclaim and relatable, funny conflicts give ABC's iconic workplace mockumentary sitcom a rare broadcast future beyond its initial run.
+---------
+
+# The Big Bang Theory Star Responds to Fan Criticism Over Sequel Series Return
+
+TV, Stuart Fails to Save the Universe, Big Bang Theory
+
+Sun, 20 Sep 2026 19:09:32 GMT
+
+https://www.cbr.com/stuart-fails-to-save-the-universe-mayim-bialik-return-response/
+
+You can't please everyone.
+---------
+
+# Gilmore Girls Broke the Show's Core Format for 9 Episodes That Fans Can't Rewatch
+
+TV, Gilmore Girls, Gilmore Girls: A Year in the Life
+
+Sun, 20 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/gilmore-girls-season-6-rory-lorelai-estragenment/
+
+Even with its promises to lead, Gilmore Girls did not follow the preferred format for a bleak nine episodes.
+---------
+
+# 40 Years Later, Sean Connery's Best Highlander Line Is Still the Greatest 5 Words in Fantasy
+
+Movies, Highlander, Fantasy
+
+Sun, 20 Sep 2026 18:30:11 GMT
+
+https://www.cbr.com/highlander-sean-connery-greatest-fantasy-quote/
+
+The legendary actor delivers one of the finest fantasy movie quotes ever in the 1986 cult classic, Highlander.
+---------
+
+# 5 Classic Cartoon Network Anime That Don't Hold Up
+
+Anime, Cartoon Network
+
+Sun, 20 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/classic-cartoon-network-anime-do-not-hold-up/
+
+Some of the most memorable anime on Cartoon Network are best left to memories over attempting a rewatch.
+---------
+
+# Red Dead Redemption 2 Free Downloads Officially Available Until October 5
+
+Games, Red Dead Redemption 2
+
+Sun, 20 Sep 2026 18:05:11 GMT
+
+https://www.cbr.com/red-dead-redemption-2-free-downloads-september-2026/
+
+Red Dead Redemption 2 has new limited-time downloads available for free until next month
+---------
+
+# Top 10 Reasons Why Deadpool Isn't Completely Invincible
+
+Comics, Deadpool
+
+Sun, 20 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/top-reasons-why-deadpool-would-lose-most-fights/
+
+The Merc with a Mouth might be one of Marvel's most popular anti-heroes, but he is prone to losing the big fights.
+---------
+
+# Highlander Returns to Comics With Its Most Faithful Adaptation Yet
+
+Comics, Highlander
+
+Sun, 20 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/highlander-returns-to-comics-in-the-most-faithful-version-yet/
+
+Highlander fans just got their best look yet at the upcoming and unexpected retelling of the story that started an entire multimedia franchise.
+---------
+
+# HBO's Harry Potter Strategy Quietly Makes the Movies Even Harder to Replace
+
+TV, Harry Potter, Fantasy, HBO Max, Innovation
+
+Sun, 20 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/hbo-harry-potter-reboot-casting-missteps/
+
+HBO Max's Harry Potter reboot has a long way to go before it can replace the movies, and one strategy proves it.
+---------
+
+# New Cozy Steam Game With Over 150,000 Wishlists Is Stardew Valley Meets The Sims
+
+Games, Stardew Valley
+
+Sun, 20 Sep 2026 17:21:11 GMT
+
+https://www.cbr.com/new-cozy-steam-game-stardew-valley-meets-sims-tiny-eden/
+
+Tiny Eden takes the farming aspect of Stardew Valley and mixes elements from The Sims while taking place in a fancy high-rise apartment
+---------
+
+# Netflix Actually Renews More Shows Than Any Other Major Streamer
+
+TV, Netflix
+
+Sun, 20 Sep 2026 17:19:10 GMT
+
+https://www.cbr.com/netflix-renews-most-shows-streaming/
+
+Netflix isn't the cancellation machine it's cracked up to be.
+---------
+
+# 'True Detective's Best Duo Officially Reunites on Apple TV This Week
+
+TV News, True Detective, Brothers, Woody Harrelson, Matthew McConaughey
+
+Sun, 20 Sep 2026 19:00:11 GMT
+
+https://collider.com/true-detective-reunion-brothers-apple-tv-release-date-september-2026/
+
+A decade after starring in True Detective, Woody Harrelson and Matthew McConaughey are reuniting for a new show on Apple TV. Get all the details.
+---------
+
+# 6 Fantasy Books I Knew Would Be Masterpieces From the First Chapter
+
+Books and Comics, Fantasy, The Fellowship of the Ring, J.R.R. Tolkien, George R.R. Martin
+
+Sun, 20 Sep 2026 18:49:12 GMT
+
+https://collider.com/fantasy-books-masterpieces-from-first-chapter/
+
+From Babel to A Game of Thrones, these fantasy books make their first chapters feel like promises of something extraordinary yet to come.
+---------
+
+# 10 Amazing Period Drama Shows That Are Perfect From Start to Finish
+
+TV, Television, Bridgerton, Peaky Blinders, Outlander
+
+Sun, 20 Sep 2026 18:33:11 GMT
+
+https://collider.com/period-drama-tv-shows-perfect-start-to-finish/
+
+From sweeping romances like Bridgerton to crime thrillers like Peaky Blinders, these period drama series are truly perfect from start to finish.
+---------
+
+# Apple TV’s Sci-Fi Hit Is Officially Back on the Charts
+
+TV News, Apple TV, Widow's Bay, Sci-Fi, Streaming
+
+Sun, 20 Sep 2026 18:30:11 GMT
+
+https://collider.com/widows-bay-streaming-hit-apple-tv-september-2026/
+
+Apple TV's Emmys-smash sci-fi masterpiece returns to the streaming charts. Here's everything you should know about Widow's Bay.
+---------
+
+# Outlander Blood of My Blood S2: The Castle Had to Grow With the Story | Collider Access
+
+TV, Outlander: Blood of My Blood
+
+Sun, 20 Sep 2026 18:15:11 GMT
+
+https://collider.com/video/outlander-blood-of-my-blood-s2-the-castle-had-to-grow-with-the-story-collider-access/
+
+Outlander: Blood of My Blood hides an incredible amount of detail just beyond what viewers see on camera. Creator Matthew B. Roberts and executive producer Maril Davis break down the locations, production design, costumes, and collaboration required to make its 18th-century world feel real.
+---------
+
+# ‘Pokémon GO's Biggest Feature Change Officially Has Players Furious
+
+Gaming News, Pokemon GO, Pokémon, Gaming, iPhone
+
+Sun, 20 Sep 2026 18:00:11 GMT
+
+https://collider.com/pokemon-go-team-rocket-balloons-reduced-once-per-day/
+
+Pokémon GO players are furious after Scopely reduced daily Team GO Rocket balloon encounters from four to only one.
+---------
+
+# 'Six of Crows' Meets 'The Departed' in This Addictive Fantasy Saga That Demands a Streaming Adaptation
+
+TV Features, Books, Fantasy, Shadow and Bone, The Departed
+
+Sun, 20 Sep 2026 17:58:11 GMT
+
+https://collider.com/silvercloak-lk-steven-fantasy-saga-adaptation-six-of-crows-meets-the-departed/
+
+L.K. Steven's Silvercloak Saga is the perfect dark fantasy series for a streaming TV adaptation, blending elements of Six of Crows and The Departed.
+---------
+
+# Netflix’s New Sherlock Holmes Mystery Is Officially  5 Days Away
+
+TV News, Netflix, Drama, Mystery, Thriller
+
+Sun, 20 Sep 2026 17:30:12 GMT
+
+https://collider.com/sherlock-holmes-replacement-the-final-problem-netflix-premiere-date-september-2026/
+
+Netflix's 4-part period thriller puts a unique twist on Sherlock Holmes. Get all the details here.
+---------
+
+# Charlie Hunnam Officially Reveals His Biggest Fear Filming ‘Monster: The Lizzie Borden Story’ (And It’s Not What You Think)
+
+Exclusives, Charlie Hunnam, Monster: The Lizzie Borden Story, Netflix, Crime
+
+Sun, 20 Sep 2026 17:06:11 GMT
+
+https://collider.com/charlie-hunnam-monster-lizzie-borden-story-netflix/
+
+Charlie Hunnam reveals his biggest fear while filming Monster: The Lizzie Borden Story and breaks down Bridget and Andrew’s complex relationship.
+---------
+
+# Before ‘Avengers: Doomsday,’ Marvel’s $2B Sci-Fi Epic Is Officially Soaring Again
+
+Movie News, Avengers: Infinity War, Avengers: Doomsday, Avengers: Endgame, Disney+
+
+Sun, 20 Sep 2026 17:00:11 GMT
+
+https://collider.com/marvel-avengers-infinity-war-streaming-success-disney-plus-september-2026/
+
+Marvel's greatest movie in the entire MCU is officially finding new life on Disney Plus three months before the premiere of Avengers: Doomsday.
+---------
+
+# 10 Masterpiece Vietnam War Movies Praised by Historians For Accuracy
+
+Movie Lists, War, Full Metal Jacket, Platoon
+
+Sun, 20 Sep 2026 19:00:15 GMT
+
+https://movieweb.com/historically-accurate-vietnam-war-movies/
+
+There are many Vietnam War movies, but only a few capture the reality of the experiences of soldiers, according to historians.
+---------
+
+# The Best Detective Thriller Since 'True Detective' Season 1 Is an Hidden Gem From Stephen King
+
+Features, Mr. Mercedes, Stephen King, Thriller
+
+Sun, 20 Sep 2026 18:30:15 GMT
+
+https://movieweb.com/mr-mercedes-stephen-king-hidden-gem/
+
+One of the most engaging crime thrillers of the last decade flew almost entirely under the radar, but it remains a truly excellent King adaptation.
+---------
+
+# Netflix’s Greatest Mystery Thriller Series Was So Good, It Rewrote the Rules of Streaming
+
+Features, The Haunting of Hill House, Netflix, Mike Flanagan, Thriller
+
+Sun, 20 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/haunting-of-hill-house-netflix-miniseries/
+
+Netflix has many memorable thriller TV shows, but there is one in particular that marked a big change for streaming.
+---------
+
+# Alan Ritchson Reveals the 'Reacher' Book Amazon Won't Let Him Adapt
+
+TV News, Reacher, Alan Ritchson, Thriller
+
+Sun, 20 Sep 2026 17:30:15 GMT
+
+https://movieweb.com/alan-ritchson-reacher-die-trying/
+
+The 'Reacher' star has campaigned to bring his favorite novel in the series to the screen.
+---------
+
+# 8 Great Apple TV Miniseries That No One Remembers
+
+TV Lists, Apple TV, TV Miniseries
+
+Sun, 20 Sep 2026 17:30:15 GMT
+
+https://movieweb.com/apple-tv-forgotten-miniseries/
+
+Some of the best limited series on Apple TV have quietly slipped through the cracks, but they're worth rediscovering in between the streamer's hits.
+---------
+
+# The Greatest Horror Franchise of All Time Is Now Streaming on Peacock Just in Time for Halloween
+
+Movie News, Universal Monsters Shared Universe, Coming/Leaving Streaming, Horror, Peacock
+
+Sun, 20 Sep 2026 17:30:15 GMT
+
+https://movieweb.com/universal-monsters-franchise-horror-streaming-peacock-september-2026/
+
+Long before the MCU, cinema's first shared universe burst onto the scene to change the landscape of horror forever.
+---------
+
+# 10 Best Action Movies Like 'Reacher' To Watch Next
+
+Movie Lists, Action, Reacher
+
+Sun, 20 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/best-action-movies-like-reacher/
+
+There are many action movies out there to serve as the perfect filler for that 'Reacher'-shaped void.
+---------
+
 # Courteney Cox’s Wild New Crime Thriller Debuts To Disappointing Rotten Tomatoes Score
 
 Movies, Masked Recs
