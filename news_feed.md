@@ -1,3 +1,256 @@
+# Zelda Meets Assassin's Creed: Black Flag In Steam Game You Can Try Free Now
+
+Gaming, The Legend of Zelda, Steam, Indie Games, PC
+
+Sun, 20 Sep 2026 08:00:14 GMT
+
+https://screenrant.com/zelda-assassins-creed-black-flag-draco-pirate-game/
+
+Zelda meets Black Flag in this charming pirate Metroidvania, and the unusual mashup is now available to try for free with a demo on Steam.
+---------
+
+# Gundam: Aquatic Assault Arrives September 25
+
+Gaming, Gundam
+
+Sun, 20 Sep 2026 07:00:15 GMT
+
+https://screenrant.com/gundam-gcg-aquatic-assault-september-release-date/
+
+Discover the new Gundam Aquatic Assault Starter Deck launching September 25 to boost your TCG gameplay.
+---------
+
+# Final Fantasy 14 Sets Unexpected Release For December 2026
+
+Gaming, Final Fantasy 14 (2010), RPG, Final Fantasy, PC
+
+Sun, 20 Sep 2026 06:00:15 GMT
+
+https://screenrant.com/final-fantasy-14-dawntrail-book-december-2026/
+
+Final Fantasy 14 fans should get excited, as a brand-new and unexpected release is scheduled for this December.
+---------
+
+# The Wheel Of Time Is About To Rewrite The Forsaken’s Fate
+
+Gaming, The Wheel of Time, PC
+
+Sun, 20 Sep 2026 05:30:16 GMT
+
+https://screenrant.com/wheel-of-time-war-of-the-dragon-forsaken-change/
+
+The Wheel of Time's notorious Forsaken are about to get a new ending thanks to an upcoming 2027 release that rewrites their fate entirely.
+---------
+
+# Netflix’s R-Rated Sci-Fi Masterpiece Deserves Kudos For Being Bold & Experimental
+
+Classic TV, Masked Recs
+
+Sun, 20 Sep 2026 05:01:02 GMT
+
+https://screenrant.com/love-death-robots-bold-experimental-netflix-sci-fi/
+
+Netflix is the streaming home of an R-rated sci-fi show that does not shy away from bringing something completely bold and experimental to the table.
+---------
+
+# Diablo 4 Is Completely Free For 24 Hours
+
+Gaming, Diablo, Diablo 4, Steam, PC
+
+Sun, 20 Sep 2026 04:30:14 GMT
+
+https://screenrant.com/diablo-4-free-24-hours-september-2026/
+
+The incredible Diablo 4 is completely free to play for just 24 hours, so fans and prospective players will have to be quick.
+---------
+
+# Power Rangers Meets The Boys In The Dark Superhero Series More Fans Need To See
+
+Comics, Masked Recs
+
+Sun, 20 Sep 2026 04:06:30 GMT
+
+https://screenrant.com/radiant-black-power-rangers-boys/
+
+Discover how Radiant Black fuses colorful heroes with a gritty storyline, appealing to fans of both genres.
+---------
+
+# Final Fantasy Meets Octopath Traveler In New RPG Arriving In October
+
+Gaming, Final Fantasy Resonance, Triple-A Games, RPG, PC, Octopath Traveler
+
+Sun, 20 Sep 2026 04:00:20 GMT
+
+https://screenrant.com/final-fantasy-meets-octopath-traveler-rpg-release-october/
+
+A brand-new RPG that mixes elements from Final Fantasy and Octopath Traveler is arriving in October, so be sure to keep it on your radar.
+---------
+
+# Naruto's Greatest Meme Character Is About To Officially Take Down The Hokage
+
+Anime, Naruto
+
+Sun, 20 Sep 2026 03:59:15 GMT
+
+https://screenrant.com/naruto-boruto-nishi-goat-hokage-takedown/
+
+Many individual threats and war have taken down shinobi holding the Hokage role, but one Naruto character could fall to one meme character.
+---------
+
+# Apple TV & Tom Hiddleston's New Death-Defying Thriller Officially Sets All-Time Rotten Tomatoes Record
+
+Movies, Masked Recs, Apple TV, Tom Hiddleston
+
+Sun, 20 Sep 2026 03:59:15 GMT
+
+https://screenrant.com/apple-tv-tenzing-movie-rotten-tomatoes-score-tom-hiddleston-record/
+
+Tom Hiddleston will star in Apple TV's new death-defying thriller, which officially debuted to a Rotten Tomatoes record ahead of its release.
+---------
+
+# 5 Anime Series Where the Hero Betrays Everyone
+
+Anime, Attack on Titan, Code Geass: Lelouch of the Rebellion
+
+Sun, 20 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/anime-series-hero-betrays-everyone/
+
+These are the best anime where the hero betrays everyone who loved and cared about them.
+---------
+
+# Brad Pitt's Forgotten HBO Horror Show Is Perfect for The Twilight Zone Fans
+
+TV, Brad Pitt, Tales From the Crypt, The Twilight Zone
+
+Sun, 20 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/brad-pitt-forgotten-tales-from-the-crypt-episode-perfect-twilight-zone-fans/
+
+Brad Pitt is a Hollywood icon, but one of his early roles brought him into an iconic HBO horror anthology that's perfect for The Twilight Zone fans.
+---------
+
+# 10 Best Garfield Comic Strips Featuring Jon of All Time, Ranked
+
+Comics, Garfield
+
+Sun, 20 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/best-garfield-comic-strips-featuring-jon-ranked/
+
+Garfield may be the main character of the hit multimedia franchise, but owner Jon Arbuckle is a hilarious star in the beloved comic strips as well.
+---------
+
+# 7 Most Perfect SNES Games of All Time, Ranked
+
+Games, Nintendo, retro games
+
+Sun, 20 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/most-perfect-snes-games-of-all-time-ranked/
+
+SNES games like Chrono Trigger are true video game perfection.
+---------
+
+# Initial D Officially Brings Takumi's Toyota AE86 to Formula 1
+
+Anime, Initial D, merchandise, Clothing
+
+Sun, 20 Sep 2026 03:00:11 GMT
+
+https://www.cbr.com/initial-d-takumi-toyota-ae86-williams-f1-collaboration/
+
+Formula 1 racing is officially teaming up with the iconic anime/manga franchise Initial D for a collection of branded clothing and accessories.
+---------
+
+# 10 Open-World RPGs Forgotten By Time
+
+Games, Video Games, Far Cry, open world
+
+Sun, 20 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/open-world-rpgs-forgotten-by-time/
+
+Open-world games like Far Cry are enjoyed massive success, but not every game can reach the same heights and many wind up forgotten by time.
+---------
+
+# Anya Taylor-Joy's $168M Sci-Fi Masterpiece Is Officially the Best Movie Nobody Watched
+
+Movie Features, Anya Taylor-Joy, Furiosa: A Mad Max Saga, George Miller, Mad Max: Fury Road, Chris Hemsworth
+
+Sun, 20 Sep 2026 08:00:11 GMT
+
+https://collider.com/furiosa-anya-taylor-joy-sci-fi-thriller-masterpiece-mad-max/
+
+Anya Taylor-Joy stars in the underappreciated Mad Max prequel, Furiosa, which is a stark reminder of the power of the visual medium.
+---------
+
+# Jason Statham’s $760 Million Sci-Fi Action Blockbuster Officially Lands on Hulu
+
+Movie News, Fast & Furious Presents: Hobbs & Shaw, Dwayne Johnson, Idris Elba, Jason Statham
+
+Sun, 20 Sep 2026 08:00:11 GMT
+
+https://collider.com/jason-statham-fast-and-furious-hobbs-and-shaw-streaming-hulu-september-2026/
+
+Dwayne Johnson and Jason Statham’s $760 million Hobbs & Shaw has officially found a new streaming home on Hulu.
+---------
+
+# 27 Years Later, The Greatest Action Sci-Fi Movie's Final Line Still Officially Defines the Genre
+
+Movie Features, The Matrix, Keanu Reeves, Lana Wachowski, Lilly Wachowski
+
+Sun, 20 Sep 2026 04:08:11 GMT
+
+https://collider.com/the-matrix-final-quote-sci-fi-action-movie/
+
+The Matrix ends with one of the greatest final lines in sci-fi film history, spoken by Neo, though some fans think it doesn't fit the film.
+---------
+
+# 5 Thriller Series That Are Perfect From Beginning to End
+
+TV, Thriller, The Night Of, Breaking Bad, The Americans
+
+Sun, 20 Sep 2026 03:39:11 GMT
+
+https://collider.com/thriller-shows-perfect-beginning-to-end/
+
+From Dark to The Americans, these thrillers sustain their tension, deepen their characters, and deliver endings that make every episode count.
+---------
+
+# 'The Matrix' Meets 'Resident Evil' in This Streaming Hit Action Thriller
+
+Movie Features, Underworld, Kate Beckinsale, The Matrix, Action
+
+Sun, 20 Sep 2026 03:09:11 GMT
+
+https://collider.com/underworld-franchise-matrix-resident-evil-streaming-starz-september-2026/
+
+The Underworld franchise, Kate Beckinsale's sci-fi thriller series that changed the game for female-led action, is surging up the charts at Starz.
+---------
+
+# David Harbour's New Post-Stranger Things Thriller Hailed as One of the Best Shows on Streaming
+
+TV News, David Harbour, Hot on Streaming, DTF St. Louis, HBO Max
+
+Sun, 20 Sep 2026 03:30:14 GMT
+
+https://movieweb.com/david-harbour-dtf-st-louis-hbo-max-top-10-sept-2026/
+
+David Harbour’s DTF St. Louis has climbed back into HBO Max’s global top 10.
+---------
+
+# Netflix's New Harlan Coben 8-part Thriller Sets New Streaming Record
+
+TV News, Harlan Coben, Netflix, Hot on Streaming, I Will Find You
+
+Sun, 20 Sep 2026 03:00:15 GMT
+
+https://movieweb.com/harlan-coben-i-will-find-you-netflix-top-10-sept-2026/
+
+Harlan Coben's I Will Find You is still gaining ground on Netflix in September 2026.
+---------
+
 # Cartman's 20 Funniest South Park Quotes
 
 Streaming TV, South Park
