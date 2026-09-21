@@ -1,3 +1,333 @@
+# Silent Hill: Townfall Review - Not The Hill You'd Expect
+
+Gaming, Silent Hill: Townfall, Triple-A Games
+
+Mon, 21 Sep 2026 07:01:16 GMT
+
+https://screenrant.com/silent-hill-townfall-review/
+
+This time around, Silent Hill: Townfall does a lot of things differently compared to other Silent Hill games, and the results will shock some fans.
+---------
+
+# Pokémon Unveils Official New Gengar Design For 30th Anniversary
+
+Gaming, Pokemon, Pokémon, Pokemon Trading Card Game, PC
+
+Mon, 21 Sep 2026 07:00:15 GMT
+
+https://screenrant.com/pokemon-gengar-diorama-xp-reveal/
+
+Pokémon continues celebrating its 30th Anniversary with a brand-new, stunning Gengar design unlike anything we've seen before.
+---------
+
+# Jurassic Park Officially Switches Genres In Upcoming Sequel
+
+Gaming, Jurassic Park: Survival, Jurassic Park, PC, Jurassic World, The Lost World: Jurassic Park, Jurassic Park 3
+
+Mon, 21 Sep 2026 06:00:14 GMT
+
+https://screenrant.com/jurassic-park-switching-genres-survival-sequel/
+
+Jurassic Park's upcoming sequel takes the franchise in a bold new direction when we return to the original island where it all began.
+---------
+
+# Dungeon Crawler Carl Officially Replaces Carl As Lead Character In New Adventure
+
+Gaming, Dungeon Crawler Carl
+
+Mon, 21 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/dungeon-crawler-carl-mamas-night-off-princess-donut/
+
+Discover the new adventure in Dungeon Crawler Carl featuring Princess Donut as she embarks on a chocolate-themed quest.
+---------
+
+# 3 Classic PlayStation 2 Games That Are Way Worse Than You Remember
+
+Gaming, PlayStation 2, PlayStation
+
+Mon, 21 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/classic-ps2-games-actually-bad-now/
+
+The PlayStation 2 has some truly incredible games, but a few PS2 titles just haven't aged as well as we'd all like, especially if you play them now.
+---------
+
+# Star Trek: Resistance Is Futile Officially Announced For 2027
+
+Gaming, Star Trek
+
+Mon, 21 Sep 2026 04:30:15 GMT
+
+https://screenrant.com/star-trek-resistance-futile-2027/
+
+Discover the upcoming Star Trek game launching in 2027, featuring unique gameplay for 1-2 players.
+---------
+
+# The Wheel Of Time Is Officially Switching Genres When It Returns In 2027
+
+Gaming, The Wheel of Time
+
+Mon, 21 Sep 2026 04:00:20 GMT
+
+https://screenrant.com/wheel-of-time-switching-genres-2027-return/
+
+Discover the new board game 'War of the Dragon' based on The Wheel of Time, launching in 2027!
+---------
+
+# DC Reveals New Backstory Of Iconic Batman Villain
+
+Comics, Batman, Absolute Batman
+
+Mon, 21 Sep 2026 03:59:15 GMT
+
+https://screenrant.com/absolute-redesign-lady-shiva-batgirl/
+
+One of Batman and the Bat Family's deadly assassin opponents just got a radical backstory shift thanks to a major traumatic incident.
+---------
+
+# 7 Comics To Read While Waiting For Avatar: Seven Havens
+
+Comics, Avatar: Seven Havens
+
+Mon, 21 Sep 2026 03:38:26 GMT
+
+https://screenrant.com/comics-read-waiting-for-avatar-seven-havens/
+
+Discover 7 engaging comics to enjoy while waiting for Avatar: Seven Havens. Perfect for fans of the franchise!
+---------
+
+# 10 Best Project Hail Mary Quotes That Are Already Iconic Sci-Fi Movie Lines
+
+Movies, Project Hail Mary
+
+Mon, 21 Sep 2026 03:15:15 GMT
+
+https://screenrant.com/project-hail-mary-movie-best-quotes/
+
+Project Hail Mary is easily one of the best movie releases of the year, featuring a collection of truly great lines that have already become iconic.
+---------
+
+# Harry Potter Fan-Favorite Is the World's Newest Hero as Stealth Sci-Fi Gem Takes Over Streaming
+
+Movies, Altered
+
+Mon, 21 Sep 2026 03:47:52 GMT
+
+https://www.cbr.com/altered-sci-fi-streaming-success-september-2026/
+
+The sci-fi flick sees a rise on streaming after its quiet release in theaters last year.
+---------
+
+# 10 Greatest Games of the Last 10 Years, Ranked
+
+Games, Video Games, Innovation
+
+Mon, 21 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/greatest-games-last-10-years-ranked-list/
+
+Games like Red Dead Redemption 2 are the best video games of the last decade.
+---------
+
+# 5 Transformers Series That Don't Hold Up
+
+Anime, Transformers
+
+Mon, 21 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/transformers-series-dont-hold-up-list/
+
+Some Transformers series like Energon and even the Generation One anime just aren't remembered as well as others.
+---------
+
+# HBO Erased 1 of George RR Martin's Most Important Game of Thrones Characters With No Explanation
+
+TV, hbo, Game Of Thrones, George R.R. Martin
+
+Mon, 21 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/hbo-game-of-thrones-deleted-young-griff/
+
+Among many other characters in A Song of Ice and Fire, Game of Thrones cut one character who was introduced too late in the story.
+---------
+
+# 10 Deepest Garfield Comics of All Time, Ranked
+
+Comics, Garfield
+
+Mon, 21 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/deepest-garfield-comics-ranked/
+
+While Garfield comics contain an abundance of humor, Jim Davis also includes deep concepts deserving of a closer examination.
+---------
+
+# Resident Evil Director Addresses Fan Calls to 'Release the Cregger Cut'
+
+Movies, Resident Evil
+
+Mon, 21 Sep 2026 03:12:21 GMT
+
+https://www.cbr.com/resident-evil-director-addresses-fan-calls-to-release-the-cregger-cut/
+
+Fans have asked for the "Cregger Cut" of Resident Evil after Zach Cregger confirmed which scenes needed to be taken out.
+---------
+
+# Gundam Opens Major New U.S. Store September 30 With Exclusive Releases
+
+Anime, Mobile Suit Gundam, merchandise, toys, collectibles
+
+Mon, 21 Sep 2026 03:00:11 GMT
+
+https://www.cbr.com/gundam-new-us-store-mall-of-america-exclusive-releases/
+
+Gundam is officially opening a new store in the United States later this month, and it's offering exclusive releases.
+---------
+
+# 10 Sega Genesis Games That Still Play Perfectly in 2026
+
+Games, Sega Genesis, sega, Video Games
+
+Mon, 21 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/sega-genesis-games-still-play-perfectly-2026/
+
+The Sega Genesis is one of the greatest video game consoles of all time, and some of its titles are just as good in 2026 as they were in the 90s.
+---------
+
+# Stephen King's 2-Film Horror Franchise Is Officially Everything 'IT' Should Have Been
+
+Movie Features, The Shining, Doctor Sleep, Stephen King, Mike Flanagan, Stanley Kubrick
+
+Mon, 21 Sep 2026 08:00:11 GMT
+
+https://collider.com/doctor-sleep-the-shining-best-stephen-king-franchise/
+
+The two-part Stephen King franchise, including The Shining and Doctor Sleep, did not get as much cumulative hype as the uneven IT franchise.
+---------
+
+# 'Silent Hill: Townfall' Is ‘Silent Hill’ Like You’ve Never Experienced It Before | Review
+
+Gaming, Silent Hill: Townfall, Silent Hill, Konami
+
+Mon, 21 Sep 2026 07:01:12 GMT
+
+https://collider.com/silent-hill-townfall-review-konami-screen-burn/
+
+Silent Hill: Townfall brings the franchise into first person with terrifying results, rewarding exploration, puzzles, and unforgettable monsters.
+---------
+
+# Alexander Skarsgård's 'The Mummy' Replacement Is Officially a Streaming Hit
+
+Movie Features, Alexander Skarsgard, Margot Robbie, Christoph Waltz, The Legend of Tarzan
+
+Mon, 21 Sep 2026 04:08:11 GMT
+
+https://collider.com/alexander-skarsgard-legend-of-tarzan-themummy-streaming-free-tubi-september-2026/
+
+Alexander Skarsgård's 2016 action adventure film The Legend of Tarzan is a streaming hit on Tubi.
+---------
+
+# The 8 Most Fun HBO Shows, Ranked
+
+TV, HBO, Veep, Hacks, The Righteous Gemstones
+
+Mon, 21 Sep 2026 03:57:11 GMT
+
+https://collider.com/most-fun-hbo-shows-ranked/
+
+Veep, The Righteous Gemstones, and Curb Your Enthusiasm are all among the most purely fun and entertaining HBO shows of all time.
+---------
+
+# This 4-Film Action Franchise on Hulu Is Like Game of Thrones But Sci-Fi
+
+Music Features, Rise of the Planet of the Apes, Andy Serkis, Planet of the Apes, Science Fiction
+
+Mon, 21 Sep 2026 03:47:11 GMT
+
+https://collider.com/planet-of-the-apes-hulu-science-fiction-films-game-of-thrones/
+
+Game of Thrones fans can find a new epic adventure with the four Planet of the Apes films on Hulu.
+---------
+
+# 15 Years Later, Steven Spielberg’s 52-Episode Sci-Fi Is Still Worth Revisiting
+
+TV Features, Falling Skies, Sawyer Spielberg, Noah Wyle, Sci-Fi
+
+Mon, 21 Sep 2026 03:32:11 GMT
+
+https://collider.com/best-steven-spielberg-sci-fi-series-falling-skies/
+
+Steven Spielberg’s 52-episode sci-fi series still holds up 15 years later with big action, strong characters, and a fresh alien-invasion twist.
+---------
+
+# 10 Netflix Detective Shows Where Every Episode Is a Masterpiece
+
+TV, Netflix, Mystery, His & Hers, Mindhunter
+
+Mon, 21 Sep 2026 03:22:11 GMT
+
+https://collider.com/netflix-detective-shows-every-episode-masterpiece/
+
+From the comedic whodunit The Residence to the thrilling miniseries His & Hers, every episode of these Netflix detective shows is a true masterpiece.
+---------
+
+# The 10 Best Psychological Thrillers Released Since 2010, Ranked
+
+Movie, Psychological Thriller, Gone Girl, Black Swan, Prisoners
+
+Mon, 21 Sep 2026 03:11:11 GMT
+
+https://collider.com/best-psychological-thrillers-since-2010-ranked/
+
+From Get Out to Shutter Island, these psychological thrillers twist reality, identity, and perception into unforgettable mind games.
+---------
+
+# 3 Years Later, One of the Greatest Crime Thrillers Shows Ever Made Returns to Take Over Streaming
+
+TV News, Hot on Streaming, Disney+, The Drop: A Snowfall Saga
+
+Mon, 21 Sep 2026 03:59:14 GMT
+
+https://movieweb.com/the-drop-a-snowfall-saga-disney-plus-hit-sept-2026/
+
+The Drop: A Snowfall Saga has climbed to No. 1 on Disney+’s U.S. TV chart, giving FX another adult-skewing streaming winner.
+---------
+
+# 14 Biggest Questions After 'Lanterns' Episode 6
+
+TV Lists, Lanterns, DCU
+
+Mon, 21 Sep 2026 03:56:45 GMT
+
+https://movieweb.com/lanterns-episode-6-biggest-questions/
+
+As usual, Lanterns left us with a lot more questions than answers. Here's what we know about every layer going on in the series.
+---------
+
+# Mark Wahlberg's New R-Rated Thriller Officially Smashes Past Jason Statham's $50M Action Movie in Theaters
+
+Movie News, Jason Statham, Mark Wahlberg, Box Office Milestones, By Any Means, Shelter
+
+Mon, 21 Sep 2026 03:30:14 GMT
+
+https://movieweb.com/jason-statham-shelter-beats-mark-wahlberg-by-any-means-box-office/
+
+Jason Statham’s 2026 action thriller has now been edged out domestically by Mark Wahlberg’s By Any Means.
+---------
+
+# 9 Years Later, Ridley Scott's 164-Minute Sci-Fi Flop Is Officially One of Streaming's Biggest Hits
+
+Movie News, Blade Runner, Blade Runner 2049, HBO Max, Hot on Streaming
+
+Mon, 21 Sep 2026 03:00:15 GMT
+
+https://movieweb.com/blade-runner-2049-streaming-hit-sept-2026/
+
+Blade Runner 2049 is back in streaming charts around the world as audiences prepare for Prime Video’s Blade Runner 2099.
+---------
+
 # Joel Kinnaman’s “Dexter Meets Patrick Bateman” In Netflix’s Obscure But Brilliant 9-Part Thriller
 
 Classic TV, Masked Recs
