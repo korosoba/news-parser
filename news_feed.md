@@ -1,3 +1,388 @@
+# Joel Kinnaman’s “Dexter Meets Patrick Bateman” In Netflix’s Obscure But Brilliant 9-Part Thriller
+
+Classic TV, Masked Recs
+
+Mon, 21 Sep 2026 02:30:15 GMT
+
+https://screenrant.com/joel-kinnaman-detective-hole-netflix-dexter-meets-patrick-bateman/
+
+Joel Kinnaman portrays a chilling but fascinating character in one of Netflix’s greatest thrillers who reminds one of Patrick Bateman and Dexter.
+---------
+
+# Optimus Prime’s 10 Most-Trusted Allies In Transformers Lore
+
+Movies, Transformers
+
+Mon, 21 Sep 2026 02:30:15 GMT
+
+https://screenrant.com/optimus-prime-most-trusted-allies-transformers/
+
+Leading the Autobots is no easy task, but Optimus Prime can always count on these steadfast allies to help turn the tide against the Decepticons.
+---------
+
+# DCU Officially Confirms Green Lantern's History With Batman
+
+Streaming TV, Masked Recs
+
+Mon, 21 Sep 2026 02:10:15 GMT
+
+https://screenrant.com/lanterns-batman-connection-hal-jordan-dc-universe-history/
+
+Batman will lead The Brave and the Bold movie in James Gunn's DC Universe, and the franchise has confirmed Green Lantern's history with him.
+---------
+
+# Nathan Fillion Officially Debuts In HBO's New Masterpiece 8-Part Sci-Fi Series
+
+Streaming TV, Masked Recs
+
+Mon, 21 Sep 2026 02:05:15 GMT
+
+https://screenrant.com/lanterns-guy-gardner-nathan-fillion-hbo-debut/
+
+Nathan Fillion has debuted in HBO's new masterpiece sci-fi series, and The Rookie star comes to change the show in a monumental way, which is perfect.
+---------
+
+# Smallville's 10 Most Rewatchable Episodes
+
+Classic TV, Smallville, DC Universe
+
+Mon, 21 Sep 2026 02:00:29 GMT
+
+https://screenrant.com/most-rewatchable-smallville-episodes/
+
+The CW Superman origin series created a number of perfect and timeless episodes over its 10-season run that are worth revisiting today.
+---------
+
+# Hal Jordan Officially Returns From The Dead In James Gunn's DCU
+
+Streaming TV, Lanterns, DC Universe
+
+Mon, 21 Sep 2026 02:00:27 GMT
+
+https://screenrant.com/lanterns-hal-jordan-resurrected-hologram-dc-series/
+
+Hal Jordan is once again with John Stewart despite his early death in Lanterns, as the latest episode of the DC Universe series comes with a shocker.
+---------
+
+# 8 Most Underrated DC Comics Heroes Of All Time
+
+Comics
+
+Mon, 21 Sep 2026 02:00:27 GMT
+
+https://screenrant.com/most-underrated-dc-heroes-ever/
+
+These DC heroes don't get the credit they deserve for being phenomenal icons.
+---------
+
+# Like Battlestar Galatica’s Caprica, 1 Ambitious ’90s Space Opera Spinoff Deserved Better
+
+Classic TV, Masked Recs
+
+Mon, 21 Sep 2026 02:00:27 GMT
+
+https://screenrant.com/babylon-5-crusade-battlestar-galactica-caprica-spinoff-deserved-better/
+
+Just like Battlestar Galactica’s ambitious spin-off, Caprica, another classic space opera spin-off show from the 1990s deserved a far better fate.
+---------
+
+# Resident Evil 1 Remake Teaser Has Fans Seriously Excited
+
+Gaming, Resident Evil, Triple-A Games
+
+Mon, 21 Sep 2026 02:00:27 GMT
+
+https://screenrant.com/resident-evil-1-remake-leak-gamers-react/
+
+The original Resident Evil is a legendary survival horror experience on just about any platform, but a new remake will bring us back to the mansion.
+---------
+
+# 36 Years Later, The Single Best Comic Issue Of The 1990s Is Still Essentially Perfect
+
+Comics, Animal Man, Masked Recs
+
+Mon, 21 Sep 2026 01:40:03 GMT
+
+https://screenrant.com/best-comic-book-90s-animal-man-finale-perfect/
+
+Multiple exceptional comic books came and went in the 1990s and have enduring legacies, but none can match this singular issue to kick off the decade.
+---------
+
+# 8 Strongest Werewolves in Anime History, Ranked
+
+Anime, vampires, Hellsing
+
+Mon, 21 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/most-powerful-anime-werewolves-ever-ranked-list/
+
+Anime has plenty of love for werewolves, but some of these transformative creatures are extremely powerful and put the other lycanthropes to shame!
+---------
+
+# 10 Best RPGs You Can Play for 100+ Hours
+
+Games, RPG, JRPG, Video Games
+
+Mon, 21 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/best-long-rpgs-play-100-hours/
+
+Some video game fantasy worlds take countless days to explore, with amazing RPGs offering players well over a hundred hours of content.
+---------
+
+# The 8 Best Hidden Costume Details in The Lord of the Rings
+
+Movies, The Lord of the Rings, Fantasy
+
+Mon, 21 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/best-lotr-secret-costume-details-list/
+
+Even die-hard fans of Peter Jackson's The Lord of the Rings film trilogy may be unaware of these subtle costuming details.
+---------
+
+# Crunchyroll Controls 'About 75% of All Anime' – But Won't Get One of Fall 2026's Biggest Action Shows
+
+Anime, Hulu, Tokyo Revengers
+
+Mon, 21 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/tokyo-revengers-season-4-hulu-exclusive-crunchyroll/
+
+While few anime streaming services cast a net as wide as Crunchyroll's, there is at least one hit shonen IP that will be streamed elsewhere this fall.
+---------
+
+# Supernatural’s Darkest Dean Winchester Line Is Still the Saddest Quote in Fantasy TV History
+
+TV, Supernatural, Jensen Ackles
+
+Mon, 21 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/supernatural-saddest-dean-winchester-quote/
+
+On the surface, Supernatural is just about two road-tripping brothers, but the series delves into family trauma.
+---------
+
+# Mistborn Returns With New Cosmere Release November 4
+
+Games, Mistborn
+
+Mon, 21 Sep 2026 01:50:11 GMT
+
+https://www.cbr.com/mistborn-return-new-cosmere-release-november-4/
+
+Cosmere RPG: Mistborn is a must-play game for fans of Brandon Sanderson.
+---------
+
+# Netflix's Monster Showrunner Confirms Which Killers Are Being Discussed for Season 5
+
+TV, Monster: The Lizzie Borden Story
+
+Mon, 21 Sep 2026 01:49:24 GMT
+
+https://www.cbr.com/netflix-monster-killer-subject-season-5/
+
+After diving into Lizzie Borden's story for Season 4, Monster has a shortlist of real-life murderers to be featured in Season 5.
+---------
+
+# 5 Must-Watch Gundam Anime That Have Zero Bad Seasons
+
+Anime, Mobile Suit Gundam, Gundam, Mobile Suit Gundam: Iron-Blooded Orphans
+
+Mon, 21 Sep 2026 01:45:11 GMT
+
+https://www.cbr.com/must-watch-mobile-suit-gundam-anime-zero-bad-seasons-list/
+
+Gundam is a totemic mecha franchise that's full of groundbreaking hits, some of which maintain their excellence across multiple seasons!
+---------
+
+# 10 Strongest Stand Users in JoJo’s Bizarre Adventure, Ranked
+
+Anime, JoJo's Bizarre Adventure, Jojo's Bizarre Adventure
+
+Mon, 21 Sep 2026 01:25:11 GMT
+
+https://www.cbr.com/jojos-bizarre-adventure-most-powerful-stand-users-ranked-list/
+
+JoJo's Bizarre Adventure is filled with diverse and dangerous Stand users, some of whom go above and beyond with their extreme strength and powers.
+---------
+
+# 10 Best Anime To Watch If You Miss Fullmetal Alchemist: Brotherhood
+
+Anime, Fullmetal Alchemist Brotherhood, Fullmetal Alchemist: Brotherhood
+
+Mon, 21 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/best-anime-for-fullmetal-alchemist-brotherhood-fans/
+
+The devastating gap left by Fullmetal Alchemist: Brotherhood can be filled with a select few anime that can rival the beloved series.
+---------
+
+# Prime Video's 39-Part Sci-Fi Series Feels Like It Was Made To Be Binged
+
+TV Features, Prime Video, Colony, USA Network, Josh Holloway
+
+Mon, 21 Sep 2026 02:11:11 GMT
+
+https://collider.com/prime-video-colony-binge-worthy-sci-fi-series/
+
+The underrated sci-fi series Colony will hook viewers with its unique premise and engaging storytelling.
+---------
+
+# 'Lanterns' Creator Officially Reveals His Long-Term Plan for HBO's Gritty Sci-Fi Detective Series
+
+Exclusives, Lanterns, Chris Mundy, DCU, HBO
+
+Mon, 21 Sep 2026 02:01:11 GMT
+
+https://collider.com/lanterns-hbo-season-plan-creator-chris-mundy/
+
+Lanterns co-creator Chris Mundy discusses Episode 6's Guy Gardner reveal and the long-term plan for HBO's gritty DCU series.
+---------
+
+# HBO's 'Lanterns' Officially Travels to 2026 With a Bonkers Resurrection | Review
+
+TV Reviews, Lanterns, Kyle Chandler, Aaron Pierre, Nathan Fillion
+
+Mon, 21 Sep 2026 02:00:21 GMT
+
+https://collider.com/lanterns-episode-6-recap/
+
+Lanterns finally jumps ahead to the 2026 storyline as John Stewart attempts to solve Hal Jordan's murder.
+---------
+
+# Peacock Quietly Ordered the Most Ambitious Comedy of the Fall
+
+TV Features, Peacock, Dig, Amy Poehler, Hugh Laurie
+
+Mon, 21 Sep 2026 01:53:11 GMT
+
+https://collider.com/peacock-dig-show-amy-poehler-hugh-laurie-excavations-book/
+
+Parks and Recreation's Amy Poehler and Mike Schur are reuniting for a Peacock series that will see Poehler finally return to TV alongside Hugh Laurie.
+---------
+
+# 6 Flawless HBO Shows With No Weak Episodes, Ranked
+
+TV, HBO, Band of Brothers, The Leftovers, The Wire
+
+Mon, 21 Sep 2026 01:22:11 GMT
+
+https://collider.com/best-hbo-shows-no-weak-episodes-ranked/
+
+Dive into HBO's best series that never missed a beat, showcasing perfection in every episode, from Band of Brothers to The Leftovers.
+---------
+
+# Ridley Scott’s Sci-Fi Flop Officially Crashes Out of Theaters With a Brutal $6 Average
+
+Movie News, Ridley Scott, The Dog Stars, Jacob Elordi, Box Office
+
+Mon, 21 Sep 2026 01:00:11 GMT
+
+https://collider.com/ridley-scott-the-dog-stars-box-office-disaster-september-2026/
+
+Ridley Scott's first sci-fi movie in nearly a decade, The Dog Stars, is ending its disastrous box-office run with an extraordinary statistic.
+---------
+
+# Russell Crowe’s Best-Reviewed Movie in 27 Years Officially Delivered a Top-10 Box Office Debut
+
+Movie News, Russell Crowe, The Weight, Ethan Hawke, Box Office
+
+Mon, 21 Sep 2026 00:45:11 GMT
+
+https://collider.com/russell-crowe-western-the-weight-box-office-debut/
+
+Russell Crowe and Ethan Hawke's critically acclaimed new Western, The Weight, delivered a top-10 finish in its domestic box-office debut.
+---------
+
+# Pokémon Officially Targets Scalpers With Sweeping New Change
+
+Gaming News, Pokémon, Gaming, Games, Merchandise
+
+Mon, 21 Sep 2026 00:30:11 GMT
+
+https://collider.com/pokemon-tcg-30th-celebration-pull-rates-scalpers/
+
+Pokémon TCG: 30th Celebration’s unusually generous pull rates are driving down card prices and dealing a major blow to scalpers.
+---------
+
+# 'Game of Thrones' Best Season Didn't Need George R.R. Martin At All
+
+TV Features, Game Of Thrones, George R.R. Martin, HBO, A Song of Ice and Fire
+
+Mon, 21 Sep 2026 00:20:11 GMT
+
+https://collider.com/game-of-thrones-season-6-george-rr-martin-books/
+
+Game of Thrones was forced to move on without George R.R. Martin's books, and ended up creating one of the best seasons of the show.
+---------
+
+# Quentin Tarantino Was "Blown Away" by the '60s Horror Masterpiece Leaving Streaming
+
+Movie News, Night of the Living Dead, George A. Romero, Quentin Tarantino, HBO Max
+
+Mon, 21 Sep 2026 00:15:11 GMT
+
+https://collider.com/quentin-tarantino-favorite-night-of-the-living-dead-leaving-hbo-max-september-2026/
+
+A classic of the exploitation horror genre, directed by George A. Romero, is about to be removed from HBO Max. Find out more.
+---------
+
+# 8 'Lioness' Characters Who Could Be the Mole, Ranked By How Likely They Are
+
+Features, Lioness, Taylor Sheridan
+
+Mon, 21 Sep 2026 02:00:26 GMT
+
+https://movieweb.com/lioness-characters-mole-season-3-finale/
+
+Season 3 of Taylor Sheridan's 'Lioness' ended on a major cliffhanger, as it now seems extremely clear there is a mole impacting Joe's team.
+---------
+
+# Netflix's New 8-Part Crime Thriller Officially Claims the Top Spot on Streaming in 48 Hours
+
+TV News, Hot on Streaming, Monster: The Lizzie Borden Story, Monster, Netflix
+
+Mon, 21 Sep 2026 02:00:26 GMT
+
+https://movieweb.com/monster-the-lizzie-borden-story-netflix-hit-sept-2026/
+
+Monster: The Lizzie Borden Story has already climbed to No. 1 on Netflix’s TV chart.
+---------
+
+# Before the Odyssey, the Action Epic Christopher Nolan Was Meant To Direct Is Now a Streaming Hit
+
+Movie News, Hot on Streaming, The Odyssey, Troy, Brad Pitt
+
+Mon, 21 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/christopher-nolan-troy-apple-tv-streaming-hit-sept-2026/
+
+As Troy surges on Apple TV, Christopher Nolan’s long-ago connection to the Greek epic is back in focus.
+---------
+
+# Apple TV's New High Fantasy Series Is Already Taking 1 Trend From Peak 'Game of Thrones'
+
+Features, Apple TV, Fantasy, The Stormlight Archive
+
+Mon, 21 Sep 2026 00:30:15 GMT
+
+https://movieweb.com/stormlight-archive-episode-count-game-of-thrones/
+
+Apple TV has found the secret to making its next fantasy epic work, and it's a trend that made the best seasons of 'Game of Thrones' what they are.
+---------
+
+# Lex Luthor, The Joker & More Iconic DC Villains Join Forces for a Massive New Release
+
+Movie News, Blu-ray, The Batman, Superman, Batman
+
+Mon, 21 Sep 2026 00:00:14 GMT
+
+https://movieweb.com/dc-villains-six-film-4k-steelbook-blu-ray-release/
+
+Warner’s new DC Villains steelbook library case pulls together six 4K films from across multiple eras.
+---------
+
 # 7 Near-Perfect Vampire Shows On Netflix
 
 Streaming TV, Netflix
