@@ -1,3 +1,443 @@
+# Reacher Star Alan Ritchson's War Machine Is One of Netflix Hits of 2026
+
+Movies, Masked Recs
+
+Mon, 21 Sep 2026 23:19:10 GMT
+
+https://screenrant.com/netflix-alan-ritchson-reacher-war-machine-best-action-thriller/
+
+After making history on Prime Video's Reacher, Alan Ritchson has cemented himself as a Netflix star, and his 107-minute thriller still dominates.
+---------
+
+# A Knight Of The Seven Kingdoms Meets Mount & Blade In New Sandbox RPG
+
+Gaming, A Knight of the Seven Kingdoms, A Knight Of The Seven Kingdoms, Game of Thrones, Game Of Thrones, House of the Dragon, Mount & Blade II: Bannerlord, PC, Steam
+
+Mon, 21 Sep 2026 23:00:17 GMT
+
+https://screenrant.com/knight-of-seven-kingdoms-meets-mount-and-blade-sandbox-rpg/
+
+A Knight of the Seven Kingdoms fans looking for a Mount & Blade-style RPG are in luck with this upcoming Steam release.
+---------
+
+# 23 Years Later, Aragorn's Best LOTR Quote Remains One Of The Most Beautiful In Fantasy Movie History
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Return of the King
+
+Mon, 21 Sep 2026 23:00:17 GMT
+
+https://screenrant.com/lord-of-the-rings-movies-aragorn-best-quote-fantasy-history/
+
+Peter Jackson’s The Lord of the Rings movies are full of great dialogue, and this powerful line might be the best in the entire trilogy.
+---------
+
+# It's Officially The End Of An Era For American Horror Story
+
+TV, American Horror Story
+
+Mon, 21 Sep 2026 22:57:15 GMT
+
+https://screenrant.com/american-horror-story-season-13-returning-characters-change/
+
+With familiar faces returning after Delicate's failure, the show bets on nostalgia and crossover shock value to recapture a lost horror prestige.
+---------
+
+# Not A Stranger: Netflix’s New 8-Part Thriller Is #3 Worldwide In Just 4 Days & It’s A Must-Binge
+
+Streaming TV, Masked Recs
+
+Mon, 21 Sep 2026 22:53:14 GMT
+
+https://screenrant.com/netflix-not-a-stranger-thriller-series-must-watch/
+
+4 days after its release, Netflix's new 8-part psychological thriller Not a Stranger is a massive surprise streaming hit & is #3 on worldwide charts.
+---------
+
+# Hannah Waddingham’s Prime Video Action Series Cancellation Gets Official Response From Co-Star
+
+TV, Ride or Die, Ride or Die - Season 1
+
+Mon, 21 Sep 2026 22:52:20 GMT
+
+https://screenrant.com/ride-or-die-prime-video-cancellation-octavia-spencer-response/
+
+After the surprising cancellation of Prime Video's action series Ride or Die, Octavia Spencer has officially responded to the disappointing news.
+---------
+
+# Netflix Officially Brings Stranger Things Back & It's Full Stephen King
+
+Streaming TV, Stranger Things: Tales from '85
+
+Mon, 21 Sep 2026 22:45:15 GMT
+
+https://screenrant.com/stranger-things-tales-from-85-season-2-stephen-king-pennywise/
+
+Stranger Things is officially back, and this time, it went full Stephen King with a couple of twists, but it isn't entirely a good thing.
+---------
+
+# Nathan Fillion’s New 8-Part Sci-Fi Series Shockingly Dethroned From Streaming At The Worst Time
+
+TV, Masked Recs, DC
+
+Mon, 21 Sep 2026 22:37:01 GMT
+
+https://screenrant.com/nathan-fillion-lanterns-supergirl-dethroned-hbo-max-streaming-charts-september-2026/
+
+Nathan Fillion's new eight-part sci-fi series has shockingly been dethroned from the No. 1 spot on streaming at the absolute worst time.
+---------
+
+# Over 20 Major Easter Eggs, Comics References, And DCU Ties in Lanterns Episode 6
+
+Superheroes, Lanterns, DC Universe
+
+Mon, 21 Sep 2026 22:32:54 GMT
+
+https://screenrant.com/lanterns-episode-6-easter-eggs-comics-references-dcu-ties/
+
+Lanterns episode 6 features a solid collection of Easter eggs, references, cameos, and DCU ties now that the show has jumped to the present.
+---------
+
+# Every Woman That Charlie Harper Dated In Two And A Half Men
+
+Classic TV, Two and a Half Men
+
+Mon, 21 Sep 2026 22:30:17 GMT
+
+https://screenrant.com/every-woman-charlie-harper-dated-two-half-men/
+
+Although he's better known for engaging in one-night stands, ladies' man Charlie Harper did properly date more than a few women on Two and a Half Men.
+---------
+
+# 9 Years Before The Rookie, Nathan Fillion Starred in an Even Better 8-Season Crime Show
+
+TV, Castle, Crime
+
+Mon, 21 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/abc-castle-nathan-fillion-procedural/
+
+Before Nathan Fillion was a rookie in ABC's The Rookie, he was a crime-fighting novelist in this witty 8-season procedural.
+---------
+
+# After Just 4 Days, Hulu's New 8-Part Vampire Thriller Is Already 1 of the World's Most-Watched Shows
+
+TV, Hulu, Disney+
+
+Mon, 21 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/city-of-blood-horror-success-disney-plus-september-2026/
+
+The under-the-radar Hulu original is becoming a sleeper hit.
+---------
+
+# 10 Movie Trilogies Better Than Back to the Future
+
+Movies, Back to the Future, Sci-Fi, Western
+
+Mon, 21 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/movie-trilogies-better-than-back-to-the-future-list/
+
+Back to the Future is one of the greatest movie trilogies of all time, but some rival it for the top spot through genres like Western and fantasy.
+---------
+
+# God of War’s Kratos Returns in New Game After Laufey
+
+Games, God of War
+
+Mon, 21 Sep 2026 22:45:11 GMT
+
+https://www.cbr.com/god-of-war-kratos-returns-new-game-confirmed/
+
+A new God of War game starring Kratos has officially been confirmed.
+---------
+
+# Dragon Ball: Spirit of the Saiyan Launches This October
+
+Anime, Dragon Ball, merchandise, Dragon Ball Z
+
+Mon, 21 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/dragon-ball-spirit-of-the-saiyan-launches-this-october/
+
+Dragon Ball fans have a whole new figure line to look forward to next month, and it includes some of the franchise's most incredible characters.
+---------
+
+# ABC Confirms Surprise R.J. Decker Crossover With a Series Fans Would Never Expect
+
+TV, R.J. Decker, Dancing with the Stars, ABC
+
+Mon, 21 Sep 2026 22:29:50 GMT
+
+https://www.cbr.com/abc-rj-decker-dancing-with-the-stars-crossover/
+
+This crime drama features an unexpected crossover with an ABC competition show.
+---------
+
+# 7 Classic Cartoon Network Anime That Are 10/10 Masterpieces
+
+Anime, Cartoon Network, toonami
+
+Mon, 21 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/classic-cartoon-network-anime-masterpieces-toonami/
+
+Cartoon Network's Toonami block introduced an entire generation of American viewers to anime.
+---------
+
+# Agents of S.H.I.E.L.D. Star Is 'Low-Key Angry' the Marvel Series Isn't MCU Canon
+
+TV, Agents of S.H.I.E.L.D.
+
+Mon, 21 Sep 2026 22:06:09 GMT
+
+https://www.cbr.com/chloe-bennet-agents-of-shield-mcu-canon/
+
+The hit Marvel series isn't considered to be fully canon to the MCU.
+---------
+
+# Kurt Russell's 2-Part Apple TV Creature Feature Runs Out of Steam Ahead of Season 3
+
+TV, Monarch: Legacy of Monsters, Apple TV
+
+Mon, 21 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/monarch-legacy-of-monsters-streaming-performance-apple-tv-september-2026/
+
+Kurt Russell's Apple TV series is slowing down on streaming.
+---------
+
+# Netflix's Steps Is Shaking Up the Cinderella Formula
+
+Movies, Steps
+
+Mon, 21 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/netflix-steps-breaking-cinderalla-formula/
+
+Netflix's upcoming original film, Steps, will change everything fans know about Disney's classic Cinderella fairytale.
+---------
+
+# Tom Ellis’ CBS Spy Series Gets Major Season 2 Mission Update
+
+TV News, CIA, Tom Ellis, CBS, Procedural
+
+Mon, 21 Sep 2026 23:25:10 GMT
+
+https://collider.com/cia-season-2-tom-ellis-russian-spy-colin-bill/
+
+Tom Ellis and Nick Gehlfuss team with a Russian spy seeking revenge while stopping a new threat against the U.S. in CIA Season 2.
+---------
+
+# 10 Most Perfect Sitcoms of the Last 5 Years, Ranked
+
+TV, Sitcom, Abbott Elementary, Leanne, Shrinking
+
+Mon, 21 Sep 2026 23:14:11 GMT
+
+https://collider.com/most-perfect-sitcoms-last-5-years-ranked/
+
+Netflix's Leanne, ABC's Abbott Elementary, and Apple TV's Shrinking are among the best sitcoms of the last 5 years, but which is the greatest?
+---------
+
+# ‘Fallout 76’ Officially Returns With Its Bloodiest Season Yet
+
+Gaming News, Fallout 76, Fallout, Bethesda, Gaming
+
+Mon, 21 Sep 2026 23:13:11 GMT
+
+https://collider.com/fallout-76-the-slasher-season-26-halloween/
+
+Fallout 76 goes full slasher horror with masked murders, cultists, and Season 26’s spooky Beware the Blood Moon theme.
+---------
+
+# The 6 Most Perfect Sci-Fi Movies Released Since 2010, Ranked
+
+Movie, Sci-Fi, Arrival, Blade Runner 2049, Dune: Part Two
+
+Mon, 21 Sep 2026 23:08:11 GMT
+
+https://collider.com/most-perfect-sci-fi-movies-since-2010-ranked/
+
+From Arrival to Blade Runner 2049, these sci-fi gems pair breathtaking concepts with the deeply human stories beneath them.
+---------
+
+# Netflix's 7-Episode Gothic Horror Miniseries Is So Good, It Deserves a Second Look
+
+TV Features, Midnight Mass, Mike Flanagan, Netflix, Horror
+
+Mon, 21 Sep 2026 22:52:12 GMT
+
+https://collider.com/netflix-midnight-mass-gothic-horror-miniseries/
+
+Mike Flanagan's Midnight Mass is a haunting tale of humanity, trauma, and faith in a Gothic horror setting, making it the perfect fall binge-watch.
+---------
+
+# Forget 'The Hunger Games,' This 4-Part Dystopian Sci-Fi Officially Deserves Its Own Adaptation
+
+TV Features, Books, Sci-Fi, Streaming, Romance
+
+Mon, 21 Sep 2026 22:41:11 GMT
+
+https://collider.com/legend-book-series-marie-lu-dystopian-sci-fi-adaptation/
+
+Marie Lu's dystopian sci-fi Legend series is perfect for a thrilling TV adaptation in the style of The Hunger Games.
+---------
+
+# Pokémon Officially Takes Pikachu Somewhere the Franchise Has Never Gone
+
+Gaming News, Pokémon, Pikachu, Pokemon GO, Gaming
+
+Mon, 21 Sep 2026 22:37:11 GMT
+
+https://collider.com/pokemon-pikachu-international-space-station-esa/
+
+Pikachu spent 67 days aboard the International Space Station, completing more than 1,000 Earth orbits in a new ESA partnership.
+---------
+
+# 3 Movies That Are So Good, You Have to Stream Them on Prime Video This Week
+
+Movie, Prime Video, Pulp Fiction, Blue Beetle, Hope Floats
+
+Mon, 21 Sep 2026 22:34:12 GMT
+
+https://collider.com/best-movies-prime-video-september-21-2026/
+
+Blue Beetle, Pulp Fiction, and Hope Floats make up our list of the best movies streaming on Prime Video the week of September 21.
+---------
+
+# The 10 Greatest Hugo Award Winners of All Time, Ranked
+
+Books and Comics, Books, Neuromancer, Science Fiction, Dune
+
+Mon, 21 Sep 2026 22:15:11 GMT
+
+https://collider.com/best-hugo-award-winners-all-time-ranked/
+
+From science fantasy hybrids like The Fifth Season to hard sci-fi gems like The Moon Is a Harsh Mistress, these are the best Hugo Award winners ever.
+---------
+
+# The 6 Best International Films of the 2020s So Far, Ranked
+
+Movie, Drive My Car, The Zone of Interest, Anatomy of a Fall, I'm Still Here
+
+Mon, 21 Sep 2026 21:53:11 GMT
+
+https://collider.com/best-international-films-2020s-so-far-ranked/
+
+From Decision to Leave to The Zone of Interest, these international standouts prove the decade's boldest filmmaking speaks every language.
+---------
+
+# Forget 'Reacher': Prime Video's Latest Action Thriller Replacement Series Already Beats It In One Major Way
+
+Features, Neagley, Reacher, Action, Thriller
+
+Mon, 21 Sep 2026 23:00:16 GMT
+
+https://movieweb.com/reacher-neagley-spin-off-rotten-tomatoes-score/
+
+Prime Video’s latest ‘Reacher’ replacement is already outshining it in one major way, and it bodes well for its broader future on-screen.
+---------
+
+# 'Game of Thrones' Star Kit Harington Officially Addresses Jon Snow Spin-Off Revival
+
+TV News, Game Of Thrones, Kit Harington
+
+Mon, 21 Sep 2026 22:34:01 GMT
+
+https://movieweb.com/game-of-thrones-kit-harrington-jon-snow-prequel-update/
+
+One of the biggest stars from 'Game of Thrones' spoke about the potential of coming back in a spin-off series.
+---------
+
+# Remake of Jane Austen's Classic 215-Year-Old Novel Debuts to Solid Rotten Tomatoes Score
+
+Movie News, Sense and Sensibility, Daisy Edgar-Jones, Drama
+
+Mon, 21 Sep 2026 22:11:04 GMT
+
+https://movieweb.com/sense-and-sensibility-2026-rotten-tomatoes-score/
+
+The first reviews are in for the new adaptation of a classic story.
+---------
+
+# David Tennant's Masterpiece Crime Thriller Was So Good That He Also Starred In Its Reboot
+
+Features, Broadchurch, Gracepoint, Crime, Thriller
+
+Mon, 21 Sep 2026 22:00:15 GMT
+
+https://movieweb.com/david-tennant-broadchurch-gracepoint-performance/
+
+David Tennant starred in a beloved crime thriller TV series and played a similar role in the reboot.
+---------
+
+# Prime Video's New 7-Part Fantasy Epic Remains One of the Biggest Streaming Hits in the World
+
+TV News, Fantasy, Hot on Streaming, Prime Video
+
+Mon, 21 Sep 2026 21:30:14 GMT
+
+https://movieweb.com/pendragon-cycle-rise-of-merlin-fantasy-prime-video-streaming-sept-2026/
+
+Forget J.R.R. Tolkien, this epic fantasy series on Prime Video is head and shoulders above 'The Rings of Power.'
+---------
+
+# 'The Witcher' Creator Officially Announces New Geralt Story With 2027 Target
+
+TV News, The Witcher
+
+Mon, 21 Sep 2026 21:18:36 GMT
+
+https://movieweb.com/witcher-andrzej-sapkowski-book-10-confirmed/
+
+Andrzej Sapkowski has confirmed he is writing another Witcher novel, with Geralt set to return as the lead and a personal deadline of late 2027.
+---------
+
+# 'Daredevil: Born Again's Fate Officially Confirmed Ahead of Season 3
+
+TV News, Daredevil: Born Again, Superhero, Disney+
+
+Mon, 21 Sep 2026 20:46:56 GMT
+
+https://movieweb.com/daredevil-born-again-season-3-canceled-disney-plus/
+
+Marvel Television has now confirmed how long 'Daredevil: Born Again' will run on Disney+ before its third season arrives next year.
+---------
+
+# Countdown to 'Slayground' Promises an Experience You’ll Never Forget From A24
+
+Movie Trailers, Slayground, Horror, A24
+
+Mon, 21 Sep 2026 20:45:39 GMT
+
+https://movieweb.com/slayground-jeremy-saulnier-a24-horror-teaser/
+
+Cult horror director Jeremy Saulnier reunites with A24 for a unique new thriller.
+---------
+
+# 40 Years Later, Original Version of Action Fantasy Cult Classic Sets December Release
+
+Movie News, Highlander, Russell Mulcahy
+
+Mon, 21 Sep 2026 20:28:08 GMT
+
+https://movieweb.com/highlander-40th-anniversary-original-screenplay-comic/
+
+Before Chad Stahelski’s Highlander reboot arrives, fans will get a different return to the franchise with Highlander: The Original Screenplay.
+---------
+
+# 18 Years Later, One of the Greatest Sitcoms of All Time Returns in First Images
+
+Movie News, Netflix, The Inbetweeners, Comedy
+
+Mon, 21 Sep 2026 20:22:54 GMT
+
+https://movieweb.com/netflix-inbetweeners-3-wedding-set-photos/
+
+A new look at the long-awaited sequel gives some idea of where the beloved characters are headed next.
+---------
+
 # Forget Peaky Blinders, Guy Ritchie's 2-Part Masterpiece Is The New King Of Crime Thrillers
 
 TV, Masked Recs
