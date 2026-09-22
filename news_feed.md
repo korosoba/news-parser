@@ -1,3 +1,421 @@
+# NBC’s New Crime Thriller Series Debuts To Stellar Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Tue, 22 Sep 2026 20:01:13 GMT
+
+https://screenrant.com/nbc-line-of-fire-season-1-rotten-tomatoes-score/
+
+A new NBC crime thriller is off to a stellar start on Rotten Tomatoes, boosted by an intriguing conspiracy premise and a well-known cast.
+---------
+
+# 7 Strongest Pirate Crews In Official One Piece History
+
+Anime, One Piece
+
+Tue, 22 Sep 2026 20:00:18 GMT
+
+https://screenrant.com/strongest-one-piece-pirate-crews-all-time/
+
+With One Piece getting close to the end, only a handful of pirate crews have proven they have what it takes to survive in the world's harshest oceans.
+---------
+
+# Every Zelda Nintendo Console, Ranked From Worst To Best
+
+Gaming, The Legend of Zelda, Nintendo
+
+Tue, 22 Sep 2026 20:00:18 GMT
+
+https://screenrant.com/zelda-nintendo-consoles-ranked-worst-best/
+
+Nintendo has released a wide array of Zelda-themed consoles and handhelds over the years, but some make a stronger impression than others.
+---------
+
+# It's Officially The Start Of An Unprecedented Era For Netflix's Stranger Things
+
+TV, Stranger Things, Stranger Things: Tales from '85
+
+Tue, 22 Sep 2026 19:57:50 GMT
+
+https://screenrant.com/netflix-stranger-things-tales-from-85-new-episodes-seasons-same-year/
+
+Netflix's Stranger Things franchise is back, and this sci-fi universe has just undergone a major shift, entering a new era that changes the game.
+---------
+
+# 28 Years Later, Marvel Is Resurrecting Spider-Man The Animated Series To Solve Its Biggest Cliffhanger
+
+Comics, Spider-Man, Marvel, Spider-Man: The Animated Series
+
+Tue, 22 Sep 2026 19:52:36 GMT
+
+https://screenrant.com/spiderman-animated-series-return-mary-jane-cliffhanger-resolve/
+
+Spider-Man: The Animated Series' biggest cliffhanger is finally getting solved this year, and it is confirmed that Mary Jane's fate will be revealed.
+---------
+
+# Forgotten Island Review: A New Animation Era Takes Hold
+
+Movies, Forgotten Island
+
+Tue, 22 Sep 2026 19:46:25 GMT
+
+https://screenrant.com/video/forgotten-island-review-a-new-animation-era-takes-hold/
+
+DreamWorks is pushing CG animation further away from the polished Pixar-style look that dominated Hollywood for decades, and Forgotten Island might be one of the clearest examples yet.
+---------
+
+# Doc: Netflix Adds 22 New Episodes Of Hit Medical Drama Just As Season 3 Premieres
+
+Streaming TV, Masked Recs
+
+Tue, 22 Sep 2026 19:43:14 GMT
+
+https://screenrant.com/doc-season-2-netflix-release-season-3-premiere/
+
+Netflix adds 22 new episodes of a hit medical drama series right as Doc season 3 premieres on network television this Tuesday, September 22, 2026.
+---------
+
+# Netflix's Crime Series Defies Downward Streaming Pattern With 12.1M Viewership Debut
+
+TV, Masked Recs
+
+Tue, 22 Sep 2026 19:37:44 GMT
+
+https://screenrant.com/netflix-monster-season-4-lizzie-borden-streaming-viewership-september-2026/
+
+The latest season of a popular Netflix crime show has debuted to impressive viewership numbers that also defy a common trend on the platform.
+---------
+
+# Netflix's Newest Drama Series Gets Renewed Less Than 2 Weeks After Premiere
+
+TV, Crew Girl
+
+Tue, 22 Sep 2026 20:16:10 GMT
+
+https://www.cbr.com/crew-girl-renewed-season-2-netflix/
+
+Netflix's new show is an instant hit with a second season already in the works.
+---------
+
+# 5 Most Terrifying Avatar: The Last Airbender Villains
+
+Anime, Avatar: The Last Airbender
+
+Tue, 22 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-most-terrifying-villains/
+
+Ozai may have been the ultimate antagonist of Avatar: The Last Airbender, but these villains were equally terrifying.
+---------
+
+# Spider-Man: Brand New Day Gets Major Sequel Update After $2.4 Billion Box Office Success
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Tue, 22 Sep 2026 20:03:03 GMT
+
+https://www.cbr.com/spider-man-sequel-destin-daniel-cretton-sony-deal/
+
+A new Sony deal sheds light on its plans for Spider-Man's future.
+---------
+
+# Transformers' Optimus Prime Prepares For His Biggest Battle That Changes Everything Forever
+
+Comics, Transformers
+
+Tue, 22 Sep 2026 20:00:57 GMT
+
+https://www.cbr.com/transformers-optimus-prime-biggest-battle-that-changes-everything/
+
+This could change everything for Optimus Prime and the entire Transformers franchise.
+---------
+
+# Henry Cavill's Immortals Is Mandatory Viewing Before the New Highlander
+
+Movies, Immortals, Highlander
+
+Tue, 22 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/henry-cavill-immortals-mandatory-viewing-before-highlander-reboot/
+
+Henry Cavill is rebooting the Highlander franchise, but one of his early action movies is a must-watch film before Highlander.
+---------
+
+# Prime Video Abandoning Alan Ritchson's Favorite Reacher Book Is Already a Historic TV Fumble
+
+TV, Reacher, Innovation, Prime Video
+
+Tue, 22 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/prime-video-reacher-wont-adapt-die-trying-book/
+
+The plot in each season of Reacher is based on a specific Lee Child book, and the decision not to include Alan Ritchson's favourite could be a fumble.
+---------
+
+# Meg Shaffer Names Her Favorite Book and Reveals the Classic Movie That Inspired Her Story
+
+CBR Exclusives, Fantasy, books, Interviews
+
+Tue, 22 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/meg-shaffer-author-interview-favorite-books-inspirations/
+
+Fantasy author Meg Shaffer takes inspiration from the best books and films in the genre, from Nancy Drew novels to Gene Wilder's Willy Wonka
+---------
+
+# Sailor Moon Creator Has a Surprisingly Candid Response to Christopher Nolan’s The Odyssey
+
+Anime, Sailor Moon, The Odyssey
+
+Tue, 22 Sep 2026 19:20:11 GMT
+
+https://www.cbr.com/sailor-moon-naoko-takeuchi-christopher-nolan-the-odyssey-response/
+
+Sailor Moon creator Naoko Takeuchi reveals her surprising history with Christopher Nolan following the global box-office success of The Odyssey.
+---------
+
+# 10 Best Demon Slayer Characters, Ranked By Design
+
+Anime, Demon Slayer
+
+Tue, 22 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/demon-slayer-best-characters-designs-list/
+
+The greatest Demon Slayer characters, like Tengen and Zenitsu, stand out thanks to their incredible character designs.
+---------
+
+# The Best Horror TV Show Ever According to Stephen King Is a 2-Season '60s Classic
+
+TV, Stephen King, Horror, Thriller, Innovation
+
+Tue, 22 Sep 2026 19:00:11 GMT
+
+https://www.cbr.com/boris-karloff-thriller-best-horror-tv-show-stephen-king/
+
+Stephen King is no stranger to horror, and there's one 1960s show he loves that audiences might not have heard of.
+---------
+
+# Prime Video's New Romance Officially Turns Reylo Fanfiction Into a Rom-Com in 24 Hours
+
+Movie News, The Love Hypothesis, Prime Video, Star Wars, Romance
+
+Tue, 22 Sep 2026 20:15:11 GMT
+
+https://collider.com/prime-video-the-love-hypothesis-streaming-september-23/
+
+The Love Hypothesis, starring Lili Reinhart and Tom Bateman, brings its Reylo-inspired romance to Prime Video in 24 hours.
+---------
+
+# 8 Classic Movies Nobody Wants a Remake Of
+
+Movie, Classics, All About Eve, The Princess Bride, The Goonies
+
+Tue, 22 Sep 2026 19:44:11 GMT
+
+https://collider.com/classic-movies-nobody-wants-remade/
+
+The Goonies, All About Eve, Spirited Away, Back to the Future, and more make up our list of classic movies nobody wants a remake of.
+---------
+
+# The 10 Most Epic Battle Scenes in Movie History, Ranked
+
+Movie, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, War and Peace, Avengers: Endgame
+
+Tue, 22 Sep 2026 19:41:11 GMT
+
+https://collider.com/most-epic-battle-scenes-movie-history-ranked/
+
+If you're after some of the most epic battle scenes in movie history, it's worth watching classics like Waterloo, War and Peace, and The Longest Day.
+---------
+
+# NBC's 4-Part Forgotten Western Series Went Where 'Bonanza' Never Could
+
+TV Features, Bonanza, Western, NBC, Action
+
+Tue, 22 Sep 2026 19:22:11 GMT
+
+https://collider.com/nbc-western-tv-show-high-chaparral-bonanza/
+
+David Dortort created both Bonanza and The High Chaparral, but was able to tackle much deeper themes in the 1967 NBC series.
+---------
+
+# 7 Movies To Watch Before 'Avengers Endgame: Encore'
+
+Movie, Avengers: Endgame, Avengers: Infinity War, Captain Marvel, Captain America: Civil War
+
+Tue, 22 Sep 2026 19:19:12 GMT
+
+https://collider.com/mcu-movies-to-watch-before-avengers-endgame-encore/
+
+Before you watch the upcoming Avengers Endgame: Encore, make sure to revisit a few key MCU movies, including Captain America: Civil War and Iron Man.
+---------
+
+# Sunny Dancer: One Rule Erased the Star Hierarchy on Set | Collider BTS
+
+Movie
+
+Tue, 22 Sep 2026 19:15:11 GMT
+
+https://collider.com/video/sunny-dancer-one-rule-erased-the-star-hierarchy-on-set-collider-bts/
+
+Neil Patrick Harris and director George Jaques break down one of Sunny Dancer’s trickiest emotional scenes, including the running joke that led Harris to ask Jaques to stop calling it the “Oscar scene.”
+---------
+
+# HBO’s 73-Episode Fantasy Epic Set a Record It Could Never Break
+
+TV Features, Game Of Thrones, George R.R. Martin, HBO, Fantasy
+
+Tue, 22 Sep 2026 19:14:11 GMT
+
+https://collider.com/hbo-game-of-thrones-record-breaking-emmy-run/
+
+Game of Thrones beat all other fantasy shows when it comes to the number of Emmy wins.
+---------
+
+# Daredevil Fans Officially Campaign to Save ‘Born Again’
+
+TV News, Daredevil, Daredevil: Born Again, Marvel
+
+Tue, 22 Sep 2026 19:10:34 GMT
+
+https://collider.com/save-daredevil-born-again-fan-campaign/
+
+Daredevil fans are once again campaigning to save the acclaimed Marvel icon after news of Born Again’s cancellation.
+---------
+
+# Disney+ Officially Revives a Beloved '90s Animated Series With Mark Hamill
+
+TV News, Darkwing Duck, Seth Rogen, Mark Hamill, Lizzy Caplan
+
+Tue, 22 Sep 2026 18:00:11 GMT
+
+https://collider.com/darkwing-duck-disney-plus-mark-hamill-seth-rogen-cast/
+
+Darkwing Duck is getting a reboot at Disney+, and they've just unveiled its cast. Read on for more.
+---------
+
+# Robert Pattinson Officially Confirms a Major Change for 'The Batman Part II' [Exclusive]
+
+Movie News, The Batman Part II, The Batman, Robert Pattinson, Matt Reeves
+
+Tue, 22 Sep 2026 17:54:05 GMT
+
+https://collider.com/the-batman-part-2-script-update-robert-pattinson/
+
+Robert Pattinson reveals that The Batman Part II takes a “real left turn” as Matt Reeves prepares a denser, more ambitious sequel.
+---------
+
+# 'Star Wars' Fan Fic Adaptation Results in Surprising Rotten Tomatoes Score
+
+Movie News, The Love Hypothesis, Star Wars, Romance, Rotten Tomatoes
+
+Tue, 22 Sep 2026 20:18:43 GMT
+
+https://movieweb.com/love-hypthoesis-rotten-tomatoes-score/
+
+Amazon Prime Video's adaptation of Ali Hazelwood's 'The Love Hypothesis' has scored a fresh rating on Rotten Tomatoes.
+---------
+
+# Forget 'Lioness,' the Greatest Spy Thriller of the 21st Century Already Aired 15 Years Ago
+
+Features, Homeland, Lioness, Action, Thriller
+
+Tue, 22 Sep 2026 20:00:15 GMT
+
+https://movieweb.com/homeland-spy-thriller-lioness-comparison/
+
+'Lioness,' the spy thriller TV series streaming on Paramount+ created by Taylor Sheridan, stars Zoe Saldana and Nicole Kidman.
+---------
+
+# Scarlett Johansson's New Crime Thriller Masterpiece Officially Features "Career-Best" Performances
+
+Movie News, Paper Tiger, Thriller, Scarlett Johansson, Crime
+
+Tue, 22 Sep 2026 19:38:17 GMT
+
+https://movieweb.com/paper-tiger-scarlett-johansson-official-trailer/
+
+Scarlett Johansson and Adam Driver reunite in the tense 1986 Queens crime drama 'Paper Tiger' that unspools family secrets.
+---------
+
+# Netflix Scores Big With 87-Minute 'Housemaid' Replacement Thriller That's Already a Streaming Smash
+
+Movie News, Thriller, Hot on Streaming, Netflix
+
+Tue, 22 Sep 2026 19:30:19 GMT
+
+https://movieweb.com/the-seemingly-perfect-family-netflix-streaming-hit-september-2026/
+
+Unlike Sydney Sweeney's smash hit, Netflix's latest thriller is said to be inspired by true events.
+---------
+
+# 'Lioness' Star Breaks Their Silence on Season 3's Gut-Wrenching Cliffhanger
+
+TV News, Lioness
+
+Tue, 22 Sep 2026 19:24:50 GMT
+
+https://movieweb.com/lioness-dave-annable-joe-neal-breakup-explained/
+
+'Lioness' Season 3 finally resolves the tension it had been building up since the series premiere.
+---------
+
+# Mark Hamill Takes the Lead in Streaming Reboot of 35 Year Old Disney Classic
+
+TV News, Darkwing Duck, Mark Hamill, Seth Rogen, Disney
+
+Tue, 22 Sep 2026 19:06:03 GMT
+
+https://movieweb.com/darkwing-duck-reboot-mark-hamill-seth-rogen/
+
+Disney+ has ordered a reboot of 'Darkwing Duck' that will star Mark Hamill, Seth Rogen, and Lizzy Caplan.
+---------
+
+# Spider-Man Crossover Saves Charlie Cox's Daredevil Run as Disney Cancels 'Born Again'
+
+Features, Daredevil: Born Again, Your Friendly Neighborhood Spider-Man, Daredevil, Superhero
+
+Tue, 22 Sep 2026 18:15:15 GMT
+
+https://movieweb.com/daredevil-your-friendly-neighborhood-spider-man-season-2/
+
+'Daredevil: Born Again,' which stars Matt Murdock as Charlie Cox, was cancelled by Disney, but there is an exciting Spider-Man crossover.
+---------
+
+# Samuel L. Jackson's President Fights an Army in New 'Die Hard'-Esque Action Thriller Trailer
+
+Movie Trailers, The Beast, Action, Samuel L. Jackson, Joel Edgerton
+
+Tue, 22 Sep 2026 18:09:04 GMT
+
+https://movieweb.com/samuel-l-jackson-president-the-beast-trailer/
+
+'The Beast' finds Samuel L. Jackson leading the country as only he can.
+---------
+
+# 'Landman' Officially Gets New Release 8 Months After Season 2
+
+TV News, Landman, Taylor Sheridan, Billy Bob Thornton, Ali Larter, Drama
+
+Tue, 22 Sep 2026 18:07:18 GMT
+
+https://movieweb.com/landman-season-2-blu-ray-new-release/
+
+Dive into 'Landman' Season 2 as you anxiously await new episodes.
+---------
+
+# Brad Pitt's 116-Minute Action Thriller Blockbuster Scores Big on Streaming Ahead of Sequel
+
+Movie News, Brad Pitt, World War Z, Hot on Streaming
+
+Tue, 22 Sep 2026 17:30:17 GMT
+
+https://movieweb.com/brad-pitt-world-war-z-streaming-hit-mgm-plus-september-2026/
+
+We'll never forget the first time we saw the trailer for this one. Never.
+---------
+
 # Tom Cruise’s Top Gun Is Getting A New Era On Netflix Soon
 
 Movies, Top Gun: Maverick, Top Gun
