@@ -1,3 +1,432 @@
+# Tom Cruise’s Top Gun Is Getting A New Era On Netflix Soon
+
+Movies, Top Gun: Maverick, Top Gun
+
+Tue, 22 Sep 2026 17:20:15 GMT
+
+https://screenrant.com/top-gun-maverick-movie-netflix-release/
+
+The Top Gun movie series gets a new update on Netflix that's sure to benefit the film franchise before Top Gun 3 comes to the world of cinema.
+---------
+
+# Netflix's 4-Part Sci-Fi Masterpiece Breaks All The Rules Of Storytelling
+
+Streaming TV, Masked Recs
+
+Tue, 22 Sep 2026 17:16:15 GMT
+
+https://screenrant.com/love-death-and-robots-storytelling-netflix-sci-fi-masterpiece/
+
+Even by the creatively liberated standards of anthology sci-fi, this Netflix series has a pathological aversion to being what viewers expect.
+---------
+
+# 8 Most Rewatchable Sitcoms From The '90s
+
+Streaming TV, Sitcoms
+
+Tue, 22 Sep 2026 17:00:16 GMT
+
+https://screenrant.com/most-rewatchable-90s-sitcom-shows/
+
+Sitcoms seem to have become a niche that rarely shows up in the modern TV landscape, but fortunately, many of the best sitcoms are worth revisiting.
+---------
+
+# 10 Fantasy Books With Beginnings So Good You Will Instantly Be Hooked
+
+Books, Fantasy
+
+Tue, 22 Sep 2026 17:00:16 GMT
+
+https://screenrant.com/fantasy-book-recommendations-instantly-hooked/
+
+From brutal military academies to impossibly clever heists, these ten fantasy book openings will have you hooked within the first few pages.
+---------
+
+# Lily Rose-Depp & Bill Pullman Officially Starring In New Hugh Hefner Playboy Movie
+
+Movies, Bill Pullman, playboy
+
+Tue, 22 Sep 2026 16:49:41 GMT
+
+https://screenrant.com/playmates-hugh-hefner-movie-lily-rose-depp-bill-pullman/
+
+Lily-Rose Depp and Bill Pullman are officially starring in a new movie about Playboy and Hugh Hefner, the founder of the magazine and mansion.
+---------
+
+# Daredevil: Born Again’s Cancelation Can Start A New Era
+
+Superheroes, Daredevil: Born Again, Marvel Cinematic Universe
+
+Tue, 22 Sep 2026 16:45:20 GMT
+
+https://screenrant.com/daredevil-born-agains-cancelation-can-start-a-new-era/
+
+Daredevil: Born Again is ending with season 3, but the cancelation may not be bad news. A new era for Charlie Cox's Matt Murdock can start now.
+---------
+
+# Shemar Moore Nearly Didn't Do CBS' S.W.A.T. Reboot For 1 Major Reason
+
+TV, S.W.A.T., Shemar Moore
+
+Tue, 22 Sep 2026 16:43:36 GMT
+
+https://screenrant.com/swat-cbs-reboot-shemar-moore-almost-passed-recalled/
+
+Exclusive: S.W.A.T. star Shemar Moore reveals why he nearly passed on playing Hondo in CBS' reboot and what ultimately changed his mind.
+---------
+
+# Green Lantern's Nathan Fillion Gives His Official Verdict On DC's New Movie
+
+Movies, DC Universe, Nathan Fillion
+
+Tue, 22 Sep 2026 16:34:20 GMT
+
+https://screenrant.com/james-gunn-supergirl-dc-universe-nathan-fillion-review/
+
+Nathan Fillion, who plays Guy Gardner, one of the Green Lanterns in the DC Universe, shares his official thoughts on DC Studios' latest movie.
+---------
+
+# Alan Ritchson's Favorite Reacher Book Was The Better Choice For Season 5
+
+Streaming TV, Reacher
+
+Tue, 22 Sep 2026 16:30:20 GMT
+
+https://screenrant.com/reacher-season-5-alan-ritchson-favorite-book-better-die-trying/
+
+Reacher season 5's storyline has officially been revealed, but Alan Ritchson's favorite Lee Child novel would have been a far better choice.
+---------
+
+# Sebastian Stan's The Batman 2 Casting Lets Him Join The Court Of Owls (DC Sequel Theory Explained)
+
+Movies, The Batman Part II, DC Universe
+
+Tue, 22 Sep 2026 16:15:18 GMT
+
+https://screenrant.com/the-batman-2-sebastian-stan-court-of-owls-victor-zsasz-theory/
+
+The Batman 2's take on Victor Zsasz may put him in league with the Court of Owls if one particularly fascinating DC movie theory proves to be true.
+---------
+
+# Hulu Officially Confirms Demon Slayer: Infinity Castle Streaming Release Date
+
+Anime, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Hulu
+
+Tue, 22 Sep 2026 17:20:11 GMT
+
+https://www.cbr.com/demon-slayer-infinity-castle-hulu-release-date/
+
+Hulu and Disney+ subscribers just got a major update on the streaming release date for the latest Demon Slayer movie, and it's coming soon.
+---------
+
+# 5 Open-World RPGs With Virtually Perfect Class Systems
+
+Games, Guild Wars 2, RPG, Star Wars
+
+Tue, 22 Sep 2026 17:15:11 GMT
+
+https://www.cbr.com/open-world-rpgs-perfect-class-systems/
+
+These RPGs offer archetypes that evolve into unexpected builds while keeping each role feeling uniquely meaningful in combat.
+---------
+
+# After 28 Years, Marvel Officially Resolves Spider-Man's Iconic Animated Cliffhanger
+
+CBR Exclusives, Spider-Man, Spider-Man: The Animated Series
+
+Tue, 22 Sep 2026 17:12:21 GMT
+
+https://www.cbr.com/marvel-spider-man-john-semper-animated-series-resolved-cliffhanger-interview/
+
+In a CBR exclusive reveal, Spider-Man's animated series from the 1990s will finally have its cliffhanger resolved by the show's original showrunner
+---------
+
+# 13 Most Popular Anime Characters from the Last 6 Years
+
+Anime, Dandadan, Solo Leveling, Chainsaw Man, Jujutsu Kaisen
+
+Tue, 22 Sep 2026 16:30:11 GMT
+
+https://www.cbr.com/most-popular-anime-characters-2020s-so-far/
+
+The 2020s introduced unforgettable anime characters whose charisma and growth made them enduring fan favorites, captivating audiences worldwide.
+---------
+
+# 10 Anime Series With No Bad Seasons, Ranked
+
+Anime, Attack on Titan, Gintama
+
+Tue, 22 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/anime-series-no-bad-seasons-ranked/
+
+Anime series like Attack on Titan and Gintama don't suffer through a single drop in quality.
+---------
+
+# 10 Hardest Open World RPGs of All Time, Ranked
+
+Games, open world, RPG
+
+Tue, 22 Sep 2026 16:10:11 GMT
+
+https://www.cbr.com/hardest-open-world-rpgs-of-all-time-ranked-list/
+
+Open-world RPGs like Elden Ring are some of the hardest games ever made.
+---------
+
+# Apple TV's New Crime Thriller With 86% RT Teases a Heart-Pounding Hunt for Answers
+
+TV, Last Seen
+
+Tue, 22 Sep 2026 16:01:11 GMT
+
+https://www.cbr.com/apple-tv-crime-thriller-last-seen-episode-4-clip/
+
+Apple TV delivers another crime masterpiece with a heart-pounding story about a missing girl, and CBR has an exclusive clip from this week's episode.
+---------
+
+# Narnia: The Magician's Nephew Has a Hidden C. S. Lewis Connection
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia
+
+Tue, 22 Sep 2026 16:01:11 GMT
+
+https://www.cbr.com/narnia-magicians-nephew-easter-egg-oxford/
+
+Greta Gerwig's Narnia: The Magician's Nephew found a subtle way to honor the author of The Chronicles of Narnia novels.
+---------
+
+# Unabomber Director Opens Up About the Dark Truth Behind Ted Kaczynski’s Story
+
+CBR Exclusives, Unabomber
+
+Tue, 22 Sep 2026 15:57:31 GMT
+
+https://www.cbr.com/unabomber-director-janus-metz-confirms-dark-truth-behind-ted-kaczynski-story/
+
+Janus Metz draws from the Unabomber's disturbing story to uncover his own understanding of Ted Kaczynski.
+---------
+
+# New Punisher Saga Pits Ruthless Mercenary Against Sci-Fi's Most Lethal Villain
+
+Comics, Marvel Comics, MCU, The Punisher, Marvel's The Punisher, The Punisher: One Last Kill, Predator, Predators, Predator: Badlands
+
+Tue, 22 Sep 2026 15:40:31 GMT
+
+https://www.cbr.com/new-punisher-saga-pits-ruthless-mercenary-against-sci-fi-predator/
+
+The Punisher has never, ever faced a killer of this caliber before, and it's literally historic.
+---------
+
+# Adam Driver and Scarlett Johansson's New Crime Thriller Debuts Official Trailer
+
+Movie News, Paper Tiger, Adam Driver, Scarlett Johansson, Miles Teller
+
+Tue, 22 Sep 2026 17:19:18 GMT
+
+https://collider.com/adam-driver-scarlett-johansson-paper-tiger-trailer/
+
+Marriage Story stars Adam Driver and Scarlett Johansson officially reunite in a new trailer for their upcoming crime thriller. See it here!
+---------
+
+# How ‘Back to the Future’s Most Famous Car Ended Up in Zooey Deschanel and Caleb Hearon’s New Movie
+
+Exclusives, Trash Mountain, TIFF, Caleb Hearon, Zooey Deschanel
+
+Tue, 22 Sep 2026 17:00:37 GMT
+
+https://collider.com/zooey-deschanel-caleb-hearon-trash-mountain-delorean-cameo-back-to-the-future/
+
+Zooey Deschanel, Caleb Hearon, and Kris Rey detail their new family dramedy, Trash Mountain. Read on for more.
+---------
+
+# Only 10 Action Movies From the '80s Are Truly Perfect From Start to Finish
+
+Movie, Action, Die Hard, RoboCop, Aliens
+
+Tue, 22 Sep 2026 16:45:11 GMT
+
+https://collider.com/80s-action-movies-perfect-start-to-finish/
+
+Aliens, Die Hard, and RoboCop are all among the best, only truly perfect action movies from the 1980s.
+---------
+
+# Win Tickets to Our Early IMAX Screening of the Newly Restored ‘Queen Budapest’ Concert Film
+
+Exclusives, Screening, Freddie Mercury, Queen
+
+Tue, 22 Sep 2026 16:43:52 GMT
+
+https://collider.com/queen-budapest-concert-film-freddie-mercury-imax-4k-screening/
+
+Details on how you can enter for your chance to win free tickets to our early IMAX and 4K screening of Queen Budapest.
+---------
+
+# Win Tickets to Our Early 'The Beast' Screening and Q&A With Renny Harlin
+
+Exclusives, Screening, The Beast, Renny Harlin, Samuel L. Jackson
+
+Tue, 22 Sep 2026 16:30:51 GMT
+
+https://collider.com/the-beast-screening-samuel-l-jackson-joel-kinnaman-renny-harlin/
+
+Details on how you can enter for your chance to win free tickets to our early screening of The Beast and a Q&amp;A with director Renny Harlin.
+---------
+
+# Netflix's New Sci-Fi Western Officially Gets an Explosive Sneak Peek [Exclusive]
+
+TV News, Brian Tyree Henry, Netflix, Sci-Fi, Collider Exclusive Preview
+
+Tue, 22 Sep 2026 16:30:11 GMT
+
+https://collider.com/bass-x-machina-sneak-peek-brian-tyree-henry-sci-fi-netflix/
+
+A new sneak peek at Netflix's sci-fi western Bass X Machina pits Brian Tyree Henry's Bass Reeves against a menacing mechanical minotaur.
+---------
+
+# Joel Kinnaman’s 'Olympus Has Fallen' Replacement Officially Reveals Explosive Trailer
+
+Movie News, Joel Kinnaman, Samuel L. Jackson, The Beast, Olympus Has Fallen
+
+Tue, 22 Sep 2026 16:00:11 GMT
+
+https://collider.com/joel-kinnamans-olympus-has-fallen-replacement-officially-reveals-explosive-trailer/
+
+Joel Kinnaman and Samuel L. Jackson star in The Beast, a new presidential action thriller from Cliffhanger director Renny Harlin.
+---------
+
+# Lionsgate's New Vampire Thriller Gets a Bloody First Trailer [Exclusive]
+
+Movie News, Horror, Movie Trailers, Thriller, Lionsgate
+
+Tue, 22 Sep 2026 16:00:11 GMT
+
+https://collider.com/the-teenage-vampire-trailer-lionsgate-release-date-october-27/
+
+Watch the exclusive trailer for Lionsgate's The Teenage Vampire, arriving on digital and video on demand October 27.
+---------
+
+# Netflix's 10-Episode 'Cyberpunk' Series Officially Returns With New Sneak Peek [Exclusive]
+
+TV News, Cyberpunk: Edgerunners 2, Cyberpunk: Edgerunners, Netflix, Cyberpunk 2077
+
+Tue, 22 Sep 2026 16:00:11 GMT
+
+https://collider.com/cyberpunk-edgerunners-season-2-sneak-peek-netflix/
+
+Netflix has released a new sneak peek at Cyberpunk Edgerunners Season 2 before it begins streaming on the platform on October 20.
+---------
+
+# Tom Hiddleston's New Apple TV Biopic Officially Gets Breathtaking First Look [Exclusive]
+
+Movie News, Tenzing, Tom Hiddleston, Collider Exclusive Preview, Apple TV
+
+Tue, 22 Sep 2026 16:00:11 GMT
+
+https://collider.com/tenzing-image-genden-phuntsok-tom-hiddleston-apple-tv/
+
+A new image of Apple TV's biopic Tenzing shows Genden Phuntsok and Tom Hiddleston forging a friendship as climbers on Mount Everest.
+---------
+
+# Russell Crowe Confirms Sequel to His 80% RT Rated Thriller Is Still Happening
+
+Movie News, The Pope's Exorcist, Russell Crowe
+
+Tue, 22 Sep 2026 17:21:13 GMT
+
+https://movieweb.com/russell-crowe-the-popes-exorcist-2-update/
+
+Russell Crowe revives hope for the long-anticipated sequel with a promising update.
+---------
+
+# Hayden Panettiere Cause of Death Officially Confirmed
+
+TV News, Hayden Panettiere, Heroes, Nashville
+
+Tue, 22 Sep 2026 17:06:22 GMT
+
+https://movieweb.com/hayden-panettiere-cause-of-death-confirmed/
+
+We finally know what was behind the beloved star's traigc passing.
+---------
+
+# Robert De Niro Remake Overtakes 'The Odyssey' to Dominate The Box Office
+
+Movie News, The Odyssey, Comedy, Drama, The Intern, Robert De Niro
+
+Tue, 22 Sep 2026 16:56:45 GMT
+
+https://movieweb.com/robert-de-niro-the-intern-remake-the-odyssey-box-office/
+
+Christopher Nolan's 'The Odyssey' has been overtaken by 'The Intern' remake at the box office.
+---------
+
+# Netflix’s Western Drama Is a Perfect Replacement for Taylor Sheridan’s 'Landman'
+
+Features, Netflix, Western, Taylor Sheridan, Landman
+
+Tue, 22 Sep 2026 16:30:14 GMT
+
+https://movieweb.com/landman-taylor-sheridan-watch-territory-netflix/
+
+'Landman' fans just found their next Sunday night watch.
+---------
+
+# Netflix's New Star-Studded War Epic Officially Lands Early Release
+
+Movie News, Netflix, The Mosquito Bowl, Drama
+
+Tue, 22 Sep 2026 16:18:38 GMT
+
+https://movieweb.com/netflix-the-mosquito-bowl-early-release-afi/
+
+The new war epic 'Mosquito Bowl' from Peter Berg and Netflix just landed an early release.
+---------
+
+# Forget ‘Reacher’: These 10 Classic Action TV Shows Are 10/10 Masterpieces
+
+TV Lists, Reacher, Action
+
+Tue, 22 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/classic-action-shows-reacher-comparison/
+
+'Reacher,' the Prime Video action thriller series starring Alan Ritchson, is popular, but these classic action shows are even better.
+---------
+
+# 'Tracker' Star Officially Moves To Streaming for Gritty New Crime Thriller Series
+
+TV News, Jensen Ackles, Tracker, Crime
+
+Tue, 22 Sep 2026 15:43:28 GMT
+
+https://movieweb.com/jensen-ackles-rules-of-prey-crime-thriller-mgm/
+
+The 'Tracker' and 'The Boys' star is returning to streaming for an all-new crime thriller based on John Sanford's 'Prey' books.
+---------
+
+# Forget 'Reacher,' Prime Video's 10/10 Crime Thriller Is One of the Biggest Shows on Streaming
+
+TV News, Cross, Paramount Plus, Hot on Streaming, Reacher
+
+Tue, 22 Sep 2026 15:30:14 GMT
+
+https://movieweb.com/cross-stream-paramount-sept-2026-reacher/
+
+Jack Reacher, who?
+---------
+
+# James Gunn Officially Addresses Hal Jordan’s Shocking Fate on ‘Lanterns’
+
+TV News, Lanterns, James Gunn, DCU, Superhero
+
+Tue, 22 Sep 2026 15:15:04 GMT
+
+https://movieweb.com/james-gunn-addresses-hal-jordan-fate-lanterns/
+
+James Gunn responded to a critique of 'Lanterns' on social media, and might have revealed something big.
+---------
+
 # All 5 Henry Cavill Superman Movies, Ranked
 
 Movies, DC, Superman, Man of Steel, Henry Cavill
