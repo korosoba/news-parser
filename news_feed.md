@@ -1,3 +1,410 @@
+# The Legend of Korra: What Happened To Korra After The Series Ended
+
+SR Originals, Avatar: The Last Airbender, The Legend of Korra
+
+Tue, 22 Sep 2026 23:00:17 GMT
+
+https://screenrant.com/legend-korra-what-happened-after-ending-comics/
+
+After The Legend of Korra ended, Korra's adventures continued in comic book form.  Here’s everything that happened to Korra after the show's ending.
+---------
+
+# 6 Reasons Why Resident Evil Secured The Biggest Box Office Opening In Franchise History
+
+Movies, Resident Evil
+
+Tue, 22 Sep 2026 23:00:16 GMT
+
+https://screenrant.com/resident-evil-movie-box-office-biggest-franchise-history-reasons/
+
+The new Resident Evil movie is already an enormous box office success, and there are several illuminating reasons that help to explain why.
+---------
+
+# J.J. Abrams' X-Files Meets The Twilight Zone Sci-Fi Series Is Streaming For Free & It's A Must-Watch
+
+TV, Masked Recs
+
+Tue, 22 Sep 2026 22:55:49 GMT
+
+https://screenrant.com/jj-abrams-sci-fi-series-fringe-streaming-free-must-watch/
+
+J. J. Abrams' masterpiece Sci-Fi series is streaming for free, and it becomes a must-watch for genre fans, mixing The X-Files with The Twilight Zone.
+---------
+
+# Star Trek Officially Switches Genres In Unexpected 60th Anniversary Release
+
+Books, Star Trek, Star Trek: The Original Series, Star trek
+
+Tue, 22 Sep 2026 22:44:30 GMT
+
+https://screenrant.com/star-trek-switch-genres-60th-anniversary/
+
+This unexpected 60th anniversary Star Trek release takes the franchise in a brand-new direction, switching genres completely.
+---------
+
+# Nicholas Hoult's 10 Best Movies & TV Shows
+
+Classic TV, Nicholas Hoult
+
+Tue, 22 Sep 2026 22:30:16 GMT
+
+https://screenrant.com/nicholas-hoult-best-movies-tv-shows/
+
+Nicholas Hoult has been acting since he was a kid, and his range has only grown in the years since, and his choices only gotten more interesting.
+---------
+
+# 5 Best X-Men Storylines Where Magneto Became A Genuine Hero
+
+Comics, Magneto, X-Men
+
+Tue, 22 Sep 2026 22:23:47 GMT
+
+https://screenrant.com/best-xmen-storylines-magneto-hero/
+
+Magneto has been a villain, but the best times as a Marvel Comics character have been when he’s been a hero.
+---------
+
+# The Mandalorian's Next Chapter Officially Arrives On Disney+ In 4 Months
+
+Streaming TV, Star Wars
+
+Tue, 22 Sep 2026 22:22:13 GMT
+
+https://screenrant.com/ahsoka-season-2-the-mandalorian-universe-next-chapter/
+
+The latest chapter in Star Wars' The Mandalorian, Ahsoka, is set for a 2027 release, and it could be the end of one of Star Wars' best eras on TV.
+---------
+
+# Prime Video's New R-Rated Star Wars Counterpart Officially Clinches Stellar Rotten Tomatoes Score
+
+Movies, Masked Recs, Prime Video
+
+Tue, 22 Sep 2026 22:15:45 GMT
+
+https://screenrant.com/prime-video-the-love-hypothesis-rotten-tomatoes-score-star-wars-comparison/
+
+Prime Video's new R-rated adaptation is a Star Wars fanfic, and now it's clinching a stellar Rotten Tomatoes score ahead of its release.
+---------
+
+# Why Green Lantern Identity Is So Different For Guy Gardner From Hal & John Explained By Nathan Fillion
+
+TV, Lanterns, DC Universe
+
+Tue, 22 Sep 2026 22:03:25 GMT
+
+https://screenrant.com/lanterns-guy-gardner-identity-hal-jordan-john-stewart-comparison-nathan-fillion/
+
+Following his return in Lanterns, Nathan Fillion expands on why Guy Gardner is such a different Green Lantern from Hal Jordan and John Stewart.
+---------
+
+# After 11 Years, ABC Sets Up A 4-Time Grey’s Anatomy Trend Out Of Desperation
+
+Network TV, Grey's Anatomy
+
+Tue, 22 Sep 2026 22:00:16 GMT
+
+https://screenrant.com/greys-anatomy-season-23-richard-webber-chief-of-surgery-trend/
+
+Grey's Anatomy season 22's finale left Grey Sloan Memorial without a chief of surgery, and what might come next risks following an overused trend.
+---------
+
+# The '90s Gangster Flick Roger Ebert Called a 10/10 Masterpiece Is the No. 1 Free Streaming Movie
+
+Movies, Casino, Crime, Tubi
+
+Tue, 22 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/casino-crime-gangster-epic-tubi-success-september-2026/
+
+One of the best gangster movies of all time, Martin Scorsese's Casino, is back as a free streaming hit.
+---------
+
+# 60 Years Later, Nichelle Nichols' Favorite Star Trek Episode Still Features 1 of the Greatest Uhura Moments Ever
+
+TV, Star Trek, Sci-Fi, Paramount
+
+Tue, 22 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/star-trek-nichelle-nichols-favorite-episode-best-uhura-moment/
+
+Uhura is a pivotal part of Star Trek's lore, and Nichelle Nichols' favorite episode proves that she has plenty of talents up her sleeve.
+---------
+
+# 8 Masterpiece Zombie Movies Nobody Talks About Anymore
+
+Movies, Horror
+
+Tue, 22 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/best-zombie-movies-no-one-remembers-list/
+
+Zombie movies have been a horror favorite for decades, but plenty of good ones have fallen out of the conversation as the years have passed.
+---------
+
+# HBO Just Confirmed the DCU's Official New Hal Jordan Replacement Ahead of Man of Tomorrow
+
+TV, Lanterns, Superman, DCU
+
+Tue, 22 Sep 2026 22:56:28 GMT
+
+https://www.cbr.com/hbo-lanterns-new-green-lantern-superman-man-of-tomorrow/
+
+The DCU is starting to ask if this town really is big enough for more than one Green Lantern.
+---------
+
+# Brad Pitt & David Ayer's First Team-Up in 12 Years Scores a Huge Rotten Tomatoes Win Days Before Release
+
+Movies, Heart of the Beast, Rotten Tomatoes, Brad Pitt
+
+Tue, 22 Sep 2026 22:51:14 GMT
+
+https://www.cbr.com/heart-of-the-beast-rotten-tomatoes-score/
+
+Critics are calling this movie "a love story between a man and his dog."
+---------
+
+# Universal’s 132-Minute Jane Austen Classic Adaptation Called “Enchanting and Beautiful”
+
+Movies, Sense and Sensibility, Drama
+
+Tue, 22 Sep 2026 22:44:42 GMT
+
+https://www.cbr.com/sense-and-sensibility-rotten-tomatoes-score/
+
+Jane Austen's latest adaptation has mostly positive reviews ahead of its release.
+---------
+
+# It's Officially the End of an Era for Solo Leveling in the U.S.
+
+Anime, Solo Leveling, manhwa, webtoons
+
+Tue, 22 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/solo-leveling-tapas-webtoon-site-shutdown/
+
+The shutdown of popular U.S.-based webtoon platform Tapas will cause a shake-up for the industry, making it that much harder to read Solo Leveling.
+---------
+
+# 10 Greatest Anime Series With the Best Fights, Ranked
+
+Anime, Dragon Ball, Naruto, One Piece
+
+Tue, 22 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/greatest-anime-series-best-fights-ranked/
+
+When it comes to fights, these anime have the greatest clashes of all time.
+---------
+
+# Jason Statham’s 107-Minute Action Thriller Is on the Rise After Disastrous Box Office Run
+
+Movies, Shelter, Action, Jason Statham
+
+Tue, 22 Sep 2026 22:07:16 GMT
+
+https://www.cbr.com/jason-statham-shelter-streaming-success-starz-september-2026/
+
+Jason Statham remains a strong draw on streaming, with his latest action thriller rising in popularity in the United States.
+---------
+
+# Anya Taylor-Joy's Sacrifice is Netflix's Streaming Event of the Season
+
+Movies, Netflix
+
+Tue, 22 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/anya-taylor-joy-sacrifice-nextflix-streaming-event-of-season/
+
+This star-studded satirical blockbuster could be the most-talked-about movie of the year.
+---------
+
+# Apple TV Officially Sets Release Date for Top Secret Crime Thriller
+
+TV News, The Savant, Apple TV, Thriller, Jessica Chastain
+
+Tue, 22 Sep 2026 23:00:12 GMT
+
+https://collider.com/apple-tv-thriller-savant-release-date-spring-2027/
+
+Apple TV's new thriller, starring Jessica Chastain, has officially set a release date after being indefinitely delayed.
+---------
+
+# 'Riverdale’s Cole Sprouse Officially Leads a Star-Studded New Dark Comedy in First Look [Exclusive]
+
+Movie News, Cole Sprouse, Penelope Ann Miller, Riki Lindhome, Chris Parnell
+
+Tue, 22 Sep 2026 22:30:11 GMT
+
+https://collider.com/wake-cole-sprouse-first-look-images-cast/
+
+Get an exclusive first look at Wake, the new dramedy starring Cole Sprouse, ahead of its festival premiere this October.
+---------
+
+# 5 Stellar Movies Where AI Takes Over the World
+
+Movie, Colossus: The Forbin Project, Terminator 2: Judgment Day, The Matrix, The Mitchells vs. the Machines
+
+Tue, 22 Sep 2026 22:22:11 GMT
+
+https://collider.com/best-movies-ai-takes-over-the-world/
+
+From Colossus: The Forbin Project to Terminator 2: Judgment Day, these are the greatest movies that depict powerful AI systems taking over the world.
+---------
+
+# Two Nicolas Cage Classics Finally Getting the Release Fans Have Been Begging For
+
+Movie Features, Nicolas Cage, Con Air, National Treasure, Walt Disney Pictures
+
+Tue, 22 Sep 2026 22:21:11 GMT
+
+https://collider.com/nicolas-cage-movies-4k-release-con-air-national-treasure-disney/
+
+At long last, Disney has announced that Con Air and National Treasure are officially getting the 4K treatment.
+---------
+
+# Forgotten Island Is A Celebration of Filipino Culture and Identity | Review
+
+Movie Reviews
+
+Tue, 22 Sep 2026 22:09:30 GMT
+
+https://collider.com/forgotten-island-dreamworks-review/
+
+DreamWorks' Forgotten Island draws on Filipino culture, mythology and music for a heartfelt adventure about friendship, identity and change.
+---------
+
+# 'Interview With the Vampire' Director Officially Claims Even James Cameron's CGI Looks Wrong [Exclusive]
+
+Exclusives, Interview with the Vampire, James Cameron, Neil Jordan, Collider Rewind
+
+Tue, 22 Sep 2026 22:00:11 GMT
+
+https://collider.com/interview-with-the-vampire-neil-jordan-james-cameron-cgi-practical-filmmaking/
+
+Neil Jordan explains why he still prefers physical filmmaking to CGI, saying he can spot the difference even in James Cameron’s movies.
+---------
+
+# 5 Essential Climate Fiction Books (One Already Has a Netflix Adaptation)
+
+Books and Comics, Books, Leave the World Behind, Parable of the Sower, The Net
+
+Tue, 22 Sep 2026 21:47:11 GMT
+
+https://collider.com/climate-fiction-books-essential/
+
+Five essential climate fiction reads—from Octavia Butler's prophetic 1993 debut to Vincent Yu's 2026 debut—that predicted the world we're living.
+---------
+
+# 10 Greatest CW Shows of All Time, Ranked
+
+TV, The CW, Supernatural, One Tree Hill, The Vampire Diaries
+
+Tue, 22 Sep 2026 21:44:11 GMT
+
+https://collider.com/the-cw-best-shows-all-time-ranked/
+
+Supernatural, The Vampire Diaries, and Gossip Girl helped define The CW's legacy on television, but which series was the network's greatest?
+---------
+
+# Tom Cruise's First Original Movie in 9 Years Is Officially the Most Divisive Movie of His Career
+
+Movie News, Digger, Tom Cruise, Alejandro G. Inarritu, Riz Ahmed
+
+Tue, 22 Sep 2026 21:40:05 GMT
+
+https://collider.com/tom-cruise-digger-first-reactions/
+
+Tom Cruise's first original movie in 9 years is officially his most divisive movie in over a decade as first reactions hit the internet.
+---------
+
+# Every Episode From Season 6 of ‘The Sopranos,’ Ranked
+
+TV, The Sopranos, Television, James Gandolfini, David Chase
+
+Tue, 22 Sep 2026 21:23:11 GMT
+
+https://collider.com/the-sopranos-season-6-episodes-ranked/
+
+There were 21 episodes in the final season of The Sopranos, including "Kennedy and Heidi" and "Made in America," but which is the best overall?
+---------
+
+# Tom Cruise's 'Digger' Sparks Divisive First Reactions From Critics
+
+Movie News, Digger, Tom Cruise, Comedy, Alejandro González Iñárritu
+
+Tue, 22 Sep 2026 22:07:16 GMT
+
+https://movieweb.com/tom-cruise-digger-first-reactions/
+
+The first reactions are in for the highly anticipated and enigmatic film.
+---------
+
+# It Only Took 1 Year For Prime Video To Replace 'The Wheel of Time'
+
+Features
+
+Tue, 22 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/pendragon-cycle-rise-merlin-wheel-of-time-replacement/
+
+'The Wheel of Time' is gone, but it only took Prime Video a year to replace the fantasy series with something that will scratch a similar itch.
+---------
+
+# 'Resident Evil's Original Ending Officially Revealed by Zach Cregger
+
+Movie News, Resident Evil, Zach Cregger, Horror
+
+Tue, 22 Sep 2026 21:33:16 GMT
+
+https://movieweb.com/zach-cregger-resident-evil-ending/
+
+Zach Cregger revealed that 'Resident Evil' could have had a different ending.
+---------
+
+# New Netflix 8-Part Harlan Coben-Esque Thriller Is One of the Biggest Shows in the World
+
+TV News, Netflix, Hot on Streaming, Harlan Coben
+
+Tue, 22 Sep 2026 21:30:14 GMT
+
+https://movieweb.com/netflix-harlan-coben-not-a-stranger-thriller-streaming-hit-september-2026/
+
+It's like 'The Hand That Rocks the Cradle,' only slightly creepier.
+---------
+
+# Robert Eggers' Romeo & Juliet Ditching Shakespeare For Olde English As Horror Master Switches Genre
+
+Movie News, Robert Eggers, Romeo and Juliet, Romeo + Juliet
+
+Tue, 22 Sep 2026 21:11:39 GMT
+
+https://movieweb.com/robert-eggers-william-shakespeare-romeo-juliet-adaptation/
+
+Robert Eggers' follow-up to 'Werwulf' will be an adaptation of 'Romeo and Juliet,' produced by Focus Features.
+---------
+
+# Prime Video’s Steamy Smash Hit Is So Good, It Got an Early Season 2 Renewal
+
+Features, Off Campus, Prime Video, Drama
+
+Tue, 22 Sep 2026 21:00:15 GMT
+
+https://movieweb.com/off-campus-prime-season-2-renewal/
+
+Prime Video renewed a TV show for Season 2 before Season 1 was even released, and it's one of their most popular series.
+---------
+
+# 'The Batman 2' Officially Confirms "Ambitious" Change for DC Superhero Franchise
+
+Movie News, The Batman Part II, Action, DCU, Robert Pattinson
+
+Tue, 22 Sep 2026 20:40:08 GMT
+
+https://movieweb.com/the-batman-2-robert-pattinson-ambitious-sequel/
+
+The long-awaited sequel may not be what audiences expect.
+---------
+
 # NBC’s New Crime Thriller Series Debuts To Stellar Rotten Tomatoes Score
 
 TV, Masked Recs
