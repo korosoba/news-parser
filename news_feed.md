@@ -1,3 +1,300 @@
+# Syfy's 5-Season Fantasy Series Deserves Kudos For Being A YA Adaptation That Pulls No Punches
+
+Classic TV, Masked Recs
+
+Tue, 22 Sep 2026 01:11:41 GMT
+
+https://screenrant.com/the-magicians-ya-adaptation-difference/
+
+The YA genre gets a bad rap, but Syfy's The Magicians is a prime example of how much deeper and more hard-hitting it is than people think.
+---------
+
+# Star Trek Meets Band Of Brothers In New Sci-Fi Epic Gaming Release
+
+Gaming, Steam, PC, Indie Games
+
+Tue, 22 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/star-trek-meets-band-of-brothers-falling-frontier/
+
+If you're in the mood for a high-concept sci-fi that also melds humanistic stories like Band of Brothers, there's a new sci-fi epic in town.
+---------
+
+# Denzel Washington's Version Of The Godfather Is One Of The 21st Century's Best Gangster Movies & It's Free To Stream
+
+Movies, Denzel Washington, Masked Recs
+
+Tue, 22 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/denzel-washington-american-gangster-movie-streaming-free-tubi/
+
+One of the best gangster movies ever made, Ridley Scott’s 2007 crime masterpiece, is currently free to watch on Tubi for a limited time.
+---------
+
+# 8 Most Emotional Toy Story Moments That Make Adults Cry, Ranked (Including 3 From Toy Story 5)
+
+Movies, Toy Story, Toy Story 5
+
+Tue, 22 Sep 2026 01:00:15 GMT
+
+https://screenrant.com/toy-story-movies-franchise-most-emotional-moments/
+
+Some Toy Story scenes hit a lot harder when you're older, from Jessie's heartbreak and Woody's goodbye to the moments in Toy Story 5 that sting.
+---------
+
+# George Lucas Reunites With Harrison Ford & Mark Hamill After 7 Years
+
+Movies, Star Wars, George Lucas, Harrison Ford, Mark Hamill
+
+Tue, 22 Sep 2026 00:35:33 GMT
+
+https://screenrant.com/george-lucas-harrison-ford-mark-hamill-reunion-lucas-museum-narrative-art-opening/
+
+Star Wars creator George Lucas, Han Solo actor Harrison Ford, and Luke Skywalker actor Mark Hamill have reunited to celebrate a special milestone.
+---------
+
+# Paramount+'s 2-Season Spy Thriller Series Beat Amazon To James Bond
+
+Streaming TV, Masked Recs
+
+Tue, 22 Sep 2026 00:30:16 GMT
+
+https://screenrant.com/the-agency-paramount-plus-james-bond-show-amazon/
+
+Amazon is moving quickly with James Bond, both in casting 007 and preparing for a reboot movie, but Paramount+'s The Agency was quicker.
+---------
+
+# Time-Bending 2-Part Fantasy Series Returns As A Global Streaming Hit At The Perfect Time
+
+TV, Masked Recs
+
+Tue, 22 Sep 2026 00:29:38 GMT
+
+https://screenrant.com/outlander-blood-my-blood-hbo-max-global-streaming-success-september-2026/
+
+An exciting 2-season time travel fantasy series has now become a global streaming sensation on HBO Max, and its timing could not be better.
+---------
+
+# Angel Meets Lucifer In NBC’s 13-Episode Supernatural Thriller That Was Canceled Too Soon
+
+Classic TV, Masked Recs
+
+Tue, 22 Sep 2026 00:02:30 GMT
+
+https://screenrant.com/constantine-nbc-like-angel-lucifer/
+
+Angel and Lucifer are two of the best supernatural thrillers, and a 13-episode supernatural thriller from NBC felt like the perfect blend.
+---------
+
+# Netflix Is Officially Bringing Back A Forgotten Villain Next Month
+
+Streaming TV, Masked Recs
+
+Tue, 22 Sep 2026 00:00:16 GMT
+
+https://screenrant.com/netflix-below-sea-monster-forgotten-villain/
+
+Next month marks the return of Josh Hartnett, whose recent comeback has been very successful, and his series will also bring back an iconic villain
+---------
+
+# 7 Iconic Green Lantern Villains Who Are Perfect For Lanterns Season 2
+
+Comics, Lanterns, Green Lantern, DC Comics
+
+Tue, 22 Sep 2026 00:00:16 GMT
+
+https://screenrant.com/green-lantern-villains-theory-lanterns-season-2/
+
+From a mind-bending scientist to a blood-soaked revolutionary, these seven Green Lantern villains would be perfect choices for Lanterns Season 2.
+---------
+
+# 5 Greatest Isekai Anime with Slimes as Main Characters, Ranked
+
+Anime, Isekai, That Time I Got Reincarnated as a Slime
+
+Tue, 22 Sep 2026 01:25:11 GMT
+
+https://www.cbr.com/best-isekai-anime-with-slime-main-characters-ranked/
+
+It's high time that slimes stop getting underestimated and seize the main roles in isekai anime.
+---------
+
+# 7 Years Later, HBO’s 5-Part Instant Horror Classic Is Finding a Whole New Audience
+
+TV, Chernobyl, Horror
+
+Tue, 22 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/chernobyl-horror-success-pvod-amazon-september-2026/
+
+Seven years after its release, a hit HBO series is still drawing in viewers.
+---------
+
+# Say Goodbye to CBS' Best Show in 2026
+
+TV, Matlock, Cupertino, CBS
+
+Tue, 22 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/cbs-matlock-season-3-not-returning-until-2027/
+
+CBS is saying goodbye to Kathy Bates' outstanding legal drama for now, as updates on Matlock Season 3 shift what audiences have come to expect.
+---------
+
+# Drew Barrymore Resurrects Casey Becker 30 Years After Scream Death
+
+Movies, Scream
+
+Tue, 22 Sep 2026 00:45:19 GMT
+
+https://www.cbr.com/drew-barrymore-scream-return-30-years-later/
+
+Drew Barrymore has revisited her iconic Scream role.
+---------
+
+# Silent Hill Townfall is Officially the Scariest Game of 2026
+
+Games, Silent Hill, Silent Hill: Townfall, Video Games, Horror
+
+Tue, 22 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/silent-hill-townfall-review/
+
+Silent Hill: Townfall continues the hot streak that Konami has been on as the shift to first-person helps elevate Townfall to terrifying heights.
+---------
+
+# Transformers Reverses Course After Exclusive 40th Anniversary Release Left Fans Empty-Handed
+
+Anime, Transformers, The Transformers: The Movie, merchandise, hasbro, toys, action figures
+
+Tue, 22 Sep 2026 00:20:12 GMT
+
+https://www.cbr.com/transformers-mtmte-starscream-target-release-uncancel/
+
+Transformers fans saddened by recent Target toy cancellations now have another chance to get their hands on Studio Series 86 Starscream and Prowl.
+---------
+
+# Margot Robbie's 110-Minute Steamy Adventure Film Is Exiting Free Streaming
+
+Movies, The Legend of Tarzan, Tubi, margot robbie
+
+Tue, 22 Sep 2026 00:17:11 GMT
+
+https://www.cbr.com/margot-robbie-the-legend-of-tarzan-leaving-tubi/
+
+Margot Robbie fans are running out of time to stream the actor's steamy adventure film with Alexander Skarsgård for free.
+---------
+
+# Greatest Anime Villains of the Last 20 Years, Ranked
+
+Anime, One Piece, Naruto: Shippuden
+
+Tue, 22 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/greatest-anime-villains-last-20-years-ranked-list/
+
+From ruthless masterminds to terrifying monsters, these are ten of the greatest anime villains of the last 20 years.
+---------
+
+# Ben Affleck’s 5-Star Crime Thriller With 94% RT Sneaks Into Streaming's Top 10 19 Years Later
+
+Movies, Gone Baby Gone, Paramount Plus, Ben Affleck
+
+Tue, 22 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/ben-affleck-gone-baby-gone-paramount-plus-streaming-success/
+
+Ben Affleck's 2007 directorial debut climbs up the streaming charts.
+---------
+
+# Lady Dimitrescu is the Resident Evil Sequel's Perfect Villain
+
+Movies, Resident Evil
+
+Tue, 22 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/zach-cregger-resident-evil-sequel-villain-lady-dimitrescu/
+
+Zach Cregger just announced his dream casting for one of Resident Evil's most iconic video game villains.
+---------
+
+# 3 Series You Officially Need to Binge on Prime Video This Week (Sep 21-25)
+
+TV, Prime Video, Bosch, American Horror Story, Fleabag
+
+Tue, 22 Sep 2026 01:11:11 GMT
+
+https://collider.com/prime-video-shows-binge-september-21-2026/
+
+Bosch, American Horror Story, and Fleabag make up our list of the best Prime Video shows to stream the week of September 21.
+---------
+
+# Ben Affleck’s Forgotten 'Inception' Meets 'Taken' Thriller Is the #1 Hit on Hulu
+
+Movie News, Ben Affleck, Hypnotic, Robert Rodriguez, Thriller
+
+Tue, 22 Sep 2026 01:00:11 GMT
+
+https://collider.com/hypnotic-ben-affleck-mind-bending-thriller-hulu-streaming-success-september/
+
+A mind-bending sci-fi thriller starring Ben Affleck and directed by Robert Rodriguez is the number-one movie on Hulu right now.
+---------
+
+# 10 Best Epic Films of the 2020s So Far, Ranked
+
+Movie, The Odyssey, Oppenheimer, Dune: Part Two, Gladiator II
+
+Tue, 22 Sep 2026 00:41:11 GMT
+
+https://collider.com/best-epic-films-2020s-so-far-ranked/
+
+From Oppenheimer to Dune: Part Two, these modern epics prove audiences still crave massive stories, spectacle, and ambition on the big screen.
+---------
+
+# New Star Trek Release Officially Cancelled Just 2 Months Ahead of Release
+
+Gaming News, Star Trek, Magic: The Gathering, Gaming, Games
+
+Mon, 21 Sep 2026 23:48:11 GMT
+
+https://collider.com/magic-the-gathering-star-trek-beginner-box-cancelled/
+
+Wizards cancels the Magic: The Gathering | Star Trek Beginner Box worldwide weeks before the crossover’s November launch.
+---------
+
+# 33 Years Later, ‘Calvin and Hobbes’s Greatest Quote Remains One of Its Saddest
+
+Features, Calvin and Hobbes, Comedy
+
+Tue, 22 Sep 2026 01:03:09 GMT
+
+https://movieweb.com/calvin-and-hobbes-significant-quote-greatest-saddest/
+
+One of the greatest and most recognizable 'Calvin and Hobbes's quotes is also one of the saddest — though there is an optimistic spin.
+---------
+
+# 8 War Movies With No Bad Sequels
+
+Movie Lists, War, Action
+
+Tue, 22 Sep 2026 00:00:14 GMT
+
+https://movieweb.com/war-movies-no-bad-sequels/
+
+When it comes to war movies, the genre doesn't offer as many action-packed, emotionally charged sequels as you might think.
+---------
+
+# An Absolute Titan of '80s Nostalgia Returns With New Release After 40 Years
+
+Movie News, The Transformers: The Movie, Transformers, Animation, Sci-Fi, Action, Blu-ray
+
+Mon, 21 Sep 2026 23:30:16 GMT
+
+https://movieweb.com/transformers-the-movie-blu-ray-release/
+
+'The Transformers: The Movie' is getting a new 4K Blu-ray release to commemorate the animated classic's 40th anniversary.
+---------
+
 # Reacher Star Alan Ritchson's War Machine Is One of Netflix Hits of 2026
 
 Movies, Masked Recs
