@@ -1,3 +1,344 @@
+# The Wheel Of Time Is Officially Changing The Last Battle
+
+Gaming, The Wheel of Time, PC
+
+Tue, 22 Sep 2026 06:00:15 GMT
+
+https://screenrant.com/wheel-of-time-war-of-dragon-last-battle-changes/
+
+14 years after Tarmon Gai’don, The Wheel of Time is officially changing The Last Battle in the franchise's 2027 return.
+---------
+
+# The Walking Dead: Aftermath Officially Brings Back Multiple Fan-Favorite Characters
+
+Gaming, The Walking Dead, Triple-A Games
+
+Tue, 22 Sep 2026 05:30:15 GMT
+
+https://screenrant.com/walking-dead-aftermath-fan-favorites-return/
+
+If you're a fan of old-school fan-favorite characters from The Walking Dead universe, you may want to check out The Walking Dead: Aftermath.
+---------
+
+# Stephen King’s IT Meets Time Travel In Netflix’s 26-Episode Sci-Fi Masterpiece
+
+Classic TV, Masked Recs
+
+Tue, 22 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/netflix-dark-stephen-king-it-meets-time-travel-sci-fi/
+
+A 26-episode sci-fi masterpiece on Netflix’s catalog seems to perfectly combine the chills from Stephen King IT franchise with time travel thrills.
+---------
+
+# Foundation Officially Begins A New Era In Upcoming Season
+
+Gaming, Foundation, PC
+
+Tue, 22 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/foundation-galactic-frontier-new-era-season-two/
+
+Foundation's upcoming season marks the beginning of an exciting new era for the franchise, entering a new corner of the universe.
+---------
+
+# Dungeon Crawler Carl's Next Book Officially Begins A Brand-New Era
+
+Gaming, Dungeon Crawler Carl, PC
+
+Tue, 22 Sep 2026 04:30:15 GMT
+
+https://screenrant.com/dungeon-crawler-carl-rpg-rulebook-new-era/
+
+Dungeon Crawler Carl's next book arrives sooner than you think and will kick off a brand-new era for the LitRPG phenomenon.
+---------
+
+# Final Fantasy 7: Zack Fair Officially Releases January 2027
+
+Gaming, Final Fantasy 7, Final Fantasy 7 Remake, Final Fantasy 7 Rebirth, Final Fantasy VII Rebirth, Final Fantasy VII Revelation, PC
+
+Tue, 22 Sep 2026 04:00:21 GMT
+
+https://screenrant.com/final-fantasy-7-zack-fair-january-2027-release/
+
+Final Fantasy 7's Zack Fair makes official return in an upcoming release that arrives in January of 2027, bringing back a franchise favorite.
+---------
+
+# The Love Hypothesis Review: Heavy On Biology, Light On Chemistry
+
+Movies, The Love Hypothesis
+
+Tue, 22 Sep 2026 04:00:21 GMT
+
+https://screenrant.com/the-love-hypothesis-movie-review/
+
+The long-awaited movie adaptation of the Reylo fan fiction turned best-selling novel has finally arrived, but it doesn't quite live up to the hype.
+---------
+
+# 39 Years Later, Alan Moore's Forgotten Watchmen Successor Remains DC's Biggest Mistake
+
+Comics, Alan Moore, DC Comics
+
+Tue, 22 Sep 2026 03:58:53 GMT
+
+https://screenrant.com/twilight-superheroes-alan-moore-forgotten-masterpiece-watchmen/
+
+Back in 1987, Alan Moore pitched a controversial DC Comics crossover that would deserves acknowledgement as the publisher's biggest mistake.
+---------
+
+# 60 Years Later, DC Is Threatening To Permanently Depower One Of Their Most Iconic Villains
+
+DC Comics, DC
+
+Tue, 22 Sep 2026 03:58:16 GMT
+
+https://screenrant.com/dc-depower-poison-ivy/
+
+DC is in the midst of an epic crossover event right now, and, when it ends, a classic Batman supervillain may be a mere shell of her former self.
+---------
+
+# Unforgiven Meets Guillermo del Toro In Dark 5-Part Western Series Met With Critical Acclaim
+
+Comics, Western
+
+Tue, 22 Sep 2026 03:48:41 GMT
+
+https://screenrant.com/aint-no-grave-unforgiven-guillermo-del-toro/
+
+An Image Comics miniseries has returned with a second printing, and while it's a Western tale, it's anything but classic and remarkably heartbreaking.
+---------
+
+# Beware Boiuna Review: A Giant Snake Gets Its 'Lake Placid' Moment in a Fun Thriller
+
+Movies, Beware Boiúna
+
+Tue, 22 Sep 2026 05:28:58 GMT
+
+https://www.cbr.com/beware-boiuna-review/
+
+Brazilian folklore and female survival instincts give this Amazon-set horror movie an edge over familiar monster fare.
+---------
+
+# Monster the Lizzie Borden Story Review: A Stylish but Frustrating Netflix Misfire
+
+TV, Monster: The Lizzie Borden Story
+
+Tue, 22 Sep 2026 04:34:07 GMT
+
+https://www.cbr.com/monster-the-lizzie-borden-story-review/
+
+Netflix's fourth Monster season pairs striking visuals with uneven storytelling and an unconvincing Aileen Wuornos subplot.
+---------
+
+# Amazon's Carrie Actress Gets High Praise in Early Reviews: 'Give Her All the Awards'
+
+TV, Carrie
+
+Tue, 22 Sep 2026 03:57:21 GMT
+
+https://www.cbr.com/carrie-prime-video-early-reviews-rotten-tomatoes/
+
+Early reviews for Mike Flanagan's Carrie reboot at Prime Video are coming in.
+---------
+
+# 10 NES Games Everyone Owned in the '80s
+
+Games, Video Games, Nintendo
+
+Tue, 22 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/nes-games-everyone-owned-in-the-80s/
+
+Owning a home console in the '80s made these NES games an absolute necessity for every gamer.
+---------
+
+# 10 Best Garfield Comics That Are Now 40 Years Old
+
+Comics, Garfield
+
+Tue, 22 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/best-garfield-comics-that-turned-40-years-old/
+
+While Jim Davis continually updates the Garfield comics to maintain relevant humor, there are many issues just turning forty that are still hilarious.
+---------
+
+# CBS Has Quietly Replaced Hawaii Five-0 With Something Even Bigger
+
+TV, Hawaii Five-0, NCIS, NCIS: New York
+
+Tue, 22 Sep 2026 03:30:06 GMT
+
+https://www.cbr.com/cbs-replace-hawaii-five-0-with-ncis-new-york/
+
+After Hawaii Five-0 ended in 2020, CBS is quietly replacing its iconic reboot series with a new show that hits the network in a couple of weeks.
+---------
+
+# Disney's Canceled Mandalorian Story is the End of an Era for Star Wars
+
+Movies, Star Wars, The Mandalorian and Grogu, The Mandalorian
+
+Tue, 22 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/star-wars-mandalorian-and-grogu-novel-canceled-end-of-era/
+
+Disney's latest cancellation breaks a Star Wars tradition that has existed for fifty years.
+---------
+
+# Why Matthew Rhys Doesn’t Love Being a Widow’s Bay Meme
+
+CBR Exclusives, Widow's Bay, Golden Axe
+
+Tue, 22 Sep 2026 03:14:06 GMT
+
+https://www.cbr.com/matthew-rhys-widows-bay-meme-reaction/
+
+Matthew Rhys reacts to his viral Widow's Bay moments and jokes about the downside of watching a performance become an internet punchline.
+---------
+
+# Solo Leveling Reveals First Look at the Double Dungeon Arc Ahead of October 22 Release
+
+Anime, Solo Leveling:ARISE, Solo Leveling
+
+Tue, 22 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/solo-leveling-arise-phase-2-trailer-release-date-reveal/
+
+Jinwoo's fight against Kandiaru, the Architect of the System, takes center stage in a new trailer release for Solo Leveling: Arise's 2nd anniversary.
+---------
+
+# Russell Crowe Open to Returning for His First-Ever Sequel After Avoiding Them for Decades
+
+Movies, The Pope's Exorcist 2, The Pope's Exorcist
+
+Tue, 22 Sep 2026 03:03:53 GMT
+
+https://www.cbr.com/russell-crowe-talks-the-popes-exorcist-2/
+
+Russell Crowe reveals which role he might revisit, which would mark his first-ever sequel.
+---------
+
+# The 6 Best Spy Films of the 2020s So Far, Ranked
+
+Movie, Mission: Impossible - Dead Reckoning, Black Bag, No Time to Die, The Courier
+
+Tue, 22 Sep 2026 04:05:12 GMT
+
+https://collider.com/best-spy-films-2020s-so-far-ranked/
+
+From Black Bag to Tenet, these spy thrillers turn lies into currency, where every glance, cover story, and secret can change everything.
+---------
+
+# Prime Video's 'The Love Hypothesis' Is a Near-Perfect Rom-Com Experiment | Review
+
+Movie Reviews, The Love Hypothesis, Lili Reinhart, Tom Bateman, Prime Video
+
+Tue, 22 Sep 2026 04:00:14 GMT
+
+https://collider.com/the-love-hypothesis-movie-review-prime-video/
+
+Prime Video's The Love Hypothesis, led by Lili Reinhart and Tom Bateman's terrific chemistry, is a mostly successful rom-com experiment.
+---------
+
+# 10 Harlan Coben Books That Are 10/10, No Notes
+
+Books and Comics, Harlan Coben, Fool Me Once, I Will Find You, Thriller
+
+Tue, 22 Sep 2026 03:55:11 GMT
+
+https://collider.com/harlan-coben-books-perfect-no-notes/
+
+Harlan Coben has made a name for himself within the thriller genre, with books like I Will Find You and Fool Me Once that are truly flawless.
+---------
+
+# After '9-1-1,' Peter Krause's Newest NBC Action Thriller Is a Twisty, Soapy Blast | Review
+
+TV Reviews, Line of Fire, Peter Krause, Hope Davis, NBC
+
+Tue, 22 Sep 2026 03:01:11 GMT
+
+https://collider.com/line-of-fire-nbc-peter-krause-hope-davis-review/
+
+Peter Krause's return to network TV comes in the form of NBC's Line of Fire, a thrilling mix of family drama and government conspiracy.
+---------
+
+# ‘Madam Secretary’ Meets ‘Dharma & Greg’ in Jamie Lee Curtis’ New NBC Sitcom
+
+TV Features, Madam Secretary, Dharma & Greg, NBC, Jamie Lee Curtis
+
+Tue, 22 Sep 2026 02:34:08 GMT
+
+https://collider.com/newlyweds-madam-secretary-dharma-greg-jamie-lee-curtis-nbc-tea-leoni-tim-daly/
+
+Madam Secretary stars Téa Leoni and Tim Daly reunite in NBC’s Newlyweds, reminiscent of Dharma & Greg. It was co-created by Jamie Lee Curtis.
+---------
+
+# Prime Video Officially Reveals the Fate of Its Sleeper-Hit Action Series Perfect for 'Reacher' Fans
+
+TV News, Prime Video, Ride or Die, Reacher, Hannah Waddingham
+
+Tue, 22 Sep 2026 02:00:22 GMT
+
+https://collider.com/prime-video-ride-or-die-season-2-officially-cancelled/
+
+Prime Video has officially cancelled the near-perfect buddy-spy comedy Ride or Die after just one season. Find out why here.
+---------
+
+# Prime Video's Steamy New Rom-Com Fails The Chemistry Test | Review
+
+Movie Reviews, The Love Hypothesis
+
+Tue, 22 Sep 2026 04:00:19 GMT
+
+https://movieweb.com/the-love-hypothesis-review/
+
+A funny rom-com is held back by the stars' lack of chemistry.
+---------
+
+# Jon Bernthal's Billion Dollar Blockbuster Smashes All-Time Historic Box Office Record
+
+Movie News, Jon Bernthal, The Odyssey, Box Office Milestones
+
+Tue, 22 Sep 2026 03:00:14 GMT
+
+https://movieweb.com/jon-bernthal-the-odyssey-new-box-office-record-sept-2026/
+
+Jon Bernthal appears in both of 2026’s biggest movies, and now The Odyssey has added another milestone by passing $1.7 billion worldwide.
+---------
+
+# Russell Crowe's New Depression-era Crime Thriller Nabs Killer Rotten Tomatoes Audience Score
+
+Movie News, Drama, The Weight, Russell Crowe, Thriller, Action
+
+Tue, 22 Sep 2026 02:59:29 GMT
+
+https://movieweb.com/the-weight-russell-crowe-rotten-tomatoes-audience-score/
+
+Crowe and Hawke endure real wilderness in a visceral Depression-era crime tale that reshapes expectations.
+---------
+
+# Netflix 85-Minute "John Wick Meets Sicario" Action Thriller Is One of the Biggest Streaming Hits in History
+
+Movie News, Netflix, Action, Thriller, Streaming
+
+Tue, 22 Sep 2026 02:00:25 GMT
+
+https://movieweb.com/netflix-counterattack-biggest-streaming-action-thriller/
+
+They created a new enemy.
+---------
+
+# 5 Confirmed Details About the DCU's Batman
+
+Movie Lists, Batman, DCU, Superhero
+
+Tue, 22 Sep 2026 02:00:25 GMT
+
+https://movieweb.com/james-gunn-dcu-batman-confirmed-details/
+
+The DCU has dropped some key details about the franchise version of Batman well before his film, The Brave and the Bold, opens in theaters.
+---------
+
 # Syfy's 5-Season Fantasy Series Deserves Kudos For Being A YA Adaptation That Pulls No Punches
 
 Classic TV, Masked Recs
