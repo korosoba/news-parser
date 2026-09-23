@@ -1,3 +1,443 @@
+# The BBC's Best New Agatha Christie-Inspired Detective Drama Officially Returns Next Month
+
+Streaming TV, Masked Recs
+
+Wed, 23 Sep 2026 17:30:17 GMT
+
+https://screenrant.com/ludwig-bbc-detetective-drama-returns-season-2/
+
+The BBC's best new Agatha Christie-inspired detective, Ludwig, returns for its long-awaited second season, with more cozy crime goodness to come.
+---------
+
+# 53 Years Later, Disney Is Bringing Back A Classic Animated Movie With A New Series
+
+Comics, Disney
+
+Wed, 23 Sep 2026 17:26:56 GMT
+
+https://screenrant.com/disney-robin-hood-series-details/
+
+Disney stans, mark your calendars for this November, as the company announces the return of one of its most beloved classic movies as a new series.
+---------
+
+# Battlestar Galactica Officially Switches Genres In Scattered Hopes Prequel
+
+Gaming, Battlestar Galactica, PC
+
+Wed, 23 Sep 2026 17:22:34 GMT
+
+https://screenrant.com/battlestar-galactica-scattered-hopes-prequel-genre-switch/
+
+Battlestar Galactica has jumped to a completely different genre in the official new prequel, Scattered Hopes.
+---------
+
+# Guy Ritchie & Henry Cavill's R-Rated Spy Thriller Refuses To Back Down On Streaming
+
+Movies, Masked Recs
+
+Wed, 23 Sep 2026 17:13:28 GMT
+
+https://screenrant.com/guy-ritchie-henry-cavill-in-the-grey-refuse-back-down-streaming-charts-september-2026/
+
+Henry Cavill's new action thriller continues to hold onto streaming charts as a major hit around the world, and Guy Ritchie's flair sure helps.
+---------
+
+# Law & Order: SVU Confirms Disappointing Elliot Stabler Return
+
+TV, Law & Order: Special Victims Unit
+
+Wed, 23 Sep 2026 17:01:15 GMT
+
+https://screenrant.com/law-and-order-svu-season-28-elliot-stabler-return-disappointing/
+
+A landmark 600th episode reunion stirs old tensions and promises emotional payoffs, but a major comeback comes with a disappointing surprise for fans.
+---------
+
+# DC Officially Debuts Historic New Design For Justice League Hero
+
+DC Comics, Justice League
+
+Wed, 23 Sep 2026 16:59:36 GMT
+
+https://screenrant.com/absolute-atom-justice-league-redesign/
+
+A classic DC Comics hero returns with a brand-new costume and a different version of his powers, which could be key to saving the entire universe.
+---------
+
+# Legend Of Zelda: Ocarina Of Time Remake Officially Sold Out At Major Retailer
+
+Gaming, The Legend of Zelda: Ocarina of Time, Triple-A Games, The Legend of Zelda
+
+Wed, 23 Sep 2026 16:54:23 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-sold-out-major-retailer/
+
+Although The Legend Of Zelda: Ocarina Of Time is a massively popular game, physical media is still beloved by millions of fans, and this proves it.
+---------
+
+# Yellowstone & 1923 Stars' Epic New Cowboy Western Thriller Unveiled In First Look Images
+
+Movies, Brandon Sklenar
+
+Wed, 23 Sep 2026 16:51:26 GMT
+
+https://screenrant.com/the-rescue-western-brandon-sklenar-first-look-images/
+
+Yellowstone franchise star Brandon Sklenar returns to the genre in new first-look images of his upcoming Western cowboy thriller movie.
+---------
+
+# 5 Must-Read Horror Books According To Thriller Queen Jeneva Rose (Exclusive)
+
+Books, Horror, Thriller
+
+Wed, 23 Sep 2026 16:45:35 GMT
+
+https://screenrant.com/jeneva-rose-interview-horror-recommendations-sometimes-i-scare-myself/
+
+Jeneva Rose talks her favorite horror movies and books, zombies, and her upcoming release and movie adaptation.
+---------
+
+# Every Actor In The Gunsmoke Cast Who's Still Alive
+
+Classic TV, Gunsmoke
+
+Wed, 23 Sep 2026 16:45:16 GMT
+
+https://screenrant.com/gunsmoke-cast-still-alive-actors/
+
+There are only a few members from the Gunsmoke cast still alive considering the series is over half a century old. What have the actors been up to?
+---------
+
+# 5 Easiest TCGs You Can Learn In One Sitting
+
+Games, Tabletop, Pokemon, Magic: The Gathering, TCG
+
+Wed, 23 Sep 2026 17:30:12 GMT
+
+https://www.cbr.com/easiest-tcgs-learn-one-sitting/
+
+Trading card games can be difficult to learn, but some are simple enough to explain in a single sitting, especially with a player's help.
+---------
+
+# PlayStation 5 Adds a Free 24/7 Anime Channel With 18 Series
+
+Anime, PlayStation 5, Kuroko's Basketball, My Deer Friend Nokotan, Streaming
+
+Wed, 23 Sep 2026 17:20:11 GMT
+
+https://www.cbr.com/ps5-remow-new-free-anime-channel/
+
+A popular anime FAST channel officially launches on the PS5, providing fans with a plethora of free-to-watch anime shows.
+---------
+
+# Xbox Mythic Achievements Coming to Rival PlayStation Platinum Trophies
+
+Games, Xbox Series X (1), PlayStation 5
+
+Wed, 23 Sep 2026 17:18:42 GMT
+
+https://www.cbr.com/xbox-mythic-achievement-playstation-platinum-trophy-rival/
+
+Xbox's achievements system is one the cusp of a major new addition, with the Mythic tier appearing to be a rival to PlayStation's Platinum trophies.
+---------
+
+# 10 Marvel Characters Who Suddenly Became Overpowered for No Reason
+
+Comics, Marvel
+
+Wed, 23 Sep 2026 17:00:11 GMT
+
+https://www.cbr.com/marvel-characters-who-became-overpowered-without-reason/
+
+These Marvel characters might have a history of strength, but they were never this powerful!
+---------
+
+# The Twisted 6-Part British Thriller Every Broadchurch Fan Should Watch
+
+TV, The Woman in the Wall, Thriller
+
+Wed, 23 Sep 2026 17:00:11 GMT
+
+https://www.cbr.com/the-woman-in-the-wall-thriller-miniseries-like-broadchurch/
+
+Based on true events, BBC's The Woman in the Wall is a haunting depiction of one of the darkest chapters in modern Irish history.
+---------
+
+# Star Wars Fan Fiction Movie Debuts With Higher RT Score Than Rise of Skywalker
+
+Movies, The Love Hypothesis
+
+Wed, 23 Sep 2026 16:43:01 GMT
+
+https://www.cbr.com/the-love-hypothesis-rotten-tomatoes-score/
+
+Critics are liking the new movie inspired by a galaxy far, far away a lot more than they did Star Wars: The Rise of Skywalker.
+---------
+
+# What Tom Cruise Has In Common With Digger, According To His Co-Stars
+
+CBR Exclusives, Digger
+
+Wed, 23 Sep 2026 16:21:49 GMT
+
+https://www.cbr.com/what-tom-cruise-has-in-common-with-digger-according-to-his-co-stars/
+
+One of Tom Cruise's Digger co-stars opens up about how similar the Hollywood icon is to his character in Alejandro G. Iñárritu's next feature film.
+---------
+
+# 8 Strongest Demon Slayer Characters Who Never Became Hashira
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer, Shonen
+
+Wed, 23 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/strongest-demon-slayer-characters-not-hashira/
+
+Some of Demon Slayer's strongest heroes never received the official Hashira title, but that doesn't mean they didn't deserve it!
+---------
+
+# Judge Dredd's New Era Officially Arrives On October 7
+
+Comics, Judge Dredd, 2000 ad
+
+Wed, 23 Sep 2026 16:01:11 GMT
+
+https://www.cbr.com/judge-dredd-2000-ad-new-era/
+
+Here comes the Judge.
+---------
+
+# Star Trek: First Contact is the Darkest Movie in Franchise History
+
+Movies, Star Trek, Star Trek: The Next Generation, Star Trek: First Contact
+
+Wed, 23 Sep 2026 16:01:11 GMT
+
+https://www.cbr.com/star-trek-first-contact-darkest-movie-franchise-history/
+
+Star Trek: First Contact is one of the darkest movies in the franchise, but its story was almost completely different than what fans saw in theaters.
+---------
+
+# Daredevil Favorite Officially Leaves Marvel Behind for Hulu's Sci-Fi Spin-Off
+
+TV News, The Testaments, Daredevil: Born Again, Deborah Ann Woll, The Handmaid's Tale
+
+Wed, 23 Sep 2026 17:33:12 GMT
+
+https://collider.com/hulu-handmaids-tale-spin-off-the-testaments-season-2-cast-deborah-ann-woll/
+
+Daredevil star Deborah Ann Woll has officially joined the cast of The Testaments Season 2 following news of Born Again's ending. Read on for more.
+---------
+
+# Andrew Scott Gives the Performance of a Lifetime in 'Elsinore' | TIFF Review
+
+Movie Reviews, Andrew Scott, Elsinore, TIFF
+
+Wed, 23 Sep 2026 17:08:30 GMT
+
+https://collider.com/andrew-scott-elsinore-movie-review-tiff/
+
+in Elsinore, Andrew Garfield gives a breathtaking performance as Ian Charleson, an actor who is preparing to star in Hamlet while dying of AIDS.
+---------
+
+# It's the Beginning of the End for a Bestselling YA Romantasy Novel Series [Exclusive]
+
+Books and Comics News, Romance, Fantasy, A Court of Thorns and Roses, Books
+
+Wed, 23 Sep 2026 17:01:11 GMT
+
+https://collider.com/empire-excerpt-sneak-peek-sabaa-tahir/
+
+An excerpt from Sabaa Tahir's romantasy novel Empire explores the afterlife and sets the stage for a dramatic conclusion to the Heir duology.
+---------
+
+# Christopher Meloni Officially Returns to 'Law & Order: SVU' After 'Organized Crime' Cancellation
+
+TV News, Law & Order: Special Victims Unit, Mariska Hargitay, Christopher Meloni, NBC
+
+Wed, 23 Sep 2026 16:39:24 GMT
+
+https://collider.com/law-and-order-svu-mariska-hargitay-christopher-meloni-reunion-image/
+
+Organized Crime may be gone, but Christopher Meloni is officially back for Law & Order: SVU's 600th episode according to Mariska Hargitay.
+---------
+
+# The 2000s’ Most Divisive Sci-Fi Show Is Officially Free To Stream This Weekend
+
+TV Features, V, Tubi, Sci-Fi, Elizabeth Mitchell
+
+Wed, 23 Sep 2026 16:37:11 GMT
+
+https://collider.com/most-divisive-sci-fi-series-2000s-abc-v-2009-streaming-free-tubi/
+
+ABC’s 2009 V reboot is free to stream on Tubi and Plex in the U.S. Here’s why the alien invasion series sparked debate and remains worth revisiting.
+---------
+
+# 10 Adventure Movies That Are Perfect From the First Scene to the Last
+
+Movie, Adventure, Back to the Future, Indiana Jones and the Last Crusade, The Mummy
+
+Wed, 23 Sep 2026 16:34:11 GMT
+
+https://collider.com/adventure-movies-perfect-first-scene-to-last/
+
+Movies like Raiders of the Lost Ark and The Mummy perfectly capture the feeling of going on a grand and epic adventure without even leaving your sofa.
+---------
+
+# Ben Stiller Officially Finds 'Severance' Replacement Series at Apple TV
+
+TV News, Severance, Ben Stiller, Apple TV, Janeane Garofalo
+
+Wed, 23 Sep 2026 16:26:50 GMT
+
+https://collider.com/ben-stiller-severance-replacement-cast-janeane-garofalo/
+
+As fans wait for Severance Season 3, Ben Stiller's new Apple TV series has added a frequent collaborator of the legendary star and director.
+---------
+
+# Norman Lear's Final Romance Gets an Emotional First Trailer [Exclusive]
+
+Movie News, Duino, Drama, Norman Lear, Romance
+
+Wed, 23 Sep 2026 16:00:11 GMT
+
+https://collider.com/before-we-forget-trailer-norman-lear-juan-pablo-di-pace-release-date/
+
+Watch the exclusive trailer for Norman Lear's romantic drama Before We Forget, starring Juan Pablo Di Pace and arriving October 20.
+---------
+
+# ‘Interview with the Vampire’ Director Officially Reveals What He Saw “Behind” Tom Cruise’s Famous Smile [Exclusive]
+
+Exclusives, Interview with the Vampire, Tom Cruise, Neil Jordan, Collider Rewind
+
+Wed, 23 Sep 2026 16:00:11 GMT
+
+https://collider.com/tom-cruise-interview-with-the-vampire-lestat-casting-neil-jordan/
+
+Neil Jordan reveals the “slightly terrifying” quality he saw in Tom Cruise before casting him as Lestat in Interview with the Vampire.
+---------
+
+# ‘John Wick’ Meets ‘Killing Eve’ in New Action Series Officially Premiering in 2 Weeks [Exclusive]
+
+TV News, Kill Jackie, Catherine Zeta-Jones, Killing Eve, John Wick
+
+Wed, 23 Sep 2026 15:30:12 GMT
+
+https://collider.com/kill-jackie-catherine-zeta-jones-sneak-peek-amc/
+
+AMC+ has released a new sneak peek at Catherine Zeta-Jones' new action series, Kill Jackie, which arrives on October 2.
+---------
+
+# Forget 'Resident Evil,' Another Iconic Video Game Franchise Is Getting a Long-Awaited Reboot
+
+Movie News, Silent Hill, Resident Evil, Horror
+
+Wed, 23 Sep 2026 17:32:52 GMT
+
+https://movieweb.com/silent-hill-reboot-movie-in-the-works-from-resident-evil-producer/
+
+A 'Silent Hill' reboot is in the works from the producer of Zach Cregger's 'Resident Evil'.
+---------
+
+# A24's Top-Secret 2026 Movie Unleashes Tense New Trailer After Landing Perfect Reviews
+
+Movie News, You Can See Everything, Nathan Fielder, A24
+
+Wed, 23 Sep 2026 17:17:57 GMT
+
+https://movieweb.com/you-can-see-everything-trailer-nathan-fielder/
+
+A24 has released a new trailer for Nathan Fielder's documentary about Elizabeth Holmes, 'You Can See Everything,' ahead of its October 2026 release.
+---------
+
+# 'Lioness' Season 3 Finale's Big Twist Explained By Star
+
+TV News, Lioness, Thriller
+
+Wed, 23 Sep 2026 17:00:56 GMT
+
+https://movieweb.com/lioness-season-3-finale-twist-stephanie-nur/
+
+'Lioness' Season 3 ended with a shocking reveal that sets up the stakes for Season 4.
+---------
+
+# 7 Biggest Questions After 'Ted Lasso' Season 4, Episode 8
+
+TV Lists, Ted Lasso, Comedy, Jason Sudeikis, Tracey Ullman, Hannah Waddingham, Brett Goldstein, Juno Temple, Apple TV
+
+Wed, 23 Sep 2026 16:01:16 GMT
+
+https://movieweb.com/ted-lasso-season-4-episode-8-biggest-questions/
+
+'Ted Lasso' Season 4, Episode 8, "Follow the Anger" has plenty of dramatic and hilarious moments, and there's a lot to get your head around.
+---------
+
+# Netflix's Intense 91-Minute Action Thriller Is Officially One of the Biggest Movies in the World
+
+Movie News, Facing El Chapo, Netflix, Hot on Streaming, Action
+
+Wed, 23 Sep 2026 16:01:16 GMT
+
+https://movieweb.com/facing-el-chapo-action-stream-netflix-tudum-september-2026/
+
+What would you do if you came face-to-face with one of the most dangerous crime lords in the world?
+---------
+
+# 'Avengers: Endgame' Eyes Major Box Office Win 7 Years After Original Release
+
+Movie News, Avengers: Endgame, Superhero
+
+Wed, 23 Sep 2026 15:37:35 GMT
+
+https://movieweb.com/avengers-endgame-encore-box-office/
+
+Marvel Studios' 'Avengers: Endgame' could continue to dominate seven years after it became one of the biggest movies in cinema history.
+---------
+
+# 'The Lord of the Rings' Is Reimagined by 'The Office' Star in 94% RT Rated Fantasy Film
+
+Movie News, The Incomer, The Lord of the Rings, Domhnall Gleeson, Fantasy
+
+Wed, 23 Sep 2026 15:31:27 GMT
+
+https://movieweb.com/lord-of-the-rings-the-incomer-clip-domhnall-gleeson/
+
+Any lover of 'The Lord of the Rings' could do what Domhnall Gleeson does in this clip.
+---------
+
+# Near-Perfect Action Thriller Officially Declared "One of the Best Films of the Year" in New Trailer
+
+Movie News, Wild Horse Nine, Thriller, Action, Comedy
+
+Wed, 23 Sep 2026 15:31:19 GMT
+
+https://movieweb.com/wild-horse-nine-new-trailer/
+
+The critically acclaimed action thriller 'Wild Horse Nine' starring Sam Rockwell and John Malkovich just landed a new trailer.
+---------
+
+# 6 Years Ago, This Near-Perfect Thriller Streaming on Netflix Achieved What ‘Mindhunter’ Never Could
+
+Features, The Sinner, Mindhunter, Crime, Thriller
+
+Wed, 23 Sep 2026 15:00:15 GMT
+
+https://movieweb.com/the-sinner-netflix-mindhunter-comparison/
+
+The USA Network's anthology crime series, The Sinner, went psychologically deeper than Netflix's Mindhunter
+---------
+
+# New "Guy Ritchie Meets The Raid" Action Thriller Trailer Breaks the Martial Arts Mould
+
+Movie News, Action, Martial Arts, Guy Ritchie, The Raid
+
+Wed, 23 Sep 2026 14:30:15 GMT
+
+https://movieweb.com/lock-in-trailer-action-martial-arts/
+
+Get ready for the ultimate barroom brawl.
+---------
+
 # Steam Drops New Free 100-Hour Open-World RPG, No Strings Attached
 
 Gaming, Steam
