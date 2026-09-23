@@ -1,3 +1,399 @@
+# ARC Raiders Returns October 8 With Its Biggest Update Ever
+
+Gaming, ARC Raiders, Live Service Games, PC
+
+Wed, 23 Sep 2026 23:13:09 GMT
+
+https://screenrant.com/arc-radiers-frozen-trail-october-8-biggest-update-ever/
+
+ARC Raiders is making a big comeback this month with the update that players have been waiting for since May, and it looks like a doozy.
+---------
+
+# DC's Batman & Robin Movie Is Officially Delayed
+
+Movies, Dynamic Duo
+
+Wed, 23 Sep 2026 23:02:07 GMT
+
+https://screenrant.com/dc-dynamic-duo-release-date-change/
+
+Dynamic Duo, DC's next movie spotlighting Batman and Robin together, has been pushed back on the Warner Bros. Pictures release schedule.
+---------
+
+# Naruto Starts New 'Sasuke Retrieval Arc' With The Series' Best Story Arc In Years
+
+Anime, Naruto, Boruto: Two Blue Vortex
+
+Wed, 23 Sep 2026 23:00:16 GMT
+
+https://screenrant.com/naruto-boruto-sasuke-best-arc-sequel/
+
+One of the best original Naruto arcs seems to have its sequel lined up, this time with the supposed traitor of the story coming to the rescue.
+---------
+
+# Pokémon Terrarium Officially Announced For October 2026
+
+Gaming, Pokemon, Pokémon, PC
+
+Wed, 23 Sep 2026 23:00:16 GMT
+
+https://screenrant.com/pokemon-terrarium-collection-october-2026/
+
+Pokémon Terrarium is a brand-new 30th anniversary release getting a global launch in October 2026.
+---------
+
+# Why Jack Lowden Playing James Bond Would Be a Disaster For Slow Horses
+
+Movies, James Bond, Jack Lowden
+
+Wed, 23 Sep 2026 23:00:16 GMT
+
+https://screenrant.com/james-bond-jack-lowden-slow-horses/
+
+Jack Lowden could make a great James Bond, but casting him as 007 could create a major problem for Slow Horses and its beloved spy River Cartwright.
+---------
+
+# 9 Near-Perfect TV Shows Inspired By George Orwell
+
+Classic TV
+
+Wed, 23 Sep 2026 22:45:16 GMT
+
+https://screenrant.com/tv-shows-george-orwell-inspired-dystopian/
+
+George Orwell is one of the greatest writers of all time, with his stories creating the foundation for many modern iterations described as Orwellian.
+---------
+
+# David Tennant’s Netflix Series Confirms Season 3 Filming Start With New Image
+
+TV, The Four Seasons
+
+Wed, 23 Sep 2026 22:40:19 GMT
+
+https://screenrant.com/the-four-seasons-season-3-filming-start-confirmed-netflix/
+
+After debuting in the season 2 finale, this Netflix series starring David Tennant confirmed with a new image that season 3 production has started.
+---------
+
+# Every Dungeon Crawler Carl Fan Needs To Read The Best New Dystopian Sci-Fi Book Of 2026
+
+Books, Dungeon Crawler Carl
+
+Wed, 23 Sep 2026 22:33:35 GMT
+
+https://screenrant.com/dungeon-crawler-carl-operation-bounce-house-dystopian-sci-fi-recommendation/
+
+To make the wait for Dungeon Crawler Carl book 9 easier, fans can turn to the best new dystopian sci-fi book of 2026 so far.
+---------
+
+# Aaron Pierre's 10/10 Netflix Thriller Now Looks Like A Stealth Lanterns Prequel
+
+Streaming TV, Lanterns
+
+Wed, 23 Sep 2026 22:32:18 GMT
+
+https://screenrant.com/lanterns-rebel-ridge-stealth-prequel-aaron-pierre/
+
+In hindsight, Aaron Pierre's Netflix revenge thriller Rebel Ridge looks like a stealth Lanterns prequel about John Stewart's pre-Lantern adventures.
+---------
+
+# Marvel Officially Announces Its New Hulk
+
+Comics, Hulk
+
+Wed, 23 Sep 2026 22:30:15 GMT
+
+https://screenrant.com/new-hulk-debut-old-testament-lahkor/
+
+See the new Hulk here.
+---------
+
+# Roseanne Barr Goes Ballistic on 'Brainwashed' Former Co-Star: 'F— You!'
+
+TV, Roseanne / The Conners, Roseanne, The Conners
+
+Wed, 23 Sep 2026 23:20:32 GMT
+
+https://www.cbr.com/roseanne-barr-rant-michael-fishman/
+
+Roseanne Barr pulls back no punches in her vulgar rant against a former co-star.
+---------
+
+# 10 Hardest Sega Genesis Games of All Time, Ranked
+
+Games, sega, Sega Genesis
+
+Wed, 23 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/hardest-sega-genesis-games-all-time-ranked-list/
+
+The most difficult Sega Genesis games, like Comix Zone and Ghouls n' Ghosts, pushed players to the limit.
+---------
+
+# Will Smith’s $589M Sci-Fi Classic Returns as a Free Streaming Hit 29 Years Later
+
+Movies, Men in Black, Tubi
+
+Wed, 23 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/men-in-black-sci-fi-tubi-success-september-2026/
+
+One of Smith's biggest films ever is currently free to watch, and soaring on streaming.
+---------
+
+# Sebastian Stan's Forgotten 2012 Miniseries Is a Tight 3-Hour Binge for Fantasy Fans
+
+TV, Labyrinth, Fantasy, sebastian stan
+
+Wed, 23 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/labyrinth-sebastian-stan-easy-fantasy-binge/
+
+This easy binge is a hidden-gem adaptation that stars several Marvel icons and will appeal to fans of historical fantasy TV shows.
+---------
+
+# 10 Hidden Gem Horror Sequels Every Fan Needs To See At Least Once, Ranked
+
+Movies, Horror
+
+Wed, 23 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/forgotten-perfect-horror-sequels-list/
+
+Some horror films are eclipsed by what came before them, but there are plenty sequels that deserve another look this spooky season.
+---------
+
+# Dragon Ball Super Officially Returns 3 Days Early With Exclusive World Premiere
+
+Anime, Dragon Ball, Dragon Ball Super: Beerus, New York Comic Con
+
+Wed, 23 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-nycc-world-premiere/
+
+The franchise’s latest anime instalment is getting an advanced screening at the NYCC in October.
+---------
+
+# Matthew McConaughey & Woody Harrelson’s True Detective Reunion Series Divides Critics
+
+TV, Apple TV, Brothers, Comedy
+
+Wed, 23 Sep 2026 22:25:38 GMT
+
+https://www.cbr.com/brothers-rotten-tomatoes-score/
+
+Critics are mixed on on the new Apple TV series.
+---------
+
+# Tom Cruise’s New Black Comedy Called “Baffling” and “Brave” in Split First Reactions
+
+Movies, Digger, Comedy
+
+Wed, 23 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/tom-cruise-digger-first-reactions/
+
+The actor's new role is turning heads and dividing critics.
+---------
+
+# 6 Most Perfect Sci-Fi Anime of All Time, Ranked
+
+Anime, Cowboy Bebop, Steins;Gate, Sci-Fi
+
+Wed, 23 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/most-perfect-sci-fi-anime-all-time-ranked/
+
+These sci-fi anime stand among the most complete and consistently excellent series ever made.
+---------
+
+# Anya Taylor-Joy's Super Mario Bros Reinvented the Video Game Movie Genre
+
+Movies, The Super Mario Bros. Movie
+
+Wed, 23 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/anya-taylor-joy-super-mario-saved-video-game-movies/
+
+Nintendo's latest attempt at producing a cinematic franchise has gotten off to a roaring start.
+---------
+
+# The 8 Most Influential Soft Sci-Fi Books of All Time, Ranked
+
+Books and Comics, Dune, The Long Walk, Frankenstein, 1984
+
+Wed, 23 Sep 2026 23:21:11 GMT
+
+https://collider.com/most-influential-soft-sci-fi-books-all-time-ranked/
+
+Soft sci-fi books like The Hitchhiker's Guide to the Galaxy, Fahrenheit 451, and the original Dune all rank among the most influential of all time.
+---------
+
+# Ridley Scott’s New Sci-Fi Flop Officially Dropped From 3K Theaters After $15 Million Box Office Haul
+
+Movie News, Ridley Scott, The Dog Stars, Jacob Elordi, Box Office
+
+Wed, 23 Sep 2026 23:15:11 GMT
+
+https://collider.com/ridley-scott-sci-fi-the-dog-stars-loses-movie-theaters-box-office-15-million/
+
+Ridley Scott's grand return to the sci-fi genre wasn't so grand after all, with theaters now ditching his ambitious new movie.
+---------
+
+# New 'Clayface' Trailer Officially Proves Why It's the DCU's First R-Rated Movie
+
+Movie News, Clayface, DC, DCU, Horror
+
+Wed, 23 Sep 2026 23:00:12 GMT
+
+https://collider.com/dc-clayface-tv-spot-trailer/
+
+New Clayface footage reveals a horrifying look at Matt Hagen’s transformation ahead of the Batman spin-off movie’s release date.
+---------
+
+# 8 Netflix Fantasy Shows Without a Single Flaw
+
+TV, Netflix, Fantasy, Wednesday, Arcane
+
+Wed, 23 Sep 2026 22:04:11 GMT
+
+https://collider.com/netflix-fantasy-shows-without-flaws/
+
+From the steampunk world of Arcane to the Gothic mystery of Wednesday, we can confidently say that these Netflix fantasy shows have no flaws.
+---------
+
+# Tom Cruise's Unmade 'Interview With the Vampire' Sequel Still Exists [Exclusive]
+
+Exclusives, Interview with the Vampire, Tom Cruise, Anne Rice, Collider Rewind
+
+Wed, 23 Sep 2026 22:00:11 GMT
+
+https://collider.com/tom-cruise-interview-with-the-vampire-sequel-vampire-lestat-neil-jordan/
+
+Neil Jordan reveals why Tom Cruise's planned Interview With the Vampire sequel, The Vampire Lestat, never made it to the screen.
+---------
+
+# The 10 Best Panels To Attend at FanX Salt Lake 2026
+
+Movie, FanX, The Boys, Bryce Dallas Howard, Star Wars
+
+Wed, 23 Sep 2026 21:51:11 GMT
+
+https://collider.com/fanx-salt-lake-2026-best-panels/
+
+FanX Salt Lake 2026 will feature many must-attend panels, from one-on-ones with Oscar winners like Helen Hunt to reunions of hit shows like The Boys.
+---------
+
+# Jack Reacher Creator Reveals Why Alan Ritchson Was Officially the "Right Guy" for Prime Video's Series [Exclusive]
+
+Exclusives, Jack Reacher, Alan Ritchson, Reacher
+
+Wed, 23 Sep 2026 21:30:11 GMT
+
+https://collider.com/alan-ritchson-reacher-books-lee-child/
+
+Lee Child reveals how Alan Ritchson prepares for Reacher, including obsessively studying the Jack Reacher novels for details and inspiration.
+---------
+
+# Blade Meets 'Pulp Fiction' in Quentin Tarantino's 3-Part Action Thriller Nobody Remembers
+
+Movie Features, From Dusk Till Dawn, Blade, Pulp Fiction, Pluto TV
+
+Wed, 23 Sep 2026 21:29:11 GMT
+
+https://collider.com/blade-pulp-fiction-from-dusk-till-dawn-quentin-tarantino-vampire-action-thriller/
+
+Quentin Tarantino and Robert Rodriguez put their own spin on vampires with From Dusk Till Dawn, which spawned an entire franchise.
+---------
+
+# 'Yellowstone' Star Returns in First Look at "Magical" New Western Thriller
+
+Movie News, Action, Western, Brandon Sklenar
+
+Wed, 23 Sep 2026 23:18:21 GMT
+
+https://movieweb.com/brandon-sklenar-the-rescue-first-look/
+
+Brandon Sklenar and his canine co-star team up in a modern Western thriller.
+---------
+
+# The 10 Best Far Side Comics About Music
+
+Movie Lists, The Far Side, Comedy
+
+Wed, 23 Sep 2026 23:00:14 GMT
+
+https://movieweb.com/far-side-best-comic-strips-music/
+
+From tone-deaf bands to musical mishaps, these Far Side comics prove Gary Larson found something funny in nearly every instrument imaginable.
+---------
+
+# It's Officially the End of an Era for Godzilla
+
+Features, Godzilla Minus Zero, Godzilla
+
+Wed, 23 Sep 2026 22:30:14 GMT
+
+https://movieweb.com/godzilla-minus-zero-r-rating/
+
+Godzilla movies have operated under a very specific set of rules for more than 70 years, but 'Godzilla Minus Zero' will register a franchise first.
+---------
+
+# Netflix Finds Monster Hit With Violent New Series That's Already the Biggest Show on Streaming
+
+TV News, Monster: The Lizzie Borden Story, Hot on Streaming, True Crime, Netflix
+
+Wed, 23 Sep 2026 22:01:14 GMT
+
+https://movieweb.com/monster-lizzie-borden-story-netflix-streaming-hit-september-2026/
+
+Netflix's latest addition to its epic true-crime franchise is officially the biggest show in the world less than a week after its premiere.
+---------
+
+# 8 Years Later, Ridley Scott’s 3-Season Thriller Masterpiece Comes With One Harsh Reality
+
+Features, The Terror, Ridley Scott, Thriller
+
+Wed, 23 Sep 2026 22:01:14 GMT
+
+https://movieweb.com/the-terror-ridley-scott-thriller-anthology-problem/
+
+Ridley Scott, known for directing movies such as 'Blade Runner' and 'Gladiator,' executive produced a great thriller TV series that has three seasons.
+---------
+
+# Jude Law Officially Joins New A24 Thriller From Horror Maestro
+
+Movie News, Ari Aster, Jude Law, Scarlett Johansson, Thriller, A24
+
+Wed, 23 Sep 2026 21:04:15 GMT
+
+https://movieweb.com/jude-law-ari-aster-scapegoat-movie/
+
+Jude Law has signed on to Ari Aster's upcoming A24 thriller 'Scapegoat'.
+---------
+
+# 27 Years Later, 'The Matrix's Best Line Is Still One of the Greatest Quotes in Sci-Fi Movie History
+
+Features, The Matrix, Great Line, Science Fiction
+
+Wed, 23 Sep 2026 21:00:14 GMT
+
+https://movieweb.com/the-matrix-best-quote-spoon-boy/
+
+'The Matrix' is not only one of the best sci-fi movies of all time, but the film, which stars Keanu Reeves, has one particularly great quote.
+---------
+
+# Olivia Wilde's Near-Perfect Raunchy Drama Officially Confirms Streaming Release Date
+
+Movie News, The Invite, Olivia Wilde, Seth Rogen
+
+Wed, 23 Sep 2026 20:58:40 GMT
+
+https://movieweb.com/the-invite-streaming-release-date-hbo-max/
+
+'The Invite', the critically acclaimed comedy, will debut on HBO Max on Oct. 23, 2026.
+---------
+
 # 7 Years Later, Daredevil: Born Again Proves Disney Can't Crack TV
 
 Streaming TV, Daredevil: Born Again, Disney+
