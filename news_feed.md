@@ -1,3 +1,377 @@
+# How Backstage Drama Got Martin Canceled After Just 5 Seasons
+
+Classic TV, Martin
+
+Wed, 23 Sep 2026 01:30:16 GMT
+
+https://screenrant.com/martin-lawrence-tisha-campbell-show-canceled-season-5-why/
+
+Martin Lawrence's self-titled sitcom Martin made him a star, but after only five seasons, backstage drama caused the hit show to be canceled.
+---------
+
+# ABC Sabotages Itself By Benching Its Top Show
+
+Network TV, ABC
+
+Wed, 23 Sep 2026 01:30:15 GMT
+
+https://screenrant.com/high-potential-season-3-delay-abc-sabotage/
+
+ABC is making a mistake by delaying the return of one of its best-performing shows, after it ranked third on the top network TV shows list.
+---------
+
+# James Gunn's DCU Officially Sets Up A Justice League-Level Villain Return
+
+Streaming TV, Lanterns, DC Universe
+
+Wed, 23 Sep 2026 01:12:00 GMT
+
+https://screenrant.com/james-gunn-dcu-sets-up-sinestro-return-lanterns/
+
+Thanks to a brand-new project, James Gunn's DCU has just set up a major villain return, teeing up the live-action redemption they've long deserved.
+---------
+
+# 31 Years Later, Calvin and Hobbes' Final Line Proves Why It's The Definitive Best Comic Strip
+
+Comics, Calvin and Hobbes
+
+Wed, 23 Sep 2026 01:03:15 GMT
+
+https://screenrant.com/calvin-and-hobbes-final-line-best-comic-strip/
+
+Calvin & Hobbes remain two of the most iconic comic strip characters ever, with their final line giving their legendary adventures a perfect farewell.
+---------
+
+# Doctor Who’s Genre Switch Was So Good, It’s Lasted 73 Years
+
+Classic TV, Doctor Who
+
+Wed, 23 Sep 2026 01:01:15 GMT
+
+https://screenrant.com/doctor-who-genre-change-from-educational-sci-fi/
+
+Doctor Who was almost an entirely different show, but an early creative decision changed it into the sci-fi adventures series fans know and love.
+---------
+
+# DC Comics Is Debuting A Brand-New Dynamic Duo (And Batman’s Not Invited)
+
+DC Comics, DC
+
+Wed, 23 Sep 2026 01:00:16 GMT
+
+https://screenrant.com/dc-new-dynamic-duo-not-batman-nightwing-robin/
+
+DC is pairing two Boy Wonders together, and their dynamic duo may or may not be permanent, depending on the fate of none other than Bruce Wayne.
+---------
+
+# 10 Elite Action Thrillers To Watch If You Can't Get Enough Of Lioness
+
+Classic TV, Lioness
+
+Wed, 23 Sep 2026 01:00:16 GMT
+
+https://screenrant.com/best-action-thriller-shows-like-lioness/
+
+10 thrilling series like Lioness, blending espionage and personal drama with high-stakes action.
+---------
+
+# Adventure Time Officially Returns With New Episodes In Less Than 2 Weeks
+
+Streaming TV, Adventure Time: Side Quests
+
+Wed, 23 Sep 2026 00:45:16 GMT
+
+https://screenrant.com/adventure-time-side-quests-season-2-returning/
+
+Adventure Time returns this October with the second season of Adventure Time: Side Quests, a soft reboot of the original animated phenomenon.
+---------
+
+# 54 Years Later, Snoopy's Meeting With His Original Owner Is More Heartbreaking Than Ever
+
+TV, Peanuts
+
+Wed, 23 Sep 2026 00:30:15 GMT
+
+https://screenrant.com/peanuts-snoopy-original-owner-lila-heartbreaking/
+
+Long before meeting Charlie Brown, the iconic beagle belonged to someone else, leading to a deeply heartbreaking moment in Peanuts.
+---------
+
+# Special Ops: Lioness Cast & Character Guide
+
+Streaming TV, Lioness
+
+Wed, 23 Sep 2026 00:30:15 GMT
+
+https://screenrant.com/special-ops-lioness-cast-characters/
+
+Zoe Saldaña leads the cast of Special Ops: Lioness on Paramount+, but Taylor Sheridan's spy thriller TV series features many other big names.
+---------
+
+# 5 Action Movies Better Than The Dark Knight
+
+Movies, The Dark Knight
+
+Wed, 23 Sep 2026 01:30:11 GMT
+
+https://www.cbr.com/best-action-movies-better-than-the-dark-knight-list/
+
+The Dark Knight masterfully blended superhero, action and crime thriller into a billion-dollar success, but some action movies are even better.
+---------
+
+# Strongest Naruto Characters Who Boruto Would Destroy
+
+Anime, Boruto: Naruto Next Generations, Naruto, Naruto: Shippuden
+
+Wed, 23 Sep 2026 01:25:11 GMT
+
+https://www.cbr.com/strongest-naruto-characters-boruto-would-destroy/
+
+Boruto's growth has put him above many powerful shinobi, including these five formidable Naruto characters.
+---------
+
+# New 112-Minute R-Rated Horror With 94% RT Is Already 1 of the Most Popular Movies in the World
+
+Movies, Teenage Sex and Death at Camp Miasma
+
+Wed, 23 Sep 2026 01:02:45 GMT
+
+https://www.cbr.com/teenage-sex-and-death-at-camp-miasma-popular-movie-imdb/
+
+2026 has been a stellar year for the horror genre with a new slasher flick now taking the spotlight.
+---------
+
+# Paramount+'s New MobLand Season 3 Update Is a Nail in the Coffin for Tom Hardy's Show
+
+TV, MobLand, tom hardy
+
+Wed, 23 Sep 2026 01:00:15 GMT
+
+https://www.cbr.com/mobland-season-3-official-renewal-spoils-season-2/
+
+Paramount+ has sealed the fate of Tom Hardy's gangster drama, renewing MobLand for Season 3, but the update comes at the expense of Season 2.
+---------
+
+# 10 Sega Genesis Games That Are Painful to Play Today
+
+Games, Sega Genesis, Video Games
+
+Wed, 23 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/sega-genesis-games-painful-to-play-today/
+
+Alleged Sega Genesis classics like Altered Beast and Rise of the Robots are unplayable today.
+---------
+
+# Marvel Star Confirms He’s Retired From Iconic MCU Role After 12 Years
+
+Movies, Marvel Cinematic Universe
+
+Wed, 23 Sep 2026 00:31:27 GMT
+
+https://www.cbr.com/sean-gunn-confirms-marvel-rocket-raccoon-retirement/
+
+You could say that it's the end of an era.
+---------
+
+# Gundam's Biggest Model Kit of Its Kind Is Already Selling Out Before Release
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam Unicorn, merchandise, toys, bandai
+
+Wed, 23 Sep 2026 00:20:11 GMT
+
+https://www.cbr.com/gundam-mgsd-kshatriya-preorder-selling-out/
+
+Bandai is soon releasing the biggest SD Gundam model kit ever made, with this Gundam Unicorn design already selling out in some online stores.
+---------
+
+# 10 Strongest Demon Slayer Characters at the End of the Manga
+
+Anime, Demon Slayer: Kimetsu no Yaiba
+
+Wed, 23 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/strongest-demon-slayer-characters-end-of-manga/
+
+After all of Tanjiro's many fights against evil, the strongest characters at the end of the Demon Slayer manga aren't who fans might expect.
+---------
+
+# Ella Purnell's Easy-to-Binge Killer Thriller Is a Top 10 Streaming Sensation Ahead of New Episodes
+
+TV, Sweetpea, STARZ, Thriller
+
+Wed, 23 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/sweetpea-thriller-starz-success-september-2026/
+
+Ella Purnell is a wallflower-turned-serial killer in this comedy thriller.
+---------
+
+# Your Mother Your Mother Your Mother Is Already a 5-Star Classic
+
+Movies, Your Mother Your Mother Your Mother
+
+Wed, 23 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/your-mother-action-thriller-john-wick-replacement/
+
+Mahershala Ali has just debuted as the perfect counterpart to Keanu Reeves' John Wick in a new action thriller from Amazon MGM.
+---------
+
+# Taylor Sheridan’s 'Homeland' Meets 'Sicario' Thriller Is Officially a Global Streaming Hit
+
+TV News, Lioness, Taylor Sheridan, Zoe Saldana, Morgan Freeman
+
+Wed, 23 Sep 2026 01:30:11 GMT
+
+https://collider.com/taylor-sheridan-sicario-replacement-lioness-streaming-success-paramount-plus-september-2026/
+
+Taylor Sheridan's 3-part military thriller is still dominating streaming. Read on for all the details.
+---------
+
+# Long-Awaited 'It Follows' Sequel Officially Reaches Major Milestone
+
+Movie News, It Follows, They Follow, David Robert Mitchell, Maika Monroe
+
+Wed, 23 Sep 2026 01:15:11 GMT
+
+https://collider.com/maika-monroe-it-follows-sequel-they-follow-filming-wrapped/
+
+They Follow, the highly anticipated sequel to It Follows starring Maika Monroe, has officially taken a massive step forward.
+---------
+
+# 'Outlander' Star’s New Jane Austen Movie Officially Scores Major Win
+
+Movie News, Sense and Sensibility, Jane Austen, Outlander, Rotten Tomatoes
+
+Wed, 23 Sep 2026 01:00:12 GMT
+
+https://collider.com/sense-and-sensibility-2026-rotten-tomatoes-score-is-it-good/
+
+Outlander star Catriona Balfe’s new adaptation of Sense and Sensibility is officially winning over the hearts of critics. Read on for more.
+---------
+
+# Brad Pitt's 'Interview with the Vampire' Transformation Was a "Pain in the Ass" [Exclusive]
+
+Exclusives, Interview with the Vampire, Brad Pitt, Neil Jordan, Collider Rewind
+
+Wed, 23 Sep 2026 01:00:12 GMT
+
+https://collider.com/interview-with-the-vampire-neil-jordan-brad-pitt-miserable-filming/
+
+Neil Jordan explains why Brad Pitt had such a difficult time filming Interview with the Vampire and says the pair remained close.
+---------
+
+# 10 Best Peanuts Comic Strips of All Time, Ranked
+
+Books and Comics, Peanuts, Comics, Classics, Snoopy
+
+Wed, 23 Sep 2026 00:55:11 GMT
+
+https://collider.com/best-peanuts-comic-strips-all-time-ranked/
+
+From the football to the Red Baron to happiness being a warm puppy, these Peanuts comics are the best of all time.
+---------
+
+# Matthew McConaughey’s ‘Yellowstone’ Replacement Officially Debuts on Streaming
+
+Movie News, Matthew McConaughey, The Rivals of Amziah King, Yellowstone, Western
+
+Wed, 23 Sep 2026 00:45:11 GMT
+
+https://collider.com/rivals-of-amziah-king-matthew-mcconaughey-digital-vod-release-september-2026/
+
+Matthew McConaughey's critically acclaimed neo-Western has landed on digital, just ahead of the launch of his Apple TV series Brothers.
+---------
+
+# Star of Prime Video's #1 Action Hit Officially Responds to Shock Cancellation
+
+Movie News, Prime Video, Octavia Spencer, Hannah Waddingham, Ride or Die
+
+Wed, 23 Sep 2026 00:30:11 GMT
+
+https://collider.com/prime-video-ride-or-die-cancellation-octavia-spencer-response/
+
+Octavia Spencer has officially responded to news that Prime Video has cancelled her new action thriller with Hannah Waddingham.
+---------
+
+# 'Wheel of Time' Author Officially Breaks Silence on Franchise Reboot
+
+TV News, Brandon Sanderson, The Wheel of Time, Robert Jordan, Prime Video
+
+Wed, 23 Sep 2026 00:15:11 GMT
+
+https://collider.com/wheel-of-time-reboot-comments-brandon-sanderson/
+
+The Wheel of Time co-author, Brandon Sanderson, officially breaks his silence on the fantasy franchise's major reboot plans.
+---------
+
+# Every 'Reacher' Villain, Ranked
+
+TV, Reacher, Prime Video, Action, Crime
+
+Wed, 23 Sep 2026 00:11:11 GMT
+
+https://collider.com/reacher-villains-ranked/
+
+Alan Ritchson's Jack Reacher has faced his fair share of villains across four seasons, but which villain is his best foe in the Prime Video series?
+---------
+
+# Disney+ Officially Makes Major Change to Ad-Free Subscription Plans
+
+TV News, Disney+, Disney, Streaming, Walt Disney Company
+
+Wed, 23 Sep 2026 00:00:11 GMT
+
+https://collider.com/disney-plus-ad-free-supscription-plan-changes/
+
+Disney+ is updating its subscriber agreement, with major changes affecting ads, sponsorships, and promotional content across all subscription plans.
+---------
+
+# 32 Years Later, Brad Pitt's R-Rated Gothic Horror Officially Sets New Release
+
+Movie News, Interview with the Vampire, Brad Pitt, Horror, Blu-ray
+
+Wed, 23 Sep 2026 01:30:14 GMT
+
+https://movieweb.com/interview-with-the-vampire-4k-blu-ray-release/
+
+Warner Bros. Home Entertainment has officially brought Brad Pitt's R-rated gothic horror classic, 'Interview with the Vampire,' to 4K Blu-ray.
+---------
+
+# 8 Greatest Netflix Miniseries That No One Remembers
+
+TV Lists, Netflix, TV Miniseries, Emma Stone, Julia Garner, Drama, Thriller
+
+Wed, 23 Sep 2026 01:00:15 GMT
+
+https://movieweb.com/netflix-miniseries-underrated/
+
+From sci-fi to historical drama and suspenseful thrillers, here are 8 of the greatest Netflix miniseries which showcase the streamer's ambition.
+---------
+
+# 25 Years Later, Sam's Best Line Is Still the Most Beautiful Quote in 'The Lord of the Rings'
+
+Features, The Lord of the Rings, Fantasy, The Lord of the Rings: The Fellowship of the Ring
+
+Wed, 23 Sep 2026 00:00:15 GMT
+
+https://movieweb.com/lord-of-the-rings-sam-best-quote-promise/
+
+Sam's best line is one of the most beautiful in 'The Lord of the Rings,' highlighting his deep bond with Frodo and showing he's honorable.
+---------
+
+# HBO's Raunchy New 8-Part Series Is Officially a Streaming Smash After Landing Near-Perfect RT Score
+
+TV News, Youth, Hot on Streaming, Comedy, HBO Max
+
+Tue, 22 Sep 2026 23:30:14 GMT
+
+https://movieweb.com/youth-hbo-streaming-hit-september-2026/
+
+The raunchy new series from Sharon Horgan has quickly made its presence felt on streaming after a two-episode premiere.
+---------
+
 # The Legend of Korra: What Happened To Korra After The Series Ended
 
 SR Originals, Avatar: The Last Airbender, The Legend of Korra
