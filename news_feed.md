@@ -1,3 +1,355 @@
+# Brothers Review: McConaughey & Harrelson Aren’t Enough To Carry This Rote, Unfunny Comedy
+
+Streaming TV, Brothers
+
+Wed, 23 Sep 2026 07:01:15 GMT
+
+https://screenrant.com/brothers-season-1-review/
+
+Despite boasting Matthew McConaughey and Woody Harrelson, Apple TV's Brothers is a barely funny comedy that is less than "alright alright alright."
+---------
+
+# Stargate SG-1 Officially Switched Genres For Its Long-Awaited Return, To Mixed Results
+
+Gaming, Stargate SG-1, Stargate, Stargate SG-1 - Season 1, PC
+
+Wed, 23 Sep 2026 07:00:15 GMT
+
+https://screenrant.com/stargate-timekeepers-fan-reactions-mixed-reviews/
+
+Stargate SG-1 switched to a completely unexpected new genre in its highly anticipated return, but not all fans were sold.
+---------
+
+# Gundam: Stardust Trails Officially Launches October 2026
+
+Gaming, Gundam, tabletop games
+
+Wed, 23 Sep 2026 06:30:16 GMT
+
+https://screenrant.com/gundam-stardust-trails-october-2026/
+
+If you're even a casual Gundam fan, you'll want to check out Gundam: Stardust Trails, which is coming very soon this October.
+---------
+
+# Dune Is Officially Switching Genres
+
+Gaming, Dune, Dune: Awakening, PC
+
+Wed, 23 Sep 2026 06:00:15 GMT
+
+https://screenrant.com/dune-genre-switch-awakening-console-release/
+
+Dune is officially switching genres after a long-awaited update that completely reinvents the experience from the ground up.
+---------
+
+# Final Fantasy 10: Yuna Officially Unveiled By Square Enix For June 2027
+
+Gaming, Final Fantasy X, Final Fantasy, PC, Square Enix
+
+Wed, 23 Sep 2026 05:30:17 GMT
+
+https://screenrant.com/final-fantasy-10-yuna-square-enix-release/
+
+Square Enix has officially revealed the brand-new release of Final Fantasy 10: Yuna, arriving June 2027.
+---------
+
+# The Walking Dead Has Officially Switched Genres
+
+Gaming, The Walking Dead, PC
+
+Wed, 23 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/walking-dead-streets-of-survival-switching-genres/
+
+The Walking Dead is officially headed in a completely new direction with the franchise's latest adventure, Streets of Survival.
+---------
+
+# Marvel's Official Deadpool Recast Is A Hit With Fans
+
+Gaming, Marvel, Triple-A Games
+
+Wed, 23 Sep 2026 04:30:15 GMT
+
+https://screenrant.com/marvel-official-deadpool-replacement-tokon-fighting-souls/
+
+Deadpool has been enjoying a resplendent era for ages now thanks to the film series and Marvel comics, but his return has been a hit.
+---------
+
+# Pokémon Officially Reveals Stunning New Mewtwo Design For Series' 30th
+
+Gaming, Pokemon, Pokémon, PC
+
+Wed, 23 Sep 2026 04:00:20 GMT
+
+https://screenrant.com/pokemon-mewtwo-30th-anniversary-sideshow-design/
+
+Mewtwo is one of the most powerful Pokémon of all time, and it's officially getting a brand-new design thanks to this stunning release.
+---------
+
+# New Hunger Games Rating Confirmed As Franchise's Most Violent Adaptation In 14-Year History
+
+Movies, The Hunger Games: Sunrise on the Reaping, The Hunger Games
+
+Wed, 23 Sep 2026 03:59:01 GMT
+
+https://screenrant.com/hunger-games-sunrise-on-the-reaping-pg-13-warning-rating-franchise-first/
+
+The Hunger Games: Sunrise on the Reaping finally earned its rating, but the details confirm a surprising first in the franchise's 14-year run.
+---------
+
+# Forget Foundation, Apple TV's 10-Part "Unfilmable" Series Will Be The New King Of Sci-Fi
+
+Streaming TV, Masked Recs
+
+Wed, 23 Sep 2026 03:50:16 GMT
+
+https://screenrant.com/neuromancer-apple-tv-new-king-of-sci-fi-shows/
+
+Apple's Isaac Asimov adaptation pushed small-screen sci-fi to new limits, but a 2027 cyberpunk series is set to dethrone it as the streamer's best.
+---------
+
+# Brothers Review: McConaughey & Harrelson Make Their Meta Comedy Worth Watching
+
+TV, Brothers, Apple TV, Comedy
+
+Wed, 23 Sep 2026 07:00:11 GMT
+
+https://www.cbr.com/brothers-apple-tv-review/
+
+Matthew McConaughey and Woody Harrelson play fictionalized versions of themselves in an eight-episode Apple TV series.
+---------
+
+# Sydney Sweeney Leads Latest Bond Girl Betting Odds Ahead of 007 Casting
+
+Movies, James Bond
+
+Wed, 23 Sep 2026 03:55:28 GMT
+
+https://www.cbr.com/sydney-sweeney-james-bond-girl-betting-odds/
+
+Ahead of the new 007 being announced, Sydney Sweeney is the most likely candidate to become the next Bond girl.
+---------
+
+# 5 Magical Girl Characters Stronger Than Satoru Gojo
+
+Anime, Jujutsu Kaisen, Sailor Moon, Puella Magi Madoka Magica
+
+Wed, 23 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/magical-girl-characters-stronger-than-satoru-gojo/
+
+Ancient reincarnations, devilish time queens, and spell snipers would absolutely annihilate Satoru Gojo, no matter how strong he is in Jujutsu Kaisen.
+---------
+
+# George Lucas Confirms Abandoned Plans for Another Star Wars Trilogy
+
+Movies, Star Wars
+
+Wed, 23 Sep 2026 03:37:28 GMT
+
+https://www.cbr.com/george-lucas-abandoned-star-wars-trilogy/
+
+George Lucas almost made his own third trilogy of Star Wars movies.
+---------
+
+# If You Love Percy Jackson, This 5-Season Fantasy Show Is Still the Best of Its Kind
+
+TV, Merlin, Fantasy, Innovation
+
+Wed, 23 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/bbc-merlin-fantasy-show-like-percy-jackson/
+
+Disney's Percy Jackson and the Olympians is a great modern fantasy series, but another show deserves a lot of praise as well.
+---------
+
+# Garfield's Neve-Ending Love of Lasagna, Explained
+
+Comics, Garfield
+
+Wed, 23 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/garfield-insatiable-love-of-lasagna-explained/
+
+Garfield is known for hating Mondays and loving lasagna, and his fondness for Italian food is tied to where the lackadaisical cat was born.
+---------
+
+# Every Pokémon Starter, Ranked By Final Evolution
+
+Games, Pokemon, Nintendo
+
+Wed, 23 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/every-pokemon-starter-ranked-final-evolution-list/
+
+Pokémon like Greninja and Charmander rank as the best final evolutions ever.
+---------
+
+# Transformers Officially Turns Bumblebee Evil With Dark New G1 Design
+
+Anime, Transformers, The Transformers: The Movie, merchandise, toys, action figures
+
+Wed, 23 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/transformers-optimus-prime-awakening-bumblebee/
+
+The animated coda for the re-release of The Transformers: The Movie has inspired an upcoming figure based on the darkest version of Bumblebee.
+---------
+
+# Darkwing Duck Fans Reject Reboot Recasting: 'WTF Disney?'
+
+TV, Darkwing Duck
+
+Wed, 23 Sep 2026 02:57:16 GMT
+
+https://www.cbr.com/darkwing-duck-fans-reboot-recast-reactions/
+
+The Disney+ reboot has some big names attached to the cast, but not the original voice of Darkwing Duck.
+---------
+
+# 10 Most Perfect Nintendo Games No One Remembers Today
+
+Games, Nintendo, Innovation
+
+Wed, 23 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/most-perfect-nintendo-games-forgotten-list/
+
+Some of the best Nintendo games, like Clu Clu Land, are almost completely forgotten today.
+---------
+
+# Matthew McConaughey and Woody Harrelson's Apple TV Sitcom Is a Far Cry From 'True Detective' | Review
+
+TV Reviews, Brothers, Woody Harrelson, Matthew McConaughey, Apple TV
+
+Wed, 23 Sep 2026 07:00:11 GMT
+
+https://collider.com/brothers-apple-tv-review-matthew-mcconaughey-woody-harrelson/
+
+Apple TV's Brothers imagines a true story taken to hilarious extremes, with Woody Harrelson and Matthew McConaughey in fine form.
+---------
+
+# Jessica Chastain's Long-Delayed Apple TV Crime Thriller Deserves To See the Light of Day
+
+TV Features, The Savant, Apple TV, Jessica Chastain, Pablo Schreiber
+
+Wed, 23 Sep 2026 04:45:11 GMT
+
+https://collider.com/the-savant-jessica-chastain-apple-tv-crime-thriller-new-release-date/
+
+Jessica Chastain's The Savant was shelved before its original premiere, but now the Apple TV crime thriller has officially earned a new release date.
+---------
+
+# 8 HBO Miniseries That Have Aged Like Fine Wine
+
+TV, HBO, TV Miniseries, Angels in America, Mrs. Fletcher
+
+Wed, 23 Sep 2026 04:27:12 GMT
+
+https://collider.com/hbo-miniseries-aged-like-fine-wine/
+
+Chernobyl, Band of Brothers, Mrs. Fletcher, I May Destroy You, and more make up our list of HBO miniseries that have aged like fine wine.
+---------
+
+# 23 Years Later, Russell Crowe's War Epic Is Still One of the Best Ever Made
+
+Movie Features, Master and Commander: The Far Side of the World, Russell Crowe, Peter Weir, Paul Bettany
+
+Wed, 23 Sep 2026 04:14:11 GMT
+
+https://collider.com/russell-crowe-master-and-commander-war-apple-tv-streaming-september-2026/
+
+Russell Crowe's 2003 Master and Commander: The Far Side of the World, a 19th century naval war film, is a streaming hit on Apple TV +.
+---------
+
+# Margot Robbie, Chris Pine, & Chiwetel Ejiofor Teamed Up for This Unforgettable Sci-Fi Thriller
+
+Movie Features, Z For Zachariah, Margot Robbie, Chris Pine, Chiwetel Ejiofor
+
+Wed, 23 Sep 2026 03:47:12 GMT
+
+https://collider.com/z-for-zachariah-margot-robbie-chris-pine-chiwetel-ejiofor-streaming/
+
+Z for Zachariah trades familiar tropes for a deeply introspective sci-fi thriller starring Margot Robbie, Chris Pine, and Chiwetel Ejiofor.
+---------
+
+# Forget ‘Black Mirror,’ Prime Video’s 10-Episode Sci-Fi Series Is the Perfect Replacement
+
+TV Features, Philip K. Dick, Electric Dreams, Series, Science Fiction
+
+Wed, 23 Sep 2026 03:42:11 GMT
+
+https://collider.com/black-mirror-replacement-series-philip-k-dick-electric-dreams/
+
+Philip K. Dick’s Electric Dreams is Prime Video’s underrated sci-fi anthology and the perfect Black Mirror replacement.
+---------
+
+# 38 Years Later, HBO Max's 'Widow's Bay' Replacement Is a Streaming Blockbuster
+
+Movie Features, Beetlejuice, Tim Burton, Michael Keaton, Winona Ryder
+
+Wed, 23 Sep 2026 03:26:12 GMT
+
+https://collider.com/beetlejuice-widows-bay-hbo-max-streaming-september-2026/
+
+Fans of Widow's Bay can find more small town supernatural comedy in Tim Burton's Beetlejuice, which is climbing HBO Max's streaming charts.
+---------
+
+# ’Monster: The Lizzie Borden Story’s Director on Practically Shooting That “Extremely Difficult” Scene
+
+Exclusives, Max Winkler, Monster: The Lizzie Borden Story, Netflix, Crime
+
+Wed, 23 Sep 2026 03:12:11 GMT
+
+https://collider.com/monster-lizzie-borden-story-netflix-director-max-winkler/
+
+Monster: The Lizzie Borden Story’s director discusses practically shooting that projectile vomit scene and the classic films that inspired the series.
+---------
+
+# 'MobLand's Harrigan Family Tree From Guy Ritchie's Latest Gangster Series
+
+TV Features, MobLand, Paramount Plus, Tom Hardy, Pierce Brosnan
+
+Wed, 23 Sep 2026 03:11:01 GMT
+
+https://collider.com/mobland-harrigan-family-tree/
+
+The Harrigans are the most prominent crime family in Guy Ritchie's MobLand. Here's the lowdown on who is who.
+---------
+
+# Russell Crowe Is Officially the King of Streaming
+
+Movie News, Russell Crowe, The Weight, The Get Out, Sleeping Dogs
+
+Wed, 23 Sep 2026 02:30:11 GMT
+
+https://collider.com/russell-crowe-the-get-out-master-and-commander-sleeping-dogs-streaming-success-september-2026/
+
+With his best-reviewed movie in decades playing in theaters, Russell Crowe has three other films dominating the streaming charts.
+---------
+
+# Jon Bernthal's Billion Dollar Blockbuster Officially Topples a 130-Minute Tom Cruise Action Epic at the Box Office
+
+Movie News, Jon Bernthal, The Odyssey, Spider-Man: Brand New Day, Box Office Milestones
+
+Wed, 23 Sep 2026 02:30:16 GMT
+
+https://movieweb.com/the-odyssey-beats-top-gun-maverick-box-office-september-2026/
+
+Christopher Nolan’s The Odyssey has now passed Top Gun: Maverick at the worldwide box office.
+---------
+
+# 8 Classic Sci-Fi Movies With Perfect Endings
+
+Movie Lists, Sci-Fi
+
+Wed, 23 Sep 2026 02:00:24 GMT
+
+https://movieweb.com/classic-sci-fi-movies-perfect-endings/
+
+These classic sci-fi movies deliver some of the most satisfying, thought-provoking endings the genre has ever produced, still discussed today.
+---------
+
 # How Backstage Drama Got Martin Canceled After Just 5 Seasons
 
 Classic TV, Martin
