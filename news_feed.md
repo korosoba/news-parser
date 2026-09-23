@@ -1,3 +1,443 @@
+# 7 Years Later, Daredevil: Born Again Proves Disney Can't Crack TV
+
+Streaming TV, Daredevil: Born Again, Disney+
+
+Wed, 23 Sep 2026 20:45:15 GMT
+
+https://screenrant.com/daredevil-born-again-cancellation-disney-plus-tv-problem/
+
+Daredevil: Born Again proved to be one of the best and brightest original shows on Disney+, but three seasons later, Disney has pulled the plug.
+---------
+
+# Jensen Ackles' New Crime Thriller Finally Makes Up For Amazon's 13-Part Series Canceled Too Soon
+
+Streaming TV, Countdown, Jensen Ackles
+
+Wed, 23 Sep 2026 20:30:15 GMT
+
+https://screenrant.com/jensen-ackles-rules-of-prey-amazon-countdown-replacement-show/
+
+Canceling Countdown after one season was the biggest mistake Amazon made in 2025, but it's making up for that with crime thriller Rules of Prey.
+---------
+
+# A Near-Perfect Kids Movie From The 1980s Is Free On YouTube, And It's Still An Essential Watch
+
+Movies, The Neverending Story, YouTube
+
+Wed, 23 Sep 2026 20:30:15 GMT
+
+https://screenrant.com/the-neverending-story-movie-streaming-free-youtube/
+
+The NeverEnding Story is free on YouTube, giving fans a chance to revisit a near-perfect 80s fantasy that still holds up more than 40 years later.
+---------
+
+# Scarlett Johansson's Masterpiece 130-Minute Sci-Fi Thriller Is Coming To Netflix Before Major New Release
+
+Movies, Masked Recs
+
+Wed, 23 Sep 2026 20:09:52 GMT
+
+https://screenrant.com/scarlett-johansson-the-prestige-netflix-streaming-release-date-october-2026/
+
+Scarlett Johansson's masterpiece Sci-Fi movie with a star-studded cast and one of the best directors ever comes to Netflix before her genre return.
+---------
+
+# Sonic The Hedgehog 4 Cast Return Gets Key Update From Underserved Live-Action Star
+
+Movies, Sonic the Hedgehog 4, Sonic the Hedgehog, Shemar Moore
+
+Wed, 23 Sep 2026 20:04:13 GMT
+
+https://screenrant.com/sonic-the-hedgehog-4-cast-return-update-shemar-moore/
+
+Exclusive: Sonic the Hedgehog 4 is racing towards its March 2027 release date, and one underserved live-action star is addressing their return.
+---------
+
+# 81-Episode Procedural Masterpiece Is Everything The Blacklist Should Have Been
+
+Classic TV, Masked Recs
+
+Wed, 23 Sep 2026 20:00:15 GMT
+
+https://screenrant.com/white-collar-what-the-blacklist-should-have-been/
+
+While NBC's The Blacklist didn't quite fulfill its potential, Matt Bomer's near-identical series White Collar showed Raymond Reddington how it's done.
+---------
+
+# Guy Ritchie's The Gentlemen Season 2 Sets All-Time Career Rotten Tomatoes Record
+
+TV, The Gentlemen, Guy Ritchie
+
+Wed, 23 Sep 2026 19:55:28 GMT
+
+https://screenrant.com/guy-ritchie-the-gentlemen-season-2-rotten-tomatoes-audience-score-increase-record/
+
+After several weeks on Netflix, Guy Ritchie's The Gentlemen season 2 has now set an all-time TV career Rotten Tomatoes record for the director.
+---------
+
+# Spaceballs 2: Every Star Wars Character Parody & Who Plays Them
+
+Movies, Spaceballs: The New One
+
+Wed, 23 Sep 2026 19:55:15 GMT
+
+https://screenrant.com/spaceballs-2-movie-cast-star-wars-character-parodies/
+
+Spaceballs: The New One brings back classic Star Wars parodies while adding new characters that riff on the galaxy's newer heroes and villains.
+---------
+
+# Bloomsbury Officially Releases New ACOTAR Content That Hints At The Secret Main Character
+
+Books, A Court of Thorns and Roses (2015)
+
+Wed, 23 Sep 2026 19:45:16 GMT
+
+https://screenrant.com/bloomsbury-release-acotar-quote-hints-narrator-clotho-court-splintered-harmony/
+
+The latest hint from ACOTAR publisher Bloomsbury for A Court of Splintered Harmony points to a surprise for its potential main character.
+---------
+
+# DC Introduces Wonder Woman's Evil Brothers With Epic New Powers And Origin
+
+DC Comics, Wonder Woman
+
+Wed, 23 Sep 2026 19:30:15 GMT
+
+https://screenrant.com/absolute-wonder-woman-brothers-phobos-deimos/
+
+Two mythological figures make their debut as towering DC Comics villains that feed off Wonder Woman's fear, foreboding the arrival of a god.
+---------
+
+# Gachiakuta Creator Recommends the Next Hit Dark Fantasy Action Series
+
+Anime, Gachiakuta, Manga
+
+Wed, 23 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/gachiakuta-kei-urana-sensen-senki-recommend/
+
+Author Kei Urana draws a special illustration featuring the manga's protagonist, who sacrifices his humanity to save his people.
+---------
+
+# A Welcome Back To Baldur's Gate 3 From The Game's Most Dashing Character
+
+Books, Baldur's Gate 3, Dungeons and Dragons, books, Video Games
+
+Wed, 23 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/baldurs-gate-3-astarion-t-kingfisher-exclusive-novel-excerpt/
+
+Baldur's Gate 3's cunning vampire spawn returns to take fans back in time to some of the darkest moments of his undeath.
+---------
+
+# 8 Reasons It’s Hard to Watch Naruto Today
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations, shonen anime
+
+Wed, 23 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/why-naruto-is-hard-to-watch-today/
+
+Naruto was a defining anime for a generation, but watching it for the first time today can reveal just how much the series has aged.
+---------
+
+# Dungeon Crawler Carl Announces Free Limited-Edition Release
+
+Comics, Dungeon Crawler Carl
+
+Wed, 23 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/dungeon-crawler-carl-free-nycc-comic/
+
+Fans attending one of the United States' biggest conventions can receive a free exclusive Dungeon Crawler Carl comic, with a catch.
+---------
+
+# The Searchers Has the Coldest Line in Western History
+
+Movies, Western, The Searchers
+
+Wed, 23 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/john-wayne-the-searchers-coldest-line-western-history/
+
+John Wayne redefined his Wild West image when he headlined The Searchers, and one quote stands out as the coldest of the film.
+---------
+
+# Syfy's 10-Episode Horror Noir Is TV's Greatest Instant Zombie Classic
+
+TV, Revival, syfy, Zombie
+
+Wed, 23 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/syfy-revival-best-zombie-show-in-years/
+
+Revival is one of the best zombie television shows of the last 10 years and the best part is, viewers can binge it in a single sitting.
+---------
+
+# Adventure Time & Regular Show Return Next Month With New Full-Series Releases
+
+TV, Adventure Time, Regular Show, Animation
+
+Wed, 23 Sep 2026 19:54:53 GMT
+
+https://www.cbr.com/adventure-time-regular-show-complete-series-blu-ray/
+
+Two Cartoon Network classics are back with new releases next month.
+---------
+
+# Agatha Christie's Beloved Amateur Sleuth Returns After 50 Years
+
+TV, Miss Marple, Crime, Marple
+
+Wed, 23 Sep 2026 19:49:33 GMT
+
+https://www.cbr.com/agatha-christie-miss-marple-new-mystery-murder-at-the-grand-alpine-hotel/
+
+Agatha Christie's beloved Miss Marple is back to solve a new murder mystery after 50 years.
+---------
+
+# Controversial 87-Year-Old Epic Officially Returning to Theaters in October
+
+Movies, Gone with the Wind
+
+Wed, 23 Sep 2026 19:48:16 GMT
+
+https://www.cbr.com/gone-with-the-wind-movie-theaters-2026/
+
+The Oscar-winning film, which has come under scrutiny in recent years, is heading back to the big screen nearly nine decades later.
+---------
+
+# 10 Greatest PS3 Games of All Time, Ranked
+
+Games, PlayStation (Original), retro games
+
+Wed, 23 Sep 2026 19:30:11 GMT
+
+https://www.cbr.com/greatest-ps3-games-of-all-time-ranked-list/
+
+PS3 games like The Last of Us and Uncharted 2 are gems in the console's library.
+---------
+
+# Kid Cudi's New Horror Movie Is Officially in Production With Barbie Ferreira [Exclusive]
+
+Exclusives, Scott Mescudi, Fantastic Fest, Pathetic Fallacy, Horror
+
+Wed, 23 Sep 2026 20:30:11 GMT
+
+https://collider.com/kid-cudi-directing-future-new-horror-movie-wrong-number-doe/
+
+Kid Cudi opened up about his future as a director, the films he has on the horizon, and the mindset he's brought behind the camera.
+---------
+
+# 8 Best Action Movies in Film History, Ranked
+
+Movie, Action, Mad Max: Fury Road, The Matrix, Die Hard
+
+Wed, 23 Sep 2026 20:28:11 GMT
+
+https://collider.com/best-action-movies-film-history-ranked/
+
+From Mad Max: Fury Road to The Matrix, Aliens to Seven Samurai, these action movies are the best in film history.
+---------
+
+# 'The Rookie' Meets '9-1-1' in ABC's New Crime Thriller Series From 'Jack Ryan' Showrunner
+
+TV News, The Rookie, 9-1-1, ABC, Dwayne Johnson
+
+Wed, 23 Sep 2026 19:46:12 GMT
+
+https://collider.com/abc-crime-series-dive-jack-ryan-showrunner-steve-kane/
+
+ABC, Dwayne Johnson, and Jack Ryan showrunner Steve Kane are officially teaming up for a new police procedural series. Read on for more.
+---------
+
+# Marvel Officially Brings Deadpool to NYCC With New WEBTOON Panel [Exclusive]
+
+Exclusives, Marvel, New York Comic Con, Deadpool, Marvel Comics
+
+Wed, 23 Sep 2026 19:38:43 GMT
+
+https://collider.com/marvel-webtoon-nycc-panel-deadpool-collider-october-9/
+
+WEBTOON is bringing a Marvel-focused panel to NYCC, and Collider will be hosting the conversation with updates on their new Deadpool series and more.
+---------
+
+# Deborah Ann Woll Officially Reveals How She Changed Karen Page's Darkest 'Daredevil' Story [Exclusive]
+
+Exclusives, Daredevil, Deborah Ann Woll, Fantastic Fest, The Cycle
+
+Wed, 23 Sep 2026 19:31:11 GMT
+
+https://collider.com/daredevil-deborah-ann-woll-changed-karen-page-dark-past/
+
+Deborah Ann Woll recalled how she made her voice heard on Netflix's Daredevil and helped make Karen Page's backstory hit as hard as possible.
+---------
+
+# 'The White Lotus' Season 4 Officially Lets One Star Go Completely Off-Script [Exclusive]
+
+TV News, The White Lotus, Mike White, Heather Graham, Fantastic Fest
+
+Wed, 23 Sep 2026 18:30:11 GMT
+
+https://collider.com/the-white-lotus-season-4-heather-graham-mike-white-set-story/
+
+The White Lotus Season 4 star explains a chaotic yet freeing experience she had on the set of the HBO series with creator Mike White.
+---------
+
+# Forget ‘The Office,’ HBO’s Ambitious 53-Episode Comedy Did Workplace Chaos Better
+
+TV Features, The Office, Veep, NBC, HBO
+
+Wed, 23 Sep 2026 18:18:11 GMT
+
+https://collider.com/hbo-comedy-workplace-chaos-veep-better-the-office/
+
+The Office was the most popular workplace comedy series of the 2010s, but Veep captured the chaos and surrealness even better.
+---------
+
+# Netflix Officially Decides the Fate of Its 3-Part Crime Masterpiece
+
+TV News, A Man on the Inside, Ted Danson, Netflix, Michael Schur
+
+Wed, 23 Sep 2026 18:17:22 GMT
+
+https://collider.com/netflix-crime-series-man-on-the-inside-season-3-ending/
+
+Netflix's best crime series has officially started work on Season 3, which will also be the beloved show's final chapter.
+---------
+
+# The Love Hypothesis: Lili Reinhart's Wig Had to Disappear | Collider BTS
+
+Movie, The Love Hypothesis
+
+Wed, 23 Sep 2026 18:15:11 GMT
+
+https://collider.com/video/the-love-hypothesis-lili-reinhart-s-wig-had-to-disappear-collider-bts/
+
+The Love Hypothesis transformed Lili Reinhart into brunette Olive Smith with a custom wig so convincing that even crew members working inches from the action didn’t realize it wasn’t her real hair.
+---------
+
+# Star Trek's Unjustly Cancelled 2-Season Sci-Fi Officially Makes the Case for a Revival
+
+TV Features, Star Trek: Prodigy, Star Trek, Ella Purnell, Kate Mulgrew
+
+Wed, 23 Sep 2026 18:11:12 GMT
+
+https://collider.com/star-trek-prodigy-revival-streaming-apple-tv-store/
+
+With the future of the Star Trek franchise uncertain, it's time to give Star Trek: Prodigy the third season it has long deserved.
+---------
+
+# Fate of Netflix's Hit Crime Series Officially Sealed After 3 Seasons
+
+TV News, A Man on the Inside, Netflix, Comedy
+
+Wed, 23 Sep 2026 20:30:23 GMT
+
+https://movieweb.com/a-man-on-the-inside-final-season-3/
+
+At least we get one more season before the end of 'A Man on the Inside.'
+---------
+
+# Disney's New 8-Part 'Blade' Meets 'House of Cards' Thriller Is the No. 1 Series on Global Streaming
+
+TV News, Disney+, Hot on Streaming, Thriller
+
+Wed, 23 Sep 2026 20:30:14 GMT
+
+https://movieweb.com/city-of-blood-thriller-streaming-hit-disney-september-2026/
+
+The latest bingeable series is a full-blown political thriller and unrelenting gore fest from the House of Mouse.
+---------
+
+# In 12 Words, ‘Peanuts’ Delivered the Greatest Piece of Advice in Comic Strip History
+
+Features, Peanuts, comics
+
+Wed, 23 Sep 2026 20:01:14 GMT
+
+https://movieweb.com/peanuts-snoopy-quote-greatest-advice/
+
+The beloved 'Peanuts' comic strip from Charles M. Schulz has great characters, including Charlie Brown and Snoopy, and some meaningful quotes.
+---------
+
+# Emily Deschanel's 7 Best Performances, Ranked
+
+TV Lists, Emily Deschanel
+
+Wed, 23 Sep 2026 20:01:14 GMT
+
+https://movieweb.com/emily-deschanel-best-performances/
+
+Emily Deschanel made a return to the spotlight on TV earlier this year in Devil in Ohio. Here's a look back at her best performances, ranked.
+---------
+
+# 'Avengers: Endgame Encore' Post-Credits Scene Leak Confirms 'Doomsday' Return of Original Avenger
+
+Movie News, Avengers: Endgame, Superhero
+
+Wed, 23 Sep 2026 19:53:18 GMT
+
+https://movieweb.com/avengers-endgame-encore-post-credits-scene-leak/
+
+'Avengers: Endgame Encore' is almost here, and the new material from the re-release is starting to come to light.
+---------
+
+# New 'James Bond' Movie Gets Perfect Candidate As Taylor Sheridan Veteran Confirms Interest
+
+Exclusives, Action, James Bond, Lioness
+
+Wed, 23 Sep 2026 19:41:13 GMT
+
+https://movieweb.com/james-bond-girl-elizaveta-neretin/
+
+The actor spoke about how long they've wanted to be a part of the franchise.
+---------
+
+# 'Primetime' Director Officially Responds To Chris Hansen's Criticisms Of Robert Pattinson Movie
+
+Movie News, Primetime, Crime, Thriller
+
+Wed, 23 Sep 2026 19:26:37 GMT
+
+https://movieweb.com/primetime-director-chris-hansen-criticism-response/
+
+Director Lance Oppenheim hopes Chris Hansen will warm up to 'Primetime' once he sees the film.
+---------
+
+# 8 Times 'The Big Bang Theory' Hinted It Was Part of a Massive Sci-Fi Multiverse
+
+TV Lists, The Big Bang Theory, Young Sheldon, Georgie & Mandy's First Marriage, Stuart Fails to Save the Universe, Comedy, Sci-Fi, Kevin Sussman, Jim Parsons
+
+Wed, 23 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/tbbt-stuart-spinoffs-hints-sci-fi-multiverse/
+
+Believe it or not, 'The Big Bang Theory' told us it was a part of a huge sci-fi multiverse years before 'Stuart Fails to Save the Universe.'
+---------
+
+# Chris Evans & Chris Pine's New Crime Movie Officially Described as "Violent Noir" Thriller
+
+Movie News, Chris Evans, Chris Pine, Thriller
+
+Wed, 23 Sep 2026 18:56:24 GMT
+
+https://movieweb.com/chris-evans-pine-my-darling-california/
+
+Chris Evans joins Chris Pine, Jessica Chastain, Mikey Madison, and Don Cheadle in the upcoming crime thriller 'My Darling California.'
+---------
+
+# Denis Villeneuve Says He Nearly Ruined His Career With His Cyberpunk Thriller
+
+Features, Denis Villeneuve, Sci-Fi, Thriller
+
+Wed, 23 Sep 2026 18:30:15 GMT
+
+https://movieweb.com/blade-runner-2049-one-of-denis-villeneuve-best/
+
+One of our best sci-fi visionaries' biggest gambles bombed in 2017, but it is still one of Denis Villeneuve's best films.
+---------
+
 # The BBC's Best New Agatha Christie-Inspired Detective Drama Officially Returns Next Month
 
 Streaming TV, Masked Recs
