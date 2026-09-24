@@ -1,3 +1,366 @@
+# Alan Ritchson’s Reacher Clears 5B Minutes On Streaming Despite Losing #1 Spot
+
+TV, Reacher
+
+Thu, 24 Sep 2026 23:39:28 GMT
+
+https://screenrant.com/reacher-5-billion-minutes-streaming-despite-losing-1-spot/
+
+Alan Ritchson’s Reacher surpasses 5 billion viewed minutes on streaming despite being dethroned on Prime Video's global and US streaming charts.
+---------
+
+# Every Upcoming Marvel Animated Show
+
+Streaming TV, Marvel
+
+Thu, 24 Sep 2026 23:30:15 GMT
+
+https://screenrant.com/marvel-upcoming-animated-shows/
+
+Marvel Studios is currently undergoing some major shake-ups in terms of their TV offerings, but Marvel Animation could be the thing to save the day.
+---------
+
+# Forgotten Island Ending Explained: How The Bittersweet Finale Sets Up A Sequel
+
+Movies, Forgotten Island
+
+Thu, 24 Sep 2026 23:20:16 GMT
+
+https://screenrant.com/forgotten-island-ending-explained/
+
+Forgotten Island's central moral is an emotionally rich one that pays off Jo and Raissa's journey while also leaving room open for a sequel.
+---------
+
+# 7 High-Concept Sci-Fi Series That Deserve More Praise
+
+Classic TV, Sci-Fi
+
+Thu, 24 Sep 2026 22:45:16 GMT
+
+https://screenrant.com/high-concept-sci-fi-shows-deserve-praise/
+
+Sci-fi is one of the most innovative and compelling genres on TV, but there are a surprising number of high-concept shows that go under the radar.
+---------
+
+# HBO's 26-Part Fantasy Series With Near-Perfect Rotten Tomatoes Score Keeps Getting Better Ahead Of Major Release
+
+TV, Masked Recs
+
+Thu, 24 Sep 2026 22:37:10 GMT
+
+https://screenrant.com/hbo-house-of-the-dragon-fantasy-series-better-final-season/
+
+HBO's global hit fantasy series with 26 episodes released so far keeps getting better ahead of a major new release, and its RT score is near-perfect.
+---------
+
+# Tom Welling's 8 Best Movies & TV Shows
+
+Classic TV, Tom Welling
+
+Thu, 24 Sep 2026 22:30:16 GMT
+
+https://screenrant.com/tom-welling-best-movies-tv-shows/
+
+Tom Welling is an underrated talent who has defined himself as a gifted actor beyond the breakthrough role that made him a household name.
+---------
+
+# 7 Fantastic Directors Who Could Replace James Cameron On Avatar 4 If He Steps Aside
+
+Movies, Avatar 4
+
+Thu, 24 Sep 2026 22:30:16 GMT
+
+https://screenrant.com/avatar-4-director-candidates-replace-james-cameron/
+
+If James Cameron does not direct the installment in the Avatar franchise, the series will need an accomplished filmmaker to take his place.
+---------
+
+# James Gunn's DCU Reaches A Point Of No Return For John Stewart
+
+Streaming TV, Lanterns
+
+Thu, 24 Sep 2026 22:28:16 GMT
+
+https://screenrant.com/lanterns-episode-6-john-stewart-ring-hal-jordan-return/
+
+Lanterns episode 6 finds John Stewart reclaiming his identity a decade after the Rushville tragedy, reaching a point of no return for the DC hero.
+---------
+
+# BBC Officially Rebooting Classic 64-Year-Old Children's Series
+
+TV, Play School
+
+Thu, 24 Sep 2026 22:08:43 GMT
+
+https://screenrant.com/bbc-play-school-show-reboot-development/
+
+The BBC is officially bringing back one of its most influential children's television series, rebooting the classic show with a modern twist.
+---------
+
+# 10 Most Overrated Open World Games of All Time, Ranked
+
+Games, open world, RPG
+
+Thu, 24 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/most-overrated-open-world-games-all-time-list/
+
+Open-world games like The Witcher 3 and Horizon Forbidden West are overrated compared to the best games in the genre.
+---------
+
+# Dattebayo Meaning and Translations, Explained
+
+Anime, Naruto
+
+Thu, 24 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/dattebayo-anime-meaning-explained/
+
+Naruto's catchphrase is difficult to translate into English because there's nothing in English like it. Its meaning is too deeply rooted in Japanese.
+---------
+
+# New Legend of Zelda Release Delayed Until March 2027
+
+Games, The Legend of Zelda, Nintendo
+
+Thu, 24 Sep 2026 23:20:11 GMT
+
+https://www.cbr.com/zelda-totk-secrets-of-the-zonai-delay-announcement/
+
+The Legend of Zelda: Secrets of the Zonai's original October release date just got pushed back by Dark Horse to March 30th, 2027.
+---------
+
+# Strongest Naruto Ninjas Who Never Became Kage, Ranked
+
+Anime, Naruto, Naruto: Shippuden
+
+Thu, 24 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/strongest-naruto-ninjas-never-became-kage-ranked/
+
+Despite never becoming Kage, these Naruto ninjas possess enough power to challenge the anime's strongest leaders.
+---------
+
+# The 7-Episode Netflix Western That Outshines Yellowstone in Every Way
+
+TV, Godless, Yellowstone, Western
+
+Thu, 24 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/netflix-godless-western-outshines-yellowstone/
+
+Don't miss out on a few standout roles and breakthrough performances in Netflix's underrated western gem that rivals the hit Yellowstone franchise.
+---------
+
+# 8 Greatest Gangster Movies Made Since Goodfellas
+
+Movies, Goodfellas, Thriller, Crime
+
+Thu, 24 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/best-gangster-movies-since-goodfellas-list/
+
+The success of Goodfellas ushered in a new golden era of gangster cinema that's still producing masterpieces to this day.
+---------
+
+# Deadpool's Brand-New Marvel Series Sets Exclusive First Look for October 9
+
+Anime, webtoon, Deadpool, Marvel, New York Comic Con
+
+Thu, 24 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/that-time-deadpool-fell-into-webtoon-nycc-first-look/
+
+Deadpool is about to headline a highly anticipated panel at New York Comic Con with a special sneak peek.
+---------
+
+# $129M Action-Horror Classic Returns as an HBO Max Streaming Sensation After Hit Reboot
+
+Movies, Resident Evil: Apocalypse
+
+Thu, 24 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/resident-evil-apocalypse-hbo-max-success-september-2026/
+
+The action-horror movie is soaring on streaming just in time for its reboot to be in theaters now.
+---------
+
+# 7 Most Unwatchable Anime That Aired On Cartoon Network
+
+Anime, Cartoon Network, toonami
+
+Thu, 24 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/unwatchable-anime-that-aired-on-cartoon-network/
+
+Cartoon Network was a major catalyst when it came to bringing anime to the West, but not every series is worth a rewatch today.
+---------
+
+# Prime Video Is Turning Joel Kinnaman’s 22% RT Action Thriller Into a Streaming Hit
+
+Movies, Icefall, joel kinnaman, Prime Video
+
+Thu, 24 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/joel-kinnaman-icefall-prime-video-success-september-2026/
+
+Joel Kinnaman's action-picked movie is soaring on streaming.
+---------
+
+# Two Doctor Who’ Fan-Favorites Officially Reunite 15 Years Later
+
+TV News, Doctor Who, Sci-Fi, Alex Kingston, Arthur Darvill
+
+Thu, 24 Sep 2026 23:45:11 GMT
+
+https://collider.com/doctor-who-alex-kingston-arthur-darvill-reunite-audio-drama/
+
+With the franchise now confirmed to return in some form, two Doctor Who icons are officially reuniting. Read on for more.
+---------
+
+# 9 Fantasy TV Shows With Vampires That Are 10/10 Masterpieces
+
+TV, Fantasy, Vampire, The Vampire Diaries, Buffy The Vampire Slayer
+
+Thu, 24 Sep 2026 23:39:11 GMT
+
+https://collider.com/fantasy-shows-vampires-masterpieces/
+
+The CW's The Vampire Diaries, FX's What We Do in the Shadows, and HBO's True Blood are among the greatest fantasy shows that feature vampires.
+---------
+
+# Forget ‘Resident Evil,’ Another Classic Horror Game Is Getting a Movie Reboot
+
+Movie News, Silent Hill, Return to Silent Hill, Resident Evil, Roy Lee
+
+Thu, 24 Sep 2026 23:30:11 GMT
+
+https://collider.com/silent-hill-reboot-confirmed-resident-evil-producer/
+
+The producer of Resident Evil is officially gearing up for a major feature film reboot following the ongoing video game movie boom.
+---------
+
+# The 6 Best Crime Books Released Since 2000, Ranked
+
+Books and Comics, Crime, Books, Cormac McCarthy, Gillian Flynn
+
+Thu, 24 Sep 2026 23:21:11 GMT
+
+https://collider.com/best-crime-books-since-2000-ranked/
+
+From Gone Girl to The Girl with the Dragon Tattoo, these crime novels prove the most dangerous mysteries begin after the answers.
+---------
+
+# ‘Die Hard 2’ Director Recalls Argument With Bruce Willis Over John McClane
+
+Movie News, Die Hard 2, Bruce Willis, Renny Harlin, Die Hard
+
+Thu, 24 Sep 2026 23:15:11 GMT
+
+https://collider.com/die-hard-2-director-bruce-willis-argument-comments/
+
+Director Renny Harlin recalled the creative conflict he had with Bruce Willis during Die Hard 2, and how the differences were resolved.
+---------
+
+# The 10 Greatest Psychological Thriller Miniseries, Ranked
+
+TV, Thriller, TV Miniseries, Sharp Objects, The Haunting of Hill House
+
+Thu, 24 Sep 2026 23:12:11 GMT
+
+https://collider.com/best-psychological-thriller-miniseries-ranked/
+
+From The Undoing to Sharp Objects, these are the best and most riveting psychological thriller miniseries to stress about.
+---------
+
+# Mahershala Ali Officially Slams Kevin Feige and Marvel for Not Making ‘Blade’
+
+Movie News, Mahershala Ali, Kevin Feige, Blade, Marvel
+
+Thu, 24 Sep 2026 23:00:11 GMT
+
+https://collider.com/mahershala-ali-kevin-feige-blade-loser-criticisms/
+
+Mahershala Ali agreed that Kevin Feige should feel like a "gigantic loser" for not moving forward with Blade. Here's what he said about the project.
+---------
+
+# ‘Landman’s Best Quote Perfectly Defines Taylor Sheridan’s Neo-Western
+
+TV Features, Landman, Taylor Sheridan, Billy Bob Thornton, Demi Moore
+
+Thu, 24 Sep 2026 22:58:11 GMT
+
+https://collider.com/landman-best-quote-billy-bob-thornton-taylor-sheridan-neo-western/
+
+Landman's best quote perfectly describes Taylor Sheridan's neo-Western while emphasizing the real struggle behind America's oil boom.
+---------
+
+# 6 Perfect Thrillers That Rival 'Gone Girl'
+
+Movie, Thriller, Gone Girl, Prisoners, Nightcrawler
+
+Thu, 24 Sep 2026 22:54:11 GMT
+
+https://collider.com/perfect-thriller-movies-rival-gone-girl/
+
+If Gone Girl left a void, Prisoners and The Handmaiden deliver the same layered suspense, deception, and payoff.
+---------
+
+# ‘John Wick 4’ Star Shamier Anderson’s Directorial Debut Is Not What You’d Expect
+
+Exclusives, Shamier Anderson, TIFF, John Wick, John Wick: Chapter 4
+
+Thu, 24 Sep 2026 22:02:05 GMT
+
+https://collider.com/shamier-anderson-call-me-tim-interview/
+
+Shamier Anderson reflects on John Wick 4, shares his passion for collecting, and discusses the ending of Apple TV's sci-fi series, Invasion.
+---------
+
+# Sydney Sweeney's $400M Thriller Toppled by a $10M Sleeper-Hit Sensation at the Box Office
+
+Movie News, Box Office Milestones, Sydney Sweeney, The Housemaid, Backrooms
+
+Thu, 24 Sep 2026 23:30:14 GMT
+
+https://movieweb.com/backrooms-box-office-record-september-2026/
+
+Kane Parsons’ Backrooms has officially surpassed Sydney Sweeney’s The Housemaid at the worldwide box office.
+---------
+
+# David Tennant Returns to 'Doctor Who' in New 20th Anniversary Release
+
+Movie News, Doctor Who / Whoniverse, David Tennant, Fantasy, Sci-Fi
+
+Thu, 24 Sep 2026 22:11:29 GMT
+
+https://movieweb.com/doctor-who-david-tennant-20th-anniversary/
+
+David Tennant's 10th Doctor is returning for a special screening to honor the sci-fi show's 20th anniversary.
+---------
+
+# 'Primetime' Ending, Explained
+
+Features, Primetime
+
+Thu, 24 Sep 2026 21:30:14 GMT
+
+https://movieweb.com/primetime-ending-explained/
+
+From a chilling climax to a open-ended final scene, 'Primetime' examines the complex morality of turning true crime into entertainment.
+---------
+
+# 29 Years Later, Nicolas Cage's 115-Minute Action Thriller Classic Sets New Release
+
+Movie News, Con Air, Nicolas Cage, Action, Thriller, Blu-ray
+
+Thu, 24 Sep 2026 21:30:14 GMT
+
+https://movieweb.com/con-air-nicolas-cage-4k-blu-ray-release/
+
+Disney is officially preparing a 4K Blu-ray/Blu-ray combo pack release of Nicolas Cage's action thriller blockbuster 'Con Air.'
+---------
+
 # American Horror Story Season 13 Officially Breaking 13-Year Episode Tradition Clarified By Writers
 
 TV, American Horror Story, American Horror Story - Season 13
