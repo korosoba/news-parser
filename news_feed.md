@@ -1,3 +1,421 @@
+# American Horror Story Season 13 Officially Breaking 13-Year Episode Tradition Clarified By Writers
+
+TV, American Horror Story, American Horror Story - Season 13
+
+Thu, 24 Sep 2026 20:33:44 GMT
+
+https://screenrant.com/american-horror-story-season-13-episodes-length-changes-writers/
+
+EXCLUSIVE: Ahead of the American Horror Story 13 premiere, the writers discuss a major change to the series and tease a “gross” season ahead.
+---------
+
+# HBO's 10-Part Sci-Fi Masterpiece Deserves Kudos For Having The Perfect Number Of Episodes
+
+Classic TV, Masked Recs
+
+Thu, 24 Sep 2026 20:30:16 GMT
+
+https://screenrant.com/station-eleven-limited-series-hbo-ten-episodes/
+
+HBO's 10-episode science fiction series, Station Eleven, deserves more kudos for having the perfect number of episodes to tell its story.
+---------
+
+# How Kristine Froseth & Jonah Hauer-King Defied Modern Acting Conventions In The Face Of Horror
+
+Interviews, The Face of Horror, Kristine Froseth, Jonah Hauer-King
+
+Thu, 24 Sep 2026 20:19:29 GMT
+
+https://screenrant.com/the-face-of-horror-tiff-2026-kristine-froseth-jonah-hauer-king-interview/
+
+The Face of Horror's Kristine Froseth & Jonah Hauer-King share how Anna Biller directed them to think outside the box for their tale of vengeance.
+---------
+
+# Mike Flanagan's New Stephen King Series Officially Ends Netflix's 5-Year Horror Dominance
+
+Streaming TV, Mike Flanagan
+
+Thu, 24 Sep 2026 20:15:16 GMT
+
+https://screenrant.com/mike-flanagan-carrie-release-netflix-horror-streak-end/
+
+Mike Flanagan is returning to TV with a new adaptation of Stephen King's Carrie, with which he's ending his five-year horror dominance on Netflix.
+---------
+
+# Reacher’s 8-Part Spinoff Is A Masterclass In Pacing That Deserves Its #1 Spot
+
+Streaming TV, Masked Recs
+
+Thu, 24 Sep 2026 20:08:16 GMT
+
+https://screenrant.com/neagley-season-1-pacing-mystery-reacher-spinoff/
+
+Reacher's new 8-part spinoff series Neagley succeeds in the wake of Prime Video's massive action thriller franchise & proves it can stand on.
+---------
+
+# The Boys Is Switching Genres & It's The End Of An Era
+
+Streaming TV, The Boys, Vought Rising
+
+Thu, 24 Sep 2026 20:03:59 GMT
+
+https://screenrant.com/the-boys-switching-genres-vought-rising-era/
+
+Prime Video's The Boys is coming back in 2027, and when the superhero franchise returns, it will be changing genres to officially end an era.
+---------
+
+# GTA 6 Collector’s Box Price Unites Upset Fans
+
+Gaming, Grand Theft Auto 6, Rockstar Games
+
+Thu, 24 Sep 2026 20:01:54 GMT
+
+https://screenrant.com/gta-6-collectors-box-price-reactions/
+
+Grand Theft Auto 6 got away with how much its Ultimate edition costs, but fans think a line has been crossed when it comes to its Collector's Box.
+---------
+
+# Dutton Ranch Is Officially Switching Main Characters In Season 2
+
+Streaming TV, Dutton Ranch
+
+Thu, 24 Sep 2026 20:00:16 GMT
+
+https://screenrant.com/dutton-ranch-season-2-ed-main-character-replacing-beth-rip/
+
+Kelly Reilly and Cole Hauser confirmed that Beth and Rip will no longer be the main characters of Dutton Ranch in the show's second season.
+---------
+
+# Saw 11 Officially Confirmed With Rising Horror Director At The Helm
+
+Movies, Saw, Horror, Saw XI
+
+Thu, 24 Sep 2026 19:32:42 GMT
+
+https://screenrant.com/saw-11-director-mike-p-nelson-confirmed/
+
+The Saw franchise is finally returning as the next movie, which is now being produced by Blumhouse, officially reveals who will direct it.
+---------
+
+# Disney Is Making Massive Changes to Bluey's Formula in 2027
+
+Movies, The Bluey Movie, Bluey, Disney
+
+Thu, 24 Sep 2026 20:58:44 GMT
+
+https://www.cbr.com/disney-bluey-movie-2027-animation-tv-formula-change/
+
+Bluey is making the jump to the movie theaters and audiences are unsure of what to think of the biggest changes to the award-winning formula.
+---------
+
+# James Wan Officially Reviving $1 Billion Horror Franchise With First Movie in Years
+
+Movies, Saw 11, Saw, Horror
+
+Thu, 24 Sep 2026 20:56:48 GMT
+
+https://www.cbr.com/james-wan-saw-11-director-mike-p-nelson/
+
+James Wan returns to the hit horror franchise he co-created.
+---------
+
+# Pokémon Officially Takes Over Starbucks With New Pikachu Latte & 41 Exclusive Releases
+
+Anime, Pokemon, drinks, merchandise, collectibles
+
+Thu, 24 Sep 2026 20:35:11 GMT
+
+https://www.cbr.com/starbucks-pokemon-pikachu-latte-exclusive-merchandise-release/
+
+Starbucks partners with the Pokémon franchise to create the ultimate Pikachu-themed latte, along with dozens of exclusive new merchandise to collect.
+---------
+
+# Solo Leveling Can Finally Fix Sung Jinwoo’s Biggest Problem
+
+Anime, Solo Leveling
+
+Thu, 24 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/solo-leveling-season-3-finally-fix-sung-jinwoo-biggest-problem/
+
+Sung Jinwoo has become insanely powerful, but that power comes at a cost. Solo Leveling Season 3 should finally explore what that means.
+---------
+
+# Harry Potter Sequel Is Officially Abandoning Its 2-Part Format 10 Years Later
+
+Movies, Harry Potter, Harry Potter and the Cursed Child
+
+Thu, 24 Sep 2026 20:02:58 GMT
+
+https://www.cbr.com/harry-potter-and-the-cursed-child-west-end-format/
+
+Ahead of the new HBO Max adaptation, Harry Potter is thriving.
+---------
+
+# Cult Sci-Fi Classic That Rivals Firefly & Stargate SG-1 Is Blowing Up on Streaming
+
+TV, Farscape, Sci-Fi
+
+Thu, 24 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/farscape-sci-fi-apple-tv-store-success-september-2026/
+
+A fan-favorite sci-fi adventure series is climbing the streaming chart.
+---------
+
+# Netflix's Narnia Reboot Is Changing Jadis the White Witch
+
+Movies, Narnia: The Magician's Nephew, Netflix, The Chronicles of Narnia
+
+Thu, 24 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/netflix-narnia-magicians-nephew-reboot-changing-jadis-white-witch/
+
+One of the most formidable villains in the fantasy genre's history is being changed significantly in Greta Gerwig's Narnia: The Magician's Nephew.
+---------
+
+# 10 Spider-Man Villains Who Could Actually Kill Him, Ranked
+
+Comics, Spider-Man
+
+Thu, 24 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/spider-man-villains-who-could-actually-kill-him-ranked/
+
+Spider-Man might be one of Marvel's mightiest heroes, but even he can be beaten by these dangerous foes.
+---------
+
+# 5 Greatest Fantasy Books of the 2020s, Ranked
+
+Books, Fantasy
+
+Thu, 24 Sep 2026 19:30:11 GMT
+
+https://www.cbr.com/best-fantasy-books-2020s-ranked-list/
+
+With the rise of BookTok and Bookstagram, books have never been more popular and fantasy has become the staple genre for a new generation of readers.
+---------
+
+# Only 1 in 3 Teenage Boys Now Read Manga as Girls Pull Ahead
+
+Anime, Manga
+
+Thu, 24 Sep 2026 19:20:11 GMT
+
+https://www.cbr.com/manga-reading-data-japan-boys-vs-girls/
+
+While girls are well ahead of boys when it comes to reading manga, the overall consumption of the medium has significantly fallen.
+---------
+
+# Every Christopher Nolan and Anne Hathaway Movie, Ranked
+
+Movie, Christopher Nolan, Anne Hathaway, Interstellar, The Odyssey
+
+Thu, 24 Sep 2026 20:57:11 GMT
+
+https://collider.com/christopher-nolan-anne-hathaway-movies-ranked/
+
+From The Dark Knight Rises, to Interstellar, to The Odyssey, we've definitively ranked every Christopher Nolan and Anne Hathaway collaboration.
+---------
+
+# 'Highlander' Officially Returns With New 4-Part Release Ahead of Henry Cavill's Reboot [Exclusive]
+
+Exclusives, Highlander, Highlander Reboot, Henry Cavill
+
+Thu, 24 Sep 2026 20:03:03 GMT
+
+https://collider.com/highlander-original-screenplay-comic-first-look-images/
+
+Highlander: The Original Screenplay #1 arrives December 2, adapting Gregory Widen's original vision for the 1986 classic.
+---------
+
+# Every Rush Instrumental, Ranked
+
+Music News, Rock, Geddy Lee Asks: Are Bass Players Human Too?, Lists, Rush: R30
+
+Thu, 24 Sep 2026 20:00:11 GMT
+
+https://collider.com/every-rush-instrumental-ranked/
+
+From 'YYZ' to 'La Villa Strangiato' to 'Leave That Thing Alone," every Rush instrumental song, ranked.
+---------
+
+# 'Shrinking' Season 4 Officially Sets 'Ugly Betty' Reunion
+
+TV News, Shrinking, Apple TV, Bill Lawrence, Brett Goldstein
+
+Thu, 24 Sep 2026 19:52:51 GMT
+
+https://collider.com/apple-tv-shrinking-season-4-cast-judith-light-ugly-betty-reunion/
+
+Sitcom legend Judith Light is officially set to reunite with her Ugly Betty co-star Michael Urie in Shrinking Season 4. Read on for more.
+---------
+
+# 3 Years Later, ‘Ted Lasso’ Fixes One of Its Biggest Story Mistakes
+
+TV Features, Ted Lasso, Apple TV, Brett Goldstein, Juno Temple
+
+Thu, 24 Sep 2026 19:52:11 GMT
+
+https://collider.com/ted-lasso-season-4-roy-kent-keeley-jones-reunion-wedding/
+
+Roy Kent and Keeley Jones have their long-awaited reunion on Ted Lasso, in a grand confession evocative of a wedding!
+---------
+
+# 10 Greatest ‘Calvin and Hobbes’ Comic Strips of All Time, Ranked
+
+Books and Comics, Comics, Family, Comedy, Classics
+
+Thu, 24 Sep 2026 19:52:11 GMT
+
+https://collider.com/best-calvin-and-hobbes-comic-strips-all-time-ranked/
+
+War is Stupid, Calvinball, The Baby Raccoon Story, and more make up our list of the best Calvin and Hobbes comic strips of all time.
+---------
+
+# 'Treasure Island' Officially Returns With First Trailer
+
+TV News, Treasure Island, David Oyelowo, Hayley Atwell, MGM TV
+
+Thu, 24 Sep 2026 19:50:08 GMT
+
+https://collider.com/treasure-island-trailer-david-oyelowo-hayley-atwell-mgm-plus/
+
+Watch David Oyelowo and Hayley Atwell in MGM+'s Treasure Island trailer before the high-stakes adventure premieres October 11.
+---------
+
+# New Saw Movie Officially Confirms Perfect Director
+
+Movie News, Saw, Saw X, Saw XI, Horror
+
+Thu, 24 Sep 2026 19:42:42 GMT
+
+https://collider.com/saw-new-movie-mike-p-nelson-director/
+
+Mike P. Nelson, director of Wrong Turn and Silent Night, Deadly Night, will helm the next installment in the Saw franchise.
+---------
+
+# Harlan Coben Star Officially Boards Hulu's New James Bond Replacement
+
+TV News, Sam Worthington, Sofia Carson, I Will Find You, Harlan Coben
+
+Thu, 24 Sep 2026 19:41:02 GMT
+
+https://collider.com/harlan-coben-star-sam-worthington-cast-hulu-spy-thriller-parsifal-mosaic/
+
+Harlan Coben favorite Sam Worthington has officially found his next thriller with a new espionage series at Hulu. Read on for more.
+---------
+
+# 8 Ignored Video Games That Have Aged Like Fine Wine
+
+Gaming, Video Game, Skylanders, Rockstar Games, Sega
+
+Thu, 24 Sep 2026 19:33:11 GMT
+
+https://collider.com/obscure-video-games-aged-like-fine-wine/
+
+1998's Grim Fandango and 2006's Bully are among the obscure video games that have aged incredibly well and are due for a rediscovery by modern gamers.
+---------
+
+# 'Saw 11' Officially Confirmed From Rising Horror Director
+
+Movie News, Saw, Saw 11, Saw XI
+
+Thu, 24 Sep 2026 20:50:19 GMT
+
+https://movieweb.com/saw-11-mike-p-nelson-directing/
+
+Mike P. Nelson, director of the remake 'Silent Night, Deadly Night ', will direct the next entry in the 'Saw' franchise.
+---------
+
+# 'Incredibles' Director Officially Reveals Why It's Been 8 Years Since His Last Movie
+
+Exclusives, Ray Gunn, Brad Bird, Netflix, Animation
+
+Thu, 24 Sep 2026 20:30:14 GMT
+
+https://movieweb.com/brad-bird-ray-gunn-movie-development-explained/
+
+After last coming to theaters with 'Incredibles 2' in 2018, Brad Bird is finally back in the spotlight with a new movie that debuts later this year.
+---------
+
+# 'Avengers Endgame: Encore's 4 Post-Credits Scenes Explained
+
+Movie Lists, Avengers: Endgame, Marvel Cinematic Universe, Superhero
+
+Thu, 24 Sep 2026 20:00:15 GMT
+
+https://movieweb.com/avengers-endgame-encore-post-credits-scenes/
+
+'Avengers: Endgame' is back in theaters with a new re-release, and it has four post-credits scenes that connect it to the 'Avengers: Doomsday.'
+---------
+
+# 'Reacher' Season 5 Officially Adapting "Brutal and Disgusting" Acclaimed Lee Child Book
+
+TV News, Reacher, Prime Video, Drama
+
+Thu, 24 Sep 2026 19:49:00 GMT
+
+https://movieweb.com/reacher-season-5-make-me-book/
+
+The fifth season of Prime Video's 'Reacher' could become the most brutal season yet, as Lee Child's books continue to be adapted.
+---------
+
+# 'Lord of the Rings' Gets a Dark Twist in 2026's Best Fantasy Epic That's Taking Over Streaming
+
+TV News, Clevatess, Crunchyroll, Hot on Streaming, Fantasy, The Lord of the Rings
+
+Thu, 24 Sep 2026 19:30:15 GMT
+
+https://movieweb.com/clevatess-dark-fantasy-action-stream-crunchyroll-september-2026/
+
+Imagine if Tolkien wrote 'A Game of Thrones.'
+---------
+
+# Jason Statham Was Replaced in One of His Most Iconic Action Hero Roles for 2 Separate Reboots
+
+Features, Jason Statham, Action, Transporter
+
+Thu, 24 Sep 2026 19:01:15 GMT
+
+https://movieweb.com/jason-statham-transporter-reboots/
+
+Jason Statham has starred in many successful action movies, and the reboots of one of his best franchises weren't the same without him.
+---------
+
+# New 'Treasure Island' Trailer Takes on Classic Adventure Tale Ahead of Ridley Scott Movie
+
+Movie News, Action, Treasure Island, Paramount Plus
+
+Thu, 24 Sep 2026 18:19:45 GMT
+
+https://movieweb.com/treasure-island-trailer-mgm/
+
+A new take on the beloved story revealed in official trailer for MGM+'s 'Treasure Island.'
+---------
+
+# Near-Perfect $800M Action Fantasy Epic Gets Potential 2027 Sequel Release Date 1 Year Later
+
+Movie News, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Action, Fantasy
+
+Thu, 24 Sep 2026 18:10:44 GMT
+
+https://movieweb.com/demon-slayer-infinity-castle-2027-release-date-rumor/
+
+After breaking box office records last year, the action fantasy epic 'Demon Slayer' appears to be setting the stage for a sequel in 2027.
+---------
+
+# When 'Primetime' Will Release on Streaming
+
+Features, Primetime, To Catch a Predator, Robert Pattinson
+
+Thu, 24 Sep 2026 18:00:14 GMT
+
+https://movieweb.com/primetime-streaming-release-hbo-max/
+
+'Primetime' stars Robert Pattinson as 'To Catch a Predator' host Chris Hansen and will be released in theaters on Sept. 25, 2026.
+---------
+
 # Sydney Sweeney’s Hit R-Rated Thriller Officially Releases On HBO Max In Just 2 Weeks
 
 Movies, Masked Recs, Sydney Sweeney
