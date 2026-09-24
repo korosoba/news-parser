@@ -1,3 +1,333 @@
+# Naruto Officially Returns October 2026
+
+Gaming, Naruto, tabletop games
+
+Thu, 24 Sep 2026 06:30:17 GMT
+
+https://screenrant.com/naruto-tcg-october-2026-return/
+
+If you're a Naruto fan and are waiting on more releases, you'll be able to partake in a new return this October, but there's a slight catch.
+---------
+
+# Game Of Thrones: The Veilflame Officially Announced
+
+Gaming, Game of Thrones, Game Of Thrones, Game Of Thrones: Dragonfire, House of the Dragon, PC
+
+Thu, 24 Sep 2026 06:00:15 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-smoketail-veilflame-reveal/
+
+Game of Thrones officially unleases Smoketail: The Veilflame for Dragon's Divide, taking fans on a brand-new adventure.
+---------
+
+# This 9/10 Free Steam Game Is A Near-Perfect Hit
+
+Gaming, Steam, Triple-A Games
+
+Thu, 24 Sep 2026 05:30:16 GMT
+
+https://screenrant.com/steam-free-9-rated-game-anime-inspired/
+
+The best part about Steam is that you can easily find highly-reviewed games on the platform, but there's also plenty of free experiences, too.
+---------
+
+# The Expendables Meets Olympus Has Fallen In Scott Adkins' High-Octane Action Threequel
+
+Movies, Masked Recs
+
+Thu, 24 Sep 2026 05:05:15 GMT
+
+https://screenrant.com/one-last-shot-scott-adkins-expendables-meets-olympus-has-fallen/
+
+The Expendables meets Olympus Has Fallen in star Scott Adkins' high-octane threequel in his ongoing action thriller movie series.
+---------
+
+# 50-Episode Horror Series Praised By Stephen King Is Scary Without Jumpscares
+
+Classic TV, Masked Recs
+
+Thu, 24 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/evil-stephen-king-approved-horror-no-jumpscares/
+
+A 50-episode horror TV series that has also earned Stephen King’s high praise achieves the rare feat of being scary with little to no jumpscares.
+---------
+
+# Godzilla Is Officially Switching Genres When It Returns December 2026
+
+Gaming, Godzilla Minus Zero, Godzilla, Godzilla Minus One, PC
+
+Thu, 24 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/godzilla-official-genre-switch-tcg/
+
+Godzilla returns in December 2026 with a new release featuring Minus Zero and more, and fans are getting a completely different experience.
+---------
+
+# Legend Of Zelda: Twilight Princess Officially Returns October 2026
+
+Gaming, The Legend of Zelda: Twilight Princess, Triple-A Games
+
+Thu, 24 Sep 2026 04:30:15 GMT
+
+https://screenrant.com/zelda-historical-charms-twilight-princess-october-2026/
+
+If you're big on Legend Of Zelda: Twilight Princess, there's a new release that's bringing us back to that corner of Hyrule soon.
+---------
+
+# Batman Gets Horrifying Redesign In Official 2027 Release
+
+Gaming, The Batman Who Laughs, Batman Who Laughs, Batman, PC
+
+Thu, 24 Sep 2026 04:00:20 GMT
+
+https://screenrant.com/batman-who-laughs-release-2027/
+
+Batman Who Laughs is making an evil and horrifying return in 2027 with an incredible new statue from Sideshow.
+---------
+
+# Avengers: Endgame Encore Makes One Avengers: Doomsday Challenge Look Almost Impossible
+
+Superheroes, Avengers: Endgame, Avengers: Doomsday, Marvel Cinematic Universe
+
+Thu, 24 Sep 2026 03:55:27 GMT
+
+https://screenrant.com/avengers-endgame-encore-makes-one-doomsday-challenge-look-impossible/
+
+Avengers: Endgame Encore is playing in theaters this week, and it definitely highlights the biggest challenge facing Avengers: Doomsday.
+---------
+
+# Indiana Jones Meets Jack Ryan In Netflix's Adaptation Of Bestselling Thriller Novel
+
+Streaming TV, Masked Recs
+
+Thu, 24 Sep 2026 03:35:15 GMT
+
+https://screenrant.com/netflix-robert-langdon-series-indiana-jones-jack-ryan/
+
+Netflix's upcoming adaptation of Dan Brown's bestselling novel can finally give the streamer a character as iconic as Indiana Jones or Jack Ryan.
+---------
+
+# David Tennant's 15-Year-Old Remake of Iconic Horror Movie Streams for Free Next Month
+
+Movies, Fright Night
+
+Thu, 24 Sep 2026 03:55:08 GMT
+
+https://www.cbr.com/fright-night-remake-streaming-tubi-october-2026/
+
+Supergirl helmer Craig Gillespie directed the horror remake that's streaming for free just in time for Halloween.
+---------
+
+# Stephen King's Scariest Show Can Be Binged in Under 4 Hours & It's a 10/10
+
+TV, Storm of the Century, Stephen King, Horror
+
+Thu, 24 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/scariest-stephen-king-show-storm-of-the-century-flawless-binge/
+
+King’s 1999 miniseries was a unique project for the writer, as it is one of his most chilling and emotionally devastating works for the screen.
+---------
+
+# 26 Years Later, Snoopy’s Final Line Proves Why He’s a Fan-Favorite Peanuts Character
+
+Comics, Peanuts
+
+Thu, 24 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/peanuts-snoopy-last-line-fan-favorite-character/
+
+Charles Schulz's legacy will live on forever.
+---------
+
+# Lord of the Rings: The Hunt for Gollum Reveals First Look at Elijah Wood's Return as Frodo
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Thu, 24 Sep 2026 03:24:41 GMT
+
+https://www.cbr.com/lord-of-the-rings-the-hunt-for-gollum-set-photos-elijah-wood/
+
+Frodo's back in a new look at the upcoming sequel The Lord of the Rings: The Hunt for Gollum.
+---------
+
+# 8 Reasons It’s Hard to Watch Dragon Ball Z in 2026
+
+Anime, Dragon Ball Z, Dragon Ball
+
+Thu, 24 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/dragon-ball-z-dbz-problems-2026/
+
+DBZ is one of the most important anime ever made, but it's not always easy for modern viewers to get into.
+---------
+
+# Transformers Gives Optimus Prime's Billion-Dollar Movie Form a Blacked-Out Upgrade
+
+Anime, Transformers, Transformers: Dark of the Moon, optimus prime, merchandise, toys
+
+Thu, 24 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/transformers-jetwing-optimus-prime-black-ver-blokees/
+
+A dark redeco of one of Optimus Prime's cinematic designs will soon fly into fans' collections through a new Blokees Transformers model kit.
+---------
+
+# 10 Anime to Watch If You Love Evangelion
+
+Anime, Neon Genesis Evangelion, Chainsaw Man, Mobile Suit Gundam
+
+Thu, 24 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-love-neon-genesis-evangelion/
+
+Neon Genesis Evangelion’s influence runs deep, and plenty of anime have taken its ideas in interesting new directions.
+---------
+
+# Resident Evil Reboot Producer Sets Sights on Silent Hill for Next Horror Game Adaptation
+
+Movies, Silent Hill, Resident Evil
+
+Thu, 24 Sep 2026 02:34:16 GMT
+
+https://www.cbr.com/silent-hill-movie-roy-lee-producer/
+
+Silent Hill has a reboot in the works from the producer of Zach Cregger's Resident Evil, which is the highest-rated video game movie of all time.
+---------
+
+# All 4 New Daggerheart: Hope & Fear Classes, Ranked
+
+Games, Daggerheart, Critical Role, Tabletop
+
+Thu, 24 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/daggerheart-hope-and-fear-new-classes-ranked/
+
+Daggerheart's Hope & Fear expansion brings four exciting new classes to the table, each with two subclasses to change up your TTRPG.
+---------
+
+# 10 Best Gundam Villains of All Time, Ranked
+
+Anime, mecha, Gundam
+
+Thu, 24 Sep 2026 02:15:11 GMT
+
+https://www.cbr.com/best-gundam-villains-all-time-ranked/
+
+The Gundam franchise runs off its villains, which has led to some of the most intriguing anime antagonists of all time.
+---------
+
+# This Bold Spy Thriller Proves We've Had the Perfect James Bond Replacement the Entire Time
+
+TV Features, The Day of the Jackal, James Bond, Eddie Redmayne, Peacock
+
+Thu, 24 Sep 2026 04:06:11 GMT
+
+https://collider.com/james-bond-day-of-the-jackal-spy-thriller-eddie-redmayne/
+
+Eddie Redmayne brings a classy brutality to The Day of the Jackal that feels incredibly similar to 007 himself, James Bond.
+---------
+
+# 'Primetime's Robert Pattinson Has Remade the Movie Star Formula
+
+Movie Features, Robert Pattinson, Primetime, The Odyssey, The Drama
+
+Thu, 24 Sep 2026 04:05:11 GMT
+
+https://collider.com/robert-pattinson-primetime-the-drama-odyssey-challenging-roles/
+
+Robert Pattinson is the rare star unafraid of daring roles, whether in blockbusters like The Odyssey and The Batman, or smaller films like The Drama.
+---------
+
+# Say Goodbye to the 'Chicago Fire' You Thought You Knew
+
+TV Features, Chicago Fire, NBC, Series, Streaming
+
+Thu, 24 Sep 2026 03:52:11 GMT
+
+https://collider.com/chicago-fire-season-15-cast-exits-joe-cruz-dermot-mulroney-new-showrunner/
+
+Chicago Fire Season 15 brings major cast exits, including Joe Miñoso and Dermot Mulroney, plus a new showrunner and new firefighters.
+---------
+
+# Prime Video's 93% RT 'Reacher' Spin-Off Officially Introduces Alan Ritchson's Replacement
+
+TV Features, Reacher, Neagley, Prime Video, Maria Sten
+
+Thu, 24 Sep 2026 03:15:11 GMT
+
+https://collider.com/neagley-reacher-spinoff-alan-ritchson-replacement-hudson-riley/
+
+The Reacher spin-off Neagley introduces Neagley's new partner and Reacher replacement, with some big implications.
+---------
+
+# 8 Psychological Thriller Movies Without Any Flaws
+
+Movie, Vertigo, Psychological Thriller, The Wages of Fear, Mulholland Drive
+
+Thu, 24 Sep 2026 03:03:12 GMT
+
+https://collider.com/psychological-thriller-movies-no-flaws/
+
+Vertigo, Memento, and The Silence of the Lambs are among the best psychological thriller movies that are truly flawless from beginning to end.
+---------
+
+# 7 Most Perfect Anime of the Last 15 Years, Ranked
+
+TV, Anime, Attack On Titan, Hunter x Hunter, Mob Psycho 100
+
+Thu, 24 Sep 2026 03:01:11 GMT
+
+https://collider.com/most-perfect-anime-shows-last-15-years-ranked/
+
+Mob Psycho 100, Hunter x Hunter, Steins;Gate, and Violet Evergarden are among the best anime of the last 15 years, but which series is the greatest?
+---------
+
+# Lee Child Officially Reveals the Real Reason ‘Neagley’ Became ‘Reacher’s First Spin-Off [Exclusive]
+
+Exclusives, Reacher, Neagley, Maria Sten, Lee Child
+
+Thu, 24 Sep 2026 02:00:22 GMT
+
+https://collider.com/reacher-neagley-spin-off-maria-sten-lee-child/
+
+Lee Child reveals why Maria Sten's performance as Neagley became so important to Reacher that the character earned her own Prime Video spin-off.
+---------
+
+# Michelle Yeoh’s 10/10 Rom-Com Is Officially a Streaming Sensation 8 Years Later
+
+Movie News, Crazy Rich Asians, Netflix, Jon M. Chu, Michelle Yeoh
+
+Thu, 24 Sep 2026 02:00:22 GMT
+
+https://collider.com/crazy-rich-asians-streaming-success-netflix-september-2026/
+
+One of the biggest romantic comedies of the late 2010s is finding a new audience after making its way back onto the streaming charts.
+---------
+
+# New Lord of the Rings Movie Officially Brings Frodo Back to The Shire in First Images
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Andy Serkis, Warner Bros., Elijah Wood
+
+Thu, 24 Sep 2026 01:39:23 GMT
+
+https://collider.com/the-lord-of-the-rings-the-hunt-for-gollum-images-frodo-shire/
+
+The first set images from The Lord of the Rings: The Hunt for Gollum take fans back to the magical land of The Shire. See them here!
+---------
+
+# Alan Ritchson's New Action Thriller Fails to Catch Henry Cavill's War Movie Flop at the Box Office
+
+Movie News, Henry Cavill, Runner, Alan Ritchson, The Ministry of Ungentlemanly Warfare, Box Office Milestones
+
+Thu, 24 Sep 2026 02:00:24 GMT
+
+https://movieweb.com/alan-ritchson-latest-box-office-loss-henry-cavill-september-2026/
+
+Alan Ritchson’s Runner is still trailing The Ministry of Ungentlemanly Warfare, the 2024 flop he also helped anchor.
+---------
+
 # Dutton Ranch's Yellowstone Change Saves Season 2 From Death Sentence
 
 Streaming TV, Dutton Ranch, Yellowstone
