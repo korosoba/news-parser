@@ -1,3 +1,377 @@
+# Dutton Ranch's Yellowstone Change Saves Season 2 From Death Sentence
+
+Streaming TV, Dutton Ranch, Yellowstone
+
+Thu, 24 Sep 2026 01:30:16 GMT
+
+https://screenrant.com/dutton-ranch-benjamin-cavell-save-season-2-death-sentence/
+
+Dutton Ranch is a successful Yellowstone spinoff, but after the season 1 finale, the show seemed doomed. Thankfully, it's going back to its roots.
+---------
+
+# 26 Years Later, One Peanuts Character Still Has The Strip’s Saddest Goodbye
+
+Comics, Peanuts
+
+Thu, 24 Sep 2026 01:15:15 GMT
+
+https://screenrant.com/peanuts-final-peppermint-patty-strip-saddest-goodbye/
+
+26 years later, one Peanuts character still has the strip’s saddest goodbye, making her final appearance one of the most heartbreaking.
+---------
+
+# Forget Pluribus, Disney+'s New 8-Part Series Is The Sci-Fi Event Of The Year
+
+Streaming TV, Masked Recs
+
+Thu, 24 Sep 2026 01:10:15 GMT
+
+https://screenrant.com/visionquest-disney-plus-sci-fi-event-of-the-year/
+
+Apple TV's Pluribus will soon hand over the title of Sci-Fi event of the year to another genre series, as this new Disney+ show is coming in hard.
+---------
+
+# All's Fair Season 2 Release Date Confirmed By Ryan Murphy
+
+TV, All's Fair
+
+Thu, 24 Sep 2026 01:09:10 GMT
+
+https://screenrant.com/alls-fair-season-2-release-date-ryan-murphy-confirmed/
+
+EXCLUSIVE: Ahead of American Horror Story season 13, Ryan Murphy has confirmed when the legal drama series All's Fair will be returning for season 2.
+---------
+
+# Avengers: Endgame Encore Is The Perfect Reminder Of What The MCU Has Been Missing For 7 Years
+
+Superheroes, Avengers: Endgame, Marvel Cinematic Universe
+
+Thu, 24 Sep 2026 01:00:16 GMT
+
+https://screenrant.com/avengers-endgame-encore-perfect-reminder-of-what-the-mcu-is-missing/
+
+Without a doubt, Avengers: Endgame Encore serves as the perfect reminder of what the greater MCU has definitely been without since 2019.
+---------
+
+# The Original Jake From The State Farm Commercials Explained— Who He Is & Why He Was Cast
+
+Classic TV
+
+Thu, 24 Sep 2026 01:00:16 GMT
+
+https://screenrant.com/original-jake-from-state-farm-commercials-explained/
+
+"Jake from State Farm" is one of the most iconic commercials, but here's why the original State Farm Jake Stone was replaced and where he is today.
+---------
+
+# 8 True Crime-Inspired Shows That Beat Netflix's Monster
+
+Streaming TV, Monster: The Lizzie Borden Story
+
+Thu, 24 Sep 2026 00:30:16 GMT
+
+https://screenrant.com/true-crime-inspired-shows-better-than-netflix-monster/
+
+The Monster anthology has proven to be one of Netflix's most divisive undertakings to date, but the dramatized true crime genre has plenty of gems.
+---------
+
+# Forget The Pitt, Streaming's Biggest Medical Drama Right Now Isn't On HBO Max Right Now
+
+TV, Masked Recs
+
+Thu, 24 Sep 2026 00:02:19 GMT
+
+https://screenrant.com/best-medicine-resident-alien-replacement-disney-plus-hulu-streaming-success-september-2026/
+
+Forget The Pitt, streaming's biggest medical drama right now isn't on HBO Max, but is on multiple streamers, and just started its second season.
+---------
+
+# 24 Episodes Later, Taylor Sheridan's 3-Part 'Sicario Meets Homeland' Series Is Officially A Global Streaming Hit
+
+Streaming TV, Taylor Sheridan, Lioness
+
+Thu, 24 Sep 2026 00:00:15 GMT
+
+https://screenrant.com/lioness-season-3-paramount-plus-taylor-sheridan-streaming-hit/
+
+Taylor Sheridan's Lioness is a global hit on Paramount+, and it's also a great example of why the writer is such a massive success story.
+---------
+
+# 3 Legend Of Zelda Games Most People Have Never Actually Beaten
+
+Gaming, The Legend of Zelda, Triple-A Games
+
+Thu, 24 Sep 2026 00:00:15 GMT
+
+https://screenrant.com/legend-of-zelda-games-most-people-havent-beaten/
+
+Plenty of Zelda fans claim to have beaten every game, but a much smaller number have actually played through to the end of a few off-beat titles.
+---------
+
+# Crunchyroll’s New Dark Fantasy Anime Turns Power Fantasy Against Its Hero
+
+Anime, The Vermilion Mask, Crunchyroll
+
+Thu, 24 Sep 2026 01:25:11 GMT
+
+https://www.cbr.com/crunchyroll-new-dark-fantasy-anime-vermillion-mask-preview/
+
+Crunchyroll's upcoming anime, The Vermilion Mask, deconstructs the power fantasy trope with a seinen twist.
+---------
+
+# Netflix Confirms the Fate of Ted Danson's A Man on the Inside
+
+TV, A Man on the Inside
+
+Thu, 24 Sep 2026 01:09:37 GMT
+
+https://www.cbr.com/netflix-a-man-on-the-inside-ending/
+
+The end of A Man on the Inside has been revealed.
+---------
+
+# 10 Classic Retro Games That Are Unplayable Today
+
+Games, Mario Kart, Video Games, Tomb Raider
+
+Thu, 24 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/unplayable-classic-retro-games/
+
+No matter how fondly you remember them, not every classic retro game manages to hold its own in 2026.
+---------
+
+# DC Studios Officially Delays New Batman Movie
+
+Movies, Dynamic Duo
+
+Thu, 24 Sep 2026 00:23:52 GMT
+
+https://www.cbr.com/batman-dynamic-duo-release-date-delay/
+
+The wait for the film is going to be even longer than expected.
+---------
+
+# Animal Crossing Meets Pokémon Sleep in New Cozy Steam Game
+
+Anime, Laid-Back Camp, Steam
+
+Thu, 24 Sep 2026 00:20:11 GMT
+
+https://www.cbr.com/laid-back-camp-all-in-one-relaunch-steam/
+
+Steam unveils a cozy, anime-inspired life sim reminiscent of Animal Crossing: Pocket Camp and Pokémon Sleep set to debut on the platform next month.
+---------
+
+# 5 Avatar: The Last Airbender Characters Who Need Their Own Spinoff
+
+Anime, Avatar: The Last Airbender
+
+Thu, 24 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-characters-need-their-own-spinoff/
+
+Five Avatar: The Last Airbender characters deserve spinoff series more than any others.
+---------
+
+# 20 Best Peanuts Quotes, Ranked
+
+Comics, Peanuts
+
+Thu, 24 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/best-peanuts-quotes-ranked/
+
+Charles M. Schulz's Peanuts features so many quote-worthy moments that perfectly demonstrate why the comic strip has stood the test of time.
+---------
+
+# The Prequel to the Bloodiest & Steamiest Show in TV History Is Taking Over Streaming
+
+TV, Outlander: Blood of My Blood, STARZ, Romance
+
+Thu, 24 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/outlander-blood-of-my-blood-romance-starz-success-september-2026/
+
+This historical romance is dominating the streaming charts after the Season 2 premiere.
+---------
+
+# Sense and Sensibility Is 2026's Next Movie Event
+
+Movies, Sense and Sensibility, books
+
+Thu, 24 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/jane-austen-sense-and-sensibility-2026-movie-event/
+
+The Jane Austen classic Sense and Sensibility will be given new life with a 2026 movie remake featuring a talented cast.
+---------
+
+# Gremlins 3 Gets Bad News from Warner Bros.
+
+Movies, Gremlins
+
+Wed, 23 Sep 2026 23:45:50 GMT
+
+https://www.cbr.com/gremlins-3-release-date-delay/
+
+Fans who've been waiting for a third movie for the past 36 years will be frustrated by the unfortunate update.
+---------
+
+# 'Demon Slayer: Infinity Castle 2' Release Date Officially Teased
+
+Movie News, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Demon Slayer, Anime, Fantasy
+
+Thu, 24 Sep 2026 01:30:11 GMT
+
+https://collider.com/demon-slayer-infinity-castle-2-release-date-2027/
+
+Demon Slayer: Infinity Castle Part 2 could arrive sooner than expected as a mysterious Sony and Crunchyroll release appears on the calendar.
+---------
+
+# 'Resident Evil' Changes the Franchise Formula in One Major Way
+
+Movie Features, Zach Cregger, Austin Abrams, Resident Evil
+
+Thu, 24 Sep 2026 01:03:11 GMT
+
+https://collider.com/resident-evil-ending-franchise-change/
+
+Zach Creggers' Resident Evil does a great job refreshing the franchise's formula, but one major change at the end is frustrating for viewers.
+---------
+
+# Syfy’s Cult Classic Western Officially Says Goodbye to Free Streaming
+
+TV News, Wynonna Earp, Battlestar Galactica, SyFy, Tubi
+
+Thu, 24 Sep 2026 01:00:11 GMT
+
+https://collider.com/wynonna-earp-leaving-free-streaming-tubi/
+
+Wynonna Earp, Syfy's biggest cult hit since Battlestar Galactica, is leaving free streaming soon. Find out more details here.
+---------
+
+# ‘Coyote vs. Acme’ Has Officially Overtaken 5 of Warner Bros.’s 2026 Releases
+
+Movie News, Coyote Vs. Acme, Warner Bros. Animation, Looney Tunes, Supergirl
+
+Thu, 24 Sep 2026 00:45:11 GMT
+
+https://collider.com/coyote-vs-acme-box-office-80-million/
+
+Coyote vs. ACME continues to climb at the box office, reaching another major milestone weeks after the once-shelved Looney Tunes movie hit theaters.
+---------
+
+# The 8 Most Fun Thriller Movies of All Time, Ranked
+
+Movie, Gone Girl, Wild Things, Memento, Run Lola Run
+
+Thu, 24 Sep 2026 00:31:11 GMT
+
+https://collider.com/most-fun-thriller-movies-all-time-ranked/
+
+Pulpy, highly entertaining crime movies like Gone Girl, Wild Things, and The Usual Suspects are among the most purely fun thriller movies ever made.
+---------
+
+# 'Dune' Franchise Officially Debuts Major New Sci-Fi Project Before 'Part 3'
+
+Gaming News, Dune, Gaming, Games, Video Game
+
+Thu, 24 Sep 2026 00:30:11 GMT
+
+https://collider.com/dune-awakening-console-release-single-player-mode/
+
+Ahead of Dune: Part 3, the franchise is expanding with a massive new release. Find out all the details here.
+---------
+
+# DC's New Batman Spin-Off Officially Hit With Major Delay
+
+Movie News, Dynamic Duo, Batman, DC Comics, Animation
+
+Thu, 24 Sep 2026 00:25:48 GMT
+
+https://collider.com/batman-spin-off-dynamic-duo-delayed-september-2028/
+
+DC's ambitious new Batman spin-off, Dynamic Duo, has been officially delayed to late 2028. Read on for all the details so far.
+---------
+
+# The 10 Most Perfect Neo-Noir Movies, Ranked
+
+Movie, Film Noir, L.A. Confidential, Chinatown, Body Heat
+
+Thu, 24 Sep 2026 00:17:11 GMT
+
+https://collider.com/most-perfect-neo-noir-movies-ranked/
+
+L.A. Confidential, Chinatown, and Point Black are among the very best, most perfect neo-noir thriller movies ever made.
+---------
+
+# Jon Hamm’s 90% Rotten Tomatoes Crime Thriller Is Officially Streaming’s No. 2 Show
+
+TV News, American Hostage, Jon Hamm, Giovanni Ribisi, MGM
+
+Thu, 24 Sep 2026 00:15:12 GMT
+
+https://collider.com/jon-hamm-american-hostage-streaming-success-mgm-plus-september-2026/
+
+Jon Hamm's critically acclaimed new crime thriller is officially dominating the competition in its streaming debut.
+---------
+
+# ‘Reacher’ Season 5 Will Officially Be the Prime Video Series' Most “Disgusting” R-Rated Chapter Yet [Exclusive]
+
+Exclusives, Reacher, Jack Reacher, Lee Child
+
+Thu, 24 Sep 2026 00:00:12 GMT
+
+https://collider.com/reacher-season-5-make-me-lee-child-dark-story/
+
+Lee Child teases Reacher Season 5 and explains why adapting the disturbing Jack Reacher novel Make Me could be a major challenge for Prime Video.
+---------
+
+# New 96-Minute 'Heat' Meets 'Hurt Locker' Action Thriller Is Officially a Streaming Smash Hit
+
+Movie News, Fuze, Hot on Streaming, Action, Thriller
+
+Thu, 24 Sep 2026 01:00:15 GMT
+
+https://movieweb.com/heat-fuze-hbo-max-action-thriller-streaming-hit-september-2026/
+
+The film holds a Certified Fresh label on Rotten Tomatoes.
+---------
+
+# DC Studios Officially Delays Long-Awaited 2028 Batman & Robin Movie
+
+Movie News, Dynamic Duo, Superhero
+
+Wed, 23 Sep 2026 23:42:17 GMT
+
+https://movieweb.com/dynamic-duo-dc-studios-delay/
+
+Batman and Robin will now take even longer to make their return to the big screen as part of James Gunn's DC Universe.
+---------
+
+# Disney+ Officially Makes Another Major Change To Subscription Plans
+
+TV News, Disney+, Hulu
+
+Wed, 23 Sep 2026 23:37:47 GMT
+
+https://movieweb.com/disney-subscription-price-raise/
+
+Disney is officially raising the subcription prices for its most popular platforms: Disney+ and Hulu.
+---------
+
+# 48 Years Later, One of the Greatest Detective Movies Ever Made Gets New Release
+
+Movie News, Death On The Nile, Agatha Christie, Mystery, Blu-ray
+
+Wed, 23 Sep 2026 23:30:14 GMT
+
+https://movieweb.com/death-on-the-nile-4k-blu-ray-release/
+
+Kino Lorber is officially releasing John Guillermin]s star-studded 1978 adaptation of Agatha Christie's 'Death on the Nile' on 4K Ultra HD Blu-ray.
+---------
+
 # ARC Raiders Returns October 8 With Its Biggest Update Ever
 
 Gaming, ARC Raiders, Live Service Games, PC
