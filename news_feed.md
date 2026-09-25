@@ -1,3 +1,443 @@
+# MobLand Season 2 Just Hit A Series-High Milestone For Tom Hardy’s Harry
+
+Streaming TV, MobLand
+
+Fri, 25 Sep 2026 18:37:16 GMT
+
+https://screenrant.com/mobland-season-2-series-milestone-tom-hardy-character-change/
+
+MobLand season 2, episode 2, released on Friday, September 25, 2026, just hit a series-high milestone for Tom Hardy's protagonist, Harry Da Souza.
+---------
+
+# It’s Officially The Start Of A New Era For A Minecraft Movie
+
+Movies, A Minecraft Movie, Netflix
+
+Fri, 25 Sep 2026 18:37:01 GMT
+
+https://screenrant.com/a-minecraft-movie-start-era-netflix-streaming-success-september-2026/
+
+A Minecraft Movie, which brought the iconic video game to the big screen, is officially entering a new era a year after the film's theatrical run.
+---------
+
+# Recasting Battlestar Galactica For 2026: All 10 Main Characters
+
+Classic TV, Battlestar Galactica
+
+Fri, 25 Sep 2026 18:30:17 GMT
+
+https://screenrant.com/battlestar-galactica-recast-2026/
+
+Battlestar Galactica became a sci-fi icon for its excellent casting and acting, but if the series was made now, the show could look very different.
+---------
+
+# New Naruto And Sasuke Fight Drops In Action-Packed Trailer That Is Pure Hype
+
+Anime, Naruto
+
+Fri, 25 Sep 2026 18:23:43 GMT
+
+https://screenrant.com/naruto-sasuke-fight-mobile-action-packed/
+
+Naruto and Sasuke's most breathtaking battle arrives long after the original series and Shippuden concluded, with some of the best animation to date.
+---------
+
+# Jack Ryan & Lioness Star Is Officially A Taylor Sheridan Favorite
+
+Streaming TV, Taylor Sheridan, Michael Kelly, Lioness, Landman
+
+Fri, 25 Sep 2026 18:15:15 GMT
+
+https://screenrant.com/michael-kelly-landman-taylor-sheridan-actor/
+
+A new actor has joined the growing list of Taylor Sheridan's frequent collaborators, going from Lioness and Jack Ryan to Landman season 3.
+---------
+
+# What's Coming To Disney+ & Hulu In October 2026: Full List Of TV Shows & Movies
+
+Streaming TV, Hulu, Disney+
+
+Fri, 25 Sep 2026 18:03:55 GMT
+
+https://screenrant.com/everything-coming-to-disney-plus-hulu-october-2026/
+
+There is so much to look forward to on Disney+ and Hulu this October, including premieres of brand-new shows and returns of fan favorites.
+---------
+
+# 7 Space Operas That Rival Star Wars
+
+Books, Star Wars
+
+Fri, 25 Sep 2026 18:00:16 GMT
+
+https://screenrant.com/star-wars-space-opera-rivals/
+
+Star Wars is undeniably the most famous space opera of all time. But if you like starfighters, Empires, and more, these books are must-reads.
+---------
+
+# Matthew Rhys' 10 Best Movie & TV Performances
+
+Classic TV
+
+Fri, 25 Sep 2026 18:00:16 GMT
+
+https://screenrant.com/matthew-rhys-10-best-movie-tv-performances/
+
+Matthew Rhys was an award-winning actor years before his big night at the 2026 Emmy Awards. These are his best movie and TV performances, ranked.
+---------
+
+# 10 Most Valuable Disney Lorcana Cards Of All Time
+
+Gaming, Disney Lorcana
+
+Fri, 25 Sep 2026 18:00:16 GMT
+
+https://screenrant.com/disney-lorcana-cards-most-valuable-all-time/
+
+Discover the highest valued Disney Lorcana cards and their record sales over the years and see if you have any of these impressive cards!
+---------
+
+# Prime Video’s New 7-Part Fantasy Epic Can't Be Stopped In Streaming Climb
+
+TV, Masked Recs
+
+Fri, 25 Sep 2026 17:50:11 GMT
+
+https://screenrant.com/the-pendragon-cycle-tv-show-prime-video-streaming-success-september-2026/
+
+Prime Video's epic fantasy pick-up continues to perform, moving ever closer to some of the biggest shows like Reacher on one crucial chart.
+---------
+
+# PlayStation Considers Walking Back End of Physical Games in Reported Survey
+
+Games, PlayStation 5
+
+Fri, 25 Sep 2026 18:46:06 GMT
+
+https://www.cbr.com/playstation-physical-games-production-ending-survey/
+
+PlayStation's intent to stop production of physical games may be reconsidered, according to a reported survey asking developers' opinions.
+---------
+
+# 10 Best Open-World Survival Games of All Time, Ranked
+
+Games, open world, No Man's Sky
+
+Fri, 25 Sep 2026 18:45:11 GMT
+
+https://www.cbr.com/best-open-world-survival-games-of-all-time-ranked-list/
+
+Open-world games like Valheim and No Man's Sky have incredible survival mechanics that will get players hooked.
+---------
+
+# Digger: Riz Ahmed Reveals Tom Cruise’s Set Energy
+
+Movies, Digger
+
+Fri, 25 Sep 2026 18:30:11 GMT
+
+https://www.cbr.com/video/digger-riz-ahmed-reveals-tom-cruise-s-set-energy/
+
+Digger put Tom Cruise, Sandra Hüller and Riz Ahmed through some major transformations. Ahmed and Hüller reveal what filming the 2026 movie actually felt like once the costumes, makeup and elaborate sets brought its strange world to life.
+---------
+
+# The Russo Brothers Confirm The Version of Thor Marvel Fans Will See in Avengers: Doomsday
+
+CBR Exclusives, Avengers: Doomsday
+
+Fri, 25 Sep 2026 18:22:16 GMT
+
+https://www.cbr.com/joe-russo-anthony-russo-thor-avengers-doomsday/
+
+The Russo Brothers open up about exactly what fans can expect from Chris Hemsworth's Thor in Avengers: Doomsday later this year.
+---------
+
+# 10 Modern Anime Every New Fan Needs to Watch At Least Once
+
+Anime, The Apothecary Diaries
+
+Fri, 25 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/must-watch-modern-anime-for-new-fans/
+
+Between The Apothecary Diaries court intrigue and Dandadan's zany paranormal premise, new anime fans have some great series to get started with.
+---------
+
+# After Historic Name Change, South Park's Season 29 Is Logging Massive Viewership Numbers
+
+TV, South Park
+
+Fri, 25 Sep 2026 18:10:10 GMT
+
+https://www.cbr.com/south-park-season-29-premiere-viewership-numbers/
+
+South Park has became South America and it's still breaking records.
+---------
+
+# Far Cry Returns Ahead of Ubisoft Confirming Far Cry 7's Development
+
+Comics, Far Cry
+
+Fri, 25 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/far-cry-cull-the-herd-8-release-information-confirmed/
+
+Although Far Cry 7 has not received a release date yet, fans can enjoy a new installment in the Far Cry series while they wait.
+---------
+
+# Avengers: Endgame Director Clear Up Longstanding Rumor About Thor And The Guardians of the Galaxy
+
+CBR Exclusives, Avengers: Endgame
+
+Fri, 25 Sep 2026 17:59:13 GMT
+
+https://www.cbr.com/joe-russo-anthony-russo-thor-guardians-of-the-galaxy/
+
+Marvel fans may not want to hear the truth about such a beloved duo.
+---------
+
+# HBO Max & Paramount+ Phasing Out Old Streaming Structure With 240M Subscribers
+
+TV, HBO Max, Paramount Plus
+
+Fri, 25 Sep 2026 17:33:56 GMT
+
+https://www.cbr.com/hbo-max-paramount-streaming-hierarchy/
+
+With the mega-merger still encountering setbacks, the two joined streaming platforms will thrive.
+---------
+
+# Stardew Valley 1.7 Teaser Causes Frenzy of New Fan Theories
+
+Games, Stardew Valley
+
+Fri, 25 Sep 2026 17:24:34 GMT
+
+https://www.cbr.com/stardew-valley-1-7-update-teaser-theories/
+
+Official information on Stardew Valley's 1.7 update remains scarce, and some cryptic clues from ConcernedApe have started a wave of theories.
+---------
+
+# Sam Raimi's "Groovy" Horror Sequel Officially Scares HBO Max This October
+
+Movie News, Evil Dead Burn, The Evil Dead, Sam Raimi, Horror
+
+Fri, 25 Sep 2026 18:42:08 GMT
+
+https://collider.com/sam-raimi-evil-dead-burn-streaming-hbo-max-october-2026/
+
+Sam Raimi's Evil Dead Burn will officially be bringing its fiery thrills and scares to HBO Max just in time for Halloween. Read on for more.
+---------
+
+# 10 S-Tier Thriller Movies From the Last 5 Years
+
+Movie, Thriller, Weapons, Black Bag, Conclave
+
+Fri, 25 Sep 2026 18:29:12 GMT
+
+https://collider.com/s-tier-thriller-movies-last-5-years/
+
+From Conclave and Anatomy of a Fall to The Menu, these recent thrillers deliver tension, twists, and unforgettable endings.
+---------
+
+# 'Fallout' Star Officially Boards Horror Icon's Newest Nightmare
+
+Movie News, Ari Aster, Ella Purnell, Caleb Landry Jones, Scarlett Johansson
+
+Fri, 25 Sep 2026 18:26:21 GMT
+
+https://collider.com/fallout-star-ella-purnell-cast-ari-aster-scapegoat/
+
+Fallout favorite Ella Purnell has officially joined horror icon Ari Aster's newest movie alongside Scarlett Johansson and Jacob Elordi.
+---------
+
+# The Best Sci-Fi Movie of 2026 Officially Passes 6 Months in Global Streaming’s Top 10
+
+Movie News, Project Hail Mary, Sci-Fi, Prime Video, Ryan Gosling
+
+Fri, 25 Sep 2026 18:20:11 GMT
+
+https://collider.com/project-hail-mary-streaming-top-10-six-month-milestone/
+
+Ryan Gosling's 95%-rated Project Hail Mary has officially crossed a massive streaming milestone.
+---------
+
+# Taylor Sheridan's 'Landman' Officially Returns After Months of Delays
+
+TV News, Landman, Taylor Sheridan, Paramount Plus
+
+Fri, 25 Sep 2026 18:00:11 GMT
+
+https://collider.com/landman-season-3-filming-production-update-taylor-sheridan/
+
+Landman Season 3 has started filming, with James Jordan confirming he is back at work on Taylor Sheridan's Paramount+ hit.
+---------
+
+# Robert Pattinson Officially Delivers His Best Performance in 'Primetime' | Review
+
+Movie Reviews, Primetime, Robert Pattinson, Merritt Wever, Skyler Gisondo
+
+Fri, 25 Sep 2026 17:47:51 GMT
+
+https://collider.com/primetime-movie-review-robert-pattinson/
+
+Robert Pattinson delivers one of his best performances as Chris Hansen in the new Primetime, which examines '00s TV phenomenon To Catch a Predator.
+---------
+
+# 'Avengers: Endgame’ Just Officially Killed Another Marvel Universe Once and For All
+
+Movie News, Avengers: Endgame, Avengers: Doomsday, Avengers: Infinity War, Avengers: Secret Wars
+
+Fri, 25 Sep 2026 17:41:12 GMT
+
+https://collider.com/avengers-doomsday-x-men-deadpool-universe-incursion-earth-10005/
+
+New Marvel footage shows Deadpool and the Fox X-Men universe facing a deadly incursion ahead of Avengers: Doomsday.
+---------
+
+# This ‘NCIS’ Episode Broke the Franchise’s Most Frustrating 6-Year Trend
+
+TV Features, NCIS, Cote de Pablo, Michael Weatherly, CBS
+
+Fri, 25 Sep 2026 17:28:11 GMT
+
+https://collider.com/ncis-ziva-david-season-16-return-six-year-trend/
+
+Ziva David’s Season 16 return finally ended NCIS’ six-year mystery surrounding her fate — but her reunion with Tony stayed offscreen.
+---------
+
+# ‘Greyhound’ Meets ‘Jaws’ in the 97-Minute Sleeper Hit Taking Over the World
+
+Movie News, Beast of War, HBO Max, Greyhound, Jaws
+
+Fri, 25 Sep 2026 17:20:11 GMT
+
+https://collider.com/beast-of-war-streaming-success-hbo-max-september-2026/
+
+Greyhound meets Jaws in the WWII action thriller taking over the world on HBO Max. Find out more information about the film here.
+---------
+
+# 'Yellowstone' Officially Meets 'John Wick' in First Trailer for Brandon Sklenar's New Western Thriller
+
+Movie News, Brandon Sklenar, The Rescue, Yellowstone, Western
+
+Fri, 25 Sep 2026 17:03:49 GMT
+
+https://collider.com/brandon-sklenar-the-rescue-trailer/
+
+Yellowstone franchise star Brandon Sklenar is out for revenge in the first trailer for Paramount's The Rescue. See it here!
+---------
+
+# 'NAZA' Officially Declared "One of the Most Important Films of Our Time" in First Trailer
+
+Movie News, Documentary
+
+Fri, 25 Sep 2026 18:09:59 GMT
+
+https://movieweb.com/naza-documentary-official-trailer/
+
+The new documentary is a sobering exposé of the Gaza conflict.
+---------
+
+# 'Star Trek: Strange New Worlds' Season 5: Everything We Know
+
+TV Shows, star trek: strange new worlds, Star Trek, Sci-Fi
+
+Fri, 25 Sep 2026 18:00:15 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-season-5-everything-we-know/
+
+Paramount+'s 'Original Series' prequel isn't over yet, with one more season still on the horizon. Read on for more.
+---------
+
+# 'Unabomber's 10 Biggest True Story Changes, Explained by the Cast & Director
+
+Movie Lists, Netflix, Unabomber, Drama, Crime
+
+Fri, 25 Sep 2026 17:30:14 GMT
+
+https://movieweb.com/unabomber-true-story-changes/
+
+From composite characters to altered timelines, the cast and director explain 'Unabomber's' biggest true story changes.
+---------
+
+# Gerard Butler's 140-Minute "Sicario Meets Heat" Action Thriller Is Blowing Up on New Streaming Home
+
+Movie News, Den of Thieves, Hot on Streaming, Action, Gerard Butler
+
+Fri, 25 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/den-of-thieves-gerard-butler-stream-vudu-september-2026/
+
+It's a cat-and-mouse game with deadly consequences.
+---------
+
+# 10 Fantasy Books That Get Better With Every Chapter (1 Is Perfectly Written)
+
+TV Lists, Fantasy
+
+Fri, 25 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/fantasy-books-better-every-chapter/
+
+These fantasy book series improve as they continue, and readers of this popular genre won't want to miss the epic world-building.
+---------
+
+# Paramount+ Making Major Changes Ahead of HBO Max Merger
+
+Movie News, Paramount Plus, HBO Max, Streaming, David Ellison
+
+Fri, 25 Sep 2026 16:51:00 GMT
+
+https://movieweb.com/paramount-changes-hbo-max-merger/
+
+Paramount+ finds itself in a streaming war amidst Warner Bros. merger.
+---------
+
+# DC Studios Just Delivered One of the Most Creative Popcorn Buckets in Years
+
+Movie News, Clayface, Horror, Superhero
+
+Fri, 25 Sep 2026 16:29:37 GMT
+
+https://movieweb.com/clayface-popcorn-bucket-leak/
+
+A new leaked image teased what could be one of the best popcorn buckets in a while for DC Studios' new movie, 'Clayface.'
+---------
+
+# Disney's Iconic 62-Year-Old Fantasy Franchise Officially Getting TV Reboot
+
+TV News, Mary Poppins, Fantasy, Disney
+
+Fri, 25 Sep 2026 16:29:28 GMT
+
+https://movieweb.com/mary-poppins-tv-show-books/
+
+The new show will go back to the original books for a darker, more dangerous tone.
+---------
+
+# Netflix Is Officially Bringing Back a 57-Year-Old Beloved Family Favorite in New Movie
+
+Movie News, Sesame Street Movie, Sesame Street, Netflix, Family
+
+Fri, 25 Sep 2026 16:10:35 GMT
+
+https://movieweb.com/sesame-street-movie-netflix/
+
+The treasured classic 'Sesame Street' returns for a new generation on Netflix.
+---------
+
+# 'Stuart Fails to Save the Universe' Teases First Look at Season 2
+
+Features, Stuart Fails to Save the Universe, Big Bang Theory, Kevin Sussman, John Ross Bowie, Comedy, Sci-Fi
+
+Fri, 25 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/tbbt-stuart-spinoff-season-2-first-look-tease/
+
+'Stuart Fails to Save the Universe's Season 1 finale features several hints about what we might see in Season 2 of 'The Big Bang Theory' spin-off.
+---------
+
 # DC's Batman Replacement Officially Starts Their Story
 
 DC Comics, Batman
