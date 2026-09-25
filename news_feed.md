@@ -1,3 +1,443 @@
+# After 14 Years, Solo Leveling's Home Is Officially Shutting Down In 2026
+
+Anime, Solo Leveling
+
+Fri, 25 Sep 2026 21:38:15 GMT
+
+https://screenrant.com/solo-leveling-tapas-shutdown-2026/
+
+While fans await the return of Solo Leveling's sequel from hiatus, some uncertainty has emerged with the shut down of its biggest reading hub.
+---------
+
+# Marvel Announces Return of Its Most Powerful Mutant, Who Has Never Joined The X-Men
+
+Marvel Comics, Marvel, X-Men
+
+Fri, 25 Sep 2026 21:30:18 GMT
+
+https://screenrant.com/thor-santa-claus-mutant-xmen/
+
+Marvel's most powerful mutant is back in action this winter.
+---------
+
+# 3 Best New Apple TV Series To Watch This Weekend (September 25–27, 2026)
+
+Streaming TV, Apple TV, What to Watch on Apple TV+
+
+Fri, 25 Sep 2026 21:04:16 GMT
+
+https://screenrant.com/best-new-apple-tv-shows-to-watch-weekend-september-25-2026/
+
+The best must-watch new Apple TV series to watch this weekend, September 25–27, 2026, are Ted Lasso season 4, Brothers, and Slow Horses season 6.
+---------
+
+# Yellowstone Is Officially Replacing The Duttons
+
+Streaming TV, Dutton Ranch, Yellowstone
+
+Fri, 25 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/dutton-ranch-season-2-replacing-duttons-protagonist/
+
+Seven years after it began, Taylor Sheridan and Yellowstone are moving away from the Dutton family in favor of a new protagonist in Dutton Ranch.
+---------
+
+# Prime Video’s New 8-Part Mystery Series Hits Key Streaming Milestone Ahead Of Confirmed Return
+
+TV, Masked Recs
+
+Fri, 25 Sep 2026 20:49:15 GMT
+
+https://screenrant.com/prime-video-sterling-point-mystery-series-streaming-milestone-september-2026/
+
+Prime Video's new mystery series is so good that not only is it confirmed to be back for season 2, but it just hit a key streaming milestone.
+---------
+
+# Tom Holland’s Biopic Adds Margaret Qualley & Sabrina Carpenter In Major Roles
+
+Movies, Fred Astaire, Tom Holland
+
+Fri, 25 Sep 2026 20:47:48 GMT
+
+https://screenrant.com/tom-holland-fred-astaire-biopic-adds-margaret-qualley-sabrina-carpenter/
+
+Tom Holland's upcoming untitled biopic has officially cast entertainment industry icons, Sabrina Carpenter and Margaret Qualley, in lead roles.
+---------
+
+# How Dr. Cox's New Scrubs Role Changes The Season 2 Dynamic
+
+TV, Scrubs
+
+Fri, 25 Sep 2026 20:46:06 GMT
+
+https://screenrant.com/scrubs-season-2-doctor-cox-new-role-dynamic-change-explained/
+
+Exclusive: John C. McGinley continues to recur as Dr. Cox in Scrubs season 2, and two of the series regulars opened up about his new role.
+---------
+
+# Tom Cruise Peaked At The Box Office 16 Years Before Top Gun: Maverick
+
+Classic Movies, Tom Cruise
+
+Fri, 25 Sep 2026 20:45:16 GMT
+
+https://screenrant.com/tom-cruise-box-office-peak/
+
+Top Gun: Maverick broke records for Tom Cruise, but his peak at the box office happened years before with the actor's most successful run.
+---------
+
+# The Greatest Horror Movie Of All Time Returns With New Release
+
+Movies, Masked Recs
+
+Fri, 25 Sep 2026 20:39:42 GMT
+
+https://screenrant.com/silence-of-the-lambs-movie-4k-blu-ray-release/
+
+As Halloween quickly approaches, one of the best horror movies ever is getting a new release to celebrate a major milestone that occurred this year.
+---------
+
+# This 7-Time Emmy-Winning Fantasy Series Deserves Its Long-Awaited Revival
+
+Classic TV, Masked Recs
+
+Fri, 25 Sep 2026 20:30:16 GMT
+
+https://screenrant.com/pushing-daisies-fantasy-series-deserves-revival/
+
+This two-season, seven-time Emmy-winning series is a surprisingly unique fantasy gem, and there's no better time to revive the show than now.
+---------
+
+# 10 Rarest PS1 Games (& How Much They're Worth In 2026)
+
+Games, PlayStation (Original), Sony
+
+Fri, 25 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/rare-ps1-games-ranked-prices/
+
+According to PriceCharting, PS1 games like Silent Hill and Klonoa are fairly hard to come by.
+---------
+
+# 4 Hunter x Hunter Arcs That Are 10/10, No Notes
+
+Anime, Hunter x Hunter
+
+Fri, 25 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/hunter-x-hunter-arcs-perfect-no-notes/
+
+These Hunter x Hunter arcs prove why the series is regarded as one of anime's greatest adventure stories.
+---------
+
+# X-Men '97 Meets An Underrated '90s X-Men Animated Series In One Nostaglic Story
+
+Comics, Marvel, Marvel Comics, MCU, X-Men, X-Men '97, X-Men (1992)
+
+Fri, 25 Sep 2026 21:05:02 GMT
+
+https://www.cbr.com/x-men-97-meets-90s-x-men-animated-series-in-nostaglic-story/
+
+This is the X-Men war that Marvel fans have been absolutely craving.
+---------
+
+# Johnny Depp's Forgotten Jack the Ripper Crime Movie Returns as a Free Streaming Smash Hit
+
+Movies, From Hell, johnny depp, Tubi
+
+Fri, 25 Sep 2026 21:00:12 GMT
+
+https://www.cbr.com/johnny-depp-from-hell-free-streaming-hit-tubi/
+
+Ahead of his Hollywood comeback, Johnny Depp's historical slasher about Jack the Ripper is finding tremendous success on a free streaming service.
+---------
+
+# 10 90s Movie Masterpieces Better Than The Mummy
+
+Movies, The Mummy
+
+Fri, 25 Sep 2026 21:00:12 GMT
+
+https://www.cbr.com/best-90s-movie-better-than-the-mummy-list/
+
+Some '90s movies are simply impossible to leave behind, staying in regular rotation for fans more than 25 years after they first hit theaters.
+---------
+
+# Perfect 5-Season Crime Series Officially Crowned the Best TV Show of the 21st Century
+
+TV, Breaking Bad
+
+Fri, 25 Sep 2026 20:59:13 GMT
+
+https://www.cbr.com/breaking-bad-named-best-tv-show-21st-century/
+
+The crime series has officially defeated The Wire for the best show of this century.
+---------
+
+# S.W.A.T. Exiles Abandons Shemar Moore's Hondo Formula After 8 Seasons
+
+TV, S.W.A.T. Exiles, S.W.A.T., Starz
+
+Fri, 25 Sep 2026 20:54:38 GMT
+
+https://www.cbr.com/swat-exiles-new-shemar-moore-formula/
+
+Shemar Moore opens up about how different Hondo is in the new S.W.A.T. spinoff, both personally and professionally.
+---------
+
+# S.W.A.T. Exiles Leaves Behind S.W.A.T.’s Biggest CBS-Era Strategy
+
+TV, S.W.A.T. Exiles, S.W.A.T., Action
+
+Fri, 25 Sep 2026 20:50:37 GMT
+
+https://www.cbr.com/shemar-moore-swat-exiles-spnoff-episodes/
+
+The new S.W.A.T. spinoff is changing how the series works.
+---------
+
+# 30 Best Manwha Of All Time, Ranked
+
+Anime, manhwa
+
+Fri, 25 Sep 2026 20:45:11 GMT
+
+https://www.cbr.com/top-manhwa-recommendations-ranked/
+
+Spanning multiple genres, titles like Wind Breaker, Who Made Me a Princess, and Omniscient Reader stand among the greatest manwha ever made.
+---------
+
+# Fallout 5 Gets Official Update From Bethesda
+
+Games, Fallout
+
+Fri, 25 Sep 2026 20:40:11 GMT
+
+https://www.cbr.com/fallout-5-official-release-update-bethesda/
+
+RPG fans who've been waiting for news on Fallout 5 can officially thank Bethesda for a new update on the long-awaited open-world game.
+---------
+
+# ‘The Witcher’ Officially Recasts Geralt With a ‘Vikings’ Star for New Release
+
+Books and Comics News, The Witcher, Fantasy, Audible, Books
+
+Fri, 25 Sep 2026 21:49:48 GMT
+
+https://collider.com/the-witcher-full-cast-audiobook-cast-sam-stafford-richard-armitage/
+
+The Witcher is officially following in Harry Potter’s footsteps with a full-cast audiobook, featuring stars from Vikings and The Lord of the Rings.
+---------
+
+# 3 Major Movies Taking Over Prime Video This Weekend (Sep 26-27)
+
+Movie, Once Upon a Time in Hollywood, The Love Hypothesis, Prime Video, The Fire Inside
+
+Fri, 25 Sep 2026 21:48:11 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-september-26-2026/
+
+The Love Hypothesis, The Fire Inside, and Once Upon a Time in Hollywood make up our list of best movies on Prime Video the weekend of September 26.
+---------
+
+# 10 Thriller Books That I Knew Would Be Masterpieces From the First 10 Pages
+
+Books and Comics, Books, Thriller, Gone Girl, Reacher
+
+Fri, 25 Sep 2026 21:35:11 GMT
+
+https://collider.com/thriller-books-masterpieces-first-10-pages/
+
+From Lee Child's Killing Floor to Gillian Flynn's Gone Girl, these thriller books feature perfect openings that grab your attention and never let go.
+---------
+
+# ‘Star Trek’s Best Episode Deserves to Be Called a Masterpiece 37 Years Later
+
+TV Features, Star Trek, Star Trek: The Next Generation, Sci-Fi, Patrick Stewart
+
+Fri, 25 Sep 2026 21:24:12 GMT
+
+https://collider.com/best-star-trek-next-generation-episode-measure-of-a-man/
+
+Star Trek: The Next Generation’s “The Measure of a Man” made the case for Data’s humanity and became one of the franchise’s greatest episodes.
+---------
+
+# Horror’s Favorite Killer Is Officially Ready for Primetime on HBO Max
+
+Movie News, A Nightmare on Elm Street, Nightmare On Elm Street, Horror
+
+Fri, 25 Sep 2026 21:17:11 GMT
+
+https://collider.com/nightmare-on-elm-street-franchise-streaming-hbo-max-october-2026/
+
+The first five A Nightmare on Elm Street movies and the 2010 remake are officially coming to streaming this October. Read on for more details.
+---------
+
+# Netflix Is Officially Getting Taylor Sheridan’s Most Ambitious Gritty Crime Series
+
+TV Features, Mayor of Kingstown, Taylor Sheridan, Netflix, Jeremy Renner
+
+Fri, 25 Sep 2026 21:11:11 GMT
+
+https://collider.com/netflix-taylor-sheridan-best-crime-series-streaming-october-2026/
+
+Taylor Sheridan's best show, Mayor of Kingstown, gets a chance to reach a much larger audience when it drops on Netflix on October 5.
+---------
+
+# 10 Perfect Books You'll Want to Re-Read Immediately
+
+Books and Comics, Books, Thriller, Gillian Flynn, Chuck Palahniuk
+
+Fri, 25 Sep 2026 21:05:11 GMT
+
+https://collider.com/perfect-books-youll-want-to-re-read-immediately/
+
+Books like The Sound and the Fury by William Faulkner and Fight Club by Chuck Palahniuk are so perfect you'll want to re-read them immediately.
+---------
+
+# Tom Holland's Fred Astaire Biopic Officially Finds the Perfect Ginger Rogers
+
+Movie News, Fred Astaire, Tom Holland, Sabrina Carpenter, Margaret Qualley
+
+Fri, 25 Sep 2026 20:58:49 GMT
+
+https://collider.com/tom-holland-fred-astaire-biopic-cast-margaret-qualley-sabrina-carpenter/
+
+Tom Holland's Fred Astaire biopic has officially found the perfect Ginger Rogers, with Sabrina Carpenter joining the cast.
+---------
+
+# Freddy and Jason Officially Prepare for a Horror Rematch This October
+
+Movie News, Freddy vs. Jason, Friday The 13th, HBO Max, Horror
+
+Fri, 25 Sep 2026 20:55:24 GMT
+
+https://collider.com/freddy-vs-jason-streaming-hbo-max-october-2026/
+
+A legendary horror crossover is officially coming to HBO Max just in time for spooky season. Read on for more details.
+---------
+
+# The 10 Most Controversial TV Finales of All Time, Ranked
+
+TV, Game Of Thrones, Seinfeld, The Sopranos, Stranger Things
+
+Fri, 25 Sep 2026 20:50:11 GMT
+
+https://collider.com/most-controversial-tv-finales-all-time-ranked/
+
+The finales for shows like Game of Thrones, Stranger Things, and How I Met Your Mother all rank among the most controversial in television history.
+---------
+
+# Jamie Foxx's New 'Die Hard'-Esque Action Thriller Officially Recruits 'John Wick' Villain
+
+Movie News, Marko Zaror, Action, Jamie Foxx, Thriller
+
+Fri, 25 Sep 2026 21:28:30 GMT
+
+https://movieweb.com/deadlocked-thriller-marko-zaror/
+
+The 'Deadlocked' courtroom is about to get even more dangerous.
+---------
+
+# Jon Bernthal's Billion Dollar Action Epic Is Getting a Jaw-Dropping New Release
+
+Movie News, The Odyssey, Jon Bernthal, Action, Fantasy, Blu-ray
+
+Fri, 25 Sep 2026 21:00:15 GMT
+
+https://movieweb.com/the-odyssey-4k-blu-ray-release/
+
+Christopher Nolan's mythic action epic, 'The Odyssey,' is getting a new premium 4K Blu-ray release – but it carries a premium price tag.
+---------
+
+# The Greatest Legal Thriller Series of the 2020s Is a Remake of a 9-Season Masterpiece
+
+Features, Thriller, Matlock
+
+Fri, 25 Sep 2026 21:00:15 GMT
+
+https://movieweb.com/matlock-legal-thriller-remake/
+
+A stand-out legal thriller TV series is a remake of a classic and iconic show that aired for nine seasons.
+---------
+
+# CBS's 8-Season Action Thriller Return Wins Over Critics 1 Year After Cancellation
+
+TV News, S.W.A.T. Exiles, S.W.A.T., Action, Thriller
+
+Fri, 25 Sep 2026 20:51:47 GMT
+
+https://movieweb.com/swat-exiles-critic-reviews/
+
+The gritty sequel spin-off got glowing critical reception out of the gate.
+---------
+
+# 'South Park' Officially Dominates Streaming After Historic Name Change
+
+TV News, South Park, Comedy, Trey Parker, Matt Stone
+
+Fri, 25 Sep 2026 20:27:39 GMT
+
+https://movieweb.com/south-park-season-29-viewership-streaming/
+
+'South Park' dominates streaming and television after its Season 29 premiere.
+---------
+
+# 8 Great Martial Arts Movies That Get More Intense With Every Fight
+
+Movie Lists, Action
+
+Fri, 25 Sep 2026 20:00:15 GMT
+
+https://movieweb.com/martial-arts-movies-intense-fights/
+
+These martial arts movies not only have great performances, direction, and storylines, but their fight scenes keep getting more intense.
+---------
+
+# 45 Greatest R-Rated Adult Anime Series of All Time
+
+TV Lists, Anime
+
+Fri, 25 Sep 2026 20:00:15 GMT
+
+https://movieweb.com/greatest-r-rated-anime-series-of-all-time/
+
+These 45 anime series push boundaries with graphic violence, mature themes, and adult storytelling, earning their place as the genre's best.
+---------
+
+# Prime Video's Best Fantasy Series Since 'The Rings of Power' Is Taking Over Streaming Again
+
+TV News, From Old Country Bumpkin to Master Swordsman, Prime Video, Hot on Streaming, Fantasy, Anime
+
+Fri, 25 Sep 2026 19:01:13 GMT
+
+https://movieweb.com/old-country-bumpkin-to-master-swordsman-stream-prime-september-2026/
+
+J.R.R. Tolkien, who?
+---------
+
+# Every 'The Big Bang Theory' Actor Who Returns in 'Stuart Fails to Save the Universe'
+
+TV Lists, Stuart Fails to Save the Universe, Kunal Nayyar, Kaley Cuoco, Melissa Rauch, Dean Norris, Christine Baranski, Wil Wheaton, Riki Lindhome, Sci-Fi, Comedy, Big Bang Theory, HBO Max, Mayim Bialik, Kevin Sussman
+
+Fri, 25 Sep 2026 19:01:13 GMT
+
+https://movieweb.com/every-tbbt-actor-return-in-stuart-spinoff/
+
+'Stuart Fails to Save the Universe' kept its spoilers under wraps beautifully; there are loads of actors from 'TBBT' who return in the spin-off.
+---------
+
+# New 'VisionQuest' Teaser Officially Confirms Return of Original Human Torch
+
+TV News, VisionQuest, Superhero, Disney+
+
+Fri, 25 Sep 2026 18:53:57 GMT
+
+https://movieweb.com/visionquest-trailer-human-torch/
+
+A new look at 'VisionQuest' confirmed an appearance by one of Marvel's first superheroes ever created.
+---------
+
 # MobLand Season 2 Just Hit A Series-High Milestone For Tom Hardy’s Harry
 
 Streaming TV, MobLand
