@@ -1,3 +1,245 @@
+# Pokémon Night Out Officially Revealed
+
+Gaming, Pokemon, Triple-A Games
+
+Fri, 25 Sep 2026 08:00:15 GMT
+
+https://screenrant.com/pokemon-night-out-merch-collection-revealed/
+
+Pokémon is taking over the dance floor for its first-ever EDM concert, featuring Marshmello and Alison Wonderland as headliners at Pokémon Night Out.
+---------
+
+# Invincible Is Officially Switching Main Characters In New Adventure
+
+Gaming, Invincible, PC
+
+Fri, 25 Sep 2026 07:00:16 GMT
+
+https://screenrant.com/invincible-main-character-switch-free-league/
+
+Mark Grayson has always been the heart of Invincible, but the franchise officially switches main characters in this new release.
+---------
+
+# Pokémon Gives Scyther A Wild New Design 30 Years After Debut
+
+Gaming, Pokemon, Pokémon, PC
+
+Fri, 25 Sep 2026 06:00:15 GMT
+
+https://screenrant.com/pokemon-scyther-30-anniversary-design/
+
+Scyther is one of Pokémon's most unique Gen 1 fan-favorites, and it's officially getting a brand-new design 30 years later.
+---------
+
+# Stargate: Pegasus Chronicles Gives Fans A Brand-New Adventure
+
+Gaming, Stargate, Stargate SG-1, Stargate: Continuum, PC
+
+Fri, 25 Sep 2026 05:30:15 GMT
+
+https://screenrant.com/stargate-pegasus-chronicles-fan-expansion/
+
+Stargate: Pegasus is arguably one of the most authentic Stargate releases in years, developed by and for hardcore fans of the cult sci-fi franchise.
+---------
+
+# 33 Years Later, Jurassic Park Officially Retcons The Original Movie's Ending In Survival Sequel
+
+Gaming, Jurassic Park, Jurassic Park: Survival, PC
+
+Fri, 25 Sep 2026 05:00:15 GMT
+
+https://screenrant.com/jurassic-park-retcon-ending-survival-sequel/
+
+After 33 years, Jurassic Park is rewriting the ending of the original movie in the franchise's highly anticipated upcoming sequel release.
+---------
+
+# Star Trek: To Boldly Go MTG Event Arrives November 2026
+
+Gaming, Star Trek, Triple-A Games
+
+Fri, 25 Sep 2026 04:30:15 GMT
+
+https://screenrant.com/star-trek-boldly-go-november-2026-mtg-events/
+
+If you're a Star Trek fan and feel like the series hasn't had a lot of excitement, you'll want to check in for Star Trek: To Boldly Go in November.
+---------
+
+# 5 Best Vertigo Series That Confirm It's The HBO Of Comics
+
+Comics, Vertigo Comics, John Constantine, Hellblazer
+
+Fri, 25 Sep 2026 04:00:21 GMT
+
+https://screenrant.com/greatest-vertigo-comics-series-ever/
+
+Comics may indeed be great for all ages, but Vertigo has proven in its heyday and resurgence, that the medium has a special place with mature readers.
+---------
+
+# Game Of Thrones: The Queen Who Never Was Officially Announced
+
+Gaming, Game Of Thrones: Dragonfire, Game of Thrones, Game Of Thrones, House of the Dragon, PC
+
+Fri, 25 Sep 2026 04:00:21 GMT
+
+https://screenrant.com/game-of-thrones-queen-who-never-was-dragons-divide/
+
+Game of Thrones: The Queen Who Never Was marks the official return of House of the Dragon's Rhaenys and her beautiful dragon Meleys.
+---------
+
+# Prime Video's 8-Part 'Black Mirror Meets Stranger Things' Masterpiece Deserves To Be Binged
+
+Streaming TV, Masked Recs
+
+Fri, 25 Sep 2026 03:50:16 GMT
+
+https://screenrant.com/tales-from-the-loop-prime-video-black-mirror-stranger-things-binge/
+
+Hawkins always had much more narrative potential than the story of Eleven and Vecna, and one Prime Video show masterfully capitalizes on this.
+---------
+
+# Netflix's R-Rated Horror Anthology Deserves Kudos For Taking A Wild & Risky Swing
+
+TV, Masked Recs
+
+Fri, 25 Sep 2026 03:40:17 GMT
+
+https://screenrant.com/fall-house-of-usher-netflix-deserves-credit-risk/
+
+An audacious tonal flip, this unexpected Netflix hit trades melancholic hauntings for gleefully grotesque set pieces and wickedly funny deaths.
+---------
+
+# Disney's Official Nightmare Before Christmas Merch Confirms Jack Skellington's Real Height
+
+Movies, The Nightmare Before Christmas
+
+Fri, 25 Sep 2026 03:47:18 GMT
+
+https://www.cbr.com/nightmare-before-christmas-jack-skellington-height/
+
+Jack Skellington's real-life height has been the subject of debate for years, and it's been quietly confirmed by Disney.
+---------
+
+# 10 Anime Movies to Watch This Weekend on Netflix, HBO Max, and Hulu
+
+Anime, Streaming, Netflix, HBO Max, Hulu, Movies
+
+Fri, 25 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/weekend-anime-movies-netflix-hbo-max-hulu-september-25-27/
+
+Streaming makes it easier than ever to find anime movies perfect for a cozy watch this weekend, September 25 through September 27, 2026.
+---------
+
+# 10 Darkest Peanuts Comics Of All Time, Ranked
+
+Comics, Peanuts
+
+Fri, 25 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/darkest-peanuts-comics-of-all-time-ranked/
+
+As the creator of one of the most popular comic strips ever, Charles M. Schulz never had to shy away from dark topics when working on Peanuts.
+---------
+
+# George Takei's Controversial Twilight Zone Episode That Was Banned in America
+
+TV, Star Trek, The Twilight Zone, Horror
+
+Fri, 25 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/star-trek-george-takei-banned-the-twilight-zone-episode/
+
+George Takei may be best known for Star Trek, but he also appeared in a highly controversial Twilight Zone episode that was banned for years.
+---------
+
+# Pokémon Winds and Waves' 300 New Pokemon is a Massive Mistake
+
+Games, Pokemon
+
+Fri, 25 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/winds-and-waves-300-new-pokemon-mistake/
+
+Pokémon Winds and Waves may be making a massive mistake, as 300 new Pokémon is simply too much, and twice as many as Red and Blue introduced.
+---------
+
+# In Just 3 Days, Solo Leveling's Post-Finale Story Officially Breaks Into Top 10
+
+Anime, Solo Leveling
+
+Fri, 25 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/solo-leveling-manga-epilogue-sales-ranking-oricon/
+
+Solo Leveling: Gaiden, Japan’s manga version of the original Solo Leveling manhwa's epilogue, is already one of the biggest manga in Japan.
+---------
+
+# Absolute Batman Artist Shares Rejected Cover Design for Historic Issue: ‘Too Edgy’
+
+Comics, Absolute Batman
+
+Fri, 25 Sep 2026 02:51:26 GMT
+
+https://www.cbr.com/absolute-batman-25-dexter-soy-rejected-cover-revealed/
+
+Hopefully, DC Comics will reverse their decision and decide to publish an epic Absolute Batman cover.
+---------
+
+# 9 Netflix Thriller Miniseries That Are Perfect From Beginning to End
+
+TV, Netflix, I Will Find You, Thriller, His & Hers
+
+Fri, 25 Sep 2026 04:51:11 GMT
+
+https://collider.com/netflix-thriller-miniseries-perfect-beginning-to-end/
+
+Ripley, Baby Reindeer, His & Hers, Bodies, I Will Find You, and more make up our list of Netflix miniseries that are perfect from beginning to end.
+---------
+
+# 8 Miniseries Endings That Are Genuine Masterpieces
+
+TV, TV Miniseries, Band of Brothers, The Queen's Gambit, Adolescence
+
+Fri, 25 Sep 2026 04:07:11 GMT
+
+https://collider.com/miniseries-endings-masterpieces/
+
+It's a badge of honor to end a show well, but miniseries like HBO's Band of Brothers and Netflix's Adolescence have endings that are masterpieces.
+---------
+
+# 9 Years Later, Tom Cruise's Forgotten Action Thriller Is a Major Streaming Hit
+
+Movie Features, American Made, Tom Cruise, HBO Max, Digger
+
+Fri, 25 Sep 2026 04:05:11 GMT
+
+https://collider.com/tom-cruise-american-made-hbo-max-streaming-september-2026/
+
+2017's American Made, the rare Tom Cruise film where the actor played an anti-hero, is a hit on HBO Max.
+---------
+
+# George R.R. Martin Completely Broke the 'Game of Thrones' Rules for Daenerys
+
+TV Features, Game Of Thrones, House of the Dragon, George R.R. Martin, A Song of Ice and Fire
+
+Fri, 25 Sep 2026 03:04:11 GMT
+
+https://collider.com/game-of-thrones-george-rr-martin-daenerys-dragons/
+
+George R.R. Martin changed the rules of dragonriding for Daenerys, making her different from all the other Targaryen dragonriders.
+---------
+
+# M. Night Shyamalan’s Best Sci-Fi Is Officially a Streaming Hit 24 Years Later
+
+Movie Features, Signs, M. Night Shyamalan, Mel Gibson, Peacock
+
+Fri, 25 Sep 2026 03:03:11 GMT
+
+https://collider.com/m-night-shyamalan-signs-streaming-peacock-september-2026/
+
+M. Night Shyamalan's scary sci-fi classic, Signs, is climbing Peacock's streaming charts, 24 years after its release.
+---------
+
 # Creature Commandos Season 2 Gets Exciting Update As Iconic Villain’s DCU Future Is Addressed
 
 TV, Creature Commandos
