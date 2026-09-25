@@ -1,3 +1,399 @@
+# Creature Commandos Season 2 Gets Exciting Update As Iconic Villain’s DCU Future Is Addressed
+
+TV, Creature Commandos
+
+Fri, 25 Sep 2026 02:32:04 GMT
+
+https://screenrant.com/creature-commandos-season-2-update-maxwell-lord/
+
+Creature Commandos finally gets another update for its highly anticipated second season, as well as a potential new villain joining the show.
+---------
+
+# Netflix's 33-Episode Sci-Fi Masterpiece Is Not An Easy Binge, But It's Worth Every Minute
+
+Streaming TV, Masked Recs
+
+Fri, 25 Sep 2026 02:30:16 GMT
+
+https://screenrant.com/black-mirror-netflix-worth-binging-not-easy-watch/
+
+Netflix is home to a sci-fi masterpiece that, due to its themes and more, isn't an easy binge, but that's also why it's worth every minute.
+---------
+
+# NCIS: Origins Confirms Season 3 Will Answer The Prequel’s Biggest Question
+
+TV, NCIS: Origins
+
+Fri, 25 Sep 2026 02:26:19 GMT
+
+https://screenrant.com/ncis-origins-season-3-gibbs-mystery/
+
+NCIS: Origins season 3 premieres in a few weeks, and its showrunner has confirmed that the prequel's biggest question will finally be answered.
+---------
+
+# 3 Forgotten 2000s Masterpieces Streaming On Prime Video (And #1 Is Christian Bale's Finest Psychological Thriller)
+
+Movies, Prime Video
+
+Fri, 25 Sep 2026 02:00:26 GMT
+
+https://screenrant.com/forgotten-2000s-thrillers-on-prime-video/
+
+From a seriously disturbing serial killer mystery to a chaotic mistaken-identity crime thriller, these 2000s movies deserve way more attention.
+---------
+
+# Sylvester Stallone Returns To His Best Non-Rocky Role In Just 3 Weeks
+
+Streaming TV, Sylvester Stallone
+
+Fri, 25 Sep 2026 02:00:26 GMT
+
+https://screenrant.com/tulsa-king-sylvester-stallone-return-best-role/
+
+Sylvester Stallone is a Hollywood legend thanks to his stint as the iconic Rocky Balboa, but decades later, his most recent role sees him in top form.
+---------
+
+# 10 Must-Watch Anime Coming to Streaming in Fall 2026
+
+Anime
+
+Fri, 25 Sep 2026 01:30:15 GMT
+
+https://screenrant.com/must-watch-anime-streaming-fall/
+
+The final months of the year bring some of the biggest anime series, and Fall 2026 is packed with exciting premieres that fans shouldn't miss.
+---------
+
+# Breaking Bad's Best Line Is Still The Coldest 6 Words In Crime Drama History
+
+Classic TV, Breaking Bad
+
+Fri, 25 Sep 2026 01:30:15 GMT
+
+https://screenrant.com/breaking-bad-walter-white-i-am-the-one-who-knocks-coldest-line/
+
+Breaking Bad is an incredibly intense show, but it topped itself and made crime drama history with the most chilling line the genre has ever seen.
+---------
+
+# All The Evidence King Ghidorah Will Be Created By The Humans In Godzilla Minus Zero
+
+Movies, Godzilla Minus Zero
+
+Fri, 25 Sep 2026 01:00:16 GMT
+
+https://screenrant.com/all-the-evidence-king-ghidorah-will-be-created-by-the-humans-in-godzilla-minus-zero/
+
+Multiple details spread throughout the Godzilla Minus Zero trailer indicate that King Ghidorah was created by the humans to fight Godzilla.
+---------
+
+# This 330-Episode Series Is A Masterclass In Historical Storytelling & It's Officially Coming Back
+
+Network TV, Masked Recs
+
+Fri, 25 Sep 2026 01:00:16 GMT
+
+https://screenrant.com/murdoch-mysteries-masterclass-historical-procedural/
+
+Murdoch Mysteries is a masterclass in historical and procedural storytelling, and thankfully, it's slated to return for another landmark season soon.
+---------
+
+# Firefly Wedding Episode 1 Review: Crunchyroll's Next Fall 2026 Sleeper Hit Anime Is Gruesome & Addictive
+
+Anime, Crunchyroll, Masked Recs
+
+Fri, 25 Sep 2026 01:00:16 GMT
+
+https://screenrant.com/firefly-wedding-episode-1-review-crunchyroll/
+
+Crunchyroll's new historical romance anime shows promise in its debut thanks to surprising chemistry of its mismatched leads.
+---------
+
+# Every Member of the White Lotus, Ranked by Strength
+
+Anime, Avatar: The Last Airbender
+
+Fri, 25 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-white-lotus-members-ranked/
+
+The White Lotus consists of some of the strongest characters in Avatar: The Last Airbender, but only one can be the best among the five of them.
+---------
+
+# James Gunn's Superman Comedy Spinoff Recruits Sitcom Icon for Major Role
+
+TV, The People v. Gorilla Grodd
+
+Fri, 25 Sep 2026 02:30:18 GMT
+
+https://www.cbr.com/dc-gorilla-grodd-series-sara-gilbert/
+
+Another big addition has been revealed for the cast of the half-hour comedy series set in the DCU.
+---------
+
+# 10 Hardest Super Nintendo Games of All Time, Ranked
+
+Games, Nintendo, retro games
+
+Fri, 25 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/hardest-snes-games-all-time-ranked-list/
+
+Games were harder back in the '90s, and SNES games like F-Zero were absolutely brutal.
+---------
+
+# 10 Most Perfect PS1 Games of All Time, Ranked
+
+Games, Video Games, PlayStation (Original), Final Fantasy, RPG
+
+Fri, 25 Sep 2026 02:15:11 GMT
+
+https://www.cbr.com/most-perfect-ps1-games-of-all-time-ranked/
+
+The PS1 has one of the greatest and most diverse libraries of games ever, and some of its titles are still perfect.
+---------
+
+# 10 Strongest Transformers, Ranked By Physical Power
+
+Anime, Transformers, Innovation
+
+Fri, 25 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/strongest-transformers-list-ranked-physical-power/
+
+Transformers like Optimus Prime are almost unbeatable when it comes to sheer physical power.
+---------
+
+# 7 Westerns So Dark They Are Hard To Finish
+
+Movies, Western, Bone Tomahawk, Clint Eastwood
+
+Fri, 25 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/darkest-westerns-that-are-hard-to-finish-list/
+
+The Western is at its best when it pushes boundaries, but some stories are so dark it's hard for even the biggest frontier buff to finish.
+---------
+
+# 5 Weakest Upper Rank Demons in Demon Slayer, Ranked
+
+Anime, Demon Slayer: Kimetsu no Yaiba
+
+Fri, 25 Sep 2026 01:45:11 GMT
+
+https://www.cbr.com/weakest-upper-rank-demons-in-demon-slayer-ranked/
+
+There's a clear hierarchy of power among Muzan's Upper Moon demons, with the weakest among them still registering as incredibly strong.
+---------
+
+# Underrated Horror Comedy Series That Rivals Ash vs. Evil Dead Lands at Tubi
+
+TV, Stan Against Evil
+
+Fri, 25 Sep 2026 01:40:28 GMT
+
+https://www.cbr.com/stan-against-evil-streaming-free-tubi-october-2026/
+
+The series is perfect for Ash vs. Evil Dead fans.
+---------
+
+# Star Trek II Gave Kirk His Smartest Quote in Sci-fi History
+
+Movies, Star Trek
+
+Fri, 25 Sep 2026 01:30:11 GMT
+
+https://www.cbr.com/star-trek-the-wrath-of-khan-kirk-smartest-quote-sci-fi-history/
+
+Kirk’s line about facing death in Star Trek II: The Wrath of Khan gives Spock’s most famous quote more significant meaning.
+---------
+
+# Hugh Jackman's $300M Sci-Fi Hidden Gem Is Leaving Free Streaming Next Month
+
+Movies, Real Steel, Science Fiction, Tubi
+
+Fri, 25 Sep 2026 01:30:11 GMT
+
+https://www.cbr.com/real-steel-leaving-tubi-october-2026/
+
+Hugh Jackman fans better hurry if they want to stream one of Hugh Jackman's best non-Wolverine roles for free.
+---------
+
+# ‘The Witcher’ Officially Brings Back Geralt of Rivia Next Week for New Release
+
+Gaming News, The Witcher 3: Wild Hunt, The Witcher, Henry Cavill, Liam Hemsworth
+
+Fri, 25 Sep 2026 02:00:21 GMT
+
+https://collider.com/the-witcher-3-remaster-release-date-september-2026/
+
+Geralt of Rivia officially returns in a new release of The Witcher, set to launch next week. Read on for more details.
+---------
+
+# Prime Video’s Star Wars-Inspired Rom-Com Officially Takes Over the Streamer Today
+
+Movie News, Anyone But You, Star Wars, Star Wars: The Force Awakens, The Love Hypothesis
+
+Fri, 25 Sep 2026 01:45:11 GMT
+
+https://collider.com/the-love-hypothesis-release-date-prime-video-september-2026/
+
+Prime Video's new Star Wars-inspired rom-com, The Love Hypothesis, has officially hit the streamer and is earning rave reviews.
+---------
+
+# Disney+'s Newest 8-Part Sci-Fi Mystery Officially Marks the End of an Era for the MCU
+
+TV Features, VisionQuest, Paul Bettany, MCU, Disney+
+
+Fri, 25 Sep 2026 01:36:11 GMT
+
+https://collider.com/visionquest-disney-plus-sci-fi-mystery-mcu-phase-six-era/
+
+The MCU is coming to the end of an era with VisionQuest, which is set to bridge past and future before Avengers: Doomsday's release.
+---------
+
+# Prime Video’s Acclaimed Murder Mystery Is Officially One of 2026’s Biggest Hits
+
+Movie News, The Sheep Detectives, Prime Video, Hugh Jackman, Mystery
+
+Fri, 25 Sep 2026 01:30:11 GMT
+
+https://collider.com/prime-video-murder-mystery-the-sheep-detectives-streaming-success-september-2026/
+
+2026's hit murder mystery movie is officially one of the biggest Prime Video hits of the year. Read on for more details.
+---------
+
+# Robert De Niro’s R-Rated Thriller Is Officially Dominating Netflix’s All-Time Charts
+
+Movie News, The Whisper Man, Robert De Niro, Adam Scott, Netflix
+
+Fri, 25 Sep 2026 01:15:11 GMT
+
+https://collider.com/robert-de-niro-thriller-the-whisper-man-streaming-success-netflix-september-2026/
+
+Robert De Niro and Adam Scott's new crime thriller is officially one of Netflix's biggest movies of all time. Read on for more.
+---------
+
+# Russell Crowe Officially Returns to Netflix in 24 Hours
+
+Movie News, Russell Crowe, Jacob Tremblay, Unabomber, Netflix
+
+Fri, 25 Sep 2026 01:00:12 GMT
+
+https://collider.com/unabomber-russell-crowe-release-date-netflix-september-2026/
+
+Russell Crowe and Jacob Tremblay’s true-crime thriller Unabomber officially arrives on Netflix tomorrow.
+---------
+
+# The Best Dinosaur Movie Since 'Jurassic Park' Is Officially America’s #1 Movie
+
+Movie News, The End of Oak Street, Jurassic Park, Ewan McGregor, Anne Hathaway
+
+Fri, 25 Sep 2026 00:45:11 GMT
+
+https://collider.com/the-end-of-oak-street-streaming-success-apple-tv-september-2026/
+
+The End of Oak Street is officially America’s #1 movie after bringing dinosaurs back to suburbia. Read on for more.
+---------
+
+# The Predator Officially Faces Jon Bernthal's Legendary Marvel Icon in New 4-Part Series
+
+Books and Comics News, Punisher, Predator, Marvel Comics, Horror
+
+Fri, 25 Sep 2026 00:38:07 GMT
+
+https://collider.com/predator-vs-punisher-first-look-marvel-comics/
+
+Marvel reveals a first look at Predator vs. Punisher, the four-part crossover bringing Frank Castle face-to-face with the Predator.
+---------
+
+# ‘Tracker’ Officially Returns in Less Than 2 Weeks
+
+TV News, Tracker, Justin Hartley, Jensen Ackles, CBS
+
+Fri, 25 Sep 2026 00:30:12 GMT
+
+https://collider.com/tracker-season-4-release-date-october-2026/
+
+Tracker is officially returning to CBS in less than two weeks as Justin Hartley and Jensen Ackles reunite in Season 4.
+---------
+
+# The Best Lord of the Rings Game Ever Made Officially Returns in 1 Week
+
+Gaming News, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings: The Rings of Power, Peter Jackson
+
+Fri, 25 Sep 2026 00:15:11 GMT
+
+https://collider.com/the-lord-of-the-rings-shadow-of-mordor-collection-release-september-2026/
+
+The Lord of the Rings is officially returning in one week with a new release before The Rings of Power Season 3.
+---------
+
+# Amazon's New Binge-Worthy Crime Thriller Breakout Is Now One of Streaming's Biggest Hits
+
+TV News, Prime Video, Hot on Streaming, Thriller
+
+Fri, 25 Sep 2026 02:31:16 GMT
+
+https://movieweb.com/the-trial-stream-prime-video-september-2026/
+
+Prepare for a binge session with one of the best thrillers currently on streaming.
+---------
+
+# 'The Big Bang Theory's Returning Spin-off Can Finally Answer the Biggest Leonard Mystery
+
+Features, Stuart Fails to Save the Universe, The Big Bang Theory, Young Sheldon, Sci-Fi, Comedy, Johnny Galecki
+
+Fri, 25 Sep 2026 02:00:24 GMT
+
+https://movieweb.com/tbbt-stuart-spinoff-season-2-leonard-dead-theory/
+
+'TBBT' franchise's "Leonard is dead" theory has kept audiences busy for years, and Season 2 of the Stuart spin-off can finally give us an answer.
+---------
+
+# 8 Near-Perfect Sci-Fi Series To Watch While Waiting for 'Severance' Season 3
+
+TV Lists, Sci-Fi, Severance, Silo
+
+Fri, 25 Sep 2026 02:00:24 GMT
+
+https://movieweb.com/sci-fi-series-to-watch-before-severance-season-3/
+
+'Severance' Season 3 is coming soon, and the Apple TV sci-fi series stars Adam Scott and Britt Lower.
+---------
+
+# Amazon Officially Brings Chris Hemsworth's 2026 Action Thriller Flop Back to Life on Streaming
+
+Movie News, Crime 101, Action, Thriller, Chris Hemsworth, Prime Video, Hot on Streaming
+
+Fri, 25 Sep 2026 01:30:14 GMT
+
+https://movieweb.com/crime-101-chris-hemsworth-prime-video-stream-september-2026/
+
+The film also stars Mark Ruffalo, Barry Keoghan, and Halle Berry.
+---------
+
+# 'Stuart Fails To Save the Universe' Finale Officially Creates a 'TBBT' Plot Hole After 12 Years
+
+Features, Stuart Fails to Save the Universe, The Big Bang Theory, Comedy, Sci-Fi, Kevin Sussman, HBO Max
+
+Fri, 25 Sep 2026 01:30:14 GMT
+
+https://movieweb.com/tbbt-stuart-spinoff-finale-fire-plot-hole/
+
+'Stuart Fails To Save the Universe's finale forgets about the comic book store fire and Denise's origins in 'TBBT,' creating a strange new plot hole.
+---------
+
+# Star Trek Just Gave Us the Closest Thing We'll Get to That Canceled Captain Kirk Spin-off
+
+TV Shows, star trek: strange new worlds, Star Trek, Sci-Fi
+
+Fri, 25 Sep 2026 00:00:15 GMT
+
+https://movieweb.com/star-trek-tomorrows-enterprise-year-one/
+
+'Star Trek: Year One' has been pitched to and rejected by Paramount, but that hasn't stopped the franchise bringing the idea to life. Read on.
+---------
+
 # Alan Ritchson’s Reacher Clears 5B Minutes On Streaming Despite Losing #1 Spot
 
 TV, Reacher
