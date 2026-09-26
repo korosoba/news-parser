@@ -1,3 +1,443 @@
+# The MCU's Multiverse Saga Timeline Fully Explained Ahead of Avengers: Doomsday
+
+Movies, Marvel Cinematic Universe, Avengers: Doomsday
+
+Sat, 26 Sep 2026 18:05:15 GMT
+
+https://screenrant.com/mcu-multiverse-saga-timeline-doomsday-explained/
+
+The MCU's Multiverse Saga is coming to an end in Avengers: Doomsday and Secret Wars. But which stories are key to the Avengers setup..?
+---------
+
+# 5 Fantasy Audiobooks With Celebrity Narrators That Outshine The Movie Adaptation
+
+Books, Fantasy
+
+Sat, 26 Sep 2026 18:00:15 GMT
+
+https://screenrant.com/fantasy-audiobooks-best-celebrity-narrators-better-than-movies/
+
+Five fantasy audiobooks with such good celebrity narration performances, that they outshine even the beloved film adaptations of those books.
+---------
+
+# Dark Souls 3 DLSS-5 Remaster Is A Sight To Behold
+
+Gaming, Dark Souls 3, Dark Souls, FromSoftware
+
+Sat, 26 Sep 2026 18:00:15 GMT
+
+https://screenrant.com/dark-souls-3-next-gen-dlss5-makeover/
+
+Dark Souls 3 gleams with photoreal reflections and light beams slicing through tree branches, transforming familiar vistas thanks to DLSS 5.
+---------
+
+# 10 Classic TV Superheroes Everyone Forgot About
+
+Classic TV, Max Steel, mutant x, Superhero
+
+Sat, 26 Sep 2026 18:00:15 GMT
+
+https://screenrant.com/tv-superheroes-forgotten-classic/
+
+These superhero characters began life on TV, but sometimes even updating or rebooting their franchise still failed to help them resonate with viewers.
+---------
+
+# Forget From, ABC’s 3-Part Mystery Horror Classic Is Quickly Climbing Streaming Charts
+
+TV, Masked Recs
+
+Sat, 26 Sep 2026 17:56:21 GMT
+
+https://screenrant.com/abc-twin-peaks-from-replacement-apple-vod-streaming-success-september-2026/
+
+From fans are waiting for the final season of the MGM+ drama, but a classic and superior show with an undeniable legacy may help to fill the void.
+---------
+
+# PlayStation Gamers Surprised With Free PlayStation Plus For Limited Time
+
+Gaming, PlayStation Plus, Live Service Games, PlayStation
+
+Sat, 26 Sep 2026 17:55:30 GMT
+
+https://screenrant.com/playstation-free-ps-plus-limited-time-offer/
+
+PlayStation is apparently offering a free PlayStation Plus Premium upgrade to some fans, but the timing for the offer can be very specific.
+---------
+
+# Peaky Blinders Is Officially Switching Main Characters After 13 Years
+
+Streaming TV, Peaky Blinders
+
+Sat, 26 Sep 2026 17:47:15 GMT
+
+https://screenrant.com/peaky-blinders-duke-shelby-sequel-series-switch-main-characters/
+
+Tommy Shelby has been the main character of Peaky Blinders since the beginning, but now Duke is taking over from his dad in the new sequel series.
+---------
+
+# Slow Horses Season 6 Confirms The Return Of The Show's Oldest Mystery
+
+Streaming TV, Slow Horses
+
+Sat, 26 Sep 2026 17:30:16 GMT
+
+https://screenrant.com/slow-horses-season-6-sid-baker-olivia-cooke-return-harkness-mystery/
+
+Slow Horses' most mysterious character has finally returned in season 6, but we still don't know if Olivia Cooke's Sid Baker is friend or foe.
+---------
+
+# Why Robert Pattinson's Primetime Ending Covers Most Controversial Chris Hansen Event (Exclusive)
+
+Movies, Primetime, A24
+
+Sat, 26 Sep 2026 17:18:19 GMT
+
+https://screenrant.com/primetime-2026-movie-ending-chris-hansen-bill-conradt-suicide-explained/
+
+EXCLUSIVE: Robert Pattinson's Primetime director explains why he covered Chris Hansen's most controversial ending To Catch a Predator scene.
+---------
+
+# 10 Greatest MCU Quotes From Avengers: Endgame
+
+Superheroes, Avengers: Endgame, Marvel Cinematic Universe
+
+Sat, 26 Sep 2026 17:15:16 GMT
+
+https://screenrant.com/10-greatest-mcu-quotes-avengers-endgame/
+
+With Avengers: Endgame back in theaters before Doomsday, now's the perfect time to look back at the best lines from the Infinity Saga's final chapter.
+---------
+
+# Hello Kitty, My Melody and Kuromi Are Getting a Brand-New Game in 2027
+
+Anime, Hello Kitty, My Melody & Kuromi, sanrio
+
+Sat, 26 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/hello-kitty-my-melody-kuromi-new-game-2027/
+
+Hello Kitty, My Melody, Kuromi, and more are officially getting a brand-new game in 2027, but fans can get a first look now.
+---------
+
+# Teenage Mutant Ninja Turtles' Biggest Threat Takes Over Earth For A New Era
+
+Comics, Teenage Mutant Ninja Turtles
+
+Sat, 26 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/teenage-mutant-ninja-turtles-shredder-12-changes-everything/
+
+The Teenage Mutant Ninja Turtles' greatest enemy just took control of another army, and there is already no stopping what he has planned next.
+---------
+
+# DC's New Flop Finds Redemption on Streaming After 304M Minutes Debut
+
+Movies, Supergirl
+
+Sat, 26 Sep 2026 17:54:48 GMT
+
+https://www.cbr.com/supergirl-nielsen-streaming-rankings-hbo-max/
+
+It's a smash hit on streaming after crashing and burning at the box office.
+---------
+
+# Director of Hit $400M Horror Pushes Back on Genre Label: 'I Don't View It as a Horror Project'
+
+Movies, Backrooms
+
+Sat, 26 Sep 2026 17:54:23 GMT
+
+https://www.cbr.com/backrooms-kane-parsons-horror-genre-label/
+
+Kane Parsons breaks down why he doesn't personally see the Backrooms franchise as a horror story, and what genre he does think it fits.
+---------
+
+# 15 Best Tokyo Revengers Characters, Ranked
+
+Lists, Anime, Tokyo Revengers
+
+Sat, 26 Sep 2026 17:45:11 GMT
+
+https://www.cbr.com/tokyo-revengers-most-popular-characters/
+
+The Tokyo Revengers series had a large cast filled with compelling characters, but who are the most popular characters in the cast?
+---------
+
+# 4 Fantasy Anime Better Than Black Clover
+
+Anime, Black Clover, Fantasy
+
+Sat, 26 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/fantasy-anime-better-than-black-clover-list/
+
+Black Clover is a popular anime that's set to return this October, but there are better fantasy anime you can watch right now.
+---------
+
+# The New 7-Part Fantasy Adaptation That Reinvents King Arthur’s Legend
+
+TV, Fantasy, Prime Video
+
+Sat, 26 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/prime-video-the-pendragon-cycle-rise-of-the-merlin-reinvents-king-arthur-legend/
+
+The Legend of King Arthur is a story that has been told many times, but this new show attempts to present a fresh perspective.
+---------
+
+# 10 PS2 RPGs That Aged Like Fine Wine
+
+Games, ps2, RPG, Video Games
+
+Sat, 26 Sep 2026 17:15:11 GMT
+
+https://www.cbr.com/best-ps2-rpgs-aged-like-fine-wine/
+
+Sony had things right with the PS2 almost from the start, taking just a year to develop an incredible series of RPGs for players.
+---------
+
+# 1 of TV's Best Horror Shows Is Officially the No. 1 Show on Streaming Despite Record RT Score
+
+TV, American Horror Story, Hulu, Horror
+
+Sat, 26 Sep 2026 17:00:11 GMT
+
+https://www.cbr.com/american-horror-story-anthology-hulu-disney-success-september-2026/
+
+The return of American Horror Story, one of the best horror shows, is an instant hit on streaming after surprising RT score.
+---------
+
+# The Lord of the Rings' 5 Strongest Wizards, Ranked
+
+Movies, The Lord of the Rings, The Hobbit, Fantasy
+
+Sat, 26 Sep 2026 16:30:11 GMT
+
+https://www.cbr.com/lord-of-the-rings-strongest-wizards-list/
+
+All of The Lord of the Rings' Wizards were powerful, but some were clearly mightier than others.
+---------
+
+# 'The Gentlemen' Star's Explosive Heist Thriller Officially Hits Free Streaming
+
+Movie News, Fuze, Thriller, HBO Max, Aaron Taylor-Johnson
+
+Sat, 26 Sep 2026 18:00:11 GMT
+
+https://collider.com/theo-james-war-movie-fuze-hbo-max-streaming-september-2026/
+
+Theo James’ explosive heist thriller Fuze has officially found its streaming home, bringing the action-packed crime movie to viewers at home.
+---------
+
+# 8 Perfect Netflix Shows Where Every Episode Is a 10/10 Masterpiece
+
+TV, Netflix, Better Call Saul, Adolescence, Ripley
+
+Sat, 26 Sep 2026 17:57:11 GMT
+
+https://collider.com/perfect-netflix-shows-every-episode-masterpiece/
+
+Adolescence, Ripley, Arcane, Derry Girls, Better Call Saul, and more make up our list of perfect Netflix shows where every episode is a masterpiece.
+---------
+
+# The 8 Most Fun Comic Book Movies, Ranked
+
+Movie, comic book movies, Spider-Man: No Way Home, Spider-Man: Into The Spider-Verse, Guardians of the Galaxy
+
+Sat, 26 Sep 2026 17:52:11 GMT
+
+https://collider.com/the-8-most-fun-comic-book-movies-ranked/
+
+From Iron Man to Spider-Man: Into the Spider-Verse, these comic book movies deliver laughs, spectacle, heart, and pure fun.
+---------
+
+# Rebecca Ferguson's Cult Sci-Fi Thriller Officially Hits Free Streaming
+
+Movie News, Life, Rebecca Ferguson, Ryan Reynolds, Jake Gyllenhaal
+
+Sat, 26 Sep 2026 17:30:11 GMT
+
+https://collider.com/ryan-reynolds-jake-gyllenhaal-rebecca-ferguson-sci-fi-alien-dupe-life-streaming-free-tubi-october-2026/
+
+A star-studded sci-fi thriller from 2017, modeled on Ridley Scott's Alien, is coming to free streaming this October. Find out more.
+---------
+
+# The 10 Greatest American Thrillers of All Time, Ranked
+
+Movie, Thriller, Rear Window, Se7en
+
+Sat, 26 Sep 2026 17:28:11 GMT
+
+https://collider.com/best-american-thriller-movies-ranked/
+
+Many exceptional American thriller movies have come out over the decades, from masterful classics like Vertigo to modern favorites like Prisoners.
+---------
+
+# Lee Child Officially Confirms Why Alan Ritchson Was the Right Jack Reacher Replacement [Exclusive]
+
+Exclusives, Reacher, Jack Reacher, Tom Cruise, Alan Ritchson
+
+Sat, 26 Sep 2026 17:15:12 GMT
+
+https://collider.com/alan-ritchson-reacher-casting-lee-child-tom-cruise-replacement/
+
+Lee Child reveals why the Tom Cruise movies led the Reacher team to cast Alan Ritchson as Prime Video's Jack Reacher.
+---------
+
+# ‘Pokémon GO’ Fans Officially Have 24 Hours to Catch a Major Pokémon
+
+Gaming News, Pokémon, Pokemon GO, Gaming, Video Game
+
+Sat, 26 Sep 2026 17:13:53 GMT
+
+https://collider.com/pokemon-go-phantump-catch-mastery-shiny-event/
+
+Pokémon GO’s Phantump Catch Mastery event runs September 26, with increased Shiny chances, research encounters, and bonuses for accurate throws.
+---------
+
+# 10 HBO Sleeper Hits That Got So Much Better After Season 1
+
+TV, HBO, The Knick, His Dark Materials, Hacks
+
+Sat, 26 Sep 2026 17:04:11 GMT
+
+https://collider.com/hbo-shows-sleeper-hits-better-after-season-1/
+
+Discover HBO series that grew stronger after Season 1 with compelling narratives and character depth, from  The Knick to His Dark Materials.
+---------
+
+# Guy Ritchie’s “Pure Magic” 2-Part Mystery Series Remains a Global Streaming Smash
+
+TV News, Young Sherlock, Guy Ritchie, Prime Video, Sherlock Holmes
+
+Sat, 26 Sep 2026 16:30:11 GMT
+
+https://collider.com/guy-ritchie-young-sherlock-streaming-success-prime-video-september-2026/
+
+Guy Ritchie's two-part Prime Video crime series is showboating on streaming before the premiere of its second season.
+---------
+
+# ‘John Wick’ Meets ‘The Northman’ in HBO Max’s New Official Late-Night Sleeper Hit
+
+Movie News, Violent Night, John Wick, David Harbour, The Northman
+
+Sat, 26 Sep 2026 16:10:12 GMT
+
+https://collider.com/violent-night-hbo-max-streaming-hit-david-harbour-september-2026/
+
+Violent Night blends John Wick action with Viking brutality as David Harbour's Christmas movie finds new streaming life.
+---------
+
+# 'Stuart Fails To Save the Universe' Season 2: Everything We Know
+
+Features, Stuart Fails to Save the Universe, Big Bang Theory, HBO Max, Sci-Fi, Comedy, Kevin Sussman, John Ross Bowie
+
+Sat, 26 Sep 2026 18:01:13 GMT
+
+https://movieweb.com/stuart-fails-save-universe-season-2-everything-we-know/
+
+'The Big Bang Theory' spin-off 'Stuart Fails To Save the Universe' has already been renewed for Season 2, but when are we getting more?
+---------
+
+# 10 Apple TV Thrillers That Will Get You Hooked in the First 5 Minutes
+
+TV Lists, Apple TV, Severance, Thriller
+
+Sat, 26 Sep 2026 18:01:13 GMT
+
+https://movieweb.com/apple-tv-thrillers-hook-5-minutes/
+
+Apple TV has some great thrillers, and a few of them will grab your attention straight from their first five minutes, then keep you hooked from there.
+---------
+
+# James Cameron $379M Blockbuster That Roger Ebert Hailed as a "Master of Action" Is Coming To Streaming
+
+Movie News, James Cameron, True Lies, Action, Coming/Leaving Streaming, Thriller
+
+Sat, 26 Sep 2026 18:01:13 GMT
+
+https://movieweb.com/james-cameron-true-lies-action-streaming-hulu-october-2026/
+
+They sure don't make them like this anymore.
+---------
+
+# Forget 'Reacher,' Prime Video's Explosive New Action Thriller Takes Over in One Week
+
+Features, Catherine Zeta-Jones, Kill Jackie, Prime Video, Ron Perlman, Thriller, Action, Neagley, Reacher, Alan Ritchson
+
+Sat, 26 Sep 2026 17:30:15 GMT
+
+https://movieweb.com/kill-jackie-prime-video-thriller-reacher-comparison/
+
+Those who love 'Reacher' should also check out the upcoming Prime Video thriller 'Kill Jackie,' a gritty series starring Catherine Zeta-Jones.
+---------
+
+# The Best TV Show Of The 21st Century Officially Declared
+
+TV News, Breaking Bad, Drama
+
+Sat, 26 Sep 2026 17:14:28 GMT
+
+https://movieweb.com/breaking-bad-nyt-21st-century-top-100/
+
+As the 21st century adds thrilling new TV programming, one list reaffirmed one of the best shows of the millennium as the top entry.
+---------
+
+# Why Is Julia Fox So Famous?
+
+Features, Uncut Gems
+
+Sat, 26 Sep 2026 17:00:16 GMT
+
+https://movieweb.com/why-julia-fox-famous/
+
+From her breakout role in 'Uncut Gems' to viral fashion moments and headline-making relationships, here's why Julia Fox became so famous.
+---------
+
+# 'Werwulf' Trailer Reveals Aaron Taylor-Johnson's Terrifying Transformation
+
+Movie News, Werwulf, Robert Eggers, Horror
+
+Sat, 26 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/werwulf-trailer-2/
+
+One of Robert Eggers' darkest creations comes to life.
+---------
+
+# Prime Video’s High Fantasy Masterpiece Was So Good, It Spawned 5 Seasons & a Spin-off
+
+Features, The Legend of Vox Machina, The Mighty Nein, Fantasy
+
+Sat, 26 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/legend-vox-machina-5-seasons-mighty-nein-spin-off/
+
+Prime Video has no shortage of high fantasy offerings, but its greatest addition to the genre spawned five seasons and a top-tier spin-off.
+---------
+
+# It's Officially the End of an Era For Ridley Scott
+
+Features, Ridley Scott, The Dog Stars
+
+Sat, 26 Sep 2026 16:01:15 GMT
+
+https://movieweb.com/ridley-scott-dog-stars-box-office-flops/
+
+Ridley Scott, the acclaimed director of movies like 'Gladiator' and 'Alien' and producer of 'The Terror,' has been part of a trend lately.
+---------
+
+# Johnny Depp's 105-Minute Dark Fantasy Classic Seeks Comeback on New Streaming Home
+
+Movie News, Johnny Depp, Edward Scissorhands, Coming/Leaving Streaming, Fantasy
+
+Sat, 26 Sep 2026 16:01:15 GMT
+
+https://movieweb.com/johnny-depp-edward-scissorhands-streaming-hulu-october-2026/
+
+It's one of the most beautiful movies of the 1990s, and the beginning of one of Hollywood's most interesting creative partnerships.
+---------
+
 # What's Coming To HBO Max In October 2026: Full List Of TV Shows & Movies
 
 Streaming TV
