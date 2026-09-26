@@ -1,3 +1,388 @@
+# Resident Evil Has Seven Secret Installments Movie Fans Have Never Heard Of
+
+Books, Resident Evil
+
+Sat, 26 Sep 2026 00:00:16 GMT
+
+https://screenrant.com/resident-evil-has-seven-secret-installments-movie-fans-have-never-heard-of/
+
+Fans of Zach Cregger and Austin Abrams' new Resident Evil movie have seven other underrated Resident Evil installments to devour, besides the games.
+---------
+
+# 33 Years Later, The X-Files Still Has The Best Tagline In TV History
+
+TV, The X-Files
+
+Sat, 26 Sep 2026 00:00:16 GMT
+
+https://screenrant.com/x-files-best-tagline-quote/
+
+The X-Files' tagline is a masterpiece in sci-fi storytelling even though a different quote is much more popular among fans of Mulder and Scully.
+---------
+
+# 10 Movies That Tried To Replace Indiana Jones
+
+Movies, Indiana Jones
+
+Sat, 26 Sep 2026 00:00:16 GMT
+
+https://screenrant.com/movies-that-tried-to-replace-indiana-jones/
+
+Indiana Jones set the standard for adventure, but these 10 movies introduced treasure hunters and explorers hoping to follow in his footsteps.
+---------
+
+# Streaming Price Hike History: Here's How Much Platforms Increased Prices Over The Years
+
+Streaming TV
+
+Sat, 26 Sep 2026 00:00:01 GMT
+
+https://screenrant.com/streaming-platform-price-hike-increase-history-since-launch/
+
+Anyone who streams knows that ad-free isn't as cheap as it once was. In fact, subscription rates for the top seven have increased by 114% on average.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Weekend (September 26-27)
+
+Movies, HBO Max, Recommendation
+
+Fri, 25 Sep 2026 23:45:45 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-september-26/
+
+The best movies to watch on HBO Max this weekend include a superhero epic that found redemption, a 2026 horror hit, and one of the best space operas.
+---------
+
+# All 11 Merchant Locations In Sekiro: Shadows: Die Twice
+
+Gaming, Sekiro: Shadows Die Twice, PC
+
+Fri, 25 Sep 2026 23:37:46 GMT
+
+https://screenrant.com/sekiro-shadows-die-twice-every-merchant-location/
+
+Merchants in Sekiro: Shadows Die Twice offer valuable items in exchange for resources you've collected, but these NPCs' locations can be hard to find.
+---------
+
+# Chicago Fire: Every Character Who Has Died On The Show
+
+Network TV, Chicago Fire
+
+Fri, 25 Sep 2026 23:31:31 GMT
+
+https://screenrant.com/chicago-fire-every-character-death-show/
+
+Chicago Fire has taken fans an emotional rollercoaster from the first episode, as numerous characters die throughout the beloved drama series.
+---------
+
+# Why The Lord Of The Rings Is Revisiting Its Best Movie After 25 Years
+
+Movies, The Lord of the Rings
+
+Fri, 25 Sep 2026 23:31:15 GMT
+
+https://screenrant.com/lord-of-the-rings-returning-to-best-movie-fellowship/
+
+25 years since the release of The Lord of the Rings' strongest movie, the franchise is returning to that chapter in Middle-earth's timeline.
+---------
+
+# Disney Star Wars Is About To Make Its Biggest Mistake In 7 Years
+
+Movies, Star Wars
+
+Fri, 25 Sep 2026 23:30:17 GMT
+
+https://screenrant.com/disney-star-wars-darth-vader-hayden-christensen-movie-mistake/
+
+Disney has a massive opportunity for a new Star Wars movie, and passing on it could be an even bigger mistake than The Hunt for Ben Solo.
+---------
+
+# How HBO Max & Paramount+ Streaming Structure May Beat Prime Video & Disney+
+
+TV, HBO Max, Paramount Plus
+
+Fri, 25 Sep 2026 23:20:21 GMT
+
+https://screenrant.com/hbo-max-paramount-plus-combine-rivals-prime-video-disney-comparison/
+
+HBO Max and Paramount+ could rise above its largest streaming competitors, Disney+ and Prime Video after the merger finally goes through.
+---------
+
+# October 3 Is a New Era for Black Clover After 5 Years
+
+Anime, Black Clover
+
+Sat, 26 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/new-era-for-black-clover-after-5-years-pierrot/
+
+Black Clover's upcoming return promises a fresh take from Studio Pierrot
+---------
+
+# Prime Video's New Major Streaming Hit Is a 13-Season Western Drama
+
+TV, When Calls the Heart, Prime Video, Hallmark Channel
+
+Sat, 26 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/when-calls-the-heart-western-drama-prime-video-success-october-2026/
+
+A hit drama is climbing up the charts.
+---------
+
+# 10 Thor Comics That Show the God at His Absolute Best
+
+Comics, Marvel, Thor
+
+Sat, 26 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/thor-comics-that-show-the-god-at-his-absolute-best/
+
+Marvel Comics isn't afraid to show off Thor Odinson's immense power and admirable heroism.
+---------
+
+# Spider-Man 5 Has the Perfect Reason To Include Charlie Cox's Daredevil
+
+Movies, Spider-Man
+
+Sat, 26 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/spider-man-5-charlie-cox-daredevil-appearance/
+
+Marvel is closing the door on one street-level vigilante, but his true final appearance should be alongside the company's friendly neighborhood hero.
+---------
+
+# 15 Best Shiny Pokémon of All Time, Ranked
+
+Games, Pokemon
+
+Sat, 26 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/best-shiny-pokemon-of-all-time-ranked/
+
+Iconic legendary Pokémon and whimsical fairies have received some of the most memorable shiny forms in the entire franchise.
+---------
+
+# 4 Xbox Games Are 100% Free Until September 27
+
+Games, Xbox Series X (1)
+
+Fri, 25 Sep 2026 23:58:38 GMT
+
+https://www.cbr.com/xbox-free-games-september-27-2026/
+
+These four games can now be played for free on Xbox at no cost.
+---------
+
+# 10 Classic Space Opera Anime Every Sci-Fi Fan Should Watch
+
+Anime, Sci-Fi
+
+Fri, 25 Sep 2026 23:45:11 GMT
+
+https://www.cbr.com/classic-space-opera-anime-every-sci-fi-fan-should-watch/
+
+Some space opera anime are so remarkable that every sci-fi fan needs to watch them.
+---------
+
+# 7 SNES Games That Are Perfect From Start to Finish
+
+Games, Nintendo, retro games
+
+Fri, 25 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/best-snes-games-flawless-start-to-finish-list/
+
+SNES games like The Legend of Zelda: A Link to the Past don't have a single flaw.
+---------
+
+# Matthew McConaughey's New True Detective Replacement Is a Streaming Hit After Mixed Reviews
+
+TV, Brothers, Apple TV, Comedy
+
+Fri, 25 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/brothers-apple-tv-streaming-success-september-2026/
+
+Brothers is climbing the streaming charts.
+---------
+
+# 7 Weakest Z Fighters in Dragon Ball History, Ranked
+
+Anime, Dragon Ball, Akira Toriyama
+
+Fri, 25 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/dragon-ball-weakest-z-fighters-ranked/
+
+Dragon Ball's Z-Fighters represent the Earth's strongest warriors, but some of these heroes are substantially weaker than their peers.
+---------
+
+# ‘The Gentlemen’ Star’s 2026 Crime Thriller Is Officially Taking Over the World
+
+Movie News, Fuze, Theo James, Aaron Taylor-Johnson, Sam Worthington
+
+Sat, 26 Sep 2026 00:15:11 GMT
+
+https://collider.com/theo-james-fuze-streaming-success-apple-tv-september-2026/
+
+The best action thriller of 2026 you still haven't seen just crossed 100 days at the top of streaming charts.
+---------
+
+# 6 Superhero Movies That Feel Shakespearean, Ranked
+
+Movie, Thor, Black Panther, The Dark Knight, Superhero
+
+Sat, 26 Sep 2026 00:11:11 GMT
+
+https://collider.com/superhero-movies-shakespearean-ranked/
+
+Superhero movies like Thor, Black Panther, and The Dark Knight draw undeniable parallels to Shakespeare thanks to timeless themes and archetypes.
+---------
+
+# Anne Hathaway’s Next Major Blockbuster Officially Releases in 1 Week
+
+Movie News, Verity, Anne Hathaway, Dakota Johnson, Josh Hartnett
+
+Sat, 26 Sep 2026 00:00:11 GMT
+
+https://collider.com/anne-hathaway-verity-release-date-october-2026/
+
+Anne Hathaway's next big blockbuster officially releases in less than a week. Find out more information about the film here.
+---------
+
+# Lee Child Officially Admits Tom Cruise Was "Completely and Utterly Wrong" for Jack Reacher [Exclusive]
+
+Exclusives, Jack Reacher, Reacher, Tom Cruise, Alan Ritchson
+
+Sat, 26 Sep 2026 00:00:11 GMT
+
+https://collider.com/tom-cruise-jack-reacher-lee-child-character-analysis/
+
+Lee Child says Tom Cruise was “completely and utterly wrong” for Jack Reacher physically, despite understanding the character.
+---------
+
+# Robert Pattinson Officially Weighs in on His Batman Joining James Gunn’s DCU
+
+Movie News, The Batman Part II, Robert Pattinson, James Gunn, DCU
+
+Fri, 25 Sep 2026 23:45:11 GMT
+
+https://collider.com/robert-pattinson-batman-james-gunn-dcu-crossover-comments/
+
+The Batman Part 2 star Robert Pattinson has officially addressed a crossover into James Gunn's DCU. Find out what he said here.
+---------
+
+# A 19-Year-Old Horror Cult Classic Officially Takes Over HBO Max
+
+Movie News, Trick r' Treat, HBO Max, Horror, Brian Cox
+
+Fri, 25 Sep 2026 23:43:26 GMT
+
+https://collider.com/trick-r-treat-streaming-hbo-max-september-2026/
+
+Trick ‘r Treat, the definitive Halloween horror cult classic, is officially coming to HBO Max just in time for spooky season. Read on for more.
+---------
+
+# 20 Years Later, Henry Cavill’s Historical Epic Is Dominating Prime Video
+
+TV, Criminal Minds, The Tudors, Catastrophe, Prime Video
+
+Fri, 25 Sep 2026 23:43:11 GMT
+
+https://collider.com/prime-video-shows-binge-september-26-2026/
+
+Criminal Minds, The Tudors, and Catastrophe make up our list of the best shows to binge on Prime Video the weekend of September 26.
+---------
+
+# Robert Downey Jr.'s 'Lincoln Lawyer' Replacement Officially Gets a Second Chance on Streaming
+
+Movie News, Robert Downey Jr, The Judge, Robert Duvall, The Lincoln Lawyer
+
+Fri, 25 Sep 2026 23:30:11 GMT
+
+https://collider.com/robert-downey-jr-the-judge-streaming-success-netflix-september-2026/
+
+Robert Downey Jr.'s forgotten Lincoln Lawyer replacement is officially a Netflix hit 12 years after release.
+---------
+
+# ‘Friday the 13th’ Officially Finds a New Hunting Ground Ahead of Prequel Series
+
+Movie News, Friday the 13th, Friday The 13th, Horror, Crystal Lake
+
+Fri, 25 Sep 2026 23:23:11 GMT
+
+https://collider.com/friday-the-13th-streaming-hbo-max-october-2026/
+
+Ahead of Crystal Lake’s anticipated premiere, the original Friday the 13th is officially coming to a new streaming home.
+---------
+
+# 'MobLand' Creator's Remake of a 1969 Classic Officially Adds 2 Award-Winning Stars
+
+TV News, Ronan Bennett, Olivia Colman, Susan Sarandon, MobLand
+
+Fri, 25 Sep 2026 23:15:12 GMT
+
+https://collider.com/mobland-creator-ronan-bennett-army-of-shadows-remake-cast-susan-sarandon-olivia-colman/
+
+MobLand creator Ronan Bennett is creating a new series with major names in the cast. Get all the details here.
+---------
+
+# Goodbye 'Lioness,' Paramount's 114-Episode Action Thriller Series Refuses To Fall Back on Streaming
+
+TV News, Lioness, SEAL Team, Hot on Streaming, Action, Thriller, Paramount Plus
+
+Fri, 25 Sep 2026 23:00:15 GMT
+
+https://movieweb.com/seal-team-paramount-action-stream-september-2026/
+
+With Taylor Sheridan’s hit now concluded, another military drama is still going strong on the charts.
+---------
+
+# 10 Classic Sci-Fi Shows From the 20th Century No One Remembers
+
+TV Lists, Sci-Fi
+
+Fri, 25 Sep 2026 23:00:15 GMT
+
+https://movieweb.com/sci-fi-shows-20th-century-forgotten/
+
+The 20th century sci-fi canon is much bigger than 'Star Trek' and 'The X-Files,' and these forgotten classics deserve modern love too.
+---------
+
+# Netflix's New Action Movie Officially Described as "End of Watch Meets Top Gun" Thriller
+
+Movie News, Action, Netflix
+
+Fri, 25 Sep 2026 22:54:09 GMT
+
+https://movieweb.com/netflix-helo-andres-baiz-edward-berger/
+
+The upcoming project has recently picked up some impressive creative talent.
+---------
+
+# Tom Holland's 'Spider-Man: Brand New Day' Follow-Up Lands Sabrina Carpenter and Margaret Qualley
+
+Movie News, Tom Holland, Sabrina Carpenter, Margaret Qualley, Fred Astaire
+
+Fri, 25 Sep 2026 22:23:53 GMT
+
+https://movieweb.com/tom-holland-sabrina-carpenter-margaret-qualley-fred-astaire/
+
+The Fred Astaire biopic Holland will star in will feature Sabrina Carpenter as Ginger Rogers and Margaret Qualley as Adele Astaire.
+---------
+
+# 5 Years Later, Mike Flanagan’s Overlooked Netflix Mystery Thriller Beats His Other Series In One Major Way
+
+Features, Netflix, The Haunting of Bly Manor, Mike Flanagan, Thriller
+
+Fri, 25 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/haunting-of-bly-manor-netflix-best-adaptation/
+
+Mike Flanagan made five thriller TV shows for Netflix, and his most underated one is better than the others for one reason.
+---------
+
 # After 14 Years, Solo Leveling's Home Is Officially Shutting Down In 2026
 
 Anime, Solo Leveling
