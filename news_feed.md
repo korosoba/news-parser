@@ -1,3 +1,355 @@
+# The Expanse Meets Starfield In This Sci-Fi RPG You Can Play Free Now
+
+Gaming, The Outer Worlds, Xbox Game Pass, Triple-A Games, PC
+
+Sat, 26 Sep 2026 04:45:15 GMT
+
+https://screenrant.com/expanse-meets-starfield-free-xbox-game-pass/
+
+The Outer Worlds is the perfect sci-fi RPG for fans of The Expanse and Starfield, and it’s sitting on Xbox Game Pass waiting to be played.
+---------
+
+# Red Dead Redemption 2: The Forgotten Frontier Is Out Now
+
+Gaming, Red Dead Redemption 2, Triple-A Games, Red Dead Redemption, PC
+
+Sat, 26 Sep 2026 04:15:15 GMT
+
+https://screenrant.com/red-dead-redemption-2-forgotten-frontier-mod-out-now/
+
+Red Dead Redemption 2 players can finally return to Nuevo Paraiso with a massive mod that rebuilds RDR1's Mexico for the 1907 frontier.
+---------
+
+# Star Trek Is Officially Switching Genres In Star Trek: Warp Game
+
+Gaming, Star Trek
+
+Sat, 26 Sep 2026 04:00:20 GMT
+
+https://screenrant.com/star-trek-switching-genres-warp-release/
+
+Star Trek has cropped up in all sorts of mediums over the years, and this latest effort is a fresh take, even by those standards.
+---------
+
+# 5 1990s Comic Strips Better Than Dilbert
+
+Comics, Dilbert
+
+Sat, 26 Sep 2026 03:59:08 GMT
+
+https://screenrant.com/1990s-comic-strips-better-than-dilbert/
+
+For those seeking other great comic strip experiences that helped define the 1990s, Dilbert's far from the final word of the era's iconic series.
+---------
+
+# 12 Years Later, I Still Can't Forgive Naruto For Abruptly Switching Genres
+
+Streaming TV, Naruto
+
+Sat, 26 Sep 2026 03:35:41 GMT
+
+https://screenrant.com/naruto-sci-fi-genre-change-not-forgive/
+
+Naruto still ranks among the greatest shōnen anime of all time, but even after all these years, it is hard to forgive it for abruptly switching genres
+---------
+
+# Jurassic World Is No Longer The Best Sequel In Its Own Franchise
+
+Movies, Jurassic Park
+
+Sat, 26 Sep 2026 03:30:15 GMT
+
+https://screenrant.com/jurassic-world-not-best-sequel-camp-cretaceous/
+
+The 2015 movie Jurassic World might be the modern franchise title, but it is far from the best sequel since the original Jurassic Park.
+---------
+
+# Jamie Foxx’s Upcoming Action Movie Adds John Wick Veteran to Growing Cast
+
+Movies
+
+Sat, 26 Sep 2026 03:02:01 GMT
+
+https://screenrant.com/deadlocked-jaime-foxx-adds-marko-zaror-john-wick/
+
+Jamie Foxx’s upcoming action thriller expands its growing cast with an exciting John Wick franchise veteran.
+---------
+
+# Studio Ghibli Is Back With Epic New 15 Movie Release
+
+Anime, Studio Ghibli
+
+Sat, 26 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/studio-ghibli-new-steelbook-release-15-movies/
+
+Preorder the limited steelbook collection of 15 iconic Ghibli films, releasing September 29, 2026.
+---------
+
+# Star Trek: Beam Me Up Officially Arrives November 13
+
+Gaming, Star Trek, Magic: The Gathering, PC, Star Trek: The Next Generation
+
+Sat, 26 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/star-trek-beam-me-up-mtg-november-release/
+
+Star Trek officially returns on November 13 with the release of Beam Me Up, marking the return of The Next Generation's most iconic characters.
+---------
+
+# HBO’s Harry Potter Ditches The Movies’ Most Beloved Aspect, And It Makes Sense
+
+Streaming TV, Harry Potter
+
+Sat, 26 Sep 2026 03:00:15 GMT
+
+https://screenrant.com/hbo-harry-potter-theme-abandon-makes-sense/
+
+The upcoming Harry Potter show is reportedly dropping one of the best aspects from the original movies, but the creative decision somehow makes sense.
+---------
+
+# Anime Movies Every Fan Needs to Watch at Least Once
+
+Anime, Spirited Away, Your Name
+
+Sat, 26 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/anime-movies-every-fan-must-watch/
+
+From timeless classics to modern masterpieces, these anime movies deserve a place on every fan's watchlist.
+---------
+
+# 13 Things You Didn’t Know About Character Ages in Peanuts Comic Strips
+
+Comics, Peanuts
+
+Sat, 26 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/peanuts-comics-characters-ages-trivia/
+
+Peanuts is known for its childlike wonder, making the issue of age interesting in the classic Peanuts comic strips created by Charles M. Schulz.
+---------
+
+# The Banned Classic Star Trek Episode William Shatner Called 'Dull & Forgettable' (He's Wrong)
+
+TV, Star Trek, Sci-Fi, Paramount
+
+Sat, 26 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/star-trek-william-shatner-wrong-about-banned-episode/
+
+William Shatner has a controversial opinion about an infamous and iconic episode of Star Trek: The Original Series, but the captain got it wrong.
+---------
+
+# 10 Most Valuable Pokémon TCG Cards From Discontinued Sets
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG
+
+Sat, 26 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/most-valuable-pokemon-tcg-cards-discontinued-sets/
+
+The Pokémon Company usually stops printing Pokémon TCG sets one to two years after release, meaning most valuable cards are discontinued.
+---------
+
+# Transformers' G1 Grimlock Completes a New Dinobot Combiner
+
+Anime, Transformers, merchandise, toys, action figures
+
+Sat, 26 Sep 2026 03:05:13 GMT
+
+https://www.cbr.com/transformers-grimlock-dinobot-combiner-dr-wu-release/
+
+A new Grimlock toy combines his Generation 1 design with a modern Combiner concept, complete with a redeco derived from the Shattered Glass universe.
+---------
+
+# Complete Anime Series Worth Multiple Rewatches
+
+Anime, Attack On Titan, Fullmetal Alchemist: Brotherhood
+
+Sat, 26 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/complete-anime-worth-multiple-rewatch/
+
+These complete anime series are easy to revisit thanks to their engaging stories and unforgettable characters.
+---------
+
+# 60 Years Later, Star Trek's William Shatner Addresses Returning as Captain Kirk
+
+TV, Star Trek, Star Trek: The Original Series
+
+Sat, 26 Sep 2026 02:29:04 GMT
+
+https://www.cbr.com/william-shatner-statement-star-trek-return/
+
+Six decades after the character's debut, William Shatner speaks about returning to the Star Trek franchise as James Tiberius Kirk.
+---------
+
+# 5 Open-World Games That Make Being a Wanted Criminal Surprisingly Complicated
+
+Games, open world, Video Games
+
+Sat, 26 Sep 2026 02:15:11 GMT
+
+https://www.cbr.com/open-world-games-that-complicate-criminal-acts/
+
+These open-world games make being a criminal as being wanted with unique gameplay features
+---------
+
+# Sydney Sweeney's $400M R-Rated Thriller Sets HBO Max Release Date
+
+Movies, The Housemaid
+
+Sat, 26 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/sydney-sweeney-the-housemaid-hbo-max-release-date/
+
+After spending more than 150 days on Starz's Top 10, the steamy thriller is heading to a new streaming home.
+---------
+
+# 10 Complete Anime Series You Can Finish in Under 50 Episodes
+
+Anime, Neon Genesis Evangelion, Revolutionary Girl Utena
+
+Sat, 26 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/complete-anime-series-under-50-episodes/
+
+It's not easy to end an anime on the right note, let alone in an economical span of time, but titles like Paranoia Agent and Steins;Gate pull it off.
+---------
+
+# The Lord of the Rings Character Who Was Completely Unrecognizable in the Books
+
+Movie Features, The Lord of the Rings, J.R.R. Tolkien, Viggo Mortensen, Books, Movie
+
+Sat, 26 Sep 2026 04:46:37 GMT
+
+https://collider.com/lord-of-the-rings-aragorn-book-differences/
+
+Peter Jackson’s The Lord of the Rings trilogy changed one iconic character so drastically that they’re almost unrecognizable from Tolkien’s books.
+---------
+
+# The Greatest Adventure Franchise of All Time Is Officially Saying Goodbye
+
+Movie Features, The Mummy, The Mummy Returns, The Mummy: Tomb of the Dragon Emperor, Brendan Fraser
+
+Sat, 26 Sep 2026 04:08:11 GMT
+
+https://collider.com/the-mummy-brendan-fraser-leaving-leaving-free-streaming-tubi/
+
+Brendan Fraser's Mummy trilogy is leaving free streaming on Tubi on September 30, 2026.
+---------
+
+# Prime Video’s Newest Mega Streaming Bundle Exposes an Even Bigger Viewership Problem
+
+TV Features, Prime Video, AMC+, MGM, STARZ
+
+Sat, 26 Sep 2026 03:48:11 GMT
+
+https://collider.com/prime-video-new-streaming-bundle-amc-plus-britbox-problem/
+
+Prime Video's new streaming bundle not only mirrors old cable costs but also complicates viewer choices.
+---------
+
+# The 10 Best War Movie Opening Scenes, Ranked
+
+Movie, Saving Private Ryan, 300, 1917, Dunkirk
+
+Sat, 26 Sep 2026 03:09:12 GMT
+
+https://collider.com/best-war-movie-opening-scenes-ranked/
+
+From 1917, to Saving Private Ryan, to 300, these are the best war movie opening scenes of all time.
+---------
+
+# This Beloved 10-Part Miniseries Streaming on Hulu Is the Perfect Fall Binge
+
+TV Features, Over the Garden Wall, Hulu, Coraline, Cartoon Network
+
+Sat, 26 Sep 2026 02:52:11 GMT
+
+https://collider.com/best-fall-series-hulu-over-the-garden-wall/
+
+Over the Garden Wall is a short, 10 episode animated miniseries streaming on Hulu and it's the perfect binge-watch for the first weekend of fall.
+---------
+
+# The Best Fantasy Horror Movie of the 2000s Officially Hits HBO Max
+
+Movie News, Coraline, HBO Max, Laika, Horror
+
+Sat, 26 Sep 2026 02:22:51 GMT
+
+https://collider.com/coraline-streaming-hbo-max-october-2026/
+
+Coraline, one of the greatest animated horror-fantasy movies of all time, is officially coming to streaming. Read on for more.
+---------
+
+# Lee Child Officially Confirms Which Novel He Wants Alan Ritchson’s ‘Reacher’ to Adapt [Exclusive]
+
+Exclusives, Reacher, Jack Reacher, Prime Video, Alan Ritchson
+
+Sat, 26 Sep 2026 02:00:21 GMT
+
+https://collider.com/reacher-the-midnight-line-adaptation-lee-child-alan-ritchson/
+
+Lee Child reveals why he wants Alan Ritchson's Reacher to adapt The Midnight Line in a future season.
+---------
+
+# This Neo-Noir Western Is So Good, It's Still a Masterpiece 29 Years Later
+
+TV Features, Cowboy Bebop, Adult Swim, Cartoon Network, Shinichiro Watanabe
+
+Sat, 26 Sep 2026 01:55:12 GMT
+
+https://collider.com/cowboy-bebop-neo-noir-western-masterpiece/
+
+29 years after it first debuted, the iconic Cowboy Bebop endures as a foundational work and an anime masterpiece.
+---------
+
+# Keanu Reeves’ Biggest Genre Swing Since ‘John Wick’ Is Officially a Streaming Hit
+
+Movie News, Keanu Reeves, Good Fortune, Aziz Ansari, Seth Rogen
+
+Sat, 26 Sep 2026 01:45:11 GMT
+
+https://collider.com/keanu-reeves-good-fortune-streaming-success-prime-video-september-2026/
+
+Keanu Reeves' forgotten fantasy movie is officially making a comeback on streaming. Read on for all the details.
+---------
+
+# Disney’s R-Rated Gamble Officially Pays Off in Major Streaming Comeback
+
+Movie News, Deadpool & Wolverine, Ryan Reynolds, Hugh Jackman, Disney+
+
+Sat, 26 Sep 2026 01:30:11 GMT
+
+https://collider.com/deadpool-and-wolverine-streaming-success-disney-plus-september-2026/
+
+Marvel's Deadpool & Wolverine is a streaming hit ahead of the two characters' rumored return to the MCU.
+---------
+
+# Brad Pitt's 147-Minute Thriller That Roger Ebert Didn't Believe Is a True Story Resurfaces on Streaming
+
+Movie News, Brad Pitt, Sleepers, Hot on Streaming, Thriller
+
+Sat, 26 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/sleepers-brad-pitt-thriller-stream-hit-tubi-september-2026/
+
+It was adapted from a true crime book whose accuracy has always been questioned.
+---------
+
+# Star Trek Finally Introduces 'The Expanse' Icon's Long-Awaited Character
+
+TV Shows, star trek: strange new worlds, Star Trek, The Expanse, Sci-Fi
+
+Sat, 26 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/star-trek-thomas-jane-bones-reference/
+
+Thomas Jane was announced as Dr. Leonard "Bones McCoy" in 2025, and we just got our first nod to the character in 'Strange New Worlds.' Read on.
+---------
+
 # Resident Evil Has Seven Secret Installments Movie Fans Have Never Heard Of
 
 Books, Resident Evil
