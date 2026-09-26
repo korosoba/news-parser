@@ -1,3 +1,421 @@
+# Sydney Sweeney's One Piece Replacement Officially Confirms A New Era For Netflix
+
+Streaming TV, Sydney Sweeney
+
+Sat, 26 Sep 2026 21:15:15 GMT
+
+https://screenrant.com/gundam-sydney-sweeney-one-piece-replacement-new-era-for-netflix/
+
+One of Netflix's biggest upcoming releases is the movie Gundam, fronted by Sydney Sweeney, which confirms a new era of major franchise adaptations.
+---------
+
+# 10 Greatest Modern Westerns Of The 21st Century, Ranked
+
+Classic Movies, Western
+
+Sat, 26 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/best-modern-westerns-21st-century/
+
+There have been some great modern Westerns released since the start of the 21st century and these are the best of the best in the genre.
+---------
+
+# Forget Task, FX's 7-Part Crime Masterpiece Is An Even Better Dirty Cop Show
+
+Classic TV, Masked Recs
+
+Sat, 26 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/the-shield-fx-better-corrupt-police-tv-show-than-task/
+
+Task is one of the best HBO shows to come along in recent memory, but FX's The Shield is still the best police procedural about corrupt cops.
+---------
+
+# Star Trek: Picard Prequel Shadow Frontier Is Officially Switching Genres
+
+Gaming, Star Trek
+
+Sat, 26 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/star-trek-picard-prequel-shadow-frontier-genre-switch/
+
+Explore Star Trek: Shadow Frontier, a thrilling horror action-adventure set in the Star Trek universe.
+---------
+
+# CBS Cancels Every Marshals Story Set Up For Season 2
+
+Network TV, Marshals
+
+Sat, 26 Sep 2026 20:45:16 GMT
+
+https://screenrant.com/marshals-season-2-set-up-story-cancel/
+
+CBS is shifting direction for Marshals season 2, resolving key plotlines from the finale too quickly for the show to maintain its high stakes.
+---------
+
+# Avengers: Endgame Encore’s New Doctor Doom Scene Explains The Iron Man Question We’ve All Been Wondering
+
+Movies, Avengers: Endgame, Marvel Cinematic Universe, Avengers: Doomsday
+
+Sat, 26 Sep 2026 20:45:16 GMT
+
+https://screenrant.com/avengers-endgame-encore-doctor-scene-iron-man-connection/
+
+Doctor Doom's links to the Marvel Cinematic Universe's Iron Man have been addressed via the new and expanded version of Avengers: Endgame.
+---------
+
+# Taylor Sheridan's Explosive Action Series Reclaims Its Streaming Crown
+
+TV, Masked Recs
+
+Sat, 26 Sep 2026 20:37:34 GMT
+
+https://screenrant.com/lioness-paramount-plus-streaming-success-september-2026/
+
+Taylor Sheridan's star-studded action thriller series has overtaken a long-running show to become the most-watched of its streaming service again.
+---------
+
+# Reacher Ruins Season 4's Final Fight With A Line So Cringe Even Austin Powers Would Think Twice
+
+Streaming TV, Reacher
+
+Sat, 26 Sep 2026 20:30:16 GMT
+
+https://screenrant.com/reacher-final-fight-season-4-ruined-by-line/
+
+Reacher's latest season has had some of the best action yet, but with one line, it ruined a fight scene that could have been the show's all-time best.
+---------
+
+# Brad Pitt Teases Long-Awaited Ocean's 14 Is "Actually Worth" It
+
+Movies, Ocean's 14
+
+Sat, 26 Sep 2026 20:26:11 GMT
+
+https://screenrant.com/oceans-14-brad-pitt-script-update/
+
+Brad Pitt finally offers audiences a much-needed update regarding the upcoming sequel Ocean's 14, assuring viewers that it will be worth it.
+---------
+
+# Samuel L. Jackson's New Action Caper Is Almost The Hitman's Bodyguard 3
+
+Movies, Masked Recs, Samuel L. Jackson
+
+Sat, 26 Sep 2026 20:01:15 GMT
+
+https://screenrant.com/just-play-dead-samuel-l-jackson-hitmans-bodyguard/
+
+Bloody gunfights and bitter black comedy collide in Samuel L. Jackson and Eva Green's R-rated thriller, which feels an awful lot like an earlier hit.
+---------
+
+# 7 Most Powerful Black Clover Rogue Mages
+
+Anime, Black Clover, Shonen
+
+Sat, 26 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/most-powerful-black-clover-rogue-mages/
+
+Magic in Black Clover decides a person's entire social standing, but some of the strongest mages never wear a Magic Knight's robe.
+---------
+
+# All 6 Jane Austen Books, Ranked
+
+Books, Pride & Prejudice
+
+Sat, 26 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/all-jane-austen-books-ranked/
+
+Jane Austen is one of the most celebrated authors of all time and her books are must-read stories to this day.
+---------
+
+# Jason Momoa's $961M Fantasy Smash Is 1 of the Biggest Movies in the World
+
+Movies, A Minecraft Movie, jack black, Netflix
+
+Sat, 26 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/jason-momoa-a-minecraft-movie-fantasy-netflix-success-september-2026/
+
+One of the biggest movies of 2025 is back on top.
+---------
+
+# Stephen King Endorses Apple TV's 'Fantastic' New 6-Part Thriller Series
+
+TV, Last Seen
+
+Sat, 26 Sep 2026 20:57:19 GMT
+
+https://www.cbr.com/stephen-king-endorses-apple-tv-last-seen/
+
+Apple TV's newest thriller series gets a seal of approval from Stephen King.
+---------
+
+# Steven Spielberg's Forgotten Twilight Zone Copycat Is Peak '80s Sci-Fi
+
+TV, Amazing Stories, The Twilight Zone, Sci-Fi
+
+Sat, 26 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/steven-spielberg-amazing-stories-best-sci-fi-twilight-zone-replacement/
+
+The fun and bizarre anthology series featured some of the biggest names in the industry in front of and behind the camera.
+---------
+
+# 12 Years Later, Attack on Titan Is Going Back to Where It All Began
+
+Anime, Attack on Titan: The Crimson Bow and Arrow, Attack on Titan, hajime isayama
+
+Sat, 26 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/attack-on-titan-crimson-bow-and-arrow-theater/
+
+Attack on Titan is celebrating its past and future with an improved theatrical re-release of one of its most important stories: Crimson Bow and Arrow.
+---------
+
+# Only 3 Apple TV Shows Made the 100 Best TV Shows of the 21st Century
+
+TV, Apple TV
+
+Sat, 26 Sep 2026 20:06:46 GMT
+
+https://www.cbr.com/apple-tv-the-100-best-tv-shows-of-the-21st-century/
+
+Apple TV is one of the newest studios, and it already has three shows in the Top 100 Best Shows of the 21st century.
+---------
+
+# Avatar: The Last Airbender's New 10-Episode Series Brings Back Katara vs. Jet
+
+Anime, Avatar: The Last Airbender
+
+Sat, 26 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/avatar-last-airbender-katara-jet-fight-chibi-minis/
+
+A seriously underrated Avatar: The Last Airbender spinoff series just gave viewers the chance to revisit one of the series' greatest feuds.
+---------
+
+# 10 Movies To Watch If You Can't Wait For James Gunn's Man of Tomorrow
+
+Movies, Man of Tomorrow
+
+Sat, 26 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/must-watch-movies-before-james-gunns-man-of-tomorrow-list/
+
+As the world awaits James Gunn's next Superman adventure, there are plenty of great sci-fi and superhero movies to watch before Brainiac's debut.
+---------
+
+# 10 Best Teen Titans Comics Ever Published
+
+Comics, Teen Titans, DC Comics
+
+Sat, 26 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/best-teen-titans-comics-ever-published/
+
+The Teen Titans define teenage superheroics and have plenty of unforgettable comics.
+---------
+
+# 5 Mickey Rourke Movies That Are Perfect From Start to Finish
+
+Movie, Mickey Rourke, The Wrestler, Rumble Fish, Barfly
+
+Sat, 26 Sep 2026 21:19:11 GMT
+
+https://collider.com/best-mickey-rourke-movies-perfect/
+
+From The Wrestler to Angel Heart, these Mickey Rourke performances reveal the talent behind one of cinema's great comebacks.
+---------
+
+# The 6 Best Crime Books Released Since 2010, Ranked
+
+Books and Comics, Crime, Books, Gillian Flynn, Gone Girl
+
+Sat, 26 Sep 2026 21:14:11 GMT
+
+https://collider.com/best-crime-books-since-2010-ranked/
+
+From Gone Girl to The Dry, these crime novels blend sharp twists, rich characters, and unforgettable investigations.
+---------
+
+# Jodie Comer’s 8-Episode Historical Miniseries Is Still Worth a Weekend Binge
+
+TV Features, The White Princess, Starz, Jodie Comer, STARZ
+
+Sat, 26 Sep 2026 21:10:11 GMT
+
+https://collider.com/white-princess-jodie-comer-historical-miniseries/
+
+The White Princess is a captivating Starz historical miniseries featuring Jodie Comer, based on Philippa Gregory's novel of the same name.
+---------
+
+# 3 James Bond Contenders Officially Unite in an Easy-to-Binge British Epic
+
+TV News, War & Peace, Jack Lowden, Callum Turner, James Norton
+
+Sat, 26 Sep 2026 21:00:11 GMT
+
+https://collider.com/war-and-peace-streaming-britbox-october-2026-james-bond-contenders/
+
+A six-part adaptation of arguably the greatest novel ever written, starring three James Bond contenders, is coming to a new streaming platform.
+---------
+
+# Stephen King's Forgotten Horror Cult Classic Officially Haunts Free Streaming
+
+Movie News, 1408, Stephen King, John Cusack, Samuel L. Jackson
+
+Sat, 26 Sep 2026 20:45:12 GMT
+
+https://collider.com/john-cusack-1408-stephen-king-streaming-free-tubi-september-2026/
+
+Stephen King’s acclaimed haunted-hotel thriller 1408 is officially coming to Tubi, where it will be available to stream for free.
+---------
+
+# 10 Perfect Double Features To Watch With Zach Cregger's 'Resident Evil'
+
+Movie, Evil Dead II, The Thing, Weapons, Resident Evil
+
+Sat, 26 Sep 2026 20:38:11 GMT
+
+https://collider.com/resident-evil-zach-cregger-movies-perfect-double-features/
+
+Movies like Sam Raimi's Evil Dead and John Carpenter's The Thing are perfect companions for Zach Cregger's video game adaptation, Resident Evil.
+---------
+
+# Agatha Christie’s Deadliest Mystery Officially Finds New Life on Free Streaming
+
+Movie News, And Then There Were None, Agatha Christie, Mystery, Thriller
+
+Sat, 26 Sep 2026 20:30:11 GMT
+
+https://collider.com/agatha-christie-and-then-there-were-none-streaming-free-justwatch-tv-september-2026/
+
+Agatha Christie's most beloved mystery was adapted into a 1945 movie that's streaming for free on a brand-new platform. Find out more.
+---------
+
+# The 10 Best Stephen King Book Endings, Ranked
+
+Books and Comics, Stephen King, The Stand, It, The Dark Tower
+
+Sat, 26 Sep 2026 20:29:11 GMT
+
+https://collider.com/best-stephen-king-book-endings-ranked/
+
+Stephen King's body of work has more good endings than you might expect, given his reputation, with books like 11/22/63 and Cujo concluding strongly.
+---------
+
+# Peacock’s ‘Dungeon Crawler Carl’ Has One Character It Can’t Afford to Get Wrong
+
+TV Features, Dungeon Crawler Carl, Peacock, Seth MacFarlane, Universal Studios
+
+Sat, 26 Sep 2026 20:11:11 GMT
+
+https://collider.com/dungeon-crawler-carl-princess-donut-character-meaning/
+
+Dungeon Crawler Carl has a careful balance of heart and humor to keep fans engaged. For the TV show to do the same, it must get Princess Donut right.
+---------
+
+# The 6 Most Suspenseful Thrillers Released Since 2000, Ranked
+
+Movie, Thriller, Gone Girl, Zodiac, Uncut Gems
+
+Sat, 26 Sep 2026 20:04:11 GMT
+
+https://collider.com/most-suspenseful-thrillers-since-2000-ranked/
+
+Zodiac, The Invisible Man, and No Country for Old Men are all among the best, most suspenseful thrillers released since the year 2000.
+---------
+
+# Netflix's 3-Season Sci-Fi Space Opera Is So Good, It'll Make You Believe in Reboots
+
+Features, Lost In Space, Sci-Fi, Netflix
+
+Sat, 26 Sep 2026 21:00:15 GMT
+
+https://movieweb.com/lost-in-space-netflix-reboot/
+
+Netflix's remake of a classic sci-fi series is one of the most satisfying outer space TV adventures in recent memory.
+---------
+
+# Netflix’s 6-Part Guy Ritchie-Esque Crime Thriller Is So Good, You’ll Spend the Whole Weekend Watching It
+
+Features, Black Doves, Netflix, Thriller
+
+Sat, 26 Sep 2026 20:30:14 GMT
+
+https://movieweb.com/black-doves-netflix-guy-ritchie-comparison/
+
+Netflix's six-part spy thriller feels a lot like a Guy Ritchie project, and now's the perfect time to watch it before it returns in November.
+---------
+
+# 24 Years Ago, Steven Spielberg's Detective Thriller Masterpiece Delivered the Perfect Cat-and-Mouse Game
+
+Features, Steven Spielberg, Crime, Thriller, Catch Me If You Can
+
+Sat, 26 Sep 2026 20:00:15 GMT
+
+https://movieweb.com/catch-me-if-you-can-perfect-thriller/
+
+Steven Spielberg has made many great movies, from 'E.T.' to 'Jaws,' and this detective thriller movie from the 2000s is one of his best.
+---------
+
+# 6 Biggest Upcoming Fantasy Series That Will Rival Peak 'Game of Thrones'
+
+TV Lists, Fantasy, Game of Thrones, Game Of Thrones
+
+Sat, 26 Sep 2026 19:30:15 GMT
+
+https://movieweb.com/upcoming-fantasy-series-rival-game-of-thrones/
+
+There haven't been many fantasy series to reach the heights of peak 'Game of Thrones,' but these upcoming titles could be the genre's next big thing.
+---------
+
+# Netflix Scores the Perfect Harlan Coben Replacement Thriller – And It Hits Streaming Next Month
+
+TV News, Thriller, Coming/Leaving Streaming, Harlan Coben, Netflix
+
+Sat, 26 Sep 2026 19:30:15 GMT
+
+https://movieweb.com/the-trap-netflix-thriller-streaming-october-2026/
+
+Netflix has found the perfect thriller to keep viewers obsessed while they wait for the next Harlan Coben adaptation.
+---------
+
+# All 10 'Star Trek: Strange New Worlds' Season 4 Episodes, Ranked
+
+TV Lists, star trek: strange new worlds, Star Trek, Sci-Fi
+
+Sat, 26 Sep 2026 19:00:14 GMT
+
+https://movieweb.com/star-trek-strange-new-worlds-season-4-episodes-ranked/
+
+Captain Pike and company embark on a mixed bag of adventures in Season 4, but the good episodes were truly great. Read on for more.
+---------
+
+# Netflix’s Answer to ‘Breaking Bad’ Was a 10/10 Crime Thriller From Start to Finish
+
+Features, Ozark, Breaking Bad, Crime
+
+Sat, 26 Sep 2026 18:45:16 GMT
+
+https://movieweb.com/ozark-netflix-perfect-breaking-bad-comparison/
+
+Netflix answered the success of 'Breaking Bad' with an ambitious crime thriller of its own, and despite not being as influential, it really is great.
+---------
+
+# When Brad Pitt's 'Heart of the Beast' Will Release on Streaming
+
+Features, Brad Pitt, Heart of the Beast, Thriller, Action
+
+Sat, 26 Sep 2026 18:30:14 GMT
+
+https://movieweb.com/heart-of-beast-streaming-release/
+
+'Heart of the Beast,' the action thriller movie starring Brad Pitt and J.K. Simmons, is released in theaters on September 25, 2026.
+---------
+
 # The MCU's Multiverse Saga Timeline Fully Explained Ahead of Avengers: Doomsday
 
 Movies, Marvel Cinematic Universe, Avengers: Doomsday
