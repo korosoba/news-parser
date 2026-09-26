@@ -1,3 +1,399 @@
+# 5 Harsh Realities Of Watching The End Of Oak Street Now That It's On Streaming
+
+Movies, The End of Oak Street
+
+Sat, 26 Sep 2026 23:15:16 GMT
+
+https://screenrant.com/end-of-oak-street-movie-harsh-realities-rewatch/
+
+The End of Oak Street offers a fresh take on the dinosaur movie formula, though there are a few harsh realities to beware of for home viewing.
+---------
+
+# Avengers: Endgame Is On The Verge Of Breaking Two Records Everyone Thought Were Impossible
+
+Movies, Avengers: Endgame, Marvel Cinematic Universe
+
+Sat, 26 Sep 2026 23:15:16 GMT
+
+https://screenrant.com/avengers-endgame-encore-new-box-office-records-possible/
+
+Avengers: Endgame’s enormous re-release already looks to be setting some shocking box office records, and it could be even bigger than expected.
+---------
+
+# Michael Connelly’s Next Bosch Book Will Be The Most Tragic Storyline Yet
+
+Books, Bosch
+
+Sat, 26 Sep 2026 23:13:23 GMT
+
+https://screenrant.com/michael-connelly-the-hollow-harry-bosch-abuse/
+
+Harry Bosch will face something truly tragic in Michael Connelly's next Bosch book, and readers should prepare to see him in an entirely new light.
+---------
+
+# After 13 Years, Pokémon Winds & Waves New Eeveelution Is Perfectly Obvious
+
+Gaming, Pokemon, Pokemon Winds and Waves, PC
+
+Sat, 26 Sep 2026 23:00:16 GMT
+
+https://screenrant.com/pokemon-winds-waves-new-eeveelution/
+
+It's been 13 years since Pokémon introduced a new Eeveelution, but Winds & Waves could finally break the dry spell with an obvious announcement.
+---------
+
+# X-Men Announces Full Roster of Historic New Team
+
+Comics, X-Men
+
+Sat, 26 Sep 2026 23:00:16 GMT
+
+https://screenrant.com/x-men-new-team-final-brotherhood-roster-powers/
+
+A team with deep ties to the very beginning of X-Men lore.
+---------
+
+# How Scrubs Season 2 Will Test One Of TV's Greatest Couples Explained By Donald Faison
+
+TV, Scrubs
+
+Sat, 26 Sep 2026 22:59:12 GMT
+
+https://screenrant.com/scrubs-season-2-greatest-tv-couple-turk-carla-tested-donald-faison/
+
+Exclusive: Scrubs' Donald Faison discussed the challenges that Turk and Carla will face in their relationship in season 2 of the revival series.
+---------
+
+# The Mandalorian Officially Brings Grogu One Step Closer To His Perfect Jedi Master
+
+Streaming TV, The Mandalorian, The Mandalorian and Grogu, Star Wars
+
+Sat, 26 Sep 2026 22:30:19 GMT
+
+https://screenrant.com/the-mandalorian-grogu-perfect-jedi-master-ezra-bridger/
+
+The Mandalorian franchise officially brings Grogu one step closer to his Jedi Master; Ahsoka and Luke aren't the only Jedi in the New Republic era.
+---------
+
+# X-Files Meets The Diplomat In This 21-Part Sci-Fi Masterpiece
+
+Comics, Masked Recs, Sci-Fi
+
+Sat, 26 Sep 2026 22:30:19 GMT
+
+https://screenrant.com/best-sci-fi-series-like-xfiles-saucer-country/
+
+The spooky UFO mythology of The X-Files meet the political intrigue of The Diplomat.
+---------
+
+# Russell Crowe's New Netflix Crime Thriller Officially Becomes The Most-Watched Movie In The World
+
+Movies, Masked Recs
+
+Sat, 26 Sep 2026 22:25:36 GMT
+
+https://screenrant.com/russell-crowe-unabomber-netflix-streaming-charts-hit-september-2026/
+
+Russell Crowe's new Netflix true crime movie has become one of the most popular films less than a day after its release on the streaming platform.
+---------
+
+# 16 Netflix Series Named in 100 Best TV Shows of the 21st Century List
+
+TV, Netflix, The Crown, BoJack Horseman, House of Cards, Stranger Things, I Think You Should Leave with Tim Robinson, Ozark, Beef, Squid Game, Baby Reindeer, The Queen's Gambit, The Diplomat, The OA, Arrested Development, Black Mirror, Peaky Blinders, Peaky Blinders: The Immortal Man, The Great British Baking Show
+
+Sat, 26 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/netflix-series-100-best-tv-shows-of-the-21st-century/
+
+The controversial list set social media on fire, thanks to where it ranked the best Netflix shows of all-time.
+---------
+
+# 7 Best Shonen Anime That Haven't Ended Yet, Ranked
+
+Anime, Shonen
+
+Sat, 26 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/best-shonen-anime-still-ongoing-ranked/
+
+Many amazing shonen are no longer airing new episodes, but these seven have not even reached their best arcs yet, leaving plenty to anticipate.
+---------
+
+# Dave Bautista's 100-Minute M. Night Shyamalan Thriller Turns Into a Streaming Smash Hit
+
+Movies, Knock at the Cabin, Thriller, m night shyamalan
+
+Sat, 26 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/knock-at-the-cabin-thriller-netflix-success-september-2026/
+
+M. Night Shyamalan's psychological thriller, Knock at the Cabin, rises on streaming 3 years later.
+---------
+
+# Nintendo's The Legend of Zelda is The Most Important Movie of 2027
+
+Movies, The Legend of Zelda
+
+Sat, 26 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/nintendo-the-legend-of-zelda-most-important-movie-2027/
+
+Nintendo has seen a lot of success with its animated Mario movies, but its next fantasy epic is the studio's biggest challenge.
+---------
+
+# 25 Years Later, Jessica Jones's Strangest Case Returns From Original Creators
+
+Comics, Jessica Jones, Marvel
+
+Sat, 26 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/jessica-jones-alias-25th-anniversary-release-date-confirmed/
+
+The fan-favorite Marvel character is getting a special new series to celebrate her 25th anniversary.
+---------
+
+# 10 Best Turn-Based Strategy Games of All Time, Ranked
+
+Games, Final Fantasy
+
+Sat, 26 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/best-turn-based-strategy-games-of-all-time-ranked/
+
+From subtle positioning to branching loyalties these turn-based strategy games offer both depth and drama.
+---------
+
+# Godzilla Minus Zero First Reactions Revealed: '1 of the Greatest Sequels of All Time'
+
+Movies, Godzilla Minus Zero
+
+Sat, 26 Sep 2026 22:12:27 GMT
+
+https://www.cbr.com/godzilla-minus-zero-first-reactions/
+
+Godzilla Minus Zero is already generating Oscar buzz with its early reviews.
+---------
+
+# CBS Finally Fixes an Obvious NCIS Mistake With Jimmy Palmer
+
+TV, NCIS, NCIS: New York, CBS
+
+Sat, 26 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/ncis-new-york-brian-dietzen-jimmy-palmer-guest-appearance/
+
+The latest offshoot of CBS's Navy franchise will finally fix a mistake it's made for years in NCIS: New York, its new spinoff starring LL Cool J.
+---------
+
+# Mushoku Tensei Puts Its Jobless Hero Back on the Clock With 4 New Smartwatches
+
+Anime, Mushoku Tensei: Jobless Reincarnation, merchandise
+
+Sat, 26 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/mushoku-tensei-new-smartwatch-collection-garrack/
+
+Mushoku Tensei is now over a decade old, and international fans can watch the time pass in style with a quartet of versatile isekai smartwatches.
+---------
+
+# Dark 100-Minute Fantasy Based on a Book Sets HBO Max Release Date Ahead of Spiritual Successor
+
+Movies, Coraline
+
+Sat, 26 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/coraline-hbo-max-release-october-2026/
+
+After the film had a new streaming resurrection, it's heading to a brand-new streaming home.
+---------
+
+# Ridley Scott Meets 'Chernobyl' in AMC’s 3-Part Historical Horror
+
+TV Features, The Terror, AMC+, Ridley Scott, Thriller
+
+Sat, 26 Sep 2026 23:36:11 GMT
+
+https://collider.com/the-terror-ridley-scott-meets-chernobyl-historical-horror/
+
+Despite its critical acclaim, The Terror never got the attention it deserves. The Ridley Scott-produced anthology series is still worth a second look.
+---------
+
+# Star Trek’s 3-Part Sci-Fi Reboot Is Officially United on Streaming
+
+Movie News, Sci-Fi, Star Trek Into Darkness, Star Trek Beyond, Star Trek
+
+Sat, 26 Sep 2026 23:30:12 GMT
+
+https://collider.com/star-trek-reboot-trilogy-peacock-streaming-september-2026/
+
+Chris Pine’s complete Star Trek reboot trilogy is now streaming on Peacock as the franchise celebrates its 60th anniversary.
+---------
+
+# Anthony Hopkins' Forgotten War Epic Officially Finds a New Streaming Home
+
+Movie News, Anthony Hopkins, Downfall, The Bunker, World War II
+
+Sat, 26 Sep 2026 23:15:12 GMT
+
+https://collider.com/anthony-hopkins-the-bunker-streaming-free-justwatch-tv-september-2026/
+
+Anthony Hopkins' precursor to the critically acclaimed WWII masterpiece Downfall is streaming for free on a brand-new platform.
+---------
+
+# Matt Damon’s 119-Minute Spy Thriller Remains a Global Streaming Smash
+
+Movie News, Matt Damon, STARZ, The Bourne Identity, Clive Owen
+
+Sat, 26 Sep 2026 23:00:12 GMT
+
+https://collider.com/the-bourne-identity-streaming-hit-starz-september-2026/
+
+Matt Damon’s action-packed The Bourne Identity is officially a streaming hit as audiences revisit the spy thriller after The Odyssey.
+---------
+
+# The 8 Best Satire Shows of the Last 25 Years, Ranked
+
+TV, Veep, Succession, The Boys, It's Always Sunny in Philadelphia
+
+Sat, 26 Sep 2026 22:48:11 GMT
+
+https://collider.com/best-satire-shows-last-25-years-ranked/
+
+The Boys, Succession, and It's Always Sunny in Philadelphia are all among the best satire TV shows of the last 25 years.
+---------
+
+# ‘North by Northwest’ Meets ‘Clue’ in a 1963 Mystery Officially Streaming for Free
+
+Movie News, Audrey Hepburn, Clark Gable, Charade, North By Northwest
+
+Sat, 26 Sep 2026 22:45:11 GMT
+
+https://collider.com/audrey-hepburn-cary-grant-classic-charade-streaming-free-justwatch/
+
+Audrey Hepburn and Cary Grant starred in this 1963 caper classic streaming for free on a brand-new platform. Find out more.
+---------
+
+# Netflix’s Bonkers ‘The Pitt’ Replacement Officially Leaves Streaming in 2 Weeks
+
+TV News, Nurse Jackie, Edie Falco, Netflix, The Pitt
+
+Sat, 26 Sep 2026 22:30:11 GMT
+
+https://collider.com/netfix-removing-edie-falco-nurse-jackie-october-2026/
+
+Netflix's bonkers alternative to The Pitt is officially being removed from streaming in less than two weeks.
+---------
+
+# 10 Greatest Shows on Netflix That Are 10/10, No Notes
+
+TV, Netflix, Stranger Things, Dark Winds, Squid Game
+
+Sat, 26 Sep 2026 22:08:12 GMT
+
+https://collider.com/best-thriller-shows-netflix-perfect/
+
+From the sci-fi horror sensation Stranger Things to the crime drama Dark Winds, these thriller shows streaming on Netflix are truly flawless.
+---------
+
+# The 6 Most Universally Loved Movies Released Since 2010, Ranked
+
+Movie, Top Gun: Maverick, Everything Everywhere All at Once, Parasite, Mad Max: Fury Road
+
+Sat, 26 Sep 2026 22:05:12 GMT
+
+https://collider.com/the-6-most-universally-loved-movies-released-since-2010-ranked/
+
+From Parasite to Paddington 2, these crowd-pleasing classics united critics and audiences in a way few modern movies ever do.
+---------
+
+# 13 Years Later, M. Night Shyamalan's Sci-Fi Bomb Is Officially Free To Stream
+
+Movie News, Jaden Smith, M. Night Shyamalan, Will Smith, After Earth
+
+Sat, 26 Sep 2026 22:00:12 GMT
+
+https://collider.com/m-night-shyamalan-sci-fi-after-earth-free-streaming-tubi-october-2026/
+
+The infamous sci-fi flop After Earth, designed as a star-making vehicle for Jaden Smith, is about to be added to the Tubi library. Find out more.
+---------
+
+# Chris Hansen Watches Robert Pattinson in 'Primetime,' Says Biopic Is "Detached from Reality"
+
+Movie News, Primetime, A24, Drama
+
+Sat, 26 Sep 2026 23:30:14 GMT
+
+https://movieweb.com/primetime-chris-hansen-reaction/
+
+Chris Hansen unleashes a scathing review of 'Primetime' after finally seeing it in theaters.
+---------
+
+# 'The Last of Us' Recasts Key Roles, Adds John Goodman for Season 3
+
+TV News, The Last of Us, John Goodman, Horror
+
+Sat, 26 Sep 2026 23:00:15 GMT
+
+https://movieweb.com/the-last-of-us-season-3-new-cast/
+
+'The Last of Us' is recruiting some familiar voices for its grand finale.
+---------
+
+# Forget 'John Wick,' The Best Assassin Action Thriller Is Now One of the Biggest Movies in the World
+
+Movie News, Léon: The Professional, HBO Max, Hot on Streaming, Action, John Wick
+
+Sat, 26 Sep 2026 23:00:15 GMT
+
+https://movieweb.com/leon-the-professional-action-stream-hbo-september-2026/
+
+With enough prep, he could beat John Wick.
+---------
+
+# Harlan Coben’s 6-Part Prime Video Detective Thriller Is a Perfect Weekend Night Binge
+
+Features, Lazarus, Harlan Coben, Thriller
+
+Sat, 26 Sep 2026 22:30:17 GMT
+
+https://movieweb.com/lazarus-harlan-coben-thriller-binge/
+
+Harlan Coben's TV thrillers are all great for binge-watching, but one TV series has six episodes and can be watched in one evening.
+---------
+
+# 9 Great Sci-Fi Movies With Completely Bizarre Time Travel Rules
+
+Movie Lists, Sci-Fi
+
+Sat, 26 Sep 2026 22:00:15 GMT
+
+https://movieweb.com/sci-fi-movies-bizarre-time-travel/
+
+From expired sodas to illegal substances, things get wild when time travel doesn't require an elaborate sci-fi device.
+---------
+
+# 8 Near-Perfect Netflix Miniseries That Hook You In the First 10 Minutes
+
+TV Lists, Netflix
+
+Sat, 26 Sep 2026 21:30:15 GMT
+
+https://movieweb.com/netflix-miniseries-hook-10-minutes/
+
+These Netflix limited series make for quick and compelling watches, and it doesn't take them long to get you invested in their stories.
+---------
+
+# Henry Cavill's 98-Minute Action Thriller Flop Is Officially an Unstoppable Streaming Sensation
+
+Movie News, Henry Cavill, Night Hunter, Action, Thriller
+
+Sat, 26 Sep 2026 21:30:15 GMT
+
+https://movieweb.com/henry-cavill-night-hunter-stream-september-2026/
+
+Though it only banked $1 million at the box office, the thriller has more than made up for it on streaming.
+---------
+
 # Sydney Sweeney's One Piece Replacement Officially Confirms A New Era For Netflix
 
 Streaming TV, Sydney Sweeney
