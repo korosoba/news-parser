@@ -1,3 +1,399 @@
+# American Horror Story's Format Change Confirms The Worst Season 13 Fears
+
+Streaming TV, American Horror Story
+
+Sun, 27 Sep 2026 02:45:16 GMT
+
+https://screenrant.com/american-horror-story-season-13-episode-format-story-pacing-issues/
+
+American Horror Story season 13 sets out to be the most ambitious to date, but if the first 3 episodes are anything to go by, it could be in trouble.
+---------
+
+# Netflix’s New Legal Drama Is an Addictive Series You Can Binge This Weekend
+
+Streaming TV, Netflix, Masked Recs
+
+Sun, 27 Sep 2026 02:45:10 GMT
+
+https://screenrant.com/habeas-corpus-netflix-new-legal-drama/
+
+For fans of lawyer shows, Netflix's new release is a must-watch legal series that puts the judicial systems to the test.
+---------
+
+# Baldur's Gate 3: Best Rogue/Ranger Multiclass Build
+
+Gaming, Baldur's Gate 3, Baldur's Gate, PC
+
+Sun, 27 Sep 2026 02:30:19 GMT
+
+https://screenrant.com/baldurs-gate-3-best-rogue-multiclass-build/
+
+The Rogue class in Baldur's Gate 3 is one of the most versatile melee archetypes in the game, but a multiclass build could add even stronger skills.
+---------
+
+# After 5 Years, An Iconic 50-Year Old Sci-Fi Masterpiece Is Returning With Its Final Chapter
+
+Anime, Sci-Fi, Masked Recs
+
+Sun, 27 Sep 2026 02:30:18 GMT
+
+https://screenrant.com/yamato-sci-fi-masterpiece-final-chapter/
+
+After a massive five-year cinematic buildup, this iconic fifty-year-old space opera is finally delivering an epic finale.
+---------
+
+# Every Character Is A Villain In Netflix’s 44-Episode Crime Thriller
+
+Classic TV, Masked Recs
+
+Sun, 27 Sep 2026 02:30:18 GMT
+
+https://screenrant.com/ozark-netflix-only-villains-thriller/
+
+One of Netflix’s greatest crime thriller is so incredibly bleak that almost all of its main characters turn out to be villains in more ways than one.
+---------
+
+# Denzel Washington’s Underrated Historical Movie Is Streaming For Free Next Week
+
+Movies, Masked Recs
+
+Sun, 27 Sep 2026 02:23:26 GMT
+
+https://screenrant.com/denzel-washingtons-underrated-historical-movie-is-streaming-for-free-next-week/
+
+Denzel Washington’s underrated historical movie will be available to stream for free next week, giving fans a chance to rediscover the acclaimed film.
+---------
+
+# Russell Crowe's New Mindhunter-esque Netflix Thriller Sets Rotten Tomatoes Audience Record After 21 Years
+
+Movies, Masked Recs, Netflix, Russell Crowe
+
+Sun, 27 Sep 2026 02:04:15 GMT
+
+https://screenrant.com/russell-crowe-unabomber-netflix-third-lowest-rotten-tomatoes-audience-score-record/
+
+After 21 years, Russell Crowe's new true-crime thriller has set a Rotten Tomatoes record as audiences finally watch the Netflix movie.
+---------
+
+# Marvel’s Most Sadistic Villain Joins Forces With An Avenger In Brand-New Series
+
+Marvel Comics, Marvel, Avengers
+
+Sun, 27 Sep 2026 02:00:25 GMT
+
+https://screenrant.com/carnage-spiderwoman-avengers-marvel/
+
+Marvel Comics has found a new home for a serial killer who hasn't put down roots in a while, and they may not have the free rein they normally do.
+---------
+
+# The Legend of Zelda: Ocarina Of Time Remake - Release Date, Preorders, Price, & Platforms
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Sun, 27 Sep 2026 02:00:25 GMT
+
+https://screenrant.com/zelda-ocarina-time-remake-release-date-preorders-platforms/
+
+The upcoming Ocarina of Time remake is set to be one of the most talked-about games of 2026. Here’s everything we know about it so far.
+---------
+
+# Stephen King Meets Robert Eggers In Netflix's 100% RT Horror Masterpiece
+
+Classic TV, Masked Recs
+
+Sun, 27 Sep 2026 02:00:25 GMT
+
+https://screenrant.com/marianne-stephen-king-meets-robert-eggers-netflix-masterpiece/
+
+Netflix has created truly terrifying horror shows that rival the likes of Stephen King and Robert Eggers— including international hidden gem Marianne.
+---------
+
+# 10 Open-World RPGs With the Best Combat, Ranked
+
+Games, Final Fantasy, RPG, open world
+
+Sun, 27 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/open-world-rpgs-best-combat-ranked-list/
+
+Open-world games like Elden Ring and FFVII Rebirth feature amazing combat, encouraging players to spend as much time fighting as exploring.
+---------
+
+# Jack Reacher Creator Explains Replacing Tom Cruise with Alan Ritchson
+
+TV, Reacher
+
+Sun, 27 Sep 2026 02:31:58 GMT
+
+https://www.cbr.com/reacher-lee-child-comments-alan-ritchson-tom-cruise/
+
+Lee Child confirms the major rule that was established for casting the new Jack Reacher after the Tom Cruise movies.
+---------
+
+# 10 Greatest Decepticon Combiners, Ranked by Power
+
+Anime, Transformers, decepticons
+
+Sun, 27 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/transformers-most-powerful-decepticon-combiners-ranked-list/
+
+Devastator is the most iconic Combiner in the Transformers franchise, but other similar Generation 1 Decepticon teams give him a run for his money.
+---------
+
+# M3GAN's R-Rated Spinoff With 40% RT Sets Streaming Release Date After Skipping Theaters
+
+Movies, M3GAN, M3GAN 2.0, SOULM8TE, Horror, Hulu
+
+Sun, 27 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/m3gan-r-rated-soulm8te-spinoff-sets-streaming-release-date/
+
+This M3GAN spinoff should've never happened, but it'll be on streaming soon for all to decide.
+---------
+
+# All 3 Pokémon Winds & Waves Starters, Ranked Worst to Best
+
+Games, Pokemon
+
+Sun, 27 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/pokemon-winds-waves-starters-ranked-worst-to-best/
+
+Some fans may already be divided, but the three new starters from Pokémon Winds & Waves could soon become iconic.
+---------
+
+# Sword Art Online Meets Hades in Colorful New Steam Game With Over 150 Upgrades
+
+Anime, Sword Art Online, Steam, Crunchyroll
+
+Sun, 27 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/ved-recure-steam-action-roguelite/
+
+Steam invokes the spirit of the iconic, MMO-inspired anime series, Sword Art Online, with a new action roguelite game set in a stunning virtual world.
+---------
+
+# Godzilla's Latest Formula Shift Signals a New Era for the Franchise
+
+Movies, Godzilla Minus One, Godzilla Minus Zero
+
+Sun, 27 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/godzilla-minus-zero-r-rated-imax-new-era/
+
+Godzilla Minus Zero has the potential to surpass the MonsterVerse
+---------
+
+# Netflix's 9-Episode Slow Horses Copycat Has Already Scored Crime Classic Status
+
+TV, Dept. Q, Slow Horses, Crime
+
+Sun, 27 Sep 2026 02:00:21 GMT
+
+https://www.cbr.com/netflix-dept-q-slow-horses-copycat-instant-crime-classic/
+
+This British detective show's perpetually furious main character makes the sarcastic Jackson Lamb seem like a pleasant, empathetic guy.
+---------
+
+# 10 Greatest Anime Series That Never Got a Proper Ending
+
+Anime, Berserk, Legend of the Galactic Heroes: Die Neue These
+
+Sun, 27 Sep 2026 01:45:12 GMT
+
+https://www.cbr.com/best-anime-series-without-proper-endings-list/
+
+One thing every anime fan has to get used to is waiting, since some anime like No Game, No Life and Berserk just don't wrap up the way they should.
+---------
+
+# What's Coming to Disney+ in October 2026? Everything Arriving Next Month
+
+TV, Disney+
+
+Sun, 27 Sep 2026 01:30:11 GMT
+
+https://www.cbr.com/what-coming-disney-october-2026-full-list/
+
+A new Marvel Studios is heading to Disney+ in October 2026.
+---------
+
+# 8 Horror Books That Are Perfect From Start to Finish
+
+Books and Comics, Horror, Books, The Shining, Dracula
+
+Sun, 27 Sep 2026 01:33:11 GMT
+
+https://collider.com/horror-books-perfect-start-to-finish/
+
+The Haunting of Hill House, The Shining, The Exorcist, Frankenstein, and more make up our list of horror books that are perfect from start to finish.
+---------
+
+# New Star Wars Movie Officially Confirms Next Skywalker Trilogy Director
+
+Movie News, Jon Watts, Star Wars, Simon Kinberg, Lucasfilm
+
+Sun, 27 Sep 2026 01:08:56 GMT
+
+https://collider.com/star-wars-skywalker-trilogy-jon-watts-directing/
+
+The next chapter in Star Wars’ Skywalker saga has officially confirmed Jon Watts as its director.
+---------
+
+# 8 Modern Fantasy Book Series That Rival Harry Potter
+
+Books and Comics, Fantasy, Harry Potter, Percy Jackson & The Olympians, Shadow and Bone
+
+Sun, 27 Sep 2026 00:34:11 GMT
+
+https://collider.com/modern-fantasy-book-series-rival-harry-potter/
+
+From Percy Jackson & the Olympians to Keeper of the Lost Cities, these modern fantasy books feature a rich lore that rivals the Harry Potter series.
+---------
+
+# HBO’s 10/10 ‘Downton Abbey’ Replacement Officially Gets New November Release
+
+TV News, The Gilded Age, Audra McDonald, Carrie Coon, Music
+
+Sun, 27 Sep 2026 00:30:11 GMT
+
+https://collider.com/the-gilded-age-christmas-album-carrie-coon-audra-mcdonald/
+
+The Gilded Age officially sets a new November release featuring Carrie Coon, Audra McDonald, Christine Baranski, and more.
+---------
+
+# 1945's Gritty Noir Thriller Officially Takes Over Free Streaming
+
+Movie News, Detour, Film Noir, Crime, Streaming
+
+Sun, 27 Sep 2026 00:15:11 GMT
+
+https://collider.com/detour-film-noir-classic-streaming-free-justwatch-tv/
+
+A grimy 1945 film noir classic that Bill Hader adores is streaming for free on a brand-new platform. Find out more.
+---------
+
+# 'Prison Break' Star's Forgotten Video Game Sequel Officially Hits Netflix
+
+Movie News, Resident Evil, Milla Jovovich, Netflix, Resident Evil: Afterlife
+
+Sun, 27 Sep 2026 00:00:11 GMT
+
+https://collider.com/milla-jovovich-resident-evil-afterlife-netflix-streaming-september-2026/
+
+Milla Jovovich’s Resident Evil: Afterlife has officially landed on Netflix as the horror franchise returns to theaters.
+---------
+
+# Netflix's 88% RT Crime Thriller Is Officially Changing Its Best Character for Season 2
+
+TV Features, Dept. Q, Kelly Macdonald, Matthew Goode, Netflix
+
+Sat, 26 Sep 2026 23:52:12 GMT
+
+https://collider.com/dept-q-netflix-season-2-crime-thriller-best-character-change/
+
+The absence of a fan-favorite character in Netflix's Dept. Q could redefine the series when it returns for Season 2.
+---------
+
+# ‘Pokémon’ Card Mania Has Officially Gone Too Far
+
+Gaming News, Pokémon, Gaming, Games, Pikachu
+
+Sat, 26 Sep 2026 23:45:11 GMT
+
+https://collider.com/pokemon-tcg-collector-gps-tracker-delivery-driver/
+
+An Ohio Pokémon TCG collector placed a GPS tracker on a delivery driver’s vehicle to follow card restocks and was found guilty of illegal tracking.
+---------
+
+# Matthew McConaughey and Woody Harrelson's 8-Part 'True Detective' Reunion Is Already Streaming's No. 2 Show
+
+TV News, Hot on Streaming, Brothers, Matthew McConaughey, Woody Harrelson, Apple TV
+
+Sun, 27 Sep 2026 02:30:16 GMT
+
+https://movieweb.com/brothers-apple-tv-hit-september-2026/
+
+Brothers has quickly climbed to No. 2 on Apple TV+ in the United States.
+---------
+
+# Star Wars Episode 10 In Development From Director Of Marvel's Highest-Rated Trilogy
+
+Movie News, Jon Watts, Star Wars 10, Sci-Fi
+
+Sun, 27 Sep 2026 02:16:02 GMT
+
+https://movieweb.com/star-wars-episode-10-jon-watts-director/
+
+One of the MCU's most successful directors is reportedly set to usher in a new era of movies for Star Wars.
+---------
+
+# 10 Reasons ‘Godzilla: Minus Zero’s Early Reactions Are So Positive
+
+Features, Godzilla Minus Zero, Godzilla, Godzilla Minus One
+
+Sun, 27 Sep 2026 02:00:24 GMT
+
+https://movieweb.com/godzilla-minus-zero-positive-reactions/
+
+Word is out on the highly-anticipated sequel to 2023's Oscar-winning monster epic, and it's drawing some unbelievable cinematic comparisons.
+---------
+
+# Netflix Finds Global Hit with Leonardo DiCaprio's 132-Minute Action Adventure Movie 28 Years Later
+
+Movie News, The Man in the Iron Mask, Netflix, Leonardo DiCaprio, Hot on Streaming
+
+Sun, 27 Sep 2026 01:30:14 GMT
+
+https://movieweb.com/the-man-in-the-iron-mask-netflix-september-2026/
+
+The Man in the Iron Mask has quietly climbed into Netflix’s worldwide movie rankings.
+---------
+
+# 17 Years Later, Ridley Scott’s 13-Season Legal Thriller Masterpiece Hits Harder Than Ever
+
+Features, The Good Wife, the good fight, Ridley Scott, Thriller
+
+Sun, 27 Sep 2026 01:00:14 GMT
+
+https://movieweb.com/good-wife-good-fight-relevant/
+
+Ridley Scott is known for science-fiction movies like 'Alien' and 'Blade Runner' and has produced many popular TV shows, too.
+---------
+
+# 10 Wisest ‘Peanuts’ Quotes We’re Still Coming Back to After Its 50-Year Run
+
+Movie Lists, Peanuts, comics
+
+Sun, 27 Sep 2026 00:45:14 GMT
+
+https://movieweb.com/wisest-peanuts-comic-strip-quotes/
+
+There are only a few comic strips that compare to the wisdom shared by Charles Schulz in Peanuts. Here are the 10 wisest lines from the series.
+---------
+
+# Classic Horror Franchise Sets New Release After 39 Years of Terror
+
+Movie News, Hellraiser, Blu-ray
+
+Sun, 27 Sep 2026 00:30:14 GMT
+
+https://movieweb.com/hellraiser-tetralogy-4k-blu-ray-release/
+
+Clive Barker’s iconic horror series scores a new release just in time for Halloween.
+---------
+
+# Prime Video's Upcoming Sci-Fi Space Opera Series Is Already Bigger Than 'The Expanse' At Its Peak
+
+Features, Sci-Fi, The Expanse
+
+Sun, 27 Sep 2026 00:00:14 GMT
+
+https://movieweb.com/captives-war-sci-fi-series-bigger-the-expanse/
+
+'The Expanse' is an epic, sweeping sci-fi TV series adapted from James S.A. Corey's novels, and Prime Video's new show could be even bigger.
+---------
+
 # 5 Harsh Realities Of Watching The End Of Oak Street Now That It's On Streaming
 
 Movies, The End of Oak Street
