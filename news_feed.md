@@ -1,3 +1,300 @@
+# Stargate Officially Replaces SG-1 With A New Team Timekeepers
+
+Gaming, Stargate SG-1, Stargate, PC
+
+Sun, 27 Sep 2026 07:00:15 GMT
+
+https://screenrant.com/stargate-sg1-replacement-timekeepers/
+
+Stargate replaced the entire SG-1 crew in this long-awaited sequel, but the change didn't pay off the way fans may have hoped.
+---------
+
+# John Wick Is Switching Genres In Upcoming Game Prequel
+
+Gaming, John Wick, John Wick Hex, PC
+
+Sun, 27 Sep 2026 06:00:15 GMT
+
+https://screenrant.com/john-wick-hex-switch-genre-saber-prequel/
+
+John Wick is about to make a major genre switch that marks a return to form in the franchise's upcoming prequel release.
+---------
+
+# SNL Recap: The NBA Takes Over As Jalen Brunson Makes His Season 52 Hosting Debut
+
+TV, Saturday Night Live
+
+Sun, 27 Sep 2026 05:51:45 GMT
+
+https://screenrant.com/saturday-night-live-recap-season-52-jalen-brunson-host/
+
+Saturday Night Live has finally returned with Jalen Brunson making his debut as a host, check out the the highs and lows of this week's episode.
+---------
+
+# Red Dead Redemption 2 Free Download Officially Available For 24 More Hours
+
+Gaming, Red Dead Redemption
+
+Sun, 27 Sep 2026 05:00:16 GMT
+
+https://screenrant.com/red-dead-redemption-2-online-free-reward-24-hours/
+
+Explore September-October events in Red Dead Online for bonuses, new outfits, and exclusive rewards.
+---------
+
+# The Legend Of Vox Machina Is Replacing A Popular Main Character
+
+Streaming TV, The Legend of Vox Machina
+
+Sun, 27 Sep 2026 05:00:16 GMT
+
+https://screenrant.com/the-legend-of-vox-machina-replacing-taryon-darrington/
+
+After they played a main role in The Legend of Vox Machina's most recent season, expect one fan-favorite hero to step down in the show's final run.
+---------
+
+# Star Trek Officially Unveils The Return Of Spock In Online: Rediscovered
+
+Gaming, Star Trek, Star Trek Online, Spock
+
+Sun, 27 Sep 2026 04:30:15 GMT
+
+https://screenrant.com/star-trek-online-spock-return/
+
+Star Trek is one of the most iconic series of all time, and Spock is arguably its most iconic character, so any time he returns it always feels cool.
+---------
+
+# Legend Of Zelda: Historical Charms Officially Announced For October 2026
+
+Gaming, The Legend of Zelda
+
+Sun, 27 Sep 2026 04:00:21 GMT
+
+https://screenrant.com/legend-of-zelda-historical-charms-october-2026/
+
+The Legend Of Zelda is celebrating its 40th anniversary this year, and the new Historical Charms releasing in October 2026 are perfect for fans.
+---------
+
+# New Godzilla Movie With First R-Rating Is One Of The Best Kaiju Sequels In Franchise History
+
+Movies, Godzilla, Godzilla Minus Zero
+
+Sun, 27 Sep 2026 03:59:32 GMT
+
+https://screenrant.com/godzilla-minus-zero-rotten-tomatoes-score-best-kaiju-sequel-franchise/
+
+The first reviews for the first R-rated Godzilla movies are in, and the new movie has one of the best Rotten Tomatoes scores in the kaiju franchise.
+---------
+
+# 10 Characters That Need To Meet In Marvel's Big Star Wars Crossover
+
+Comics, Marvel, Star Wars
+
+Sun, 27 Sep 2026 03:59:15 GMT
+
+https://screenrant.com/marvel-star-wars-crossover-best-characters-who-must-meet/
+
+Star Wars/Marvel: Hope Assembles will be the greatest crossover event of 2027 thanks to these ten interactions between the heroes and villains.
+---------
+
+# 8 Legendary X-Men Leaders Who Remain The Team's Greatest
+
+Comics, X-Men
+
+Sun, 27 Sep 2026 03:45:15 GMT
+
+https://screenrant.com/best-legendary-xmen-leaders/
+
+Explore the 8 greatest X-Men leaders and their impact on the franchise.
+---------
+
+# The Midnight Universe Confirms More Major Changes in Marvel's Official December 2026 Solicitations
+
+Comics, Marvel Comics, solicitations
+
+Sun, 27 Sep 2026 03:58:54 GMT
+
+https://www.cbr.com/midnight-universe-major-changes-marvel-december-2026-solicitations/
+
+The Midnight Universe continues with the third issues of each of the new series in Marvel's December 2026 solicitations
+---------
+
+# 10 Toonami Anime Every New Fan Needs to Watch at Least Once
+
+Anime, Dragon Ball, Sailor Moon
+
+Sun, 27 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/toonami-anime-new-fan-must-watch-list/
+
+A nostalgic tour through Toonami’s greatest eras showcasing explosive battles, heartfelt friendships and unforgettable villains.
+---------
+
+# Heart of the Beast Review: Brad Pitt Shines, but His Canine Co-Star Steals the Show
+
+Movies, Heart of the Beast
+
+Sun, 27 Sep 2026 03:40:40 GMT
+
+https://www.cbr.com/heart-of-the-beast-review/
+
+Brad Pitt reunites with Fury director David Ayer for a gripping wilderness thriller about a former soldier and his combat dog.
+---------
+
+# The Simpsons' Treehouse of Horror Parodies for This Year's Episode Confirmed
+
+TV, The Simpsons
+
+Sun, 27 Sep 2026 03:36:21 GMT
+
+https://www.cbr.com/the-simpsons-treehouse-of-horror-2026-parodies/
+
+The Simpsons continues its annual tradition of spoofing horror movies for the Treehouse of Horror episode.
+---------
+
+# Gundam SEED Gives Its Most Iconic Mecha an Icy New Redesign
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam SEED, merchandise, toys, bandai
+
+Sun, 27 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/gundam-seed-freedom-gunpla-metallic-clear-white/
+
+The iconic Freedom Gundam from Mobile Suit Gundam SEED is receiving a glittery, icy new model kit variant headed exclusively to Gundam Base stores.
+---------
+
+# 10 Deepest Peanuts Comics, Ranked
+
+Comics, Peanuts
+
+Sun, 27 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/deepest-peanuts-comics-ranked/
+
+Over the years, Charles Schulz's Peanuts did more than make readers laugh. Profound concepts were presented that continue to inspire critical thought.
+---------
+
+# The 4-Season Sci-Fi Masterpiece With the Scariest Opening Scene in TV History
+
+TV, From, Horror, Sci-Fi
+
+Sun, 27 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/mgm-from-scariest-opening-tv-sequence/
+
+MGM+'s From is heading towards its final climactic season, and longtime fans are locked in, largely because of its chilling opening sequence.
+---------
+
+# 10 Greatest Turn-Based RPGs of All Time, Ranked
+
+Games, Persona 5 Royal, RPG, Final Fantasy
+
+Sun, 27 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/best-turn-based-rpgs-ever-ranked/
+
+Turn-based RPG fans should definitely play games like Final Fantasy and Chrono Trigger to experience the best of the best.
+---------
+
+# Forgotten Island Review: DreamWorks’ Filipino Fantasy Shines Despite Its Flaws
+
+Movies, dreamworks, dreamworks animation, Forgotten Island
+
+Sun, 27 Sep 2026 03:10:08 GMT
+
+https://www.cbr.com/forgotten-island-review/
+
+DreamWorks brings Filipino mythology to vivid life in a 1990s adventure about two best friends facing an uncertain future.
+---------
+
+# Jennifer Carpenter's 'Criminally Underrated' 21-Year-Old Horror Movie Streaming for Free
+
+Movies, The Exorcism of Emily Rose
+
+Sun, 27 Sep 2026 03:07:04 GMT
+
+https://www.cbr.com/the-exorcism-of-emily-rose-streaming-tubi-october-2026/
+
+The horror film has been called the "scariest exorcism movie since The Exorcist."
+---------
+
+# Arnold Schwarzenegger’s Brutal 44-Year-Old Fantasy Epic Officially Lands on Netflix
+
+Movie News, Conan the Barbarian, Arnold Schwarzenegger, Netflix, Fantasy
+
+Sun, 27 Sep 2026 08:41:11 GMT
+
+https://collider.com/conan-the-barbarian-arnold-schwarzenegger-netflix-streaming-september-2026/
+
+Arnold Schwarzenegger’s 1982 fantasy epic Conan the Barbarian has officially landed on Netflix in the United States.
+---------
+
+# The Divisive Crime Classic That Quentin Tarantino Adores Officially Hits Free Streaming
+
+Movie News, Quentin Tarantino, Foxy Brown, Coffy, Pam Grier
+
+Sun, 27 Sep 2026 08:20:11 GMT
+
+https://collider.com/foxy-brown-pam-grier-exploitation-movie-streaming-free-justwatch-tv/
+
+One of Quentin Tarantino's favorite exploitation movies is streaming for free on a brand-new platform set for an October hard-launch. Find out more.
+---------
+
+# 2026's Best Survival Horror Movie Officially Passes a Major Streaming Milestone
+
+Movie News, Send Help, Horror, Hulu, Streaming
+
+Sun, 27 Sep 2026 08:00:11 GMT
+
+https://collider.com/send-help-streaming-hit-hulu-september-2026/
+
+2026’s survival horror hit Send Help officially scores a major victory after spending 100 days on streaming charts. Read on for more details.
+---------
+
+# 'John Wick' Meets Agatha Christie in This 126-Minute Sleeper Action Hit
+
+Movie Features, Murder on the Orient Express, Bullet Train, Brad Pitt, John Wick
+
+Sun, 27 Sep 2026 04:08:11 GMT
+
+https://collider.com/bullet-train-movie-john-wick-agatha-christie-streaming-hulu-september-2026/
+
+Brad Pitt's action-comedy Bullet Train, which transplants the world of John Wick to a train like Agatha Christie's famous tale, is a streaming hit.
+---------
+
+# Netflix’s Epic Adaptation of One of the 20th Century’s Greatest Novels Drops in Just Days
+
+TV Features, East of Eden, Series, Netflix, Florence Pugh
+
+Sun, 27 Sep 2026 03:46:11 GMT
+
+https://collider.com/east-of-eden-netflix-series-florence-pugh-john-steinbeck/
+
+Netflix’s East of Eden brings John Steinbeck’s epic family saga to TV, starring Florence Pugh as the infamous Cathy Ames.
+---------
+
+# 8 ‘Far Side’ Comics That Prove Gary Larson Is a Genius, Ranked
+
+Books and Comics, Comics, 80s, 90s, Classics
+
+Sun, 27 Sep 2026 03:39:11 GMT
+
+https://collider.com/far-side-comics-gary-larson-genius-ranked/
+
+Superman and the Lighthouse, Painting the Fly Woman, Peter Pan Grows Up, and more make up our list of the most genius Far Side comics.
+---------
+
+# Marvel Is Officially Switching the MCU's Main Character
+
+Movie Features, Avengers: Doomsday, Avengers: Secret Wars, Avengers: Endgame Encore, Spider-Man: Brand New Day
+
+Sun, 27 Sep 2026 03:07:11 GMT
+
+https://collider.com/avengers-doomsday-mcu-doctor-doom-robert-downey-jr-main-character/
+
+Avengers: Doomsday marks a shift in MCU tradition, as it centers on the villainous Doctor Doom.
+---------
+
 # American Horror Story's Format Change Confirms The Worst Season 13 Fears
 
 Streaming TV, American Horror Story
