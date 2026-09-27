@@ -1,3 +1,443 @@
+# Hollywood Is Afraid Of Adapting Mysterious "Lesbian Vampire" Novel, Confirms Star
+
+Movies, Lili Reinhart
+
+Sun, 27 Sep 2026 21:40:19 GMT
+
+https://screenrant.com/lili-reinhart-lesbian-vampire-novel-adaptation/
+
+The Love Hypothesis star Lili Reinhart expresses disappointment over Hollywood studios being afraid to produce her lesbian vampire project.
+---------
+
+# CBS’ All-Time Classic 9-Part Sitcom Crosses Unprecedented Streaming Milestone
+
+TV, Masked Recs
+
+Sun, 27 Sep 2026 21:39:03 GMT
+
+https://screenrant.com/cbs-everybody-loves-raymond-paramount-plus-streaming-milestone-september-2026/
+
+One of CBS' classic sitcom series has crossed an impressive streaming milestone, over two decades after the series wrapped up its final season.
+---------
+
+# 10 War Movies With The Most Realistic Combat, Ranked
+
+Classic Movies, War
+
+Sun, 27 Sep 2026 21:30:17 GMT
+
+https://screenrant.com/war-movies-realistic-combat/
+
+There have been great war movies that both show intense battles and personal stories, but these are the most realistic in terms of combat scenes.
+---------
+
+# HBO Max's 47-Episode Dark Comedy Series Is So Good, You Can Rewatch Multiple Times
+
+Streaming TV, Masked Recs
+
+Sun, 27 Sep 2026 21:15:16 GMT
+
+https://screenrant.com/hbo-max-hacks-dark-comedy-series-worth-rewatching/
+
+HBO Max's 47-episode dark comedy Hacks blends sharp humor, messy relationships, and surprising heart into a series made for rewatching.
+---------
+
+# Forget The Witcher, Netflix's Fantasy Masterpiece Has A 100% Rotten Tomatoes Score
+
+Streaming TV, Masked Recs
+
+Sun, 27 Sep 2026 21:11:15 GMT
+
+https://screenrant.com/the-east-palace-netflix-the-witcher-replacement-rotten-tomatoes/
+
+Netflix's The Witcher failed to understand the appeal of its monster-slaying central hero, but this 2026 hit doesn't make the same mistake.
+---------
+
+# Alan Ritchson Fires Back At A Reacher Fan’s Complaint With A Brutal Reminder
+
+TV, Reacher
+
+Sun, 27 Sep 2026 21:08:21 GMT
+
+https://screenrant.com/alan-ritchson-shuts-down-reacher-fan-complaint/
+
+Alan Ritchson reveals his impressive knowledge about Lee Child's Reacher novel series as one fan makes a complaint that doesn't add up.
+---------
+
+# Greatest War Novels Of All Time
+
+Books, War and Peace, All Quiet on the Western Front
+
+Sun, 27 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/best-war-novels-all-time/
+
+From War and Peace to All Quiet on the Western Front, war novels have shone a light on the trauma and heroism that comes from war and the military.
+---------
+
+# 5 Nintendo DS Games That Have Aged Like Milk
+
+Gaming, Nintendo DS, Triple-A Games
+
+Sun, 27 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/nintendo-ds-games-aged-like-milk/
+
+These Nintendo DS games pushed the handheld's touchscreen gimmicks hard, but some of those ideas haven't aged nearly as well as the games.
+---------
+
+# 6 Magical MCU Characters More Powerful Than Doctor Strange, Ranked
+
+Movies, Doctor Strange, Marvel Cinematic Universe
+
+Sun, 27 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/mcu-magical-characters-doctor-strange-stronger-ranked/
+
+Marvel's most famous Sorcerer isn't even the most powerful magical user in the MCU - these overpowered heroes and villains have him beaten.
+---------
+
+# It's Officially The Start Of An Era For Taylor Sheridan's Hit Spy Thriller Series
+
+TV, Masked Recs
+
+Sun, 27 Sep 2026 20:59:15 GMT
+
+https://screenrant.com/taylor-sheridan-lioness-paramount-plus-streaming-milestone-september-2026/
+
+Yellowstone's Taylor Sheridan has seen his hit spy thriller series officially start a new era after a massive update that is perfect for its future.
+---------
+
+# Star Wars' First Movie in 7 Years Fails to Reach No. 1 for Second Week in a Row With 50% Viewership
+
+Movies, Star Wars, The Mandalorian and Grogu
+
+Sun, 27 Sep 2026 21:30:12 GMT
+
+https://www.cbr.com/star-wars-the-mandalorian-and-grogu-nielsen-drop-september-2026/
+
+The latest Star Wars movie has had a disappointing streaming start.
+---------
+
+# 10 Best 2000s Anime Worth Watching Over and Over Again
+
+Anime, Gintama, Gurren Lagann
+
+Sun, 27 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/best-2000s-anime-worth-rewatching/
+
+2000s anime like FLCL and Gintama stay entertaining no matter how many times fans rewatch them.
+---------
+
+# David Boreanaz’s 7-Season War Thriller Is Back as 1 of the World's Most-Watched Shows
+
+TV, SEAL Team, Paramount Plus, Netflix
+
+Sun, 27 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/david-boreanaz-seal-team-thriller-nielsen-charts-september-2026/
+
+David Boreanaz's seven-season war thriller is one of the most-watched shows in the world.
+---------
+
+# You + Me Against the World is the Book-To-Movie Adaptation of the Year
+
+Movies, Prime Video
+
+Sun, 27 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/prime-video-you-me-against-the-world-book-to-movie-adaptation-of-the-year/
+
+Prime Video is going strong in its book-to-screen adaptation game with 'You+Me - Against the World.'
+---------
+
+# 10 Hard Sci-Fi Shows for The Expanse Fans
+
+TV, The Expanse, Sci-Fi
+
+Sun, 27 Sep 2026 20:30:11 GMT
+
+https://www.cbr.com/best-hard-sci-fi-series-for-expanse-fans-list/
+
+Gritty sci-fi shows like Farscape and SGU offer political intrigue, deep world-building and complex characters that will appeal to The Expanse fans.
+---------
+
+# 10 Sci-Fi Anime Series Worth Watching Over and Over Again
+
+Anime, Cowboy Bebop, Neon Genesis Evangelion, Sci-Fi
+
+Sun, 27 Sep 2026 20:15:11 GMT
+
+https://www.cbr.com/sci-fi-anime-series-worth-rewatching/
+
+Fans never get tired of revisiting the best science fiction anime, like Gintama and Neon Genesis Evangelion.
+---------
+
+# 37 Years Later, Dragon Ball Brings Back Akira Toriyama's Original Beach-Era Goku
+
+Anime, Dragon Ball
+
+Sun, 27 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/dragon-ball-goku-1989-summer-beach-art/
+
+Dragon Ball fans just got the chance to revisit one of Goku's most unexpectedly casual looks nearly four decades after it first debuted.
+---------
+
+# 8 Greatest Cozy Animated Movies Of All Time, Ranked
+
+Movies, Animation, Fantasy, movie list
+
+Sun, 27 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/best-cozy-animated-movies-list/
+
+Animation is a medium that can portray any movie genre, but lends itself especially well to cozy movies, and these eight movies prove that.
+---------
+
+# It's Official: Emma Frost Would Die for Miss Piggy
+
+Comics, The Muppets, X-Men, Marvel
+
+Sun, 27 Sep 2026 20:00:11 GMT
+
+https://www.cbr.com/the-muppets-take-the-marvel-universe-emma-frost-miss-piggy/
+
+One of the most powerful mutants of all time has a new obsession, and Emma Frost would quite literally die for Miss Piggy if she had to.
+---------
+
+# Netflix's New Reboot of a Beloved 39-Year-Old Sitcom Is 1 of the Most-Watched Shows on Streaming
+
+TV, A Different World
+
+Sun, 27 Sep 2026 19:30:11 GMT
+
+https://www.cbr.com/a-different-world-reboot-netflix-success-september-2026/
+
+Just days after the premiere of Netflix's new reboot, the sitcom has become the most-watched show on streaming.
+---------
+
+# 5 Worst Soft Sci-Fi Movies of All Time, Ranked
+
+Movie, Sci-Fi, Battlefield Earth, The Adventures Of Pluto Nash, After Earth
+
+Sun, 27 Sep 2026 21:42:12 GMT
+
+https://collider.com/worst-soft-sci-fi-movies-all-time-ranked/
+
+From Jupiter Ascending to Battlefield Earth, these soft sci-fi flops squander bold concepts with messy stories.
+---------
+
+# The Most Influential Western Ever Made Officially Rides Onto Free Streaming
+
+TV News, The Lone Ranger, Johnny Depp, Gore Verbinski
+
+Sun, 27 Sep 2026 21:30:12 GMT
+
+https://collider.com/lone-ranger-western-classic-streaming-free-justwatch-tv-september-2026/
+
+The landmark Western serial that inspired Johnny Depp's biggest flop is streaming for free on a brand-new platform. Find out more.
+---------
+
+# The 6 Best Sci-Fi Books Released Since 2000, Ranked
+
+Books and Comics, Sci-Fi, Books, 2000s, David Mitchell
+
+Sun, 27 Sep 2026 21:23:11 GMT
+
+https://collider.com/best-sci-fi-books-since-2000-ranked/
+
+From Children of Time to Never Let Me Go, these sci-fi novels turn impossible ideas into unforgettable human stories.
+---------
+
+# A 22-Year-Old Video Game Adaptation Is Officially Back From the Dead on Streaming
+
+Movie News, Resident Evil: Apocalypse, Horror, Resident Evil, AMC+
+
+Sun, 27 Sep 2026 21:15:11 GMT
+
+https://collider.com/resident-evil-apocalypse-streaming-hit-amc-plus-september-2026/
+
+One of 2026’s newest horror hits is officially breathing new life into a 22-year-old video game adaptation as the older horror hit finds new fans.
+---------
+
+# 'Seinfeld' Ruined One of Its Main Characters After Larry David Left the Show
+
+TV Features, Seinfeld, Julia Louis-Dreyfus, NBC, Sitcom
+
+Sun, 27 Sep 2026 21:14:12 GMT
+
+https://collider.com/seinfeld-elaine-character-changes-larry-david-exit/
+
+In Seinfeld, Elaine started out as a diamond in the rough, but by the time Larry David left the show, her character was just rough.
+---------
+
+# Alfred Hitchcock’s 1935 Spy Thriller Is Officially Streaming for Free
+
+Movie News, The 39 Steps, Alfred Hitchcock, Thriller, Streaming
+
+Sun, 27 Sep 2026 21:00:11 GMT
+
+https://collider.com/alfred-hitchcock-the-39-steps-streaming-free-justwatch-tv-september-2026/
+
+One of Alfred Hitchcock's earliest masterpieces is streaming for free on a brand-new platform. Find out more.
+---------
+
+# 10 Literary Novels That Go Completely Off the Rails
+
+Books and Comics, Books, Drama, Thriller, Psychological Thriller
+
+Sun, 27 Sep 2026 20:47:11 GMT
+
+https://collider.com/literary-novels-go-off-the-rails/
+
+From mermen and rabbit-men to body horror and alternate realities, these literary novels prove the genre can get very weird, very fast.
+---------
+
+# One of Cinema’s Earliest Serial Killer Movies Is Officially Streaming for Free
+
+Movie News, M, Fritz Lang, David Fincher, Mindhunter
+
+Sun, 27 Sep 2026 20:45:11 GMT
+
+https://collider.com/fritz-lang-m-serial-killer-masterpiece-streaming-free-justwatch-tv/
+
+The 95-year-old classic that set the blueprint for serial killer movies is streaming for free on a new platform. Find out more.
+---------
+
+# Jon Bernthal’s Forgotten War Epic Officially Finds New Life on Streaming
+
+Movie News, Fury, Jon Bernthal, David Ayer, Brad Pitt
+
+Sun, 27 Sep 2026 20:45:11 GMT
+
+https://collider.com/jon-bernthal-fury-streaming-success-prime-video-september-2026-how-to-watch/
+
+Jon Bernthal's forgotten WWII movie from the director of Heart of the Beast is catching a second wind on streaming.
+---------
+
+# 2026's Biggest Horror Sleeper Hit Officially Arrives on Streaming
+
+Movie News, Backrooms, HBO Max, Horror, Kane Parsons
+
+Sun, 27 Sep 2026 20:30:11 GMT
+
+https://collider.com/backrooms-hbo-max-streaming-kane-parsons-september-2026/
+
+2026’s biggest horror sleeper hit has officially arrived on HBO Max, bringing the terrifying breakout movie to streaming. Read on for details.
+---------
+
+# HBO’s Smash Hit Mystery Thriller Adaptation Was So Good, It Went Past Its Book Story
+
+Features, Big Little Lies, Thriller, HBO Max
+
+Sun, 27 Sep 2026 21:30:15 GMT
+
+https://movieweb.com/big-little-lies-hbo-season-2-past-book/
+
+HBO's star-studded thriller hit is one of its best offerings, and certainly one of its best adaptations. It's even gone beyond the book it's based on.
+---------
+
+# 33 Years Later, George’s Greatest 'Seinfeld' Quote Remains the Funniest Line of the 20th Century
+
+Features, Great Line, Seinfeld, Comedy
+
+Sun, 27 Sep 2026 21:00:15 GMT
+
+https://movieweb.com/seinfeld-george-sweatpants-best-quote/
+
+George Costanza (Jason Alexander) has one particularly hilarious quote from a classic episode of the hit 1990s sitcom 'Seinfeld.'
+---------
+
+# Morgan Freeman's 123-Minute Remake of the Greatest Action Epic of All Time Charges Onto Free Streaming
+
+Movie News, Ben-Hur, Tubi, Hot on Streaming, Action
+
+Sun, 27 Sep 2026 21:00:15 GMT
+
+https://movieweb.com/ben-hur-action-stream-free-tubi-september-2026/
+
+Who thought this was a good idea?
+---------
+
+# 8 Netflix Psychological Thrillers With No Bad Episodes
+
+TV Lists, Netflix, Thriller
+
+Sun, 27 Sep 2026 20:30:14 GMT
+
+https://movieweb.com/netflix-psychological-thrillers-no-bad-episodes/
+
+These psychological thriller shows start strong, end strong, and have zero bad episodes in between. Netflix subscribers should take note.
+---------
+
+# 10 Best Movies on Apple TV You Haven't Seen
+
+Movie Lists, Apple TV
+
+Sun, 27 Sep 2026 20:00:14 GMT
+
+https://movieweb.com/apple-tv-best-underrated-movies/
+
+From one of the decade's best animated films to a crime thriller and a sci-fi romance, Apple TV has great movies you should watch.
+---------
+
+# Alan Ritchson's 94-Minute Action Flop With a Sci-Fi Twist Refuses To Back Down on Streaming
+
+Movie News, Alan Ritchson, Playdate, Action, Hot on Streaming
+
+Sun, 27 Sep 2026 20:00:14 GMT
+
+https://movieweb.com/playdate-alan-ritchson-stream-september-2026/
+
+Even though it was a critical flop, audiences can't get enough of Ritchson's unique genre blend.
+---------
+
+# Russell Crowe's Netflix True Crime Thriller Nabs Bleak Audience Score on Rotten Tomatoes
+
+Movie News, Unabomber, Russell Crowe, Thriller
+
+Sun, 27 Sep 2026 19:30:14 GMT
+
+https://movieweb.com/unabomber-russell-crowe-rotten-tomatoes/
+
+Crowe caps off a busy year with an appearance in the divisive 'Unabomber.'
+---------
+
+# Forget 'Lioness,' Prime Video's 10/10 Action Thriller Should Be Next on Your List
+
+Features, Lioness, Neagley, Prime Video, Action, Thriller
+
+Sun, 27 Sep 2026 19:30:14 GMT
+
+https://movieweb.com/neagley-prime-video-recommendation/
+
+If you need an action fix after that 'Lioness' finale, Prime Video has you covered with a new series that's genuinely great.
+---------
+
+# Stephen Lang Officially Returning as Twisted Action Antihero in Sequel to $211M Franchise
+
+Movie News, Horror, Stephen Lang, Don't Breathe
+
+Sun, 27 Sep 2026 19:00:17 GMT
+
+https://movieweb.com/dont-breathe-3-stephen-lang-returning/
+
+Stephen Lang and Jane Levy are back to battle in ‘Don’t Breathe 3.'
+---------
+
+# Russell Crowe's New 107-Minute Netflix Crime Thriller Quickly Becomes Biggest Movie on Streaming
+
+Movie News, Russell Crowe, Hot on Streaming, Netflix, Unabomber
+
+Sun, 27 Sep 2026 19:00:17 GMT
+
+https://movieweb.com/unabomber-netflix-most-watched-hit-september-2026/
+
+Russell Crowe’s latest dark thriller has already climbed to the top of Netflix’s global movie chart.
+---------
+
 # 7 Best Watsons In Sherlock Holmes Adaptations
 
 Classic TV
