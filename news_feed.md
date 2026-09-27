@@ -1,3 +1,432 @@
+# 7 Best Watsons In Sherlock Holmes Adaptations
+
+Classic TV
+
+Sun, 27 Sep 2026 18:30:16 GMT
+
+https://screenrant.com/sherlock-holmes-adaptations-watson-ranked/
+
+Almost every adaptation of Sherlock Holmes has included his friend and partner Dr. Watson, but not all of them have done justice to him.
+---------
+
+# Studio Ghibli Meets The Legend Of Zelda In New Adventure Game
+
+Gaming, The Legend of Zelda, Studio Ghibli, Steam, Indie Games, PC
+
+Sun, 27 Sep 2026 18:00:16 GMT
+
+https://screenrant.com/studio-ghibli-meets-zelda-new-adventure-game/
+
+Studio Ghibli meets Zelda in Mononoke No Kuni, a haunting action adventure where you purify yokai and rebuild a world broken by tragedy.
+---------
+
+# Scarlett Johansson’s New A24 Movie Adds Major Fallout & Pluribus Stars
+
+Movies, Scarlett Johansson, A24
+
+Sun, 27 Sep 2026 17:54:33 GMT
+
+https://screenrant.com/scapegoat-a24-ari-aster-movie-ella-purnell-samba-schutte-cast/
+
+After casting Scarlett Johansson, the mysterious new A24 movie directed and written by Ari Aster has added major Fallout and Pluribus stars.
+---------
+
+# All 4 Actors To Play Robert Langdon
+
+Streaming TV, Robert Langdon
+
+Sun, 27 Sep 2026 17:45:09 GMT
+
+https://screenrant.com/robert-langdon-actors-explained/
+
+Dan Brown's Robert Langdon remains one of the most popular characters in contemporary fiction. So far, four actors have taken on the adventurous role.
+---------
+
+# Godzilla's Next God-Tier Battle Is Only 1 Week Away
+
+Marvel Comics, Godzilla
+
+Sun, 27 Sep 2026 17:40:35 GMT
+
+https://screenrant.com/godzilla-next-battle-odin-god-tier/
+
+Godzilla fights one of his most powerful opponents to date this week in a prehistoric battle that predates the King of the Monsters' modern stories.
+---------
+
+# 10 Thriller Series With Better Twists Than Any Movie
+
+Classic TV
+
+Sun, 27 Sep 2026 17:30:15 GMT
+
+https://screenrant.com/thriller-tv-series-twists-better-than-movies/
+
+Television has delivered many unexpected plot twists that blew viewers' minds away, proving why it's the best platform for thriller stories.
+---------
+
+# Avengers: Endgame Now Less Than $50M Away From Breaking Avatar's All-Time Box Office Record
+
+Movies, Box Office, Avengers: Endgame Encore, Avengers: Endgame, Marvel Cinematic Universe
+
+Sun, 27 Sep 2026 17:26:17 GMT
+
+https://screenrant.com/avengers-endgame-encore-box-office-opening-weekend-global-result/
+
+Thanks to the global opening weekend of its re-release, the MCU hit Avengers: Endgame is close to beating Avatar as the highest-grossing movie ever.
+---------
+
+# Marvel Announces Official Setting For New Fantastic Four Appearance
+
+Marvel Comics, Fantastic Four
+
+Sun, 27 Sep 2026 17:16:17 GMT
+
+https://screenrant.com/fantastic-four-new-setting-hidden-world/
+
+Marvel Comics is whisking the Fantastic Four away to universes that have plenty of horror in store, and with discovery will come new terrors.
+---------
+
+# Sam Raimi’s Home Invasion Horror Franchise Officially Returning With Original Stars
+
+Horror, Don't Breathe
+
+Sun, 27 Sep 2026 17:08:02 GMT
+
+https://screenrant.com/sam-raimi-dont-breathe-3-fede-alvarez-return/
+
+Sam Raimi's intense horror is returning once again with its original stars, as an exciting update was revealed during Beyond Fest by the director.
+---------
+
+# Tomb Raider Is Officially Switching Genres In The Crypt Of Chronos
+
+Gaming, Tomb Raider, PC
+
+Sun, 27 Sep 2026 17:00:16 GMT
+
+https://screenrant.com/tomb-raider-crypt-chronos-switching-genres/
+
+Tomb Raider's Lara Croft is headed to The Crypt of Chronos on the isle of Kairos, taking the franchise in a completely new direction.
+---------
+
+# Alan Ritchson's Helldivers Is Already the Sci-Fi Event of the Decade
+
+Movies, Helldivers
+
+Sun, 27 Sep 2026 18:30:11 GMT
+
+https://www.cbr.com/alan-ritchson-helldivers-space-opera-sci-fi-event-decade/
+
+Ritchson has been on a roll lately, but his next movie may finally be the blockbuster that propels him squarely onto the cinematic A-list.
+---------
+
+# Sam Raimi's $211M Horror Franchise Revived With Original Stars Returning
+
+Movies, Don't Breathe
+
+Sun, 27 Sep 2026 18:19:45 GMT
+
+https://www.cbr.com/dont-breathe-3-announced/
+
+The new chapter of the franchise reunites the stars of the original.
+---------
+
+# Anime to Watch If You Miss Jujutsu Kaisen
+
+Anime, Jujutsu Kaisen, Bleach, Hunter x Hunter
+
+Sun, 27 Sep 2026 18:15:11 GMT
+
+https://www.cbr.com/best-anime-to-watch-if-you-miss-jujutsu-kaisen/
+
+These anime capture some of the action, supernatural elements, and dark storytelling that made Jujutsu Kaisen so popular.
+---------
+
+# Disney+ Announces New Big Change Ahead of Hulu Phaseout
+
+TV, Disney+, Hulu
+
+Sun, 27 Sep 2026 18:01:04 GMT
+
+https://www.cbr.com/disney-plus-hulu-price-changes-september-2026/
+
+Disney confirmed plans to phaseout Hulu late last year, but has yet to officially confirm a date.
+---------
+
+# The Top 5 Anime of Fall 2026, Officially Ranked
+
+Anime, The Apothecary Diaries, Crunchyroll, Hulu
+
+Sun, 27 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/the-top-5-anime-of-fall-2026-officially-ranked/
+
+With a new anime season just around the corner, Japanese readers weigh in on which upcoming TV adaptations are generating the most excitement.
+---------
+
+# Heists and Horrors Take Center Stage In Power Rangers Unlimited #3
+
+Comics, Power Rangers
+
+Sun, 27 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/power-rangers-unlimited-3-review/
+
+Power Rangers Unlimited #3 spins the franchise into entirely new territory as the series while setting an ominous tone for the future of the series.
+---------
+
+# 6 Years Later, The Rookie's Darkest Chenford Episode Hits Twice as Hard
+
+TV, The Rookie
+
+Sun, 27 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/the-rookie-chenford-episode-day-of-death/
+
+The Rookie's darkest Lucy Chen episode, Day of Death, set up the rest of the character's arc and her relationship with Tim Bradford.
+---------
+
+# Brand-New Final Fantasy 10 25th Anniversary Release Confirmed for November 2026
+
+Games, Final Fantasy, Square Enix
+
+Sun, 27 Sep 2026 17:27:11 GMT
+
+https://www.cbr.com/final-fantasy-x-new-25th-anniversary-release-confirmed-november-2026/
+
+Final Fantasy 10 turns 25 this year, and Square Enix is celebrating the release with a brand-new LP.
+---------
+
+# 10 Best Anime Games of All Time, Ranked
+
+Games, Video Games, Persona 5 Royal, Naruto, Dragon Ball
+
+Sun, 27 Sep 2026 17:15:11 GMT
+
+https://www.cbr.com/best-anime-games-of-all-time-ranked/
+
+The greatest anime games of all time include fan-favorite titles like Dragon Ball FighterZ and Persona 5 Royal.
+---------
+
+# Hit $400M Movie Soars to No. 1 on HBO Max After Grossing 40x Its Budget
+
+Movies, Horror, Thriller, Backrooms, HBO Max
+
+Sun, 27 Sep 2026 17:00:11 GMT
+
+https://www.cbr.com/backrooms-soars-to-no-1-streaming-on-hbo-max/
+
+The horror movie that stunned the box office and terrified everyone has taken streaming by storm.
+---------
+
+# 8 Most Original Fantasy TV Shows, Ranked
+
+TV, Fantasy, Avatar: The Last Airbender, Supernatural, Once Upon A Time
+
+Sun, 27 Sep 2026 18:33:11 GMT
+
+https://collider.com/most-original-fantasy-shows-ranked/
+
+Avatar: The Last Airbender, Supernatural, and Once Upon a Time are among the most original fantasy TV shows, but which series is the greatest?
+---------
+
+# Mel Gibson's Sci-Fi Horror Gem Officially Scores Big on Streaming
+
+Movie News, Mel Gibson, Signs, Peacock, M. Night Shyamalan
+
+Sun, 27 Sep 2026 18:30:12 GMT
+
+https://collider.com/mel-gibson-signs-streaming-hit-peacock-september-2026/
+
+Mel Gibson’s sci-fi horror classic Signs is officially scoring big on streaming as M. Night Shyamalan’s alien thriller finds a new audience.
+---------
+
+# The Gentlemen S2: A Hidden Pool Forced a Script Change | Collider BTS
+
+TV, The Gentlemen
+
+Sun, 27 Sep 2026 18:15:11 GMT
+
+https://collider.com/video/the-gentlemen-s2-a-hidden-pool-forced-a-script-change-collider-bts/
+
+The Gentlemen Season 2 turned broad daylight into moonlight for one of its action-heavy episodes — and doing it convincingly required far more than simply making the image darker.Director of photography Dan Atherton explains how Netflix’s The Gentlemen Season 2 tackled day-for-night cinematography, including controlling sunlight around a house with roughly ten large windows, building soft sources into blockers, adding hard accent lights, and creating the final silvery look through grading. He also reveals why shooting exterior scenes in direct sunlight could sometimes produce better results than overcast conditions.
+---------
+
+# Bruce Willis’ 126-Minute Sci-Fi Classic Is Officially a Netflix Hit
+
+Movie News, The Fifth Element, Sci-Fi, Netflix, Bruce Willis
+
+Sun, 27 Sep 2026 18:00:12 GMT
+
+https://collider.com/bruce-willis-sci-fi-the-fifth-element-netflix-streaming-september-2026/
+
+Bruce Willis’ $264 million sci-fi classic The Fifth Element is streaming on Netflix nearly 30 years after its theatrical release.
+---------
+
+# Matthew Rhys' 8-Part Netflix Psychological Thriller Is Aging Like Fine Wine
+
+TV Features, The Beast in Me, Netflix, Matthew Rhys, Claire Danes
+
+Sun, 27 Sep 2026 17:58:11 GMT
+
+https://collider.com/the-beast-in-me-netflix-matthew-rhys-psychological-thriller/
+
+Matthew Rhys' The Beast in Me is a captivating Netflix thriller worth binge-watching more than once.
+---------
+
+# Ryan Gosling’s Best Action Movie Since ‘The Nice Guys’ Is Officially Crushing Prime Video
+
+Movie News, The Fall Guy, Ryan Gosling, Prime Video, David Leitch
+
+Sun, 27 Sep 2026 17:30:11 GMT
+
+https://collider.com/ryan-gosling-the-fall-guy-streaming-success-prime-video-september-2026/
+
+Ryan Gosling's $130 million action thriller with shades of John Wick and The Nice Guys has become a must-watch sleeper hit on streaming.
+---------
+
+# 10 Near-Perfect Dracula Vampire Movies, Ranked
+
+Movie, Dracula, Horror Of Dracula, Bram Stoker's Dracula, Hotel Transylvania
+
+Sun, 27 Sep 2026 16:41:11 GMT
+
+https://collider.com/dracula-movies-near-perfect/
+
+Bram Stoker's Dracula, Horror of Dracula, and Renfield are among the best movies about the world's most famous vampire.
+---------
+
+# HBO's New Sci-Fi Masterpiece Is Officially a Global Streaming Hit
+
+TV News, Lanterns, HBO Max, HBO, Sci-Fi
+
+Sun, 27 Sep 2026 16:31:11 GMT
+
+https://collider.com/lanterns-hbo-max-streaming-success-september-2026/
+
+HBO's top-rated sci-fi series is dominating global streaming charts. Get all the details here.
+---------
+
+# 6 Hard Sci-Fi Movies Nobody Wants to See a Remake Of
+
+Movie, Sci-Fi, 2001: A Space Odyssey, Gattaca, Altered States
+
+Sun, 27 Sep 2026 16:11:12 GMT
+
+https://collider.com/hard-sci-fi-movies-nobody-wants-a-remake-of/
+
+From 2001: A Space Odyssey to Primer, these hard sci-fi films should be hands off.
+---------
+
+# Forget 'Mindhunter,' Hulu's 10/10 Crime Thriller Is Officially One of the Best of the Year
+
+TV News, Mindhunter, Hulu, Emmy Rossum, Furious
+
+Sun, 27 Sep 2026 16:10:11 GMT
+
+https://collider.com/furious-hulu-streaming-60-days-milestone/
+
+Hulu's 99%-rated crime thriller Furious reaches a major milestone with a 60-day streak on the streaming charts.
+---------
+
+# 5 Greatest Harlan Coben Netflix Mystery Thrillers With No Bad Episodes
+
+TV Lists
+
+Sun, 27 Sep 2026 18:00:15 GMT
+
+https://movieweb.com/harlan-coben-netflix-thrillers-perfect/
+
+Harlan Coben's bestselling novels have been adapted into many Netflix mystery thriller TV series, but only a few can be considered perfect.
+---------
+
+# Jensen Ackles' Upcoming 'Reacher' Replacement Officially Faces the Same Problem as Prime Video's Series
+
+TV Shows, Rules of Prey, Reacher, Action, Jensen Ackles
+
+Sun, 27 Sep 2026 18:00:15 GMT
+
+https://movieweb.com/rules-of-prey-series-two-books-adapted/
+
+MGM's 'Rules of Prey' is gearing up to bring a string of John Sandford novels to life, but what about the two that have already been used? Read on.
+---------
+
+# Taylor Sheridan's Record-Breaking Action Thriller Makes Its Streaming Return in Just One Week
+
+TV News, Marshals, Taylor Sheridan, Coming/Leaving Streaming, Action
+
+Sun, 27 Sep 2026 18:00:15 GMT
+
+https://movieweb.com/marshals-season-2-taylor-sheridan-action-streaming-october-2026/
+
+Despite being panned by critics and viewers, Sheridan's hit series is back and looking for redemption on streaming.
+---------
+
+# What's Coming to Netflix in October 2026? Everything Arriving Next Month
+
+Features, Netflix
+
+Sun, 27 Sep 2026 18:00:15 GMT
+
+https://movieweb.com/netflix-new-arrivals-october-2026/
+
+Discover the latest additions to Netflix in October 2026, including original series premieres and a variety of movies across various genres.
+---------
+
+# Sequel to Best-Ever 'Godzilla' Movie Gets Spectacular Marks from Critics
+
+Movie News, Godzilla Minus Zero, Godzilla Minus One, Sci-Fi
+
+Sun, 27 Sep 2026 17:18:22 GMT
+
+https://movieweb.com/godzilla-minus-zero-rotten-tomatoes-reviews/
+
+'Godzilla Minus One' is the best-reviewed 'Godzilla' film ever, and the sequel is keeping pace with it.
+---------
+
+# Forget ‘Band of Brothers’: Prime Video’s 6-Part World War II Miniseries Is a Perfect Replacement
+
+Features, Band of Brothers, War
+
+Sun, 27 Sep 2026 17:00:14 GMT
+
+https://movieweb.com/heavy-water-war-band-of-brothers-replacement/
+
+Fans of the legendary WWII series 'Band of Brothers' are sure to enjoy a six-part miniseries detailing an underappreciated WWII battlefront.
+---------
+
+# Robert Pattinson's 'Primetime' Unites Audiences with Jaw-Dropping Rotten Tomatoes Score
+
+Movie News, Primetime, Robert Pattinson, Drama
+
+Sun, 27 Sep 2026 16:31:14 GMT
+
+https://movieweb.com/primetime-rotten-tomatoes/
+
+Audiences have weighed in on 'Primetime' following its breakout box office debut.
+---------
+
+# 'Ocean's 14' Just Got a Long-Awaited Update from Brad Pitt
+
+Movie News, Ocean's 14, Ocean's Eleven, Crime, Brad Pitt, George Clooney
+
+Sun, 27 Sep 2026 16:24:54 GMT
+
+https://movieweb.com/oceans-14-brad-pitt-george-clooney-script/
+
+The next sequel in the series feels closer than ever.
+---------
+
+# 10 Marvel Characters More Powerful Than Thanos
+
+Movies, Marvel Cinematic Universe, Sci-Fi, Fantasy
+
+Sun, 27 Sep 2026 16:00:17 GMT
+
+https://movieweb.com/mcu-characters-thanos-more-powerful/
+
+Josh Brolin's Thanos is still revered as one of the MCU's most powerful characters, but there are those who could take him down. Read on for more.
+---------
+
 # Russell Crowe's New Netflix Thriller Is Officially Tackling The Untold Story Of Infamous American Outlaw
 
 Movies, Unabomber
