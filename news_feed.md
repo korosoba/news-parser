@@ -1,3 +1,377 @@
+# The MCU's X-Men Reboot Must Take These 6 Crucial Things From X-Men '97 If It Wants To Succeed
+
+Superheroes, X-Men, X-Men '97, Marvel Cinematic Universe
+
+Mon, 28 Sep 2026 00:10:15 GMT
+
+https://screenrant.com/mcu-x-men-reboot-copy-x-men-97-success/
+
+The X-Men will soon be rebooted in the Marvel Cinematic Universe, and there are some key ways the X-Men '97 series needs to serve as the blueprint.
+---------
+
+# HBO Max’s New #1 Movie Is One Of The Year’s Biggest Horror Successes
+
+Movies, Masked Recs
+
+Mon, 28 Sep 2026 00:09:00 GMT
+
+https://screenrant.com/the-backrooms-hbo-max-streaming-number-1-september-2026/
+
+One of this year's most successful breakout horror films just made its way to HBO Max and it has already claimed the number one spot.
+---------
+
+# Fantastic Four's Next MCU Villain Officially Confirmed By Marvel
+
+Marvel Comics, Fantastic Four
+
+Mon, 28 Sep 2026 00:00:15 GMT
+
+https://screenrant.com/fantastic-four-next-mcu-villain-wizard/
+
+A famous member of the Fantastic Four's rogues gallery makes his first official appearance in MCU canon this week, wearing comic-accurate gear.
+---------
+
+# PlayStation Drops 5 New Free Downloads You Don't Need PS Plus For
+
+Gaming, PlayStation
+
+Mon, 28 Sep 2026 00:00:15 GMT
+
+https://screenrant.com/playstation-5-free-downloads-no-ps-plus-needed/
+
+Discover 5 exciting free PS5 games to try this week without needing a PS Plus subscription.
+---------
+
+# Yellowstone Meets Blade Runner In Upcoming Cyberpunk Western Gaming Release
+
+Gaming, Steam, Yellowstone, Blade Runner, PC
+
+Sun, 27 Sep 2026 23:30:16 GMT
+
+https://screenrant.com/yellowstone-meets-blade-runner-cyberpunk-western-game/
+
+This stunning new cyberpunk western takes us to a devastated 1998 NYC dystopia after the Great Fire Disaster lays waste to America.
+---------
+
+# After 10 Years, A Massive Sci-Fi Mech Franchise Returns With Epic New Series
+
+Anime, Code Geass: Lelouch of the Rebellion, Masked Recs
+
+Sun, 27 Sep 2026 23:30:16 GMT
+
+https://screenrant.com/code-geass-new-series-star-chaser/
+
+Code Geass returns with Star Chaser Aspal, a new series premiering in 2027 featuring a fresh cast and original story.
+---------
+
+# 8 Best RPGs For Fans Of Mass Effect 2
+
+Gaming, Mass Effect, Triple-A Games, PC
+
+Sun, 27 Sep 2026 23:00:17 GMT
+
+https://screenrant.com/best-games-mass-effect-2-fans/
+
+Mass Effect may not be everyone's favorite RPG franchise, but few RPGs have companion/party members as exceptional, particularly in Mass Effect 2.
+---------
+
+# 10 Most Iconic Battles Between Members of the Justice League in DC Comics
+
+Comics, DC Comics
+
+Sun, 27 Sep 2026 23:00:17 GMT
+
+https://screenrant.com/most-iconic-battle-justice-league-members/
+
+DC’s greatest heroes usually battle together to save the world, but these iconic clashes show they can be just as fierce in fights against each other.
+---------
+
+# Taylor Sheridan Star Confirms Why They Won’t Join The Creator’s Other Shows
+
+TV, Lioness
+
+Sun, 27 Sep 2026 22:48:16 GMT
+
+https://screenrant.com/lioness-zoe-saldana-taylor-sheridan-universe-future/
+
+The star of one of Taylor Sheridan's hit shows reveals why she doesn't plan on participating in any of the creator's future projects.
+---------
+
+# I Can't Believe I'm Saying This, But I'm Happy 9-1-1 Killed Bobby
+
+Network TV, 9-1-1
+
+Sun, 27 Sep 2026 22:45:15 GMT
+
+https://screenrant.com/911-bobby-nash-death-peter-krause-good/
+
+9-1-1 killing Bobby Nash was the most controversial moment in its entire run, but the ABC procedural may have done itself— and Peter Krause— a favor.
+---------
+
+# Sega’s Forgotten JRPG Lead Finally Returns After 17 Years
+
+Anime, Persona, Persona 3 Reload, Persona 5
+
+Mon, 28 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/persona-3-portable-kotone-shiomi-returns-persona-5x/
+
+After nearly 20 years, one of the Persona series’ long-forgotten protagonists is finally back — and fans won’t have to wait long.
+---------
+
+# 31 Years Later, The Flash’s Best Story Is Still Almost Perfect
+
+Comics, The Flash, Mark Waid, Wally West
+
+Mon, 28 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/31-years-dead-heat-best-flash-story-almost-perfect/
+
+Legendary writer Mark Waid gave us one of the most consequential story arcs in The Flash legacy and introduced one of the deadliest adversaries yet.
+---------
+
+# Prime Video’s Reacher Spinoff Puts a Darker Twist on the Tracker Formula
+
+TV, Neagley, Prime Video
+
+Mon, 28 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/prime-video-neagley-dark-tracker-show/
+
+Maria Sten left action fans elated as she headlined the first season of Neagley, and it's already the best action mystery outside Tracker and Reacher.
+---------
+
+# Time Is Running Out to Watch Dwayne Johnson's Forgotten $244M Fantasy Adventure Movie
+
+Movies, Hercules, Prime Video, dwayne johnson
+
+Mon, 28 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/dwayne-johnson-hercules-leaving-prime-video-october-2026/
+
+Dwayne Johnson fans need to hurry if they want to watch the actor's action-packed fantasy film before it leaves streaming.
+---------
+
+# Mushoku Tensei Voice Actor Reveals Eris Greyrat "Changed a Lot"
+
+CBR Exclusives, Mushoku Tensei: Jobless Reincarnation, Isekai
+
+Sun, 27 Sep 2026 23:50:11 GMT
+
+https://www.cbr.com/mushoku-tensei-season-3-eris-va-lindsay-seidel-interview/
+
+In a new interview with CBR, Lindsay Seidel, voice of Eris in Mushoku Tensei, shares how Eris has grown and matured ahead of her return in Season 3.
+---------
+
+# 10 Most Unreadable Shonen Manga of All Time
+
+Anime, Manga, Shonen Jump, Naruto, Death Note
+
+Sun, 27 Sep 2026 23:45:11 GMT
+
+https://www.cbr.com/most-unreadable-shonen-manga-of-all-time/
+
+Some of the most popular manga of all time are Shonen stories, but the worst Shonen series ever make are downright unreadable.
+---------
+
+# Netflix's Biggest Adventure Series Is a Major Hit After Series Finale
+
+TV, Outer Banks, Netflix, Action
+
+Sun, 27 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/outer-banks-teen-drama-action-adventure-netflix-success-september-2026/
+
+Netflix's action-adventure mystery series, Outer Banks, is one of the most-watched shows on streaming after finale.
+---------
+
+# 8 Things Confirmed About Solo Leveling Season 3
+
+Anime, Solo Leveling, Crunchyroll
+
+Sun, 27 Sep 2026 23:52:34 GMT
+
+https://www.cbr.com/everything-confirmed-about-solo-leveling-season-3-so-far/
+
+Solo Leveling Season 3 is still mostly an enigma, but there are at least a few things that have actually been confirmed about the anime’s next season.
+---------
+
+# The Mummy 4 Filming Photos Reveal First Look at Rachel Weisz's Long-Awaited Return
+
+Movies, The Mummy 4
+
+Sun, 27 Sep 2026 23:23:38 GMT
+
+https://www.cbr.com/the-mummy-4-set-photos-rachel-weisz/
+
+Rachel Weisz finally returns to the franchise after 25 years.
+---------
+
+# 5 Forgotten 2000s Anime Series That Are Masterpieces From Start to Finish
+
+Anime, Innovation
+
+Sun, 27 Sep 2026 23:15:11 GMT
+
+https://www.cbr.com/forgotten-2000s-anime-series-that-are-masterpieces-list/
+
+Anime like Darker Than Black are fantastic, even though no one seems to remember them.
+---------
+
+# 10 Sitcoms More Universally Loved Than 'The Office'
+
+TV, Sitcom, Seinfeld, Modern Family, The Office
+
+Mon, 28 Sep 2026 00:02:11 GMT
+
+https://collider.com/sitcoms-more-loved-than-the-office/
+
+Discover sitcoms that surpass The Office in universal appeal, from classics like The Golden Girls to recent hits like Modern Family.
+---------
+
+# Jason Statham’s $530M Sci-Fi Franchise-Starter Is Officially Ready to Devour Streaming
+
+Movie News, The Meg, Jason Statham, HBO Max, Sci-Fi
+
+Mon, 28 Sep 2026 00:00:11 GMT
+
+https://collider.com/jason-statham-the-meg-hbo-max-streaming-september-2026/
+
+Jason Statham’s $530 million sci-fi monster movie The Meg has officially landed on HBO Max in the United States.
+---------
+
+# ‘The Conjuring’ Is Officially Expanding With a Terrifying New Installment
+
+Gaming News, The Conjuring Universe, The Conjuring, Horror, Video Game
+
+Sun, 27 Sep 2026 23:45:11 GMT
+
+https://collider.com/the-conjuring-unspoken-first-video-game-netflix-release/
+
+The Conjuring: Unspoken, the horror franchise’s first standalone video game, is coming to Netflix in October 2026.
+---------
+
+# Joel Kinnaman's Franchise-Killing Sci-Fi Remake Officially Lands on Free Streaming
+
+Movie News, Joel Kinnaman, RoboCop, Gary Oldman, Michael Keaton
+
+Sun, 27 Sep 2026 23:30:11 GMT
+
+https://collider.com/robocop-joel-kinnaman-sci-fi-remake-streaming-free-tubi-october-2026/
+
+The star-studded 2014 RoboCop reboot, headlined by Joel Kinnaman, is coming to a free streaming platform this October. Find out more.
+---------
+
+# HBO's Stephen King Horror Masterpiece Deserves Kudos for Being Bold and Experimental
+
+TV Features, The Outsider, Ben Mendelsohn, Cynthia Erivo, Stephen King
+
+Sun, 27 Sep 2026 23:27:11 GMT
+
+https://collider.com/the-outsider-hbo-stephen-king-miniseries-horror-masterpiece/
+
+Of the many miniseries adaptations of Stephen King's novels, The Outsider stands out, with superb performances by Ben Mendelsohn and Cynthia Erivo.
+---------
+
+# 10 CBS Detective Shows That Are Perfect From Start to Finish
+
+TV, CBS, Mystery, Criminal Minds, The Mentalist
+
+Sun, 27 Sep 2026 23:21:11 GMT
+
+https://collider.com/cbs-detective-shows-perfect-start-to-finish/
+
+From the crime thriller Criminal Minds to the mystery drama The Mentalist, these CBS detective shows are truly perfect from start to finish.
+---------
+
+# Apple TV Officially Brings Back Rebecca Ferguson’s Mind-Bending Sci-Fi Hit Next Year
+
+TV News, Apple TV, Sci-Fi, Silo, Rebecca Ferguson
+
+Sun, 27 Sep 2026 23:15:11 GMT
+
+https://collider.com/rebecca-ferguson-silo-apple-tv-twisty-sci-fi-2027-return-date/
+
+Apple TV's sci-fi masterpiece with engaging twists will officially return next year. Get all the details here.
+---------
+
+# 5-Season Apocalyptic Sci-Fi Hit Officially Takes Over Netflix Again
+
+TV News, The Last Ship, TNT, Sci-Fi, Streaming
+
+Sun, 27 Sep 2026 23:00:12 GMT
+
+https://collider.com/eric-dane-the-last-ship-streaming-hit-netflix-september-2026/
+
+Eight years after its finale, TNT’s apocalyptic sci-fi thriller The Last Ship is once again one of America’s most-streamed shows.
+---------
+
+# Netflix’s Best Sci-Fi Anime Is Officially Abandoning Its Original Story for Season 2
+
+TV Features, Cyberpunk: Edgerunners, Cyberpunk: Edgerunners 2, Cyberpunk 2077, Netflix
+
+Sun, 27 Sep 2026 22:49:12 GMT
+
+https://collider.com/cyberpunk-edgerunners-season-2-anthology-series-new-cast/
+
+Netflix's anime, Cyberpunk: Edgerunners, is an anthology series and will feature an entirely new crew for Season 2.
+---------
+
+# Prime Video’s Explosive New Heist Thriller Is Officially Just 1 Month Away
+
+Movie News, Prime Video, Thriller, Stanley Tucci, Crime
+
+Sun, 27 Sep 2026 22:15:11 GMT
+
+https://collider.com/masterplan-prime-video-october-2026-release-date/
+
+Three people plan and execute a heist in Paris in Prime Video's thriller premiering next month. Get all the details here.
+---------
+
+# A Multi-Decade Horror Saga Scores New Release Amid Massive Creative Reset
+
+Movie News, Saw, Blu-ray
+
+Sun, 27 Sep 2026 23:30:14 GMT
+
+https://movieweb.com/saw-v-vi-vii-4k-blu-ray-release/
+
+It's time to revisit the bloodiest entries in this long-running splatter horror franchise.
+---------
+
+# Stephen King's 103-Minute Supernatural Thriller Based on His Scariest Book Is Streaming Free
+
+Movie News, Pet Sematary, Hot on Streaming, Thriller, Horror, Stephen King
+
+Sun, 27 Sep 2026 22:30:14 GMT
+
+https://movieweb.com/stephen-king-pet-sematary-stream-tubi-october-206/
+
+Are you prepared to watch the adaptation of the novel that Stephen King was too afraid to publish?
+---------
+
+# Taylor Sheridan Meets Sergio Leone In an 8-Part Western Series You Can Binge In a Day
+
+Features, That Dirty Black Bag, Taylor Sheridan, Sergio Leone, Western
+
+Sun, 27 Sep 2026 22:00:15 GMT
+
+https://movieweb.com/that-dirty-black-bag-taylor-sheridan-sergio-leone-western/
+
+The true Spaghetti Western-style series that features bounty hunters, vengeance, and morally gray heroes makes for a perfect single-day binge watch.
+---------
+
+# Brad Pitt's Intense 101-Minute Action Thriller Scores Big With Audiences on Rotten Tomatoes
+
+Movie News, Brad Pitt, Heart of the Beast, David Ayer, Thriller
+
+Sun, 27 Sep 2026 21:56:58 GMT
+
+https://movieweb.com/heart-of-the-beast-rotten-tomatoes-audience-score/
+
+'Heart of the Beast' is drawing some of the strongest audience and critic reactions of David Ayer’s career.
+---------
+
 # Hollywood Is Afraid Of Adapting Mysterious "Lesbian Vampire" Novel, Confirms Star
 
 Movies, Lili Reinhart
