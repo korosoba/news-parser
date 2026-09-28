@@ -1,3 +1,366 @@
+# Fallout 5 Can Wait, Fallout: Wasteland Warfare Is Officially Changing Genres
+
+Gaming, Fallout 5, Fallout
+
+Mon, 28 Sep 2026 05:00:16 GMT
+
+https://screenrant.com/fallout-5-step-aside-wasteland-warfare-2026-release/
+
+Fallout 5 is still years away from being finished, but the wait for its debut might not be as excruciating with these new releases.
+---------
+
+# Game Of Thrones: Veilflame Officially Announced
+
+Gaming, Game of Thrones
+
+Mon, 28 Sep 2026 04:30:16 GMT
+
+https://screenrant.com/game-of-thrones-veilflame-dragonfire/
+
+Discover the new dragon 'Smoketail' in Game of Thrones: Dragonfire and elevate your strategic gameplay!
+---------
+
+# Jurassic Park Officially Replaces Alan Grant In Upcoming Survival Sequel
+
+Gaming, Jurassic Park, Jurassic Park: Survival, PC
+
+Mon, 28 Sep 2026 04:00:21 GMT
+
+https://screenrant.com/jurassic-park-alan-grant-replacement-survival/
+
+Jurassic Park is poised to replace Alan Grant in this highly anticipated sequel to the original blockbuster film as we return to Isla Nublar.
+---------
+
+# 7 Underrated Cartoon Network Anime That Are Considered Masterpieces
+
+Anime, Cartoon Network, Masked Recs
+
+Mon, 28 Sep 2026 04:00:07 GMT
+
+https://screenrant.com/best-cartoon-network-anime-masterpieces/
+
+Cartoon Network and its dedicated anime programming block, Toonami, produced some truly legendary content beyond the usual picks.
+---------
+
+# 10 Best Anime Of Summer 2026, Ranked
+
+Anime
+
+Mon, 28 Sep 2026 03:50:07 GMT
+
+https://screenrant.com/best-anime-summer-2026-ranked/
+
+With a new wave of premieres approaching, it is time to look back at the best anime of Summer 2026 that are truly worth watching.
+---------
+
+# It’s A Verdict, Ridley Scott’s Sci-Fi Horror Masterpiece Is “The Best Lovecraft Adaptation”
+
+Movies, Masked Recs
+
+Mon, 28 Sep 2026 03:45:16 GMT
+
+https://screenrant.com/ridley-scott-alien-best-lovecraft-movie-guillermo-del-toro/
+
+It’s A Verdict, Ridley Scott’s Sci-Fi Masterpiece Is “The Best Lovecraft Adaptation”
+---------
+
+# Teenage Mutant Ninja Turtles Reveals Dark New Shredder Redesign, And He's Now Unstoppable
+
+Comics, Teenage Mutant Ninja Turtles
+
+Mon, 28 Sep 2026 03:35:57 GMT
+
+https://screenrant.com/teenage-mutant-ninja-turtles-shredder-dark-redesign-unstoppable/
+
+Shredder just became one of the most powerful people in the Teenage Mutant Ninja Turtles universe, but will his reign last forever?
+---------
+
+# Christina Hendricks' 10 Best Movies And TV Shows
+
+Classic TV, Christina Hendricks
+
+Mon, 28 Sep 2026 03:35:16 GMT
+
+https://screenrant.com/christina-hendricks-best-movies-and-tv-shows-ranked/
+
+Christina Hendricks best movies and TV shows bring complex characters to life.
+---------
+
+# 8 Greatest Marvel Villains Who Became Heroes
+
+Comics, Marvel
+
+Mon, 28 Sep 2026 03:33:47 GMT
+
+https://screenrant.com/greatest-marvel-villains-became-heroes/
+
+Discover 8 Marvel villains who transformed into beloved heroes, showcasing their compelling character evolution.
+---------
+
+# Marvel Reveals Epic New Costume For Evil Child Of 2 Avengers Heroes
+
+Marvel Comics, The Avengers
+
+Mon, 28 Sep 2026 03:30:15 GMT
+
+https://screenrant.com/spider-man-deadpool-daughter-itsy-bitsy-redesign/
+
+Marvel's kinkiest Spider-Man villain officially has a brand-new look that is a little bit of old and a little bit of new, all wrapped into one design.
+---------
+
+# Sam Raimi's Underrated Sci-Fi Dinosaur Movie Officially Set to Stream for Free
+
+Movies, 65
+
+Mon, 28 Sep 2026 03:58:53 GMT
+
+https://www.cbr.com/65-free-streaming-tubi-october-2026/
+
+The divisive sci-fi action flick can be watched for free.
+---------
+
+# Godzilla Minus Zero Debuts High on Rotten Tomatoes as Critics Say It Surpasses Part One
+
+Movies, Godzilla Minus Zero
+
+Mon, 28 Sep 2026 03:47:17 GMT
+
+https://www.cbr.com/godzilla-minus-zero-rotten-tomatoes-score/
+
+Matching Godzilla Minus One is no easy feat, but critics are saying the sequel is somehow even better.
+---------
+
+# 10 Greatest Anime Series With the Best Villains, Ranked
+
+Anime, Naruto: Shippuden
+
+Mon, 28 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/best-anime-series-with-great-villains-ranked-list/
+
+Villains define the series that they're in; without a good villain, a series can't shine, and these villains are the reason their series are top-tier.
+---------
+
+# 10 Best Peanuts Characters Who Completely Vanished
+
+Comics, Peanuts
+
+Mon, 28 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/best-peanuts-characters-who-completely-vanished/
+
+The supporting and background characters in Peanuts created the strong foundation that helped make the comic strip a hit, though some disappeared.
+---------
+
+# 36 Years Later, Cult Classic '90s Cyberpunk Series Returns With a Major Upgrade
+
+Anime, AD Police Files, Bubblegum Crisis
+
+Mon, 28 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/ad-police-4k-restoration-blu-ray-2027/
+
+A controversial but renown cyberpunk OVA spinoff of the iconic Bubblegum Crisis franchise finally has a release date for its upcoming 4K restoration.
+---------
+
+# Stephen King's Favorite TV Show Is a Modern Crime Classic That Hooked Him in Under 5 Minutes
+
+TV, Breaking Bad, Stephen King, Crime
+
+Mon, 28 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/stephen-king-favorite-show-breaking-bad/
+
+Stephen King has created many great stories, but the prolific Master of Horror also praised a series that has been amazing from its opening scene.
+---------
+
+# 10 Best Zelda Games of All Time, Ranked
+
+Games, Video Games, The Legend of Zelda, Nintendo
+
+Mon, 28 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/best-zelda-games-ever-ranked-list/
+
+The best Legend of Zelda games are usually ranked by legacy, gameplay, and innovation, but nostalgia also plays a big part.
+---------
+
+# Alan Ritchson Shuts Down Reacher Fan's Big Complaint About the Prime Video Series
+
+TV, Reacher
+
+Mon, 28 Sep 2026 03:06:56 GMT
+
+https://www.cbr.com/alan-ritchson-responds-reacher-fan-mistake/
+
+Alan Ritchson clears up the Reacher canon for a fan upset with the Prime Video series.
+---------
+
+# 10 Biggest Open-World Games of All Time, Ranked By Size
+
+Games, open world, Minecraft, Final Fantasy XV
+
+Mon, 28 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/biggest-open-world-games-ever-ranked-list/
+
+Open-world gaming will be dominating the industry for the next few decades, but it might just take that long to complete these massive titles.
+---------
+
+# 35 Years Later, Kirk's Coldest Star Trek Line Hits Harder Than Any Other in Sci-Fi History
+
+Movies, Star Trek, Star Trek VI: The Undiscovered Country
+
+Mon, 28 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/star-trek-the-undiscovered-country-kirk-coldest-klingon-line/
+
+An outburst of anger, Kirk's coldest line in Star Trek VI reflects his hatred for the Klingon Empire and his grief over David Marcus' death.
+---------
+
+# 7 HBO Sci-Fi Shows Where Every Episode Is a Masterpiece
+
+TV, HBO, Sci-Fi, Science Fiction, Westworld
+
+Mon, 28 Sep 2026 03:22:12 GMT
+
+https://collider.com/hbo-sci-fi-shows-every-episode-masterpiece/
+
+From the dystopian drama Westworld to the superhero miniseries Watchmen, every episode of these HBO science fiction shows is a genuine masterpiece.
+---------
+
+# 'Lanterns' Star Kelly Macdonald Breaks Down Episode 7's Most Quietly Emotional Reunion Scene
+
+Exclusives, Lanterns, Kelly Macdonald, Jason Ritter, HBO
+
+Mon, 28 Sep 2026 02:05:11 GMT
+
+https://collider.com/lanterns-episode-7-kelly-macdonald-jason-ritter-hal-reunion-scene/
+
+Lanterns' Kelly Macdonald breaks down Episode 7 and why this week's most emotional reunion scene reminded her of working on HBO's Boardwalk Empire.
+---------
+
+# 'Lanterns' Best Team-Up Officially Rewrites HBO's Detective Sci-Fi for the Better | Review
+
+TV Reviews, Lanterns, Kyle Chandler, Aaron Pierre, HBO
+
+Mon, 28 Sep 2026 02:00:21 GMT
+
+https://collider.com/lanterns-episode-7-recap-hbo/
+
+Lanterns' most pivotal team-up leads to some shocking truths about Hal Jordan in Episode 7.
+---------
+
+# The 5 Greatest 5-Season HBO Shows of All Time, Ranked
+
+TV, HBO, The Wire, Boardwalk Empire, Hacks
+
+Mon, 28 Sep 2026 01:22:12 GMT
+
+https://collider.com/best-hbo-shows-5-seasons-ranked/
+
+Dive into the best five-season HBO shows that are entertaining and rewatchable, from classics like The Wire to modern series like Hacks.
+---------
+
+# Netflix Is Officially Losing the Biggest Sci-Fi Franchise of the 2010s
+
+Movie News, The Hunger Games, Netflix, The Hunger Games: Sunrise on the Reaping, Jennifer Lawrence
+
+Mon, 28 Sep 2026 00:30:11 GMT
+
+https://collider.com/the-hunger-games-movies-leaving-netflix-october-2026/
+
+Netflix officially says goodbye to the biggest sci-fi franchise of the 2010s, as it's losing all five Hunger Games movies in just a few weeks.
+---------
+
+# 'Doctor Who's Legendary Theme Is Part of a 63-Year Old Controversy
+
+TV Features, Doctor Who, Sci-Fi, BBC
+
+Mon, 28 Sep 2026 00:20:12 GMT
+
+https://collider.com/doctor-who-original-theme-song-meaning/
+
+Doctor Who's theme song is one of the most iconic elements of the famous sci-fi series, but it has a controversial and complicated past.
+---------
+
+# This 100-Year-Old Stunt Spectacle Is Officially Finding New Life on Free Streaming
+
+Movie News, The General, Buster Keaton, Comedy, Mission: Impossible - Dead Reckoning
+
+Mon, 28 Sep 2026 00:15:11 GMT
+
+https://collider.com/buster-keaton-the-general-streaming-free-justwatch-tv-september-2026/
+
+The legendary Buster Keaton's masterpiece comedy film is streaming for free on a brand-new platform in its 100th year. Find out more.
+---------
+
+# 9 Biggest Questions After 'Lanterns' Episode 7
+
+TV Lists, Lanterns
+
+Mon, 28 Sep 2026 04:33:53 GMT
+
+https://movieweb.com/lanterns-episode-7-biggest-questions/
+
+"The Jordan Boys Legacy" revealed a new detail about Hal Jordan's history, as well as a tease for the debut of the Sinestro Corps.
+---------
+
+# 'Lord of the Rings': 10 Aragorn Quotes That Live Rent-Free in Our Heads
+
+Features, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King
+
+Mon, 28 Sep 2026 02:30:14 GMT
+
+https://movieweb.com/lord-of-the-rings-aragorn-quotes/
+
+Viggo Mortensen's on-screen interpretation of Aragorn exudes kingliness, and he proves it with some of the franchise's most memorable quotes.
+---------
+
+# 6 'Harry Potter' Wizards More Powerful Than Voldemort
+
+Movie Lists, Harry Potter, Fantasy
+
+Mon, 28 Sep 2026 02:05:56 GMT
+
+https://movieweb.com/harry-potter-wizards-stronger-voldemort/
+
+'Harry Potter' spends many installments establishing Voldemort as a powerful villain, but there are several characters who prove stronger.
+---------
+
+# Amazon's 140-Minute Action Epic Loses the Global Box-Office Crown to Another Major 2026 Reboot
+
+Movie News, Resident Evil, Masters of the Universe, Box Office Milestones
+
+Mon, 28 Sep 2026 01:30:15 GMT
+
+https://movieweb.com/resident-evil-new-box-office-record-september-2026/
+
+Resident Evil has moved ahead of Masters of the Universe at the global box office.
+---------
+
+# Three-Time-Canceled 8-Part Action Series Rises on Streaming Ahead of Its New Spinoff
+
+TV News, S.W.A.T., S.W.A.T. Exiles, Apple TV, Hot on Streaming
+
+Mon, 28 Sep 2026 00:30:15 GMT
+
+https://movieweb.com/swat-exile-apple-tv-hit-september-2026/
+
+S.W.A.T. has found fresh momentum on Apple TV’s store rankings.
+---------
+
+# 10 Greatest Snoopy Quotes That Made ‘Peanuts’ History
+
+Movie Lists, Peanuts, comics, Comedy
+
+Mon, 28 Sep 2026 00:15:14 GMT
+
+https://movieweb.com/peanuts-best-snoopy-quotes/
+
+The best Snoopy quotes captured his laid-back approach to life; Snoopy was very much a Peanuts character who understood the journey mattered most.
+---------
+
 # The MCU's X-Men Reboot Must Take These 6 Crucial Things From X-Men '97 If It Wants To Succeed
 
 Superheroes, X-Men, X-Men '97, Marvel Cinematic Universe
