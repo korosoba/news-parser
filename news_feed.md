@@ -1,3 +1,443 @@
+# True Detective Season 1’s New Successor Series Debuts To Solid Rotten Tomatoes Audience Score
+
+TV, Masked Recs
+
+Tue, 29 Sep 2026 18:04:14 GMT
+
+https://screenrant.com/brothers-apple-tv-rotten-tomatoes-audience-score-debut/
+
+Matthew McConaughey and Woody Harrelson's True Detective reunion is off to a good start with viewers, albeit others aren't quite as impressed.
+---------
+
+# 10 Movies Better Than The Book
+
+Books, Drama
+
+Tue, 29 Sep 2026 18:00:16 GMT
+
+https://screenrant.com/movie-adaptations-better-than-the-book/
+
+Common pop-culture consensus is that books trump movies adapted from them, but these legends of cinema prove that's far from always true.
+---------
+
+# PlayStation Officially Drops 4 New Free Downloads You Don't Need PS Plus To Claim
+
+Gaming, PlayStation, The Last of Us, PlayStation Plus
+
+Tue, 29 Sep 2026 18:00:16 GMT
+
+https://screenrant.com/playstation-4-free-downloads-september-2026-no-ps-plus/
+
+Naughty Dog is celebrating The Last of Us Day 2026 with four free PlayStation avatars featuring familiar symbols from the series.
+---------
+
+# The Big Bang Theory's Sequel Stands For Everything The Original Show Didn't
+
+TV, The Big Bang Theory, Stuart Fails to Save the Universe
+
+Tue, 29 Sep 2026 18:00:16 GMT
+
+https://screenrant.com/stuart-fails-to-save-the-universe-unlike-big-bang-theory/
+
+Bold visuals and strange new worlds replace The Big Bang Theory's traditional sitcom setup as the heroes pursues cosmic stakes in this spinoff.
+---------
+
+# Star Trek: Strange New Worlds Officially Crosses Vital Streaming Milestone At The Perfect Time
+
+TV, Masked Recs
+
+Tue, 29 Sep 2026 17:52:33 GMT
+
+https://screenrant.com/star-trek-strange-new-worlds-perfect-time-paramount-plus-streaming-milestone-september-2026/
+
+The wait has begun for the final season of Star Trek: Strange New Worlds, but the sci-fi show’s fourth season is still reaching new heights.
+---------
+
+# Game Of Thrones Movie Gets Official Release Date From WB
+
+Movies, Game Of Thrones
+
+Tue, 29 Sep 2026 17:50:26 GMT
+
+https://screenrant.com/game-of-thrones-aegons-conquest-release-date/
+
+Game of Thrones' is returning in an entirely new way, as the new fantasy movie Game of Thrones: Aegon's Conquest gets an official release date.
+---------
+
+# How To Read All The Michael Connelly Series In Connected, Chronological Order
+
+Books, Michael Connelly, Bosch, The Lincoln Lawyer
+
+Tue, 29 Sep 2026 17:50:25 GMT
+
+https://screenrant.com/michael-connelly-bosch-book-series-connected-chronological-order-explained/
+
+Track Renée Ballard, Mickey Haller, Jack McEvoy, and Harry Bosch as past cases, allies, and betrayals echo through time.
+---------
+
+# Marvel Officially Sets Up Deadpool & Wolverine's Appearances In Avengers: Doomsday
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Tue, 29 Sep 2026 17:45:21 GMT
+
+https://screenrant.com/avengers-doomsday-deadpool-wolverine-roles-setup/
+
+Ryan Reynolds' Deadpool and Hugh Jackman's Wolverine aren't confirmed for Avengers: Doomsday, but Marvel has officially set up their roles.
+---------
+
+# The Witcher 3 Remastered: How To Unlock New Free DLC
+
+Gaming, The Witcher 3: Wild Hunt - Remastered, Triple-A Games
+
+Tue, 29 Sep 2026 17:41:46 GMT
+
+https://screenrant.com/witcher-3-remastered-new-free-dlc-unlock/
+
+If you're just getting into The Witcher 3 Remastered, you have some free DLC to grab, and while it's easy to get, you need to follow a few steps.
+---------
+
+# Charlie Sheen Officially Making TV History With Major Two & A Half Men Reunion
+
+TV, Charlie Sheen
+
+Tue, 29 Sep 2026 17:39:56 GMT
+
+https://screenrant.com/happy-jack-tv-sitcom-history-charlie-sheen-martin-sheen-reunion/
+
+Charlie Sheen is officially making TV history with a major Two and a Half Men reunion that's set to happen very soon.
+---------
+
+# 10 Marvel Comics Better Than The Movies, Ranked
+
+Comics, Marvel, MCU, Avengers
+
+Tue, 29 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/best-marvel-comics-better-than-movies-ranked-list/
+
+These 10 Marvel Comics masterpieces outshine their live-action movie counterparts in every single way.
+---------
+
+# Game of Thrones’ First Movie Officially Has a Release Date
+
+Movies, Game Of Thrones, Fantasy
+
+Tue, 29 Sep 2026 17:46:07 GMT
+
+https://www.cbr.com/game-of-thrones-movie-aegons-conquest-release-date/
+
+Aegon's Conquest is coming to theaters.
+---------
+
+# Sky Confirms The Day of the Jackal's Fate After Major Takeover
+
+TV, The Day of the Jackal
+
+Tue, 29 Sep 2026 17:35:32 GMT
+
+https://www.cbr.com/sky-the-day-of-the-jackals-itv-airtime/
+
+Reacher is in for a major competition with a huge difference.
+---------
+
+# 37 Years Later, Sean Connery's Best Indiana Jones Line Hits 10x Harder
+
+Movies, Indiana Jones and the Last Crusade, sean connery, Indiana Jones
+
+Tue, 29 Sep 2026 17:30:11 GMT
+
+https://www.cbr.com/sean-connery-best-indiana-jones-line-last-crusade/
+
+Sean Connery’s funniest insult in The Last Crusade quietly sums up the entire movie, and the ending proves Henry Jones Sr. had a point.
+---------
+
+# 5 New Cozy Games for Animal Crossing Fans
+
+Games, Animal Crossing: New Horizons
+
+Tue, 29 Sep 2026 17:15:11 GMT
+
+https://www.cbr.com/new-cozy-games-for-animal-crossing-fans/
+
+Discover sleepy islands, collectible creatures and cozy shops in these perfect games for Animal Crossing fans.
+---------
+
+# ABC’s Hit Detective Series Is Taking Over the World Ahead of Season 3 Format Change
+
+TV, High Potential, ABC, Disney+
+
+Tue, 29 Sep 2026 17:00:12 GMT
+
+https://www.cbr.com/abc-high-potential-streaming-success-september-2026/
+
+The hit series has become a global streaming sensation ahead of its return.
+---------
+
+# 3 Years Before Star Trek, William Shatner Delivered The Twilight Zone’s Most Terrifying 25 Minutes
+
+TV, The Twilight Zone, Sci-Fi, william shatner
+
+Tue, 29 Sep 2026 17:00:12 GMT
+
+https://www.cbr.com/star-trek-william-shatner-delivered-the-twilight-zone-scariest-episode/
+
+William Shatner has earned his place as both sci-fi and TV royalty, but one classic performance gave The Twilight Zone its scariest 25 minutes.
+---------
+
+# 12 Anime Guys As Hot As Jinshi From The Apothecary Diaries
+
+Anime, The Apothecary Diaries, Inuyasha, Naruto
+
+Tue, 29 Sep 2026 16:45:11 GMT
+
+https://www.cbr.com/anime-men-as-attractive-as-jinshi-apothecary-diaries/
+
+Jinshi is one of the most attractive anime men of the decade, and there are other characters who have the same kind of captivating charm as he does.
+---------
+
+# Nintendo Game Will Be Gone Forever From Tomorrow
+
+Games, Nintendo, Mario Kart, Mario Kart Tour
+
+Tue, 29 Sep 2026 16:20:08 GMT
+
+https://www.cbr.com/nintendo-game-gone-forever-tomorrow-mario-kart/
+
+A first-party Nintendo game will officially be gone forever from tomorrow, giving fans one last chance to experience it before it's delisted.
+---------
+
+# 5 Masterpiece Anime Better Than Cowboy Bebop
+
+Anime, Cowboy Bebop, Frieren: Beyond Journey's End
+
+Tue, 29 Sep 2026 16:15:11 GMT
+
+https://www.cbr.com/masterpiece-anime-better-than-cowboy-bebop/
+
+Cowboy Bebop is inarguably one of the best anime series ever made, but there are a handful of series and movies that are comfortably superior.
+---------
+
+# First 'Game of Thrones' Movie Officially Confirms Release Date
+
+Movie News, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms, George R.R. Martin
+
+Tue, 29 Sep 2026 18:01:40 GMT
+
+https://collider.com/game-of-thrones-movie-aegons-conquest-release-date-june-2029/
+
+The Game of Thrones movie, Aegon's Conquest, has set a theatrical release date, with a franchise veteran director and an Andor writer on-board.
+---------
+
+# Disney’s ‘Agatha All Along’ Replacement Officially Premieres in 48 Hours With New Look [Exclusive]
+
+TV News, Coven Academy, Agatha All Along, Disney+, Hulu
+
+Tue, 29 Sep 2026 18:01:11 GMT
+
+https://collider.com/disney-coven-academy-sneak-peek-release-date-october-2026/
+
+Disney has released a new sneak peek at its official Agatha All Along replacement, Coven Academy, which begins streaming on October 1.
+---------
+
+# Shailene Woodley Reveals the Key Detail That Helped Catch the Unabomber
+
+Movie, Unabomber, Shailene Woodley, Netflix, True Crime
+
+Tue, 29 Sep 2026 17:56:42 GMT
+
+https://collider.com/shailene-woodley-unabomber-netflix-ted-kaczynski/
+
+Shailene Woodley breaks down the most intense moment of the Netflix crime movie Unabomber, which also stars Russell Crowe and Jacob Tremblay.
+---------
+
+# ‘God of War’s First Release in 4 Years Officially Lands Major Update
+
+Gaming News, God of War Laufey, God of War, Deborah Ann Woll, Gaming
+
+Tue, 29 Sep 2026 17:53:09 GMT
+
+https://collider.com/god-of-war-laufey-pre-order-trailer-release-date-february-2027/
+
+God of War: Laufey, starring Daredevil: Born Again’s Deborah Ann Woll, has officially moved forward ahead of the game’s 2027 release.
+---------
+
+# The 5 Best Movies of the Last 6 Months, Ranked
+
+Movie, The Odyssey, It Ends, Obsession, The Furious
+
+Tue, 29 Sep 2026 17:52:11 GMT
+
+https://collider.com/best-movies-last-6-months-ranked/
+
+The past 6 months have been a pretty great time for movies, including the release of icons like The Invite, Obsession, and The Odyssey.
+---------
+
+# 6 Perfect Sci-Fi Shows Worth Watching Over and Over
+
+TV, Sci-Fi, Dark, Andor, The Expanse
+
+Tue, 29 Sep 2026 17:37:12 GMT
+
+https://collider.com/perfect-sci-fi-shows-worth-watching-over-and-over-ranked/
+
+From Dark to The Expanse, these sci-fi shows reward every revisit with deeper twists, richer characters, and hidden details.
+---------
+
+# The 10 Best Classic Rock One-Hit Wonders, Ranked
+
+Music Features, Rock, Music, Classic Albums: Lou Reed - Transformer, Patti Smith
+
+Tue, 29 Sep 2026 17:21:11 GMT
+
+https://collider.com/best-one-hit-wonders-classic-rock-ranked/
+
+The best classic rock one-hit wonders ever include "Layla" by Derek and the Dominoes, Patti Smith's "Because the Night," and Donald Fagen's "I.G.Y."
+---------
+
+# The 9 Greatest Dystopian Book Trilogies of All Time, Ranked
+
+Books and Comics, Books, Science Fiction, The Hunger Games, Silo
+
+Tue, 29 Sep 2026 16:45:11 GMT
+
+https://collider.com/best-dystopian-book-trilogies-time-ranked/
+
+From classics like William Gibson's Sprawl to Suzanne Collins' influential Hunger Games, these are the greatest dystopian book trilogies ever written.
+---------
+
+# Tom Cruise Officially Hits the End of an Era With Divisive New Movie
+
+Movie News, Digger, Tom Cruise, Alejandro G. Inarritu, John Goodman
+
+Tue, 29 Sep 2026 16:36:03 GMT
+
+https://collider.com/tom-cruise-digger-rotten-tomatoes-score-is-it-good/
+
+After 5 acclaimed hits in a row, Tom Cruise's first original movie in years has officially divided critics in a dicey Rotten Tomatoes debut.
+---------
+
+# Matthew Macfadyen’s 8-Part James Bond Replacement Officially Gets First Look
+
+TV News, Legacy of Spies, Matthew Macfadyen, Charlie Hunnam, Dan Stevens
+
+Tue, 29 Sep 2026 16:13:52 GMT
+
+https://collider.com/legacy-of-spies-first-look-matthew-macfadyen-charlie-hunnam/
+
+BBC and MGM+ reveal Matthew Macfadyen as George Smiley and Charlie Hunnam as Alec Leamas as the eight-part Legacy of Spies wraps filming.
+---------
+
+# Long-Awaited 'Game of Thrones' Movie Officially Confirms Release Date
+
+Movie News, game of thrones, Game of Thrones, Game Of Thrones, Fantasy
+
+Tue, 29 Sep 2026 17:56:51 GMT
+
+https://movieweb.com/game-of-thrones-aegons-conquest-2029-release-date/
+
+The first 'Game of Thrones' movie is officially releasing in theaters, based on the story we've all wanted to see for years.
+---------
+
+# 58 Years Later, the Essential Action Thriller Masterpiece That Changed the Genre Forever Sets New Release
+
+Movie News, Blu-ray, Bullitt, Action, Thriller, Crime
+
+Tue, 29 Sep 2026 17:30:14 GMT
+
+https://movieweb.com/bullitt-4k-blu-ray-release/
+
+From 'Heat' to 'Jack Reacher,' the influence of this action thriller is everywhere.
+---------
+
+# The Most Mind-Bending Movies of All Time
+
+Movie Lists, Thriller, Drama, Sci-Fi
+
+Tue, 29 Sep 2026 17:01:15 GMT
+
+https://movieweb.com/most-mindbending-movies-ever/
+
+These 30 movies rely on nonlinear plots, unreliable narrators, and layered twists, earning their reputation as some of cinema's most confusing films.
+---------
+
+# Netflix’s Star-Studded Mystery Thriller Miniseries Was So Good, It Got an Unexpected Season 2 Renewal
+
+Features, The Beast in Me, Netflix, Thriller
+
+Tue, 29 Sep 2026 17:01:14 GMT
+
+https://movieweb.com/the-beast-in-me-netflix-season-2/
+
+Netflix's mystery thriller TV series seemed like it would be a miniseries with eight episodes, but the streaming service renewed it for a Season 2.
+---------
+
+# 'Digger' Officially Splits Critics With Divisive Rotten Tomatoes Score
+
+Movie News, Digger, Comedy
+
+Tue, 29 Sep 2026 16:51:27 GMT
+
+https://movieweb.com/digger-rotten-tomatoes-score/
+
+Alejandro G. Iñárritu's latest dark satire starring Tom Cruise has earned mixed responses from critics, debuting with 52% on Rotten Tomatoes.
+---------
+
+# Ridley Scott's 155-Minute Action Masterpiece Officially Confirms Major Streaming Upgrade
+
+Movie News, Gladiator, Coming/Leaving Streaming, Ridley Scott, Action
+
+Tue, 29 Sep 2026 16:00:16 GMT
+
+https://movieweb.com/gladiator-ridley-scott-action-stream-netflix-october-2026/
+
+Ridley Scott's historical action masterpiece is the latest movie to be caught up in the ever-changing streaming landscape.
+---------
+
+# Tom Cruise's Return to Serious Movies Is a Mess, But Not a Heinous One | Review
+
+Movie Reviews, Digger
+
+Tue, 29 Sep 2026 16:00:16 GMT
+
+https://movieweb.com/digger-review/
+
+'Digger' has genuine purpose hidden beneath an opaque outer shell, accomplishing great heights and frustrating lows.
+---------
+
+# Why Only 42% of 'Avengers: Endgame Encore' Screenings Have the 4 New Scenes Setting Up 'Doomsday'
+
+Features, Avengers: Endgame Encore, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home), Avengers: Endgame, Superhero, Marvel Cinematic Universe
+
+Tue, 29 Sep 2026 16:00:16 GMT
+
+https://movieweb.com/avengers-endgame-encore-missing-scene-reason/
+
+The 'Avengers Endgame: Encore' re-release includes four scenes setting up 'Doomsday,' but not all of the screenings have this footage.
+---------
+
+# Apple TV's New 10-Part Murder Mystery Thriller Is the Perfect 'True Detective' Replacement
+
+TV Trailers, Apple TV, Crime, True Detective, Nocturne
+
+Tue, 29 Sep 2026 15:44:08 GMT
+
+https://movieweb.com/apple-tv-nocturne-trailer/
+
+Apple TV's star-studded crime drama has a bleak atmosphere that may remind people of the HBO hit.
+---------
+
+# 'Scrubs' Showrunner Confirms the Return of a Missing Original Character for Season 2
+
+TV News, Scrubs, Comedy
+
+Tue, 29 Sep 2026 15:39:04 GMT
+
+https://movieweb.com/scrubs-revival-season-2-doug-comeback/
+
+Johnny Kastl played Doug in almost 50 classic 'Scrubs' episodes, and he's coming back to add to that tally. Read on for more.
+---------
+
 # Zelda: Ocarina Of Time Remake New Gameplay Officially Confirms Brand-New Feature
 
 Gaming, The Legend of Zelda: Ocarina of Time, Nintendo
