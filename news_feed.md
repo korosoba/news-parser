@@ -1,3 +1,366 @@
+# Stargate Invasion Promises All-Out War
+
+Gaming, Stargate, Stargate SG-1, PC
+
+Tue, 29 Sep 2026 05:00:16 GMT
+
+https://screenrant.com/stargate-invasion-sins-of-a-solar-empire-mod/
+
+Stargate: Invasion is a truly authentic adaptation for longtime fans of the franchise, bringing back the SG-1 crew for another adventure.
+---------
+
+# Dungeon Crawler Carl: Smush Officially Releases November 2026
+
+Gaming, Dungeon Crawler Carl, PC
+
+Tue, 29 Sep 2026 04:30:15 GMT
+
+https://screenrant.com/dungeon-crawler-carl-smush-november-2026/
+
+Dungeon Crawler Carl officially returns with a new Smush release in November this year ahead of the The Beautiful Place's arrival.
+---------
+
+# Brandon Sanderson's Mistborn Is Officially Switching Genres November 2026
+
+Gaming, Brandon Sanderson, Mistborn, The Cosmere, The Cosmere RPG, PC
+
+Tue, 29 Sep 2026 04:00:23 GMT
+
+https://screenrant.com/brandon-sanderson-mistborn-well-of-ascension-genre-switch/
+
+Brandon Sanderson's Mistborn saga heads into new territory when it returns this November with a completely new adaptation.
+---------
+
+# 35-Part Stealth Sherlock Holmes Adaptation Deserves Kudos For Flipping The Script
+
+Classic TV, Sherlock Holmes
+
+Tue, 29 Sep 2026 03:50:17 GMT
+
+https://screenrant.com/death-note-sherlock-holmes-adaptation-moriarty-perspective/
+
+The iconic Sherlock Holmes is the hero of his own story, while Moriarty is his ultimate nemesis, but Death Note flips the script with a shock twist.
+---------
+
+# 10 Powerful Mutant Superheroes Who Never Actually Joined The X-Men
+
+Comics, Marvel, X-Men
+
+Tue, 29 Sep 2026 03:47:31 GMT
+
+https://screenrant.com/most-powerful-mutants-never-joined-xmen-marvel/
+
+Discover 10 mighty mutants who never officially joined the X-Men team despite their immense power and influence.
+---------
+
+# I’m Convinced Avengers: Endgame Encore Just Debunked The Biggest Secret Wars Theory
+
+Superheroes, Avengers: Endgame Encore, Avengers: Secret Wars, Marvel Cinematic Universe
+
+Tue, 29 Sep 2026 03:44:54 GMT
+
+https://screenrant.com/avengers-endgame-encore-debunked-secret-wars-reboot-theory/
+
+Thanks to one of Avengers: Endgame Encore's new post-credit scenes, I believe the re-release just debunked one of the biggest Secret Wars theories.
+---------
+
+# The Perfect Bosch Replacement Is 82 Episodes & Streaming On Paramount+
+
+Classic TV, Masked Recs
+
+Tue, 29 Sep 2026 03:30:16 GMT
+
+https://screenrant.com/bosch-fans-watch-ray-donovan-paramount-plus/
+
+Bosch is one of the best crime thrillers out there and finding its replacement is not easy, but a 82-episodes series comes close to being equally good
+---------
+
+# The 25 Best Action Series Of All Time, Ranked
+
+Classic TV
+
+Tue, 29 Sep 2026 03:13:10 GMT
+
+https://screenrant.com/best-action-tv-series-all-time/
+
+Action TV shows come in all shapes and sizes, but it's those that left a lasting mark on the wider genre that continue to stick out over the years.
+---------
+
+# 28 Years Ago, The X-Files Replaced Mulder & Scully For The First Time And Didn't Learn Its Lesson
+
+Gaming, The X-Files, PC
+
+Tue, 29 Sep 2026 03:00:16 GMT
+
+https://screenrant.com/x-files-mulder-scully-replacement-1998/
+
+Back in 1998, Mulder & Scully were officially replaced in a controversial X-Files adaptation that didn't exactly pay off handsomely.
+---------
+
+# Forget John Wick, Netflix's Assassin Thriller Franchise Already Has 2 Perfect Movies
+
+Movies, Masked Recs
+
+Tue, 29 Sep 2026 02:34:17 GMT
+
+https://screenrant.com/netflix-kill-boksoon-assassin-franchise-john-wick-replacement/
+
+Netflix's Seoul-set assassin saga blends balletic, brutal violence with fraught family drama as loyalties unravel amid John Wick-style showdowns.
+---------
+
+# After a 3-Year Delay, Naruto Finally Confirms a Brand-New Anime Series
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations, New York Comic Con
+
+Tue, 29 Sep 2026 04:31:23 GMT
+
+https://www.cbr.com/naruto-new-anime-series-return-2027/
+
+After a three-year wait, Naruto is finally returning with a new limited anime series.
+---------
+
+# 10 Best Pokémon Evolution Lines, Ranked
+
+Games, Pokemon, Pokemon Scarlet and Violet, Pokemon Sword and Shield
+
+Tue, 29 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/best-pokemon-evolution-lines-ranked/
+
+Legendary and Mythicals might be the strongest in the game, but Pokémon evolution lines are among the best in the series in terms of design.
+---------
+
+# Netflix's Reboot of William Shatner's Greatest Non-Star Trek Franchise Will Be a Must-Watch for Every Action Fan
+
+TV, william shatner, Netflix, Action
+
+Tue, 29 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/netflix-tj-hooker-reboot/
+
+A reboot of a classic William Shatner TV show promises an action-comedy police procedural for both new and existing fans.
+---------
+
+# The Story Behind Peanuts' Final Comic Strip
+
+Comics, Peanuts
+
+Tue, 29 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/the-story-behind-peanuts-final-comic-strip/
+
+Peanuts ended beautifully and tragically in February of 2000, marking the end of a 50-year-long comic strip legacy.
+---------
+
+# Nintendo Confirms New Quality of Life Feature for Legend of Zelda: Ocarina of Time Remake
+
+Games, The Legend of Zelda: Ocarina of Time
+
+Tue, 29 Sep 2026 03:18:31 GMT
+
+https://www.cbr.com/legend-of-zelda-ocarina-of-time-quality-of-life-feature/
+
+Nintendo's making life easier for gamers with the Legend of Zelda: Ocarina of Time remake for the Switch 2.
+---------
+
+# 10 Hardest Open World Games of All Time, Ranked
+
+Games, Elden Ring, open world
+
+Tue, 29 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/hardest-open-world-games-of-all-time-ranked-list/
+
+Open-world games like Elden Ring and Breath of the Wild are the most punishing games in the genre.
+---------
+
+# Netflix Confirms Full October 2026 Anime Schedule With Release Dates
+
+Anime, Netflix, Cyberpunk: Edgerunners 2, My Happy Marriage, JoJo's Bizarre Adventure, One Piece
+
+Tue, 29 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/netflix-october-2026-anime-schedule-release-dates/
+
+Netflix reveals its exciting October 2026 anime lineup, with One Piece, Ranma 1/2, Blue Box and Cyberpunk: Edgerunners 2 leading the schedule.
+---------
+
+# 7 Anime to Watch If You Miss Chainsaw Man
+
+Anime, Chainsaw Man, Jujutsu Kaisen
+
+Tue, 29 Sep 2026 02:45:11 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-miss-chainsaw-man/
+
+Anime like Jujutsu Kaisen and FLCL will tide fans over while they wait for Chainsaw Man to return.
+---------
+
+# Dennis Haskins, Saved by the Bell Star, Dies at 75
+
+TV, obituary, Saved By the Bell
+
+Tue, 29 Sep 2026 02:35:28 GMT
+
+https://www.cbr.com/dennis-haskins-dead/
+
+Actor Dennis Haskins, best known for his Saved by the Bell role, has passed away.
+---------
+
+# 10 Best Digimon Mega Evolutions, Ranked
+
+Games, Digimon, Video Games
+
+Tue, 29 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/best-digimon-mega-evolutions-ranked/
+
+Many Megas rose through decades of games cementing reputations with brutal finishes unique skills and iconic moments.
+---------
+
+# The 10 Classic Rock Albums That Changed Music Forever, Ranked
+
+Music Features, The Beatles, Queen, Pink Floyd, Jimi Hendrix, Rock, Music
+
+Tue, 29 Sep 2026 05:36:29 GMT
+
+https://collider.com/classic-rock-albums-changed-music-forever-ranked/
+
+From The Beach Boys’ groundbreaking sound to AC/DC’s hard-rocking anthems, these albums changed music forever and became classic rock masterpieces.
+---------
+
+# 10 Best Prime Video Shows Released Since 2016, Ranked
+
+TV, Prime Video, Reacher, Off Campus, The Boys
+
+Tue, 29 Sep 2026 04:18:12 GMT
+
+https://collider.com/best-prime-video-shows-since-2016-ranked/
+
+Reacher, Off Campus, The Boys, and The Lord of the Rings: The Rings of Power are all among the best Prime Video shows released since the year 2016.
+---------
+
+# M. Night Shyamalan’s Major Sci-Fi Action Flop Deserves a Second Look on Streaming
+
+Movie Features, After Earth, Will Smith, M. Night Shyamalan, The Last Airbender
+
+Tue, 29 Sep 2026 04:05:11 GMT
+
+https://collider.com/m-night-shyamalan-after-earth-sci-fi-streaming-free-pluto-tv-september-2026/
+
+M. Night Shyamalan and Will Smith's After Earth was a major box office flop, but that may have had more to do with expectations than the film itself.
+---------
+
+# Game of Thrones Meets Star Wars in HBO Max's Near-Perfect Space Opera
+
+Movie Features, Dune, Dune 2, Star Wars, Game Of Thrones
+
+Tue, 29 Sep 2026 03:56:18 GMT
+
+https://collider.com/game-of-thrones-meets-star-wars-denis-villeneueve-dune-hbo-max/
+
+Game of Thrones and Star Wars are influenced by Frank Herbert's seminal novel Dune, which has received the perfect sci-fi feature-film treatment.
+---------
+
+# 7 Greatest Agatha Christie Miss Marple Books, Ranked
+
+Books and Comics, Agatha Christie, Mystery, Crime, Miss Marple
+
+Tue, 29 Sep 2026 03:55:12 GMT
+
+https://collider.com/best-agatha-christie-miss-marple-books-ranked/
+
+Miss Marple has featured in many of Agatha Christie's mystery novels, like The Moving Finger and Sleeping Murder, but which book is the best?
+---------
+
+# 'The Rookie's Greatest Episode Broke Its Most Frustrating 7-Season Trend
+
+TV Features, The Rookie, ABC, Eric Winter, Melissa O'Neil
+
+Tue, 29 Sep 2026 03:16:12 GMT
+
+https://collider.com/the-rookie-season-8-premiere-chenford-relationship/
+
+One of The Rookie's best-ever episodes broke the show's most frustrating trend involving Lucy Chen and Tim Bradford.
+---------
+
+# Only 3 Western Movies Are Better Than 'Tombstone'
+
+Movie, Tombstone, Western, Once Upon a Time in the West, The Good, the Bad and the Ugly
+
+Tue, 29 Sep 2026 03:11:12 GMT
+
+https://collider.com/western-movies-better-than-tombstone/
+
+While Tombstone remains an endlessly rewatchable classic, only three legendary Westerns possess the raw grit to outshine it.
+---------
+
+# ‘The Boys’ Star Thought Season 1 Would Officially End His Hollywood Career [Exclusive]
+
+TV News, The Boys, Jessie T. Usher, Prime Video, FanX
+
+Tue, 29 Sep 2026 01:30:12 GMT
+
+https://collider.com/the-boys-season-1-jessie-t-usher-first-reaction-career-ender/
+
+The Boys star Jessie T. Usher thought starring in the Prime Video series would mean the end of his Hollywood career.
+---------
+
+# 3 Series You Officially Need to Binge on Prime Video This Week (Sep 28-Oct 2)
+
+TV, Prime Video, The Good Place, Invincible, Firefly
+
+Tue, 29 Sep 2026 01:11:11 GMT
+
+https://collider.com/prime-video-shows-binge-september-28-2026/
+
+The Good Place, Invincible, and Firefly make up our list of the best shows to binge on Prime Video this week.
+---------
+
+# Netflix’s Next Great Western Epic Officially Arrives in 48 Hours
+
+TV News, East of Eden, Florence Pugh, Western, Netflix
+
+Tue, 29 Sep 2026 01:00:12 GMT
+
+https://collider.com/east-of-eden-netflix-next-great-western-epic-release-date-october-1/
+
+Netflix's next major attempt to tap into the Yellowstone fanbase, East of Eden, officially arrives this week.
+---------
+
+# Robert Pattinson's New Thriller Is Blindsided by Brad Pitt's 101-Minute Action Hit at the Box Office
+
+Movie News, Primetime, Robert Pattinson, Heart of the Beast, Box Office Milestones
+
+Tue, 29 Sep 2026 03:30:15 GMT
+
+https://movieweb.com/primetime-robert-pattinson-box-office-september-2026/
+
+Heart of the Beast gave Brad Pitt another No. 1 opening, while Robert Pattinson’s Primetime settled for a more modest debut.
+---------
+
+# Brad Pitt’s 8 Greatest Action Thriller Movies, Ranked
+
+Features, Brad Pitt, Action, Thriller
+
+Tue, 29 Sep 2026 01:45:14 GMT
+
+https://movieweb.com/brad-pitt-action-thriller-movies-ranked/
+
+Brad Pitt's ability to adapt to any genre is why he's been a star for so long, but some of his finest work can be found in action thrillers.
+---------
+
+# The "Second-Greatest Film of All Time" Resurfaces To Become One of the Biggest Movies on Streaming
+
+Movie News, The Godfather, Crime, Hot on Streaming
+
+Tue, 29 Sep 2026 01:30:14 GMT
+
+https://movieweb.com/the-godfather-stream-apple-tv-september-2026/
+
+This is it, the one that changed the movie industry forever.
+---------
+
 # Charlie Hunnam's New Spy Thriller Releases First Images Amid Major Filming Update
 
 TV, Legacy of Spies
