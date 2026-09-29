@@ -1,3 +1,443 @@
+# Charlie Hunnam's New Spy Thriller Releases First Images Amid Major Filming Update
+
+TV, Legacy of Spies
+
+Tue, 29 Sep 2026 00:05:40 GMT
+
+https://screenrant.com/legacy-of-spies-series-charlie-hunnam-first-images-filming-wrap/
+
+Along with a major filming update, MGM+ has released the first images of Charlie Hunnam and Matthew Macfadyen in their new spy thriller series.
+---------
+
+# 9 Near-Perfect Netflix Miniseries That Hook You In 10 Minutes Or Less
+
+Classic TV
+
+Tue, 29 Sep 2026 00:00:16 GMT
+
+https://screenrant.com/near-perfect-netflix-miniseries-hook-you-10-minutes/
+
+Netflix is home to many great miniseries, but not all of them are so good that they immediately hook you in the first 10 minutes or even less.
+---------
+
+# 8 Free Steam Games You Can Officially Play Now With No Subscription
+
+Gaming, Steam
+
+Tue, 29 Sep 2026 00:00:16 GMT
+
+https://screenrant.com/8-free-steam-games-you-can-play-right-now-no-subscription-needed/
+
+Steam gamers can get their hands on no less than eight brand-new free games, no subscription or payment of any kind required - don't miss out
+---------
+
+# 35 Perfect Romance Books Recommended by Emily Henry
+
+Books, Romance
+
+Tue, 29 Sep 2026 00:00:16 GMT
+
+https://screenrant.com/romance-books-recommended-emily-henry/
+
+If you're eager for a fantastic romance, author Emily Henry has recommended these 35 books, ranging from enemies-to-lovers to fake relationships.
+---------
+
+# 10 Greatest Stan Lee Quotes
+
+Movies, Stan Lee
+
+Tue, 29 Sep 2026 00:00:16 GMT
+
+https://screenrant.com/greatest-stan-lee-quotes/
+
+Stan Lee gave life to Marvel’s greatest heroes, but these timeless quotes prove his words off the page were just as powerful and inspiring.
+---------
+
+# Brendan Fraser's The Mummy 4 Set Photos Unveil Rick O'Connell's Return
+
+Movies, The Mummy 4, The Mummy
+
+Mon, 28 Sep 2026 23:55:27 GMT
+
+https://screenrant.com/the-mummy-4-brendan-fraser-set-photos/
+
+The first look at Brendan Fraser as Rick O'Connell in The Mummy 4 has finally been revealed in new set photos, which show a story surprise.
+---------
+
+# Andrew Garfield’s New Action Movie Sets Digital Release After Historic Box Office Low
+
+Movies, The Uprising
+
+Mon, 28 Sep 2026 23:41:56 GMT
+
+https://screenrant.com/the-uprising-digital-release-date-andrew-garfield-movie/
+
+After setting a historic box office low, Andrew Garfield's new historical action thriller, The Uprising, has announced its digital release date.
+---------
+
+# Every Season Of Bridgerton, Ranked (Including Queen Charlotte)
+
+Streaming TV, Bridgerton, Queen Charlotte: A Bridgerton Story
+
+Mon, 28 Sep 2026 23:30:18 GMT
+
+https://screenrant.com/bridgerton-show-seasons-ranked-worst-best/
+
+Ahead of Bridgerton season 5, which is set to be a major milestone for Netflix's steamy Regency-era romance series, the franchise deserves a ranking.
+---------
+
+# Stan Lee Hated One Marvel Superhero So Much, That He Kept Them Dead For 37 Years
+
+Marvel Comics, Stan Lee
+
+Mon, 28 Sep 2026 23:30:16 GMT
+
+https://screenrant.com/stan-lee-hated-bucky-barnes-killed-him/
+
+Stan Lee killed off a famous hero simply because he didn't like the role he filled in the Marvel Universe, leading to a thirty-seven-year absence.
+---------
+
+# Every Yellowstone Spinoff Explained
+
+Streaming TV, Yellowstone, 1883, 1923, Marshals, Dutton Ranch
+
+Mon, 28 Sep 2026 23:30:16 GMT
+
+https://screenrant.com/yellowstone-spinoffs-explained/
+
+Taylor Sheridan's Yellowstone currently has four different spinoff shows: here's what to know about each and how they interact with each other.
+---------
+
+# The Walking Dead: Dead City's Fate Addressed by Franchise Boss After Season 3 Cliffhanger
+
+TV, The Walking Dead: Dead City
+
+Mon, 28 Sep 2026 23:35:31 GMT
+
+https://www.cbr.com/the-walking-dead-dead-city-future-scott-gimple/
+
+The future of The Walking Dead on AMC gets an update from the head of the franchise.
+---------
+
+# HBO's New Sci-Fi Hit With 525M Minutes Viewed Is 1 of the Biggest Shows on Streaming
+
+TV, Lanterns, HBO Max, DCU
+
+Mon, 28 Sep 2026 23:27:26 GMT
+
+https://www.cbr.com/laneterns-nielsen-ratings-hbo-max/
+
+One of HBO's biggest new shows is dominating on streaming.
+---------
+
+# Ridley Scott's 158-Minute Biographical Crime Is Heading to Free Streaming 5 Years Later
+
+Movies, Crime, House of Gucci, ridley scott
+
+Mon, 28 Sep 2026 23:11:10 GMT
+
+https://www.cbr.com/ridley-scott-house-of-gucci-heading-to-free-streaming/
+
+One of Ridley Scott's most controversial movies of all-time is finally free on streaming.
+---------
+
+# 43 Years Later, Francis Ford Coppola's Star-Filled Crime Classic Soars on HBO Max
+
+Movies, The Outsiders, HBO Max, Crime
+
+Mon, 28 Sep 2026 23:06:47 GMT
+
+https://www.cbr.com/the-outsiders-crime-hbo-max-success-september-2026/
+
+One of Coppola's most memorable films is finding new life on HBO Max.
+---------
+
+# Russell Crowe's Best Historical Epic That Isn't Gladiator Is Back on the Rise
+
+Movies, Master and Commander: The Far Side of the World, Epic, Russell Crowe
+
+Mon, 28 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/russell-crowe-historical-master-and-commander-the-far-side-of-the-world-streaming-success-september-2026/
+
+This 2003 war film is finding new life on streaming.
+---------
+
+# 10 Movies To Watch If You Can't Wait For Sydney Sweeney's Gundam Movie
+
+Movies, Mobile Suit Gundam
+
+Mon, 28 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/must-watch-movies-before-sydney-sweeney-gundam-movie-list/
+
+While waiting for Sydney Sweeney's live-action version of Gundam in 2027, check out these 10 military sci-fi action movies.
+---------
+
+# Doctor Who’s Best Standalone Episode Is Sci-Fi TV's Smartest 43 Minutes Ever Aired
+
+TV, Doctor Who, bbc, Fantasy
+
+Mon, 28 Sep 2026 23:00:11 GMT
+
+https://www.cbr.com/doctor-who-blink-best-standalone-episode/
+
+This 19-year-old episode of Doctor Who is still considered one of the series' very best stories, and it could be a blueprint for the future.
+---------
+
+# Black Clover, Naruto and Jujutsu Kaisen Confirm Major New Reveals This December
+
+Anime, Shonen Jump, Naruto, Black Clover, Jujutsu Kaisen
+
+Mon, 28 Sep 2026 22:35:11 GMT
+
+https://www.cbr.com/jump-festa-2027-stage-panel-lineup-confirm/
+
+Shueisha's upcoming Jump Festa 2027 event has been confirmed to include major announcements for some of the biggest anime and manga series out there.
+---------
+
+# Netflix's New Sequel to $116M Franchise Is the Most-Watched Film on Streaming
+
+Movies, Why Did I Get Married Again?, Netflix, Why Did I Get Married?
+
+Mon, 28 Sep 2026 22:30:12 GMT
+
+https://www.cbr.com/netflix-why-did-i-get-married-again-nielsen-charts-september-2026/
+
+This Tyler Perry sequel film is a hit on streaming.
+---------
+
+# 5 Must-Watch Anime Where the Hero Always Chases Their Dream
+
+Anime, Zom 100: Bucket List of the Dead, Bakugan
+
+Mon, 28 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/anime-where-hero-always-chases-their-dream/
+
+Some anime heroes chase dreams that might seem impossible initially, but they refuse to be stopped by the doubts of others.
+---------
+
+# One of the Best WWII Horror Movies of the Last 10 Years Is Leaving Peacock
+
+Movie News, Overlord, Saving Private Ryan, Resident Evil, World War II
+
+Tue, 29 Sep 2026 00:00:13 GMT
+
+https://collider.com/overlord-horror-movie-leaving-peacock-september-2026/
+
+The acclaimed World War II horror movie Overlord, which holds 82% on Rotten Tomatoes, is preparing to leave Peacock.
+---------
+
+# Taylor Sheridan's Hit Spy Thriller Officially Passes Major Streaming Milestone
+
+TV News, Taylor Sheridan, Lioness, Paramount Plus, Streaming
+
+Mon, 28 Sep 2026 23:40:11 GMT
+
+https://collider.com/lioness-streaming-milestone-200-days-paramount-plus-september-2026/
+
+Taylor Sheridan's Lioness, starring Zoe Saldaña, has officially passed a massive milestone in Paramount+'s U.S. Top 10.
+---------
+
+# Ridley Scott’s Near-Perfect Sci-Fi Bomb Officially Finds Redemption
+
+Movie News, Blade Runner 2049, Ridley Scott, Paramount Plus, Ryan Gosling
+
+Mon, 28 Sep 2026 23:20:11 GMT
+
+https://collider.com/ridley-scott-blade-runner-2049-streaming-success-paramount-plus-september-2026/
+
+Ridley Scott's nearly flawless sci-fi epic is finally finding redemption on streaming after bombing at the box office.
+---------
+
+# Every Green Lantern Featured on HBO's 'Lanterns,' Ranked
+
+TV, Lanterns, HBO, DC, Superhero
+
+Mon, 28 Sep 2026 23:14:12 GMT
+
+https://collider.com/lanterns-hbo-green-lanterns-ranked/
+
+From Nathan Fillon's Guy Gardner to Aaron Pierre's John Stewart, who is the best Green Lantern featured in the HBO superhero detective show Lanterns?
+---------
+
+# Alan Ritchson's New Action Hit Officially Passes Jason Statham's 2026 Thriller
+
+Movie News, Alan Ritchson, Jason Statham, Shelter, Runner
+
+Mon, 28 Sep 2026 23:00:12 GMT
+
+https://collider.com/alan-ritchson-runner-vs-jason-statham-shelter-box-office/
+
+Fast & Furious franchise co-stars Alan Ritchson and Jason Statham faced off at the box office this past weekend. Find out more.
+---------
+
+# NBC's 6-Part Fantasy Procedural Is Like Nothing You've Ever Seen Before
+
+TV Features, Grimm, Fantasy, Horror, NBC
+
+Mon, 28 Sep 2026 22:52:11 GMT
+
+https://collider.com/grimm-nbc-fantasy-horror-procedural-tv-show/
+
+Monster of the Week meets Murder of the Week in NBC's must-watch horror fantasy series Grimm.
+---------
+
+# Ryan Murphy's Biggest 'Monster' Formula Change Is Also Its Biggest Problem
+
+TV Features, Netflix, True Crime, Monster: The Lizzie Borden Story, Lizzie Borden
+
+Mon, 28 Sep 2026 22:42:11 GMT
+
+https://collider.com/monster-lizzie-borden-formula-change-problem-aileen-wuornos/
+
+Ryan Murphy's hit anthology series Monster made one big change to Lizzie Borden's story, and the show suffers because of it.
+---------
+
+# 'Alien: Earth' Officially Adds 'Silo' Veteran for Season 2 Finale
+
+TV News, Alien: Earth, Silo, Ridley Scott, The Dog Stars
+
+Mon, 28 Sep 2026 22:40:11 GMT
+
+https://collider.com/alien-earth-season-2-ridley-scott-ed-moore-director-silo/
+
+Ridley Scott's masterpiece sci-fi series, Alien: Earth, has officially recruited a Silo veteran to direct Season 2. Here's all to know.
+---------
+
+# 3 Beloved Movies Streaming on Prime Video This Week (Sep 28-Oct 2)
+
+Movie, Prime Video, High Life, Midday Black Midnight Blue, Superman
+
+Mon, 28 Sep 2026 22:34:12 GMT
+
+https://collider.com/best-movies-prime-video-september-28-2026/
+
+High Life, Midday Black Midnight Blue, and Superman make up our list of the best movies to stream on Prime Video this week.
+---------
+
+# 'Spider-Man: Brand New Day' Officially Returns With Major New Marvel Footage
+
+Movie News, Spider-Man: Brand New Day, Tom Holland, Rosario Dawson, Destin Daniel Cretton
+
+Mon, 28 Sep 2026 22:33:18 GMT
+
+https://collider.com/spider-man-brand-new-day-re-release-extra-footage-rosario-dawson/
+
+Spider-Man: Brand New Day is officially getting a theatrical re-release with extra footage, including Rosario Dawson's Claire Temple.
+---------
+
+# 24 Years Later, Gollum's Best Line Is Still the Most Tragic Quote in 'Lord of the Rings' History
+
+Features, Great Line, The Lord of the Rings, Fantasy
+
+Tue, 29 Sep 2026 00:00:15 GMT
+
+https://movieweb.com/lord-of-rings-two-towers-gollum-best-quote/
+
+Before 'The Hunt for Gollum' is released, it's time to revisit a memorable and heartbreaking quote from 'The Lord of the Rings.'
+---------
+
+# 'Avengers Endgame: Encore' Reignites Captain America 'Doomsday' Theory
+
+Features, Avengers: Endgame, Avengers: Doomsday, Marvel Cinematic Universe, Superhero
+
+Mon, 28 Sep 2026 23:00:15 GMT
+
+https://movieweb.com/avengers-endgame-encore-captain-america-loki-theory/
+
+'Avengers Endgame: Encore' reignites a Captain America theory from the 'Doomsday' trailer, adding further evidence that it could be true.
+---------
+
+# "John Wick Meets Taken" in 98-Minute Action Thriller That's Officially Set for New Release
+
+Movie News, Unstoppable, Don Lee, Action, Thriller, Blu-ray
+
+Mon, 28 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/unstoppable-action-thriller-blu-ray-release/
+
+You may never have heard of it, but you certainly won't forget it.
+---------
+
+# Prime Video's 6-Part Western Revenge Thriller Miniseries Beats Taylor Sheridan at His Own Game
+
+Features, The English, Taylor Sheridan, Prime Video, Western, Thriller
+
+Mon, 28 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/the-english-prime-taylor-sheridan-comparison/
+
+Prime Video released a six-episode Western thriller TV series that is perfect for those who enjoy Taylor Sheridan's shows like 'Yellowstone.'
+---------
+
+# 'Spider-Man: Brand New Day' Sets New Extended Cut Re-Release Featuring Daredevil Favorite
+
+Movie News, Spider-Man: Brand New Day, Superhero, Action, Rosario Dawson
+
+Mon, 28 Sep 2026 21:43:07 GMT
+
+https://movieweb.com/spider-man-brand-new-day-extended-cut-rosario-dawson/
+
+Another classic 'Daredevil' character is coming back to the MCU in an extended re-release of 'Spider-Man: Brand New Day.'
+---------
+
+# 'Sense & Sensibility' Exclusive Clip: Best Not to Provoke Her
+
+Exclusives, Sense and Sensibility
+
+Mon, 28 Sep 2026 21:17:33 GMT
+
+https://movieweb.com/video/sense-sensibility-exclusive-clip-best-not-to-provoke-her/
+
+MovieWeb presents an exclusive look at Focus Features’ new adaptation of Jane Austen’s Sense and Sensibility, starring Daisy Edgar-Jones and Esmé Creed-Miles. In theaters October 16th.
+---------
+
+# Apple TV's Best Spy Thriller Is Dethroned by Matthew McConaughey's New 8-Part Series
+
+TV News, Brothers, Slow Horses, Hot on Streaming, Apple TV
+
+Mon, 28 Sep 2026 21:16:51 GMT
+
+https://movieweb.com/brothers-apple-tv-new-rank-september-2026/
+
+Brothers has climbed to No. 2 on Apple TV+ in the U.S., overtaking Slow Horses.
+---------
+
+# Prime Video's New 8-Part Stephen King-Esque Thriller Adaptation Gets Official Casting Update
+
+TV News, Stillwater, Prime Video, Ben Hardy, Thriller, Horror
+
+Mon, 28 Sep 2026 21:12:50 GMT
+
+https://movieweb.com/stillwater-prime-video-ben-hardy/
+
+The Prime Video thriller adaptation 'Stillwater' officially finds its lead in Ben Hardy.
+---------
+
+# 8 Biggest Unanswered Questions After 'Avengers: Endgame Encore's Ending, Explained
+
+Movie Lists, Avengers: Endgame Encore, Avengers: Endgame, Avengers: Doomsday, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home)
+
+Mon, 28 Sep 2026 21:01:14 GMT
+
+https://movieweb.com/avengers-endgame-encore-unanswered-questions/
+
+'Avengers: Endgame Encore's new scenes set up some interesting developments for 'Avengers: Doomsday,' which will be released on December 18, 2026.
+---------
+
+# M. Night Shyamalan Officially Confirms Future of His Superhero Franchise 7 Years Later
+
+Movie News, M. Night Shyamalan, Unbreakable, Split, Glass, Thriller
+
+Mon, 28 Sep 2026 20:49:43 GMT
+
+https://movieweb.com/m-night-shyamalan-unbreakable-future/
+
+The three-part series is one of the most unique superhero projects out there.
+---------
+
 # Fire Emblem Three Houses: 10 Best Romance Options
 
 Gaming, Fire Emblem: Three Houses, Fire Emblem
