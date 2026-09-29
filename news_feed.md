@@ -1,3 +1,443 @@
+# All GTA 6 Activities Confirmed
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Tue, 29 Sep 2026 22:00:16 GMT
+
+https://screenrant.com/gta-6-all-side-activities/
+
+GTA 6 will have tons of activities to do beyond carjacking and robbing, as Rockstar offers their most expansive open-world experience yet.
+---------
+
+# Yellowstone's New John Dutton Has Been In The Works Since Kevin Costner's Era
+
+TV, Yellowstone, Marshals
+
+Tue, 29 Sep 2026 22:00:16 GMT
+
+https://screenrant.com/yellowstone-new-john-dutton-kayce-plan/
+
+One character's slow burn transformation charts a drift from reluctant disavowal of John Dutton to a mirror of Yellowstone's ruthless patriarch.
+---------
+
+# 6 Popular Phrases Created By Classic Comic Strips
+
+Comics, Peanuts, Popeye, The Far Side
+
+Tue, 29 Sep 2026 22:00:16 GMT
+
+https://screenrant.com/popular-phrases-created-by-comic-strips/
+
+These funnies made it into the common lexicon
+---------
+
+# Event Horizon Continues Epic 2026 Return With New Streaming Release
+
+Movies, Event Horizon
+
+Tue, 29 Sep 2026 21:57:10 GMT
+
+https://screenrant.com/event-horizon-peacock-streaming-release-october-2026/
+
+After Event Horizon's sequel series proved itself epic in 2026, the sci-fi horror movie is now getting ready for a new streaming release.
+---------
+
+# After 48 Years, Snoopy's Best Quote Proves Why Peanuts Will Always Be Timeless
+
+Comics
+
+Tue, 29 Sep 2026 21:53:17 GMT
+
+https://screenrant.com/peanuts-best-snoopy-quote-timeless-wisdom/
+
+Peanuts is known for its humor and its wisdom, and both are combined in one classic Snoopy strip that is still profound.
+---------
+
+# Demon Slayer: Infinity Castle Is Finally Streaming, But There’s A Season You Need To Watch First
+
+Movies, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Disney+
+
+Tue, 29 Sep 2026 21:50:15 GMT
+
+https://screenrant.com/demon-slayer-infinity-castle-streaming-disney-plus-hashira-training-arc/
+
+Demon Slayer: Infinity Castle is finally streaming, but there is one other arc worth revisiting before jumping into Muzan’s stronghold.
+---------
+
+# Andrew Garfield's Historical Action Epic With Rare Twist Sets Exciting New Release In 1 Month
+
+Movies, Masked Recs
+
+Tue, 29 Sep 2026 21:45:08 GMT
+
+https://screenrant.com/the-uprising-4k-collectors-edition-november-2026/
+
+A new historical drama with a twist was just released in theaters this month, but it’s already getting another release in just over a month from now.
+---------
+
+# M. Night Shyamalan & Dave Bautista’s Claustrophobic 100-Minute Thriller Is Officially One Of Streaming’s Biggest Hits
+
+Movies, Masked Recs
+
+Tue, 29 Sep 2026 21:43:19 GMT
+
+https://screenrant.com/m-night-shyamalan-dave-bautista-knock-at-the-cabin-netflix-streaming-success-september-2026/
+
+M. Night Shyamalan and Dave Bautista's claustrophobic 100-minute thriller is officially one of Netflix's biggest hits in the United States.
+---------
+
+# Zach Cregger’s New Sci-Fi Epic Officially Casts First Star
+
+Movies, The Flood
+
+Tue, 29 Sep 2026 21:41:19 GMT
+
+https://screenrant.com/zach-cregger-the-flood-movie-jennifer-lawrence-cast/
+
+Following the critical and commercial success of Zach Cregger's Resident Evil, the filmmaker's new sci-fi movie has cast its first star.
+---------
+
+# The Love Hypothesis: Prime Video's #1 Movie Inspired By Star Wars Was Built For Streaming
+
+Movies, Masked Recs
+
+Tue, 29 Sep 2026 21:34:16 GMT
+
+https://screenrant.com/love-hypothesis-prime-video-number-1-star-wars-streaming/
+
+The Love Hypothesis, Prime Video's #1 new movie this week, was quietly inspired by a Star Wars fan fiction, giving it a distinct streaming advantage.
+---------
+
+# 10 Isekai Anime Worth Watching Over and Over Again
+
+Anime, That Time I Got Reincarnated as a Slime, Re:Zero -Starting Life in Another World-, Overlord
+
+Tue, 29 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/isekai-anime-worth-rewatching/
+
+Some Isekai anime break the mold so well that fans can't help but return to them time and time again.
+---------
+
+# Netflix’s 2-Part Guy Ritchie Crime Series Is Suddenly Plunging Down the Streaming Charts
+
+TV, The Gentlemen, Netflix, guy ritchie
+
+Tue, 29 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/guy-ritchie-crime-series-the-gentlemen-netflix-drop-september-2026/
+
+The Gentlemen Season 2 is losing steam.
+---------
+
+# The Secret Woman is Jason Bourne Meets Gone Girl
+
+Movies, Netflix
+
+Tue, 29 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/the-secret-woman-combines-jason-bourne-gone-girl/
+
+This fiendish piece of Nordic noir has quickly risen to the top of the European Netflix charts, and for good reason.
+---------
+
+# Apple TV's New 111-Minute Action Thriller Sets Biggest Movie Debut
+
+Movies, Mayday, Apple TV, Thriller
+
+Tue, 29 Sep 2026 21:45:54 GMT
+
+https://www.cbr.com/apple-tv-mayday-biggest-movie-debut/
+
+The streamer has a major hit on its hands.
+---------
+
+# Tolkien Scholar Giuseppe Pezzini Discusses MTG Hobbit Crossover
+
+Games, Magic: The Gathering, The Hobbit, Tabletop
+
+Tue, 29 Sep 2026 21:15:11 GMT
+
+https://www.cbr.com/tolkien-scholar-giuseppe-pezzini-mtg-the-hobbit-crossover/
+
+Tolkien Scholar Giuseppe Pezzini has shared his thoughts on what Magic: The Gathering's crossover with The Hobbit got right and wrong.
+---------
+
+# Tom Cruise's Transformative New Role Ends a 9-Year Rotten Tomatoes Streak
+
+Movies, Digger
+
+Tue, 29 Sep 2026 21:13:26 GMT
+
+https://www.cbr.com/digger-tom-cruise-rotten-tomatoes-score/
+
+Tom Cruise turns a corner on Rotten Tomatoes after almost a decade.
+---------
+
+# 007 First Light Free DLC Coming October 1
+
+Games, James Bond
+
+Tue, 29 Sep 2026 21:02:34 GMT
+
+https://www.cbr.com/007-first-light-free-dlc-october-1/
+
+Developer IO Interactive has teased free DLC coming to 007 First Light, and players won't have to wait long for its release in just tow days.
+---------
+
+# A George RR Martin & Dave Bautista Fantasy Flop Just Became HBO Max’s No. 1 Movie in the World
+
+Movies, In the Lost Lands, Fantasy, george rr martin
+
+Tue, 29 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/george-rr-martin-dave-bautista-fantasy-flop-dominates-hbo-max-streaming/
+
+The film Dave Bautista probably wishes he passed on is suddenly dominating streaming.
+---------
+
+# 10 Greatest Martial Arts Movies With the Best Fights, Ranked
+
+Movies, Action
+
+Tue, 29 Sep 2026 21:00:11 GMT
+
+https://www.cbr.com/martial-arts-movies-with-best-fights-list/
+
+Martial arts movies live and die by their fight scenes, and the best ones have delivered moments that fans are still talking about today.
+---------
+
+# X-Files Returns With Fan-Favorite Creator For New Stories
+
+Comics, The X-Files
+
+Tue, 29 Sep 2026 20:39:28 GMT
+
+https://www.cbr.com/dynamite-entertainment-x-files-release-date-confirmed/
+
+The X-Files are back, and once again warning fans to trust no one.
+---------
+
+# 10 Classic Rock Songs Inspired by Cinema and Literature
+
+Music Features, Rock, The Texas Chainsaw Massacre, Bob Dylan, Music
+
+Tue, 29 Sep 2026 22:21:11 GMT
+
+https://collider.com/classic-rock-cinema-literature-inspiration/
+
+A list of ten classic rock songs that draw inspiration from some of the most influential novels and movies of all time.
+---------
+
+# Jennifer Lawrence Officially Returns to Sci-Fi Ahead of Hunger Games Comeback
+
+Movie News, The Flood, Zach Cregger, Jennifer Lawrence, Resident Evil
+
+Tue, 29 Sep 2026 22:16:03 GMT
+
+https://collider.com/jennifer-lawrence-cast-zach-cregger-sci-fi-thriller-the-flood/
+
+Ahead of her return in Sunrise on the Reaping, Hunger Games legend Jennifer Lawrence has officially found her next sci-fi thriller.
+---------
+
+# Disney+’s 10/10 Star Wars Series Officially Sets Up the Return of a Legendary Villain [Exclusive]
+
+TV News, Star Wars: Maul - Shadow Lord, Sam Witwer, Star Wars, FanX
+
+Tue, 29 Sep 2026 22:00:11 GMT
+
+https://collider.com/maul-shadow-lord-season-2-emperor-palpatine-return-sam-witwer/
+
+Star Wars: ‘Maul — Shadow Lord’ star Sam Witwer officially teases the return of Ian McDiarmid's Emperor Palpatine in Season 2.
+---------
+
+# Love Pirates of the Caribbean? Check Out These 5 Swashbucklers
+
+Movie, Pirates of the Caribbean, The Adventures of Robin Hood, The Mask of Zorro, Hook
+
+Tue, 29 Sep 2026 21:55:12 GMT
+
+https://collider.com/movies-like-pirates-of-the-caribbean-swashbucklers/
+
+Fans of the Pirates of the Caribbean franchise should check out similar swashbuckling adventure movies like Hook and The Mask of Zorro.
+---------
+
+# 9 Apple TV Miniseries That Are Perfect From Start to Finish
+
+TV, Apple TV, TV Miniseries, Lessons In Chemistry, Masters of the Air
+
+Tue, 29 Sep 2026 21:44:11 GMT
+
+https://collider.com/apple-tv-miniseries-perfect-start-to-finish/
+
+From the book adaptation Lessons in Chemistry to the war drama Masters of the Air, these Apple TV miniseries are truly perfect from start to finish.
+---------
+
+# ‘Ghosts’ Is Officially Changing Up Its Formula Ahead of Its Season 6 Premiere
+
+TV Features, CBS, Ghosts, Ben Feldman, Rose McIver
+
+Tue, 29 Sep 2026 21:32:28 GMT
+
+https://collider.com/cbs-ghosts-season-6-rose-mciver-replacement-ben-feldman-kyle/
+
+Ben Feldman’s Kyle is shaking up Woodstone Manor in Season 6 of Ghosts, taking on ghost-sitting responsibilities while Rose McIver’s Samantha is away!
+---------
+
+# It's Officially the End of an Era for Netflix and David Fincher
+
+Movie News, David Fincher, Netflix, The Further Mis-Adventures of Cliff Booth, House of Cards
+
+Tue, 29 Sep 2026 21:28:48 GMT
+
+https://collider.com/david-fincher-leaving-netflix-2027/
+
+Despite the upcoming Cliff Booth spin-off and a decade-long partnership with the streamer, David Fincher is officially leaving Netflix behind.
+---------
+
+# 8 Fantasy Books That Marked the End of an Era
+
+Books and Comics, Books, Fantasy, The Magicians, Harry Potter and the Deathly Hallows - Part 2
+
+Tue, 29 Sep 2026 21:25:12 GMT
+
+https://collider.com/fantasy-books-end-of-an-era/
+
+The Rose Field, The Magicians, The Crippled God—these fantasy books were turning points, sublime capstones in the genre that marked the end of an era.
+---------
+
+# Kiefer Sutherland Officially Confirms 'Young Guns 3': “The Script Is Amazing” [Exclusive]
+
+Movie News, Young Guns, Kiefer Sutherland, Western, FanX
+
+Tue, 29 Sep 2026 20:00:11 GMT
+
+https://collider.com/kiefer-sutherland-young-guns-3-update-script/
+
+Kiefer Sutherland offers a major update on Young Guns 3, declaring that the long-awaited sequel's script is “amazing.”
+---------
+
+# 'The Witcher' Franchise's Definitive Masterpiece Officially Returns Today
+
+Gaming News, The Witcher 3: Wild Hunt, The Witcher, CD Projekt Red, Netflix
+
+Tue, 29 Sep 2026 19:54:28 GMT
+
+https://collider.com/the-witcher-3-wild-hunt-remastered-launch-trailer-release-date-september-2026/
+
+Geralt of Rivia's best adventure has officially returned, with a new trailer celebrating the franchise's best release. See it here!
+---------
+
+# Netflix Officially Comes to the End of an Era After 13 Years
+
+Movie News, Netflix, David Fincher
+
+Tue, 29 Sep 2026 22:12:57 GMT
+
+https://movieweb.com/david-fincher-netflix-deal-ends/
+
+David Fincher, who helped kick off the Netflix Original Series era with 'House of Cards', is ending his development deal with the streamer next year.
+---------
+
+# Netflix’s Weirdest Mike Flanagan Meets ‘Twin Peaks’ 8-Part Mystery Thriller Is a Perfect One-Night Binge
+
+Features, Wayward, Netflix, Thriller
+
+Tue, 29 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/wayward-netflix-streaming-recommendation/
+
+Netflix has many entertaining thriller TV shows, including one that is a great binge-watch and will remind viewers of 'Twin Peaks' and Mike Flanagan.
+---------
+
+# Goodbye 'Reacher,' Amazon's New 8-Episode Action Spin-Off Becomes the No. 1 Series in the World
+
+TV News, Reacher, Neagley, Prime Video, Action, Hot on Streaming
+
+Tue, 29 Sep 2026 22:00:14 GMT
+
+https://movieweb.com/reacher-beats-neagley-alan-ritchson-prime-stream-september-2026/
+
+Guess who beat the master at his own game.
+---------
+
+# Amazon's New $200M Action Epic Gets Out-Powered at the Box Office by Sci-fi Action Film
+
+Movie News, Avengers: Endgame Encore, Masters of the Universe, Box Office Milestones, Amazon
+
+Tue, 29 Sep 2026 21:19:50 GMT
+
+https://movieweb.com/avengers-endgame-encore-box-office-september-2026/
+
+A re-release of Avengers: Endgame came within about $3 million of matching Masters of the Universe’s opening weekend.
+---------
+
+# 'Obsession' Director's New Movie is 'Ghostbusters' Meets 'Hereditary' Now Set for 2027 Release
+
+Movie News, Obsession, Horror, Comedy
+
+Tue, 29 Sep 2026 20:44:01 GMT
+
+https://movieweb.com/anything-but-ghosts-release-date-2027/
+
+Focus Features has set Curry Barker's 'Anything But Ghosts' for release on May 7, 2027, kicking off the summer movie season.
+---------
+
+# Tyler Perry's New Netflix Thriller Officially Moves Forward With 'John Wick' Star
+
+Movie News, Tyler Perry, Netflix, Thriller, Shamier Anderson, Taylour Paige, Lucien Laviscount
+
+Tue, 29 Sep 2026 20:14:53 GMT
+
+https://movieweb.com/netflix-tyler-perry-confabulation-cast/
+
+An ensemble cast including Taylour Paige and Shamier Anderson anchors Perry’s new Netflix thriller.
+---------
+
+# Michael B. Jordan's '80s Crime Thriller Reboot Expands Cast With 'Street Fighter' Star
+
+Movie News, Miami Vice, Michael B. Jordan, Crime, Thriller
+
+Tue, 29 Sep 2026 20:04:22 GMT
+
+https://movieweb.com/miami-vice-85-andrew-schulz/
+
+A well-known comedian is officially joining the criminal underworld of 'Miami Vice '85.'
+---------
+
+# One of TV's Biggest Franchises Officially Hits #1 on Streaming After Earning 100% RT Score
+
+TV News, American Horror Story, Hot on Streaming, Horror
+
+Tue, 29 Sep 2026 20:00:14 GMT
+
+https://movieweb.com/american-horror-story-13-stream-hulu-september-2026/
+
+The year's most ambitious crossover event has officially solidified itself as a streaming hit.
+---------
+
+# Leonardo DiCaprio's Long-Awaited Action Thriller Sequel Officially Confirms Every Major Recast
+
+Movie News, Heat, Leonardo DiCaprio, Stephen Graham, Action, Thriller
+
+Tue, 29 Sep 2026 19:43:26 GMT
+
+https://movieweb.com/heat-2-stephen-graham-every-character-confirmed/
+
+We finally know who's who in the new 'Heat' sequel.
+---------
+
+# 'Unabomber' Director & Star Respond To Criticisms of Netflix Thriller Humanizing Ted Kaczynski
+
+Movie News, Unabomber, Netflix, Jacob Tremblay
+
+Tue, 29 Sep 2026 19:30:23 GMT
+
+https://movieweb.com/unabomber-director-star-respond-to-criticisms/
+
+The cost of understanding evil with 'Unabomber' star and director.
+---------
+
 # True Detective Season 1’s New Successor Series Debuts To Solid Rotten Tomatoes Audience Score
 
 TV, Masked Recs
