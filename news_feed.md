@@ -1,3 +1,377 @@
+# 10 Best Minecraft Ancient City Seeds
+
+Gaming, Minecraft, PC
+
+Wed, 30 Sep 2026 01:00:17 GMT
+
+https://screenrant.com/minecraft-best-ancient-city-seeds/
+
+Ancient cities are fun subterranean structures to explore in Minecraft's deep dark caves. There are some seeds with a few perfect ancient cities.
+---------
+
+# Forget Harry Potter, Apple TV's 10-Part Book Adaptation Will Be The Next King Of Fantasy
+
+Streaming TV, Masked Recs
+
+Wed, 30 Sep 2026 01:00:16 GMT
+
+https://screenrant.com/stormlight-archive-apple-tv-show-fantasy-king/
+
+Harry Potter might have defined a generation, but it is not the best fantasy franchise of all time, and The Stormlight Archive already has an edge.
+---------
+
+# Venom’s New Ultimate Form Comes With A Major Catch
+
+Comics, Venom
+
+Wed, 30 Sep 2026 01:00:16 GMT
+
+https://screenrant.com/venom-ultimate-form-catch/
+
+Venom has achieved a new ultimate form during Marvel's Queen in Black crossover, but this gargantuan evolution comes with an equally big problem.
+---------
+
+# Brendan Fraser’s The Mummy Sets Exciting New Release Ahead Of 2027 Return
+
+Movies, The Mummy
+
+Wed, 30 Sep 2026 00:39:19 GMT
+
+https://screenrant.com/brendan-fraser-the-mummy-mummy-returns-peacock-streaming-release-october-2026/
+
+Brendan Fraser's The Mummy 4 will bring back the franchise in 2027, but before that, fans of this adventure series will have an exciting release.
+---------
+
+# HBO Is Officially Showing The Darkest Harry Potter Scenes The Movies Skipped
+
+Streaming TV, Harry Potter
+
+Wed, 30 Sep 2026 00:30:16 GMT
+
+https://screenrant.com/harry-potter-hbo-show-dark-scenes-movies-skipped/
+
+The Harry Potter movies had no choice but to water down the grit and grime of the original story, but that's not a limitation HBO's remake will face.
+---------
+
+# 18 Years Ago, Lost Released 7 Forgotten Episodes That Replaced The Show's Main Characters
+
+Gaming, Lost, PC
+
+Wed, 30 Sep 2026 00:00:17 GMT
+
+https://screenrant.com/lost-via-domus-forgotten-episodes-main-character-replacement/
+
+Most fans won't remember these seven Lost episodes that completely replaced Jack, Kate, Sawyer, and the other main characters of the series.
+---------
+
+# 30 Years Later, Marvel's First Reboot Is Still One Of The Most Important Comic Events Of All Time
+
+Comics, Superman
+
+Wed, 30 Sep 2026 00:00:17 GMT
+
+https://screenrant.com/superman-marriage-defined-character/
+
+Two words changed Superman's life forever
+---------
+
+# All 7 Agents Of S.H.I.EL.D. Seasons, Ranked
+
+Classic TV, Agents of S.H.I.E.L.D.
+
+Wed, 30 Sep 2026 00:00:17 GMT
+
+https://screenrant.com/agents-of-shield-seasons-ranked/
+
+Marvel's Agents of S.H.I.E.L.D. had a long, strong, and historic run, but this is how all seven seasons really stack up against each other.
+---------
+
+# After 42 Years, The Era Of Dragon Ball Has Officially Ended With One Devastating Update
+
+Anime, Dragon Ball
+
+Tue, 29 Sep 2026 23:30:16 GMT
+
+https://screenrant.com/dragon-ball-end-era-shonen-jump-festa/
+
+After 42 years of dominance, a devastating update leaves the Dragon Ball franchise completely off the main stage.
+---------
+
+# HBO's R-Rated Fantasy Spinoff Deserves Credit For Not Taking Itself Too Seriously
+
+TV, Masked Recs
+
+Tue, 29 Sep 2026 23:15:16 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-lighter-tone-game-of-thrones/
+
+Trimming the epic scale to spotlight thrills and mischief, this fantasy epic still offers the R-rated gory shocks, but also unexpectedly warm humor.
+---------
+
+# Matthew McConaughey & Woody Harrelson Turn Their Wildest Real-Life Rumor Into a Comedy
+
+TV, Brothers, Apple TV, Comedy
+
+Wed, 30 Sep 2026 01:00:11 GMT
+
+https://www.cbr.com/apple-tv-brothers-matthew-mcconaughey-woody-harrelson-rumor/
+
+This hilarious Apple TV hit toys with the real-life revelation that the two beloved stars may, in fact, be biological brothers.
+---------
+
+# Every Pokémon Region, Ranked Worst to Best
+
+Games, Pokemon, Pokémon, Video Games
+
+Wed, 30 Sep 2026 00:45:11 GMT
+
+https://www.cbr.com/pokemon-every-region-officially-ranked/
+
+There are nine main regions in the Pokémon franchise, but not all of them are of equal quality.
+---------
+
+# 5 Time-Travel Shows That Will Break Your Brain
+
+TV, Sci-Fi, Dark, The Lazarus Project
+
+Wed, 30 Sep 2026 00:30:11 GMT
+
+https://www.cbr.com/brain-breaking-time-travel-shows-list/
+
+Prepare for a twisted reality check with time-travel shows like The Lazarus Project and Dark, which challenge viewers' sanity and expectations.
+---------
+
+# Dragon Ball Super's Toyotarou Brings Back the Galactic Patrol's Weakest Villain
+
+Anime, Dragon Ball, Dragon Ball Super, Dragon Ball Super: Beerus
+
+Wed, 30 Sep 2026 00:20:11 GMT
+
+https://www.cbr.com/dragon-ball-super-toyotarou-geppuman-art/
+
+Toyotarou is diving deep into Dragon Ball Super's more obscure corners to immortalize filler characters unlikely to appear in the new anime remake.
+---------
+
+# Best Shonen Anime That Ended in the Decade, Ranked
+
+Anime, Attack On Titan, Naruto: Shippuden, My Hero Academia
+
+Wed, 30 Sep 2026 00:15:11 GMT
+
+https://www.cbr.com/best-shonen-anime-ended-last-decade-ranked/
+
+The last decade delivered many fantastic shonen anime, but these four stand out for completing their stories on a high note.
+---------
+
+# Sylvester Stallone Reveals What Went Wrong With His $819M Action Franchise: 'That’s All Me'
+
+Movies, Action, sylvester stallone, Rocky
+
+Wed, 30 Sep 2026 00:14:57 GMT
+
+https://www.cbr.com/sylvester-stallone-reveals-what-went-wrong-with-rambo/
+
+It's one of the most iconic franchises in Sylvester Stallone's career, but also his biggest regret.
+---------
+
+# Marvel Officially Begins a New Era For Its Brand-New Venom Hero
+
+Comics, Venom
+
+Wed, 30 Sep 2026 00:01:57 GMT
+
+https://www.cbr.com/marvel-brand-new-era-amazing-venom-preview/
+
+In a preview of Amazing Venom #1, see how a former Spider-Man supervillain became a brand-new symbiote hero
+---------
+
+# Brad Bird's Ray Gunn is Star Wars Meets Zodiac
+
+Movies, Ray Gunn
+
+Wed, 30 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/ray-gunn-combines-star-wars-zodiac/
+
+This new sci-fi animated flick might be a return to form for the genre, especially when considering the star power attached.
+---------
+
+# Marvel's Most Underrated God of Thunder Could Be Given A Long-Awaited Comeback
+
+Comics, Thor
+
+Wed, 30 Sep 2026 00:00:11 GMT
+
+https://www.cbr.com/thor-801-sigurd-jarlson-comeback/
+
+The Mortal Thor has officially taken the next step towards reclaiming his rightful place as the God of Thunder, not to mention the identity he lost.
+---------
+
+# Netflix’s New 8-Part Mystery Thriller Is Already the No. 2 Show in the World
+
+TV, Netflix, television
+
+Tue, 29 Sep 2026 23:30:11 GMT
+
+https://www.cbr.com/the-stranger-netflix-success-september-2026/
+
+A new mystery thriller is making the waves on Netflix just a few weeks after its premiere.
+---------
+
+# The Russo Brothers Officially Confirm Hulk's Return in 'Avengers: Doomsday'
+
+Movie News, Hulk, Russo Brothers, Avengers: Doomsday, MCU
+
+Wed, 30 Sep 2026 01:20:12 GMT
+
+https://collider.com/avengers-doomsday-hulk-mark-ruffalo-return-tease/
+
+Following Endgame Encore's tease of the character's return, the Russo Brothers have shed light on if Mark Ruffalo's Hulk will be back in Doomsday.
+---------
+
+# The 10 Best Psychological War Movies of All Time, Ranked
+
+Movie, Apocalypse Now, The Human Condition I: No Greater Love, Come And See, Full Metal Jacket
+
+Wed, 30 Sep 2026 01:12:12 GMT
+
+https://collider.com/best-psychological-war-movies-all-time-ranked/
+
+The best psychological war movies of all time include untouchable and intense classics like Apocalypse Now, Underground, and Full Metal Jacket.
+---------
+
+# Netflix’s Failed Star Wars Replacement Officially Gets a Sequel Update From Zack Snyder
+
+Movie News, Rebel Moon Part 3, Rebel Moon – Part One: A Child of Fire, Zack Snyder, Netflix
+
+Wed, 30 Sep 2026 01:10:12 GMT
+
+https://collider.com/netflix-rebel-moon-part-3-update-zack-snyder/
+
+A potential third installment in Netflix's most ambitious sci-fi fantasy series gets an official update from director Zack Snyder.
+---------
+
+# Michael Fassbender’s R-Rated Sci-Fi Thriller Officially Loses Box Office Momentum
+
+Movie News, Hope, Michael Fassbender, Alicia Vikander, Sci-Fi
+
+Wed, 30 Sep 2026 01:00:12 GMT
+
+https://collider.com/michael-fassbender-sci-fi-movie-hope-box-office-drop/
+
+Michael Fassbender's South Korean sci-fi movie Hope has underperformed at the domestic box office, despite solid reviews.
+---------
+
+# 10 Detective Shows That Are Perfect From Beginning to End
+
+TV, Mystery, Mare of Easttown, True Detective, Dexter
+
+Wed, 30 Sep 2026 00:55:12 GMT
+
+https://collider.com/detective-shows-perfect-beginning-to-end/
+
+The Residence, The Wire, Dexter, True Detective, Mare of Easttown, and more make our list of detective shows that are perfect from beginning to end.
+---------
+
+# 8 Upcoming Comedy Movies, Ranked by Anticipation
+
+Movie, Comedy, Spaceballs: The New One, Artificial, Gremlins 3
+
+Wed, 30 Sep 2026 00:51:11 GMT
+
+https://collider.com/upcoming-comedy-movies-ranked-anticipation/
+
+There are a multitude of notable upcoming comedy movies worth getting excited about, including Rush Hour 4, Gremlins 3, and Spaceballs: The New One.
+---------
+
+# Jon Bernthal’s Sleeper Hit Spy Thriller Officially Finds a New Streamer
+
+Movie News, The Amateur, Jon Bernthal, HBO Max, Rami Malek
+
+Wed, 30 Sep 2026 00:50:12 GMT
+
+https://collider.com/jon-bernthal-the-amateur-streaming-hbo-max-october-17/
+
+The Amateur, starring Rami Malek and Jon Bernthal, is set to leave Prime Video for HBO Max in a few weeks.
+---------
+
+# Guy Ritchie Has Officially Stolen Taylor Sheridan’s Streaming Crown
+
+TV News, MobLand, Lioness, Guy Ritchie, Taylor Sheridan
+
+Wed, 30 Sep 2026 00:40:11 GMT
+
+https://collider.com/guy-ritchie-mobland-overtakes-lioness-paramount-plus-streaming-success-september-2026/
+
+Guy Ritchie has officially stolen Taylor Sheridan's streaming crown as his new series is the #1 most-watched show in the world.
+---------
+
+# 10 Animated Films That Are Perfect From Start to Finish
+
+Movie, Animation, Ratatouille, The Incredibles, Zootopia
+
+Wed, 30 Sep 2026 00:32:11 GMT
+
+https://collider.com/animated-films-perfect-start-to-finish/
+
+Ratatouille, The Incredibles, and Kung Fu Panda are all among the very best, genuinely perfect animated movies ever made.
+---------
+
+# 'Landman' Star's Legendary '80s Cult Classic Is Officially Getting a Sequel
+
+Movie News, St. Elmo's Fire, Rob Lowe, Demi Moore, Joel Schumacher
+
+Wed, 30 Sep 2026 00:30:11 GMT
+
+https://collider.com/st-elmos-fire-2-script-update-october-rob-lowe/
+
+Rob Lowe has officially confirmed that a sequel to St. Elmo's Fire is in development. Read on for more details.
+---------
+
+# Jon Bernthal's 132-Minute Action Thriller Sleeper Hit Remains One of the Biggest Movies on Streaming
+
+Movie News, The Accountant 2, Action, Thriller, Hot on Streaming, Jon Bernthal
+
+Wed, 30 Sep 2026 00:00:15 GMT
+
+https://movieweb.com/the-accountant-2-jon-bernthal-hulu-stream-september-2026/
+
+Forget 'The Punisher,' this is Bernthal's definitive action role.
+---------
+
+# 8 Great Stephen King Miniseries You Can Binge-Watch in One Night
+
+TV Lists, Stephen King, Horror, Thriller
+
+Wed, 30 Sep 2026 00:00:15 GMT
+
+https://movieweb.com/stephen-king-miniseries-binge-recommendations/
+
+Some of Stephen King's most terrifying tales are binge-worthy miniseries you can knock out in a single night.
+---------
+
+# Jennifer Lawrence Officially Leads Zach Cregger's New "2001: A Space Odyssey Meets Alien" Sci-Fi Thriller
+
+Movie News, Jennifer Lawrence, The Flood, Zach Cregger, Horror
+
+Tue, 29 Sep 2026 22:33:16 GMT
+
+https://movieweb.com/the-flood-jennifer-lawrence-cast-zach-cregger/
+
+The next film from Zach Cregger has found its star.
+---------
+
+# Prime Video's Spy Thriller Epic With 2 Spin-Offs Is One of the Biggest TV Shows Ever Made
+
+Features, Citadel, Prime Video, Thriller
+
+Tue, 29 Sep 2026 22:30:15 GMT
+
+https://movieweb.com/citadel-streaming-recommendation/
+
+Although it didn't receive critical acclaim, it doesn't deserve to be dismissed— because it may be the most ambitious spy series ever.
+---------
+
 # All GTA 6 Activities Confirmed
 
 Gaming, Grand Theft Auto 6, Triple-A Games
