@@ -1,3 +1,443 @@
+# Bestselling Author Of Jon Bernthal’s Record-Breaking Netflix Hit Sets New Mystery Series Adaptation
+
+TV, His & Hers, Netflix
+
+Wed, 30 Sep 2026 22:39:57 GMT
+
+https://screenrant.com/twist-tv-adaptation-alice-feeney-jon-bernthal-his-hers-replacement/
+
+The bestselling author behind one Netflix's biggest breakout hits of the year is getting another TV adaptation on the streaming platform.
+---------
+
+# Timothy Olyphant's 30-Episode Netflix Horror Series Is So Good, It Demands A Rewatch
+
+Classic TV, Masked Recs
+
+Wed, 30 Sep 2026 22:30:16 GMT
+
+https://screenrant.com/santa-clarita-diet-timothy-olyphant-netflix-horror-comedy-rewatch/
+
+Netflix and Timothy Olyphant's genre-blending three-season horror show, Santa Clarita Diet, is endlessly rewatchable. There's nothing quite like it.
+---------
+
+# 10 Best Mystery Box TV Shows Of All Time
+
+Classic TV, Mystery
+
+Wed, 30 Sep 2026 22:00:18 GMT
+
+https://screenrant.com/best-mystery-box-shows/
+
+The mystery box genre is one of the hardest to get right on television, but these shows tackle the questions, intrigue, and complex storytelling well.
+---------
+
+# 5 Dreamcast Games That Were As Tough As Nails
+
+Gaming, Sega Dreamcast, Triple-A Games
+
+Wed, 30 Sep 2026 22:00:16 GMT
+
+https://screenrant.com/toughest-hardest-sega-dreamcast-games/
+
+The often-overlooked SEGA Dreamcast library housed some real challenges, and these five games of varying genres all refused to take prisoners.
+---------
+
+# 68 Years Later, Alan Moore's Favorite Comic Hero Proves Why He's Such A Genius
+
+Comics, Alan Moore
+
+Wed, 30 Sep 2026 22:00:16 GMT
+
+https://screenrant.com/alan-moore-favorite-comic-hero-harry-popnecker/
+
+What Alan Moore's favorite comic character says about him.
+---------
+
+# Unabomber: Netflix's #1 New Movie Proves Its 28% Rotten Tomatoes Score Misses The Point
+
+Movies, Masked Recs
+
+Wed, 30 Sep 2026 21:52:17 GMT
+
+https://screenrant.com/unabomber-netflix-number-1-movie-rotten-tomatoes-score/
+
+Netflix's Unabomber tops the movie chart despite a 28% Rotten Tomatoes score, with Russell Crowe and Jacob Tremblay driving its strongest material.
+---------
+
+# 8 Sitcoms From The 2000s That Have Aged Horribly
+
+Classic TV
+
+Wed, 30 Sep 2026 21:30:55 GMT
+
+https://screenrant.com/2000s-sitcoms-not-age-well/
+
+Many of these sitcoms are still beloved, but that doesn't mean they don't have their problems. These TV shows have issues that can't be overlooked.
+---------
+
+# Rocky Officially Switches Genres With 2026 Movie Releasing Soon
+
+New Movies, Rocky, I Play Rocky
+
+Wed, 30 Sep 2026 21:21:16 GMT
+
+https://screenrant.com/rocky-movie-switch-genres/
+
+The Rocky movie franchise is officially switching genres this year, as a new but very different entry is set to come out in theaters soon.
+---------
+
+# Marvel's Scarlet Witch Saga Officially Returns In 2 Weeks On Disney+
+
+Streaming TV, Marvel Cinematic Universe, Scarlet Witch, VisionQuest
+
+Wed, 30 Sep 2026 21:15:17 GMT
+
+https://screenrant.com/visionquest-mcu-scarlet-witch-saga-disney-plus-october-14/
+
+Wanda Maximoff's MCU story has been one of the most thrilling in the MCU, and the saga is set to continue despite her death, in VisionQuest.
+---------
+
+# 2026's 10 Movie Sequels Releasing In The Next 3 Months, Ranked By Excitement
+
+New Movies
+
+Wed, 30 Sep 2026 21:00:16 GMT
+
+https://screenrant.com/2026-movie-sequels-still-to-release-excitement/
+
+2026 still has some big movie sequels releasing before the year ends, and the exciting franchise continuations range from sci-fi to animation.
+---------
+
+# After Missing Adult Swim's 25th Anniversary, Cowboy Bebop Is Officially Back on the Big Screen
+
+Anime, Cowboy Bebop
+
+Wed, 30 Sep 2026 22:35:12 GMT
+
+https://www.cbr.com/cowboy-bebop-screening-lucas-museum/
+
+The anime is currently screening daily at Los Angeles’ newest attraction backed by George Lucas.
+---------
+
+# 13-Season Horror Classic Claims Amazon’s No. 1 Spot Just 4 Days After Topping Hulu
+
+TV, American Horror Story, Prime Video, Hulu
+
+Wed, 30 Sep 2026 22:30:11 GMT
+
+https://www.cbr.com/american-horror-story-13-amazon-streaming-success-september-2026/
+
+A long-running horror series is dominating multiple streaming channels.
+---------
+
+# Every Canon Super Saiyan in Dragon Ball, Ranked by Strength
+
+Anime, Dragon Ball, Super saiyan, Akira Toriyama
+
+Wed, 30 Sep 2026 22:15:11 GMT
+
+https://www.cbr.com/every-canon-super-saiyan-in-dragon-ball-ranked/
+
+Dragon Ball has introduced a wide range of Super Saiyans over the years, but some of these impressive individuals are more powerful than others.
+---------
+
+# A New Ben 10 Milestone Means a Major Record Has Just Been Broken
+
+Comics, Ben 10
+
+Wed, 30 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/dynamite-entertainment-ben-10-sold-out/
+
+Ben 10 has proven that its popularity persists.
+---------
+
+# Brandon Sklenar's The Rescue is John Wick Meets Yellowstone
+
+Movies, The Rescue
+
+Wed, 30 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/brandon-sklenar-the-resuce-john-wick-meets-yellowstone/
+
+Brandon Sklenar is returning to the Western genre after Taylor Sheridan's Yellowstone spinoff, 1923, and now he is bringing some John Wick flair.
+---------
+
+# Sean Penn & Robert Duvall's Classic 120-Minute Crime Drama Is Leaving Prime Video Soon
+
+Movies, Prime Video, Colors, Crime
+
+Wed, 30 Sep 2026 22:00:11 GMT
+
+https://www.cbr.com/colors-leaving-prime-video-october-2026/
+
+The crime drama is getting ready to depart from Prime Video very soon.
+---------
+
+# Universal's $536M Video Game Franchise Officially Confirms Third Installment Production Start
+
+Movies, Five Nights at Freddy's, Five Nights at Freddy's 3
+
+Wed, 30 Sep 2026 21:58:11 GMT
+
+https://www.cbr.com/universals-536m-video-game-franchise-officially-confirms-third-installment-production-start/
+
+The third entry in one of the biggest video game adaptations of all time is finally heading into production, and fans can't wait for part three.
+---------
+
+# Pretty Little Liars Creator Jumps to Hulu for New Thriller Based on Instant Bestseller
+
+TV, Pretty Little Liars, Off Campus, Hulu
+
+Wed, 30 Sep 2026 21:46:46 GMT
+
+https://www.cbr.com/thornbird-tv-series-hulu-marlene-king/
+
+From the author of Off Campus and the creator of Pretty Little Liars, a new thriller is coming to Hulu.
+---------
+
+# Netflix Officially Lands Taylor Sheridan’s 5-Season Crime Masterpiece in Just 5 Days
+
+TV, Mayor of Kingstown, Netflix, Crime
+
+Wed, 30 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/mayor-of-kingstown-coming-to-netflix-october-2026/
+
+A beloved Taylor Sheridan show is coming to Netflix.
+---------
+
+# Netflix’s Best Fantasy Series Beats Game of Thrones At Its Own Game
+
+Anime, One Piece, Netflix, Innovation
+
+Wed, 30 Sep 2026 21:30:11 GMT
+
+https://www.cbr.com/netflix-one-piece-game-of-thrones-replacement-new-season/
+
+It's hard to find fantasy TV shows like Game of Thrones, but Netflix's best series is the perfect replacement.
+---------
+
+# 12 Years Later, This Intense Miles Teller Drama Has Aged Like Fine Wine
+
+Movie Features, Whiplash, Miles Teller, J.K. Simmons, Drama
+
+Wed, 30 Sep 2026 22:22:15 GMT
+
+https://collider.com/miles-teller-drama-whiplash-better-with-time/
+
+In 2014, Miles Teller starred in the modern classic Whiplash, directed by Damien Chazelle, which took home 3 Oscars.
+---------
+
+# 7 HBO Crime Shows That Are 10/10, No Notes
+
+TV, HBO, Crime, The Sopranos, True Detective
+
+Wed, 30 Sep 2026 22:03:11 GMT
+
+https://collider.com/hbo-crime-shows-perfect-no-notes/
+
+From the critically acclaimed family drama The Sopranos to the anthology series True Detective, these HBO crime shows are genuinely flawless.
+---------
+
+# Netflix’s Thriller Hitmaker Officially Wants ‘Mare of Easttown’ Star For a Future Adaptation [Exclusive]
+
+TV News, Harlan Coben, Kate Winslet, I Will Find You, Harlan Coben's Final Twist
+
+Wed, 30 Sep 2026 22:00:11 GMT
+
+https://collider.com/harlan-coben-next-adaptation-kate-winslet-dream-cast/
+
+Harlan Coben names Kate Winslet as his dream star for a future adaptation and says she is one of his favorite actresses.
+---------
+
+# 8 Forgotten High Fantasy Books That Have Aged Like Fine Wine
+
+Books and Comics, Books, Fantasy, Adventure
+
+Wed, 30 Sep 2026 21:51:12 GMT
+
+https://collider.com/forgotten-high-fantasy-books-aged-like-fine-wine/
+
+Fantasy books like Iron Council and Lord Foul's Bane have aged beautifully in the years since their release, even if most fans don't know about them.
+---------
+
+# 'Superman' Fan-Favorite Officially Joins 'Top Gun: Maverick' Director's 'Miami Vice' Remake
+
+Movie News, Miami Vice, Edi Gathegi, Joseph Kosinski, Michael B. Jordan
+
+Wed, 30 Sep 2026 21:45:22 GMT
+
+https://collider.com/miami-vice-remake-cast-edi-gathegi/
+
+A fan-favorite from James Gunn's Superman has officially joined Joseph Kosinski's star-studded Miami Vice remake. Read on for more.
+---------
+
+# 8 Essential Adventure Video Games, Ranked
+
+Gaming, Adventure, Video Game, The Legend of Zelda, Red Dead Redemption 2
+
+Wed, 30 Sep 2026 21:30:11 GMT
+
+https://collider.com/8-essential-adventure-video-games-ranked/
+
+From Tomb Raider to The Legend of Zelda: Ocarina of Time, these iconic adventures defined a golden era of exploration and pure gaming wonder.
+---------
+
+# 'Reacher' Star Alan Ritchson's Sci-Fi Video Game Adaptation Officially Hit With Major Delay
+
+Movie News, Alan Ritchson, Helldivers, Sci-Fi, Reacher
+
+Wed, 30 Sep 2026 21:16:39 GMT
+
+https://collider.com/alan-ritchson-sci-fi-helldivers-delayed-june-2028/
+
+Liberty is taking its sweet time.
+---------
+
+# Ridley Scott's 'Treasure Island' Remake Officially Sets Pre-Thanksgiving Release Date
+
+Movie News, Ridley Scott, Hugh Jackman, Treasure Island, The Dog Stars
+
+Wed, 30 Sep 2026 21:15:31 GMT
+
+https://collider.com/ridley-scott-treasure-island-release-date-november-2027-hugh-jackman-blackbeard/
+
+Hugh Jackman will not play Long John Silver in Ridley Scott's Treasure Island, instead filling the shoes of another pirate he has already played.
+---------
+
+# 10 Best Scooby-Doo Mysteries To Watch Around Halloween, Ranked
+
+TV, Scooby-Doo, Scooby-Doo! and the Witch's Ghost, Scooby-Doo On Zombie Island, Scooby-Doo! and the Goblin King
+
+Wed, 30 Sep 2026 21:12:11 GMT
+
+https://collider.com/best-scooby-doo-mysteries-ranked/
+
+Scooby-Doo! and the Witch’s Ghost and Scooby-Doo! on Zombie Island are among the series' best mysteries you should watch this spooky season.
+---------
+
+# '24 Jump Street' Officially Sets Release Date With Full Cast Returning
+
+Movie News, Channing Tatum, 21 Jump Street, Jonah Hill, Ice Cube
+
+Wed, 30 Sep 2026 21:02:31 GMT
+
+https://collider.com/24-jump-street-release-date-december-2027-channing-tatum-jonah-hill-ice-cube-returning/
+
+The Jump Street gang is officially back, with Channing Tatum, Jonah Hill, and Ice Cube returning for a third movie in 2027.
+---------
+
+# 4 Marvel Universes 'Avengers: Endgame Encore' Officially Made MCU Canon
+
+Movie Lists, Marvel Cinematic Universe, Avengers: Endgame, Avengers: Endgame Encore, Sci-Fi
+
+Wed, 30 Sep 2026 22:00:15 GMT
+
+https://movieweb.com/avengers-endgame-encore-new-canon/
+
+The MCU continues to grow with 'Avengers: Endgame Encore' establishing several universes beyond Fox's 'X-Men' franchise.
+---------
+
+# Alan Ritchson Goes Full 'Halo' as Action Sci-fi Adaptation Officially Sets Release Date
+
+Movie News, Helldivers, Alan Ritchson
+
+Wed, 30 Sep 2026 21:40:07 GMT
+
+https://movieweb.com/alan-ritchson-helldivers-release-date/
+
+Sony Pictures has delayed Helldivers from November 2027 to June 9, 2028.
+---------
+
+# 8 Biggest Questions After 'Ted Lasso' Season 4, Episode 9, Explained
+
+TV Lists, Ted Lasso, Apple TV, Comedy, Jason Sudeikis, Brett Goldstein, Juno Temple, Tracey Ullman, Hannah Waddingham
+
+Wed, 30 Sep 2026 21:00:15 GMT
+
+https://movieweb.com/ted-lasso-season-4-episode-9-questions-explained/
+
+'Ted Lasso' Season 4's "Mae Rides The Bus" is one of the most action-packed installments of the Apple TV show ever, and there's lots to explain.
+---------
+
+# '24 Jump Street' Officially Confirms 2027 Release Date as Returning Cast Is Revealed
+
+Movie News, 21 Jump Street, Comedy
+
+Wed, 30 Sep 2026 20:59:54 GMT
+
+https://movieweb.com/24-jump-street-2027-release-date-cast/
+
+After more than a decade, a new chapter in the '21 Jump Street' story is finally set for a 2027 release date.
+---------
+
+# Netflix's Smash-Hit Harlan Coben Mystery Thriller Gets Official Season 2 Update
+
+TV News, I Will Find You, Thriller, Netflix, Harlan Coben
+
+Wed, 30 Sep 2026 20:47:31 GMT
+
+https://movieweb.com/netflix-i-will-find-you-season-2-update/
+
+Coben hints at a possible Season 2 of the hit series 'I Will Find You.'
+---------
+
+# Netflix's New 8-Episode Twist on a 90s Thriller Classic Is Officially the Biggest Series on Streaming
+
+TV News, Thriller, Hot on Streaming, The Hand that Rocks the Cradle, Netflix
+
+Wed, 30 Sep 2026 20:30:17 GMT
+
+https://movieweb.com/not-a-stranger-thriller-netflix-streaming-hit-september-2026/
+
+Netflix has officially breathed new life into a familiar trope with its latest psychological thriller that's officially a global streaming smash.
+---------
+
+# 'Unabomber' Director & Cast Address the Harvard Experiments in Ted Kaczynski's Story
+
+Movie News, Russell Crowe, Unabomber, Netflix, Thriller
+
+Wed, 30 Sep 2026 20:27:40 GMT
+
+https://movieweb.com/unabomber-director-cast-address-harvard-experiments/
+
+The cast of the Netflix thriller 'Unabomber' discussed the Harvard experients conducted on Ted Kaczynski.
+---------
+
+# 36 Years Later, Sequel in One of the Most Beloved Action Western Franchises Is Officially Happening
+
+Movie News, Young Guns 3, Young Guns, Western
+
+Wed, 30 Sep 2026 20:12:49 GMT
+
+https://movieweb.com/young-guns-3-update/
+
+The Western "Brat Pack" reunion is still happening according to the core ensemble.
+---------
+
+# Forget ‘Reacher,' Fox’s 9-Part Action Thriller Masterpiece Perfected the Genre 25 Years Ago
+
+Features, Reacher, Action, Thriller, 24
+
+Wed, 30 Sep 2026 20:00:17 GMT
+
+https://movieweb.com/24-reacher-comparison/
+
+'Reacher,' the Prime Video action thriller series starring Alan Ritchson as Jack Reacher, is entertaining, but a nine-season show is just as good.
+---------
+
+# 'Reacher' Fan-Favorite Breaks Silence on Season 4 Absence and Future Return
+
+TV News, Reacher, Maria Sten, Drama, Action
+
+Wed, 30 Sep 2026 19:49:14 GMT
+
+https://movieweb.com/reacher-neagley-return-season-5/
+
+After not appearing in 'Reacher' Season 4, one of the show's biggest players has no intention of leaving their role behind.
+---------
+
 # 7 Perfect Netflix Sci-Fi Shows Worth Watching Over and Over
 
 Classic TV, Netflix
