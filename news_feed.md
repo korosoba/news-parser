@@ -1,3 +1,443 @@
+# 7 Perfect Netflix Sci-Fi Shows Worth Watching Over and Over
+
+Classic TV, Netflix
+
+Wed, 30 Sep 2026 18:30:16 GMT
+
+https://screenrant.com/netflix-sci-fi-shows-worth-rewatching/
+
+Netflix has some seriously underrated sci-fi gems that are compelling to watch, whether it's the first time or the hundredth time, they always land.
+---------
+
+# 8 Neo-Western Masterpieces That Rival No Country For Old Men, Including Hell Or High Water
+
+Movies, No Country for Old Men, Western
+
+Wed, 30 Sep 2026 18:30:16 GMT
+
+https://screenrant.com/neo-western-rival-no-country-for-old-men/
+
+From bank robbers and border violence to aging lawmen and modern outlaws, these neo-Westerns prove No Country for Old Men is not alone at the top.
+---------
+
+# 10 Greatest Stan Lee Characters Created In The 1960s
+
+Comics
+
+Wed, 30 Sep 2026 18:30:16 GMT
+
+https://screenrant.com/greatest-stan-lee-characters-created-1960s/
+
+Marvel Comics wouldn’t exist as it does today without Stan Lee, whose work in the 1960s gave birth to some of fiction’s greatest figures.
+---------
+
+# Seth MacFarlane's New Sci-Fi Series Officially Casts Lead
+
+TV, Seth MacFarlane
+
+Wed, 30 Sep 2026 18:18:07 GMT
+
+https://screenrant.com/seth-macfarlane-future-housewives-ariana-madix-casting/
+
+Seth MacFarlane's new sci-fi series officially casts its lead, and audiences will surely recognize them from a popular reality television series.
+---------
+
+# After 66 Years, Marvel Rewrites Spider-Man’s Origin With New Twist That Changes The Hero Forever
+
+Marvel Comics, Spider-Man
+
+Wed, 30 Sep 2026 18:17:45 GMT
+
+https://screenrant.com/marvel-rewrites-spider-man-origin-change-hero-forever/
+
+Marvel has effectively retconned a major aspect of Spider-Man's iconic origin story, recontextualizing everything we know about the web-slinger.
+---------
+
+# Kurt Russell’s Forgotten R-Rated Crime Thriller Sets Another New 2026 Release
+
+Movies, Masked Recs
+
+Wed, 30 Sep 2026 18:04:09 GMT
+
+https://screenrant.com/kurt-russell-tequila-sunrise-tubi-streaming-release-october-2026/
+
+Kurt Russell's forgotten R-rated crime thriller sets another 2026 release after a limited edition restoration was already announced earlier this year.
+---------
+
+# Sydney Sweeney’s R-Rated Alfred Hitchcock Remake Is Officially Returning With An Exciting New Release
+
+Movies, Masked Recs, Sydney Sweeney
+
+Wed, 30 Sep 2026 18:02:50 GMT
+
+https://screenrant.com/sydney-sweeney-the-voyeurs-hitchcock-remake-tubi-streaming-release-october-2026/
+
+Sydney Sweeney's R-rated thriller with clear inspiration from Alfred Hitchcock is about to get an exciting new release with a change in streaming.
+---------
+
+# Taylor Sheridan's Neo-Western Remains One Of The Biggest Hits On Streaming After Major Future Update
+
+TV, Masked Recs
+
+Wed, 30 Sep 2026 18:02:25 GMT
+
+https://screenrant.com/taylor-sheridan-landman-paramount-plus-streaming-chart-rise-september-2026/
+
+Taylor Sheridan's Neo-Western series has just found a second wind to come back as one of the biggest streaming shows after its new future update.
+---------
+
+# Why Emily Wickersham's Ellie Bishop Left NCIS
+
+TV, NCIS
+
+Wed, 30 Sep 2026 18:00:16 GMT
+
+https://screenrant.com/ncis-emily-wickersham-ellie-bishop-exit-reason/
+
+Many have wondered why Emily Wickersham's Ellie Bishop character left NCIS, as her departure from the procedural series was sudden and mysterious.
+---------
+
+# It's Officially The End Of An Era For PlayStation Plus
+
+Gaming, PlayStation Plus, Toy Story, Triple-A Games
+
+Wed, 30 Sep 2026 18:00:15 GMT
+
+https://screenrant.com/playstation-plus-end-of-era-toy-story-games-delisted/
+
+Three classic Toy Story games have left PlayStation Plus, marking the end of an era for fans who grew up with these beloved titles.
+---------
+
+# Apple TV's 100% RT Fantasy Show Based on a Bestselling Book Returns at the Perfect Time
+
+CBR Exclusives, The Sisters Grimm
+
+Wed, 30 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/apple-tv-the-sisters-grimm-season-2-debut-clip/
+
+Exclusive: CBR is introducing a new clip from Apple TV's hit fantasy show.
+---------
+
+# The Last of Us Gets Massive $2,399 New Collector’s Release
+
+Games, The Last of Us
+
+Wed, 30 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/the-last-of-us-new-collectors-release-2027/
+
+As fans wait for Season 3 to come out, The Last of Us has announced a new release.
+---------
+
+# Masterpiece Crime Series Officially Confirms New Spin-Off With A Fan-Favorite Character
+
+Comics, comics
+
+Wed, 30 Sep 2026 18:00:11 GMT
+
+https://www.cbr.com/gun-honey-killproof-a-gun-honey-series-1-release-date-confirmed/
+
+Gun Honey is preparing to set another femme fatale in the spotlight for an all-new story.
+---------
+
+# Paramount’s Star Trek Reset Is Starting Early After Pulling the Plug on 9-Year Streaming Run
+
+TV, Star Trek, Paramount Plus, Sci-Fi
+
+Wed, 30 Sep 2026 17:54:18 GMT
+
+https://www.cbr.com/star-trek-streaming-future-casey-bloys-paramount-plus/
+
+The Star Trek franchise is headed toward an era of change.
+---------
+
+# Wolverine Finally Gets The R-Rated Fight Marvel Fans Have Been Waiting For
+
+Comics, Marvel, Marvel Comics, Wolverine, X-Men, Avengers, Hulk
+
+Wed, 30 Sep 2026 17:34:59 GMT
+
+https://www.cbr.com/wolverine-finally-gets-the-r-rated-fight-marvel-hulk/
+
+Body parts are cut off, parts of skulls are missing — Marvel fans have never seen Wolverine and the Hulk go all out like this.
+---------
+
+# In 1 Month, TV's Best Killer Thriller Revival of the 21st Century Returns With New Episodes
+
+TV, Dexter: Resurrection
+
+Wed, 30 Sep 2026 17:33:31 GMT
+
+https://www.cbr.com/dexter-resurrection-returns-season-2-october-2026/
+
+The acclaimed revival series is back in just one month.
+---------
+
+# The Fate of HBO Max & Paramount+ Gets a Major Update Ahead of Planned Phaseout
+
+TV, Paramount Plus, HBO Max
+
+Wed, 30 Sep 2026 17:30:21 GMT
+
+https://www.cbr.com/hbo-max-paramount-update-delay-phaseout/
+
+The mega-merger has yet to happen.
+---------
+
+# 5 Best Mass Effect Legendary Edition Mods in 2026
+
+Games, Mass Effect, Mass Effect Legendary Edition, Video Games
+
+Wed, 30 Sep 2026 17:30:12 GMT
+
+https://www.cbr.com/best-mass-effect-legendary-edition-mods-2026/
+
+Mass Effect Legendary Edition upgraded an incredible game trilogy, and today's mods make every aspect of Commander Shepard's adventure more epic.
+---------
+
+# 20 Years Later, Evangelion Brings Back Misato's Original Design for New 2027 Release
+
+Anime, Neon Genesis Evangelion, merchandise
+
+Wed, 30 Sep 2026 17:20:11 GMT
+
+https://www.cbr.com/evangelion-misato-original-manga-design-april-2027/
+
+One of the most controversial characters from Neon Genesis Evangelion is headlining one of the hottest collectible releases of 2027.
+---------
+
+# Taylor Sheridan’s Landman & Yellowstone Empire Faces Major Shakeup as HBO Boss Prepares for Takeover
+
+TV, Landman, HBO Max, Paramount Plus
+
+Wed, 30 Sep 2026 17:14:55 GMT
+
+https://www.cbr.com/taylor-sheridan-yellowstone-landman-casey-bloys-paramount-warner-bros/
+
+The streaming empire Sheridan has built is about to change.
+---------
+
+# Every 2026 National Book Award Fiction Longlister, Ranked
+
+Books and Comics, Thriller, Books, Science Fiction, Fantasy
+
+Wed, 30 Sep 2026 18:22:11 GMT
+
+https://collider.com/2026-national-book-award-fiction-longlisters-ranked/
+
+The 2026 National Book Award for Fiction longlist is packed with surreal premises, sprawling epics, and major literary names. Here’s how all 10 books
+---------
+
+# Former James Bond Director Officially Confirms His Pick for the Next 007
+
+Movie News, James Bond, Danny Boyle, Jack O'Connell, Daniel Craig
+
+Wed, 30 Sep 2026 18:14:44 GMT
+
+https://collider.com/james-bond-jack-oconnell-danny-boyle-next-007/
+
+Danny Boyle backs Jack O’Connell as the next James Bond while reflecting on the 007 movie he developed before leaving the franchise.
+---------
+
+# ‘Ted Lasso’s Real Season 4 Villain Has Officially Been Revealed
+
+TV Features, Ted Lasso, Tracey Ullman, Apple TV, Comedy
+
+Wed, 30 Sep 2026 18:12:11 GMT
+
+https://collider.com/ted-lasso-season-4-villain-zelda-southport/
+
+Ted Lasso's newest episode reveals the true villain of Season 4, who has a shocking plan to take down AFC Richmond from the inside.
+---------
+
+# 'Magic: The Gathering' Is Officially Crossing Over With the Best Fantasy Franchises Ever Made
+
+Gaming News, Magic: The Gathering, Labyrinth, KPop Demon Hunters, Marvel Zombies
+
+Wed, 30 Sep 2026 17:52:26 GMT
+
+https://collider.com/magic-the-gathering-kpop-demon-hunters-labyrinth-marvel-zombies-crossover/
+
+KPop Demon Hunters, Marvel Zombies, and David Bowie's Labyrinth are the latest big franchises to officially cross over with Magic: The Gathering.
+---------
+
+# ‘Ghosts’ Creators Officially Reunite With ‘Widow’s Bay’ Star for New Vampire Series
+
+TV News, Eternally Yours, Widow's Bay, Jeff Hiller, CBS
+
+Wed, 30 Sep 2026 17:48:29 GMT
+
+https://collider.com/eternally-yours-jeff-hiller-cast-cbs-recurring-role/
+
+Emmy winner Jeff Hiller joins CBS’s Eternally Yours in a multi-episode guest role beginning with Episode 3.
+---------
+
+# 8 Superhero Films That Are Perfect From Start to Finish
+
+Movie, The Incredibles, The Dark Knight, Logan, Superhero
+
+Wed, 30 Sep 2026 17:41:11 GMT
+
+https://collider.com/superhero-films-perfect-start-to-finish/
+
+The Incredibles, Spider-Man: Into the Spider-Verse, and The Dark Knight are all among the best, genuinely perfect superhero movies ever made.
+---------
+
+# Hulu's 'Tulsa King' Replacement Officially Returns in Explosive First Season 2 Trailer
+
+TV News, The Lowdown, Tulsa King, Ethan Hawke, Hulu
+
+Wed, 30 Sep 2026 17:30:00 GMT
+
+https://collider.com/hulu-the-lowdown-season-2-trailer/
+
+Hulu and FX's hit Tulsa King replacement, The Lowdown, has officially debuted its first trailer, starring Ethan Hawke and Tommy Lee Jones.
+---------
+
+# 6 Perfect TV Dramas Worth Watching Over and Over, Ranked
+
+TV, Drama, Breaking Bad, The Wire, The Sopranos
+
+Wed, 30 Sep 2026 17:25:12 GMT
+
+https://collider.com/perfect-tv-dramas-worth-watching-over-and-over/
+
+From Mad Men to The Wire, these acclaimed TV dramas reveal deeper character truths, hidden details, and richer rewatches.
+---------
+
+# 10 Crime Thrillers Without a Single Flaw
+
+Movie, Thriller, Hell or High Water, Zodiac, Heat
+
+Wed, 30 Sep 2026 16:34:12 GMT
+
+https://collider.com/crime-thrillers-without-flaws/
+
+Double Indemnity, Heat, The French Connection, and Zodiac—these are just some of the best crime thrillers that are virtually perfect in every way.
+---------
+
+# BritBox’s Bold 11-Part Crime Series Is a Masterpiece From Start to Finish
+
+TV Features, Britbox, The Tower, Crime, ITV
+
+Wed, 30 Sep 2026 16:11:11 GMT
+
+https://collider.com/britbox-best-crime-series-the-tower-masterpiece/
+
+It’s composed of three shorts seasons
+---------
+
+# The Fate of HBO Max Officially Confirmed Ahead of Paramount Merger
+
+TV News, HBO Max, Paramount Plus
+
+Wed, 30 Sep 2026 18:28:48 GMT
+
+https://movieweb.com/hbo-max-casey-bloys-paramount/
+
+Who will run the megamerger's streaming empire?
+---------
+
+# Netflix's New Alan Ritchson Action Hit Has a 91% Rotten Tomatoes Score
+
+Movie News, The Ministry of Ungentlemanly Warfare, Netflix, Hot on Streaming, Action
+
+Wed, 30 Sep 2026 18:01:14 GMT
+
+https://movieweb.com/ministry-of-ungentlemanly-warfare-action-stream-netflix-september-2026/
+
+Alan Ritchson's action flop finds redemption after being added to Netflix.
+---------
+
+# 31 Years Later, ‘Calvin and Hobbes’ Still Has the Greatest Final Line in Comic Strip History
+
+Features, Calvin and Hobbes, comics, Comedy
+
+Wed, 30 Sep 2026 18:01:14 GMT
+
+https://movieweb.com/calvin-and-hobbes-greatest-final-line/
+
+'Calvin and Hobbes' has one of the greatest send-offs in comic strip history, honoring both the characters' history and their possible future.
+---------
+
+# 'Wednesday' Season 3 Debuts Official New Look as Hit Netflix Series Crosses Major Milestone
+
+TV News, Comedy, Wednesday, Netflix, Jenna Ortega
+
+Wed, 30 Sep 2026 17:24:03 GMT
+
+https://movieweb.com/wednesday-season-3-new-image-filming-wrapped/
+
+Jenna Ortega's return as Wednesday is closer than ever as Netflix has revealed a first look at Season 3.
+---------
+
+# The 20 Best Gangster Movies of the 1990s
+
+Movie Lists, Crime
+
+Wed, 30 Sep 2026 17:00:17 GMT
+
+https://movieweb.com/best-gangster-movies-of-the-1990s/
+
+The 1990s produced some of the greatest crime films ever made. These are the 20 best gangster movies from that decade, ranked.
+---------
+
+# 5 Best 'Avengers: Doomsday' Theories About Why Doctor Doom Wants the Hulk
+
+Movie Lists, Avengers: Doomsday, MCU's Movie Order (2008 - 2019) - The Infinity Saga (Iron Man - Spider-Man: Far from Home), Hulk, Superhero, Marvel Cinematic Universe
+
+Wed, 30 Sep 2026 17:00:16 GMT
+
+https://movieweb.com/avengers-doomsday-doctor-doom-hulk-theories/
+
+After the 'Avengers Endgame: Encore' post-credit scenes, these five theories about 'Avengers: Doomsday' could explain why Doctor Doom wants the Hulk.
+---------
+
+# Anne Hathaway's "Unhinged" New Thriller Divides Critics With Rotten Tomatoes Debut
+
+Movie News, Verity, Anne Hathaway
+
+Wed, 30 Sep 2026 16:44:35 GMT
+
+https://movieweb.com/verity-rotten-tomatoes-score/
+
+'Verity', the adaptation of the popular Colleen Hoover novel of the same name, has debuted on Rotten Tomatoes with a 50% rating.
+---------
+
+# 'Ted' Officially Returns as Peacock Sets New Series Release Date
+
+TV News, Ted, Ted: The Animated Series, Peacock, Comedy
+
+Wed, 30 Sep 2026 16:26:56 GMT
+
+https://movieweb.com/ted-the-animated-series-peacock-release-date/
+
+Seth MacFarlane's 'Ted' is coming back to the small screen with a new story for the magical, foul-mouthed teddy bear.
+---------
+
+# Extent of Cillian Murphy's Role in '28 Days Later 3' Confirmed by Danny Boyle
+
+Movie News, 28 Years Later, Cillian Murphy, Danny Boyle, Horror
+
+Wed, 30 Sep 2026 16:03:33 GMT
+
+https://movieweb.com/28-days-later-3-cillian-murphys-role-confirmed/
+
+Cillian Murphy’s 'Bone Temple' cameo sets the stage for the next chapter of '28 Years Later.'
+---------
+
+# Liam Neeson's 114-Minute Supernatural Flop Arrives on Free Streaming Just in Time for Halloween
+
+Movie News, Liam Neeson, The Haunting, Coming/Leaving Streaming, Horror, Tubi
+
+Wed, 30 Sep 2026 16:00:14 GMT
+
+https://movieweb.com/the-haunting-liam-neeson-stream-free-tubi-october-2026/
+
+The remake of the 1963 classic will seek redemption after failing to connect with audiences 27 years ago.
+---------
+
 # Alan Ritchson & Arnold Schwarzenegger Solve A Magical Crime In Prime Video's New Action Fantasy Movie
 
 Movies, The Man with the Bag, Alan Ritchson, Arnold Schwarzenegger
