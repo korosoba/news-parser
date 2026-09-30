@@ -1,3 +1,344 @@
+# Star Trek: Picard Officially Returns In Gorgeous 60th Anniversary Trailer
+
+Gaming, Star Trek: Picard, PC, Magic: The Gathering
+
+Wed, 30 Sep 2026 06:00:15 GMT
+
+https://screenrant.com/star-trek-picard-2026-official-return-trailer-mtg/
+
+Star Trek: Picard just made an official return in this stunning trailer teasing a major release this November.
+---------
+
+# Battlestar Galactica Officially Returning In 2027 With New Release
+
+Gaming, Battlestar Galactica, PC
+
+Wed, 30 Sep 2026 05:30:16 GMT
+
+https://screenrant.com/battlestar-galactica-2027-official-return-confirmed/
+
+Battlestar Galactica is making a triumphant return for longtime fans in 2027 with a brand-new Colonial Fleet release on the way.
+---------
+
+# Elden Ring: Maliketh The Black Blade Officially Releases June 2027
+
+Gaming, Elden Ring, PC, Elden Ring: Shadow of the Erdtree, Elden Ring: Tarnished Edition, FromSoftware, Elden Ring Nightreign
+
+Wed, 30 Sep 2026 05:00:17 GMT
+
+https://screenrant.com/elden-ring-maliketh-black-blade-release-june-2027/
+
+Elden Ring officially returns with Maliketh The Black Blade in June 2027, bringing back one of the most iconic bosses for revenge.
+---------
+
+# The Edge Of The Backrooms Officially Releases In 2027
+
+Gaming, Steam, Indie Games
+
+Wed, 30 Sep 2026 04:30:18 GMT
+
+https://screenrant.com/edge-of-the-backrooms-2027-release/
+
+If you're a fan of the lore of Backrooms, you'll want to check out this upcoming project, which is officially set for a release in 2027.
+---------
+
+# Star Wars’ Scrapped Pilot Movie Almost Became A Disney+ Series
+
+Movies, Star Wars: Rogue Squadron, Star Wars
+
+Wed, 30 Sep 2026 04:01:20 GMT
+
+https://screenrant.com/star-wars-rogue-squadron-disney-plus-series-plan/
+
+One announced Star Wars movie that was ultimately scrapped nearly became a Disney+ series that would have connected to The Mandalorian.
+---------
+
+# Saw Officially Switches Genre In Upcoming Prequel
+
+Gaming, Saw, SAW: Genesis, PC
+
+Wed, 30 Sep 2026 04:00:21 GMT
+
+https://screenrant.com/saw-genesis-prequel-genre-switch/
+
+SAW is making a major change in its highly anticipated upcoming prequel story that explores the origins of Jigsaw's twisted game.
+---------
+
+# 11 Years Later, The MCU Finally Pays Off A Forgotten Age of Ultron Villain
+
+Superheroes, Avengers: Age of Ultron, VisionQuest, Marvel Cinematic Universe
+
+Wed, 30 Sep 2026 03:56:13 GMT
+
+https://screenrant.com/mcu-visionquest-finally-pays-off-forgotten-age-of-ultron-villain-jocasta/
+
+Eleven years after the release of 2015's Avengers: Age of Ultron, the MCU's next project will finally pay off a forgotten villain tease.
+---------
+
+# Prime Video's TV-14 Sci-Fi Masterpiece Delivers 15 Genres In One
+
+Streaming TV, Masked Recs
+
+Wed, 30 Sep 2026 03:50:15 GMT
+
+https://screenrant.com/secret-level-sci-fi-anthology-different-genres-prime-video/
+
+A single Amazon show doesn't just deliver over a dozen standalone stories, it takes viewers to 15 unique worlds based on gaming's hottest properties.
+---------
+
+# 6 Best Batman Villains Introduced In The Last 10 Years
+
+Comics, Batman
+
+Wed, 30 Sep 2026 03:45:38 GMT
+
+https://screenrant.com/best-batman-villains-introduced-last-10-years/
+
+The best Batman villains to emerge in the last decade are so good that they are earning a place in history alongside the hero's legendary antagonists.
+---------
+
+# 9 Years Later, 2017's Best Body Horror Finally Returns With The New Release It Always Deserved
+
+Anime, Blue Lock
+
+Wed, 30 Sep 2026 03:30:16 GMT
+
+https://screenrant.com/blue-lock-creator-jagaaan-horror-release/
+
+This body horror manga has been in print since 2017, yet only a decade later did it finally make it to North American retailers with a print release.
+---------
+
+# The Mummy 4 Officially Reveals First Look at Brendan Fraser's Return as Rick O'Connell
+
+Movies, The Mummy 4
+
+Wed, 30 Sep 2026 03:54:31 GMT
+
+https://www.cbr.com/brendan-fraser-the-mummy-4-set-photos/
+
+Brendan Fraser is back in character as Rick O'Connell in the first look at his return to the role.
+---------
+
+# 10 Strongest Seekers in Transformers, Ranked by Power
+
+Anime, Transformers
+
+Wed, 30 Sep 2026 03:45:11 GMT
+
+https://www.cbr.com/transformers-strongest-seekers-ranked-by-power/
+
+These Seekers are the most powerful in Transformers history.
+---------
+
+# Ridley Scott’s 2-Season HBO Series Is Still 1 of Sci-Fi TV’s Best
+
+TV, Sci-Fi, Raised by Wolves, ridley scott
+
+Wed, 30 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/hbo-ridley-scott-raised-by-wolves-best-sci-fi-show/
+
+Despite its premature cancellation, Ridley Scott's HBO series remains one of the boldest and most visually striking sci-fi shows of the past decade.
+---------
+
+# 10 Funniest Peanuts Comics Featuring Snoopy's Family, Ranked
+
+Comics, Peanuts
+
+Wed, 30 Sep 2026 03:30:11 GMT
+
+https://www.cbr.com/funniest-peanuts-comics-featuring-snoopys-family-ranked/
+
+Snoopy's siblings are not always quite as bizarre as the lovable beagle, but some of the funniest Peanuts comics feature his family members.
+---------
+
+# Xbox Officially Launches New Era for Physical Gaming as Sony Phases Out Discs
+
+Games, Xbox Series X (1)
+
+Wed, 30 Sep 2026 03:15:35 GMT
+
+https://www.cbr.com/xbox-disc-to-digital-launches/
+
+Xbox takes advantage of PlayStation moving away from physical gaming.
+---------
+
+# HBO Max's Forgotten 100-Minute Mystery Masterpiece Is Yellowstone Meets The Hunger Games
+
+Movies, Winter's Bone, Yellowstone, The Hunger Games
+
+Wed, 30 Sep 2026 03:15:11 GMT
+
+https://www.cbr.com/hbo-max-winters-bone-yellowstone-meets-the-hunger-games-movie/
+
+The Hunger Games wasn't the first time Jennifer Lawrence portrayed a resourceful teenager determined to survive.
+---------
+
+# Final Fantasy Meets Gundam in New Retro Steam Strategy Game With Nearly 1,000 Battle Maps
+
+Anime, Mobile Suit Gundam, Final Fantasy, Steam
+
+Wed, 30 Sep 2026 03:05:11 GMT
+
+https://www.cbr.com/banana-kingdom-steam-update/
+
+A recent hit indie game combines retro and anime-themed graphics with elements of the SD Gundam games and video games from Nintendo's stable.
+---------
+
+# 10 Masterpiece Open-World RPGs That Everyone Must Play at Least Once
+
+Games, RPG, Pokemon, Star Wars, The Legend of Zelda
+
+Wed, 30 Sep 2026 02:45:12 GMT
+
+https://www.cbr.com/masterpiece-open-world-rpgs-everyone-must-play-at-least-once/
+
+Every gamer needs to check out these masterpiece open-world RPGs.
+---------
+
+# Sydney Sweeney's The Housemaid Is Already a 5-Star Classic
+
+Movies, Thriller
+
+Wed, 30 Sep 2026 02:45:12 GMT
+
+https://www.cbr.com/sydney-sweeney-the-housemaid-instant-thriller-classic/
+
+Sydney Sweeney's 'The Housemaid' became a cult classic for its blend of a pulpy thriller and dark comedy.
+---------
+
+# 6 Strongest Siblings in Black Clover, Ranked
+
+Anime, Shonen, Black Clover
+
+Wed, 30 Sep 2026 02:30:11 GMT
+
+https://www.cbr.com/black-clover-strongest-siblings-ranked/
+
+Black Clover has an abundance of powerful sibling groups that aren't to be underestimated.
+---------
+
+# Netflix's Fan-Favorite Spy Thriller 'Black Doves' Is Making a Major Shift in Season 2
+
+TV Features, Black Doves, Keira Knightley, Ben Whishaw, Netflix
+
+Wed, 30 Sep 2026 04:45:11 GMT
+
+https://collider.com/black-doves-season-2-netflix-spy-thriller-shift/
+
+With Netflix's best spy thriller Black Doves officially returning, Season 2 is set to both escalate the stakes and deepen the characters' struggles.
+---------
+
+# 10 Classic Rock Songs That Were Inspired by Real-Life Heartbreak, Ranked
+
+Music Features, Music, Rock, Bob Dylan, Fleetwood Mac, The Rolling Stones
+
+Wed, 30 Sep 2026 04:36:35 GMT
+
+https://collider.com/classic-rock-songs-inspired-real-life-heartbreak-ranked/
+
+Classic rock's greatest heartbreak songs were inspired by real relationships, from Bob Dylan and Joni Mitchell to Fleetwood Mac and more.
+---------
+
+# 5 Horror Books I Knew Would Be Masterpieces From the First Chapter
+
+Books and Comics, Dracula, The Exorcist, Frankenstein, Horror
+
+Wed, 30 Sep 2026 04:27:11 GMT
+
+https://collider.com/horror-books-masterpieces-from-first-chapter/
+
+Haunting of Hill House, Dracula, Frankenstein, The Exorcist, and more make up our list of horror books that are masterpieces from the first chapter.
+---------
+
+# The 10 Best Stephen King Audiobooks, Ranked
+
+Books and Comics, The Dark Tower, Stephen King, It, The Stand
+
+Wed, 30 Sep 2026 03:58:11 GMT
+
+https://collider.com/best-stephen-king-audiobooks-ranked/
+
+The best Stephen King audiobooks include recordings of classic novels like The Stand, Needful Things, and the final entry in The Dark Tower series.
+---------
+
+# 6 Perfect HBO Shows Worth Watching Over and Over
+
+TV, HBO, The Sopranos, The Wire, Succession
+
+Wed, 30 Sep 2026 03:54:11 GMT
+
+https://collider.com/perfect-hbo-shows-worth-watching-over-and-over-ranked/
+
+From The Wire to Band of Brothers, these HBO classics reveal richer themes, sharper details, and new rewards on every rewatch.
+---------
+
+# 8 Movie Series With Only One Great Entry
+
+Movie, The Dark Knight, Spider-Man 2, Jurassic Park, The Matrix
+
+Wed, 30 Sep 2026 03:25:12 GMT
+
+https://collider.com/movie-series-only-one-great-entry/
+
+There are series that are several movies long, but with only one truly great entry, including Thor, Jurassic Park, and Pirates of the Caribbean.
+---------
+
+# 7 Grittiest Crime Series of All Time, Ranked
+
+TV, Crime, The Wire, Narcos, Gomorrah
+
+Wed, 30 Sep 2026 03:19:12 GMT
+
+https://collider.com/grittiest-crime-shows-all-time-ranked/
+
+From Narcos to True Detective, these gritty crime dramas expose corruption, violence, and the systems that keep them alive.
+---------
+
+# Hugh Jackman's R-Rated Fantasy Drama Creates New Streaming Milestone
+
+Movie News, Hugh Jackman, The Death of Robin Hood, Jodie Comer, Bill Skarsgard
+
+Wed, 30 Sep 2026 02:15:11 GMT
+
+https://collider.com/hugh-jackman-the-death-of-robin-hood-streaming-success-apple-tv-september-2026/
+
+Hugh Jackman's latest film, The Death of Robin Hood, officially finds streaming success despite its box office struggles.
+---------
+
+# Hulu Officially Sets Perfect 'Veronica Mars' Replacement With a New Mystery Adaptation
+
+TV News, Hulu, Veronica Mars, The Kid Detective, Adam Brody
+
+Wed, 30 Sep 2026 02:00:22 GMT
+
+https://collider.com/hulu-the-kid-detective-remake-series/
+
+Hulu is officially remaking Adam Brody's cult classic detective story as a brand-new series. Read on for more.
+---------
+
+# It's Officially the End of an Era for One of the '90s' Best Sci-Fi Shows
+
+TV News, Futurama, Hulu, Matt Groening, Comedy Central
+
+Wed, 30 Sep 2026 01:50:11 GMT
+
+https://collider.com/futurama-season-14-finale-matt-groening/
+
+One of the best 90s sci-fi shows, Futurama, officially concluded its iconic run after 14 seasons, but Matt Groening is optimistic about its future.
+---------
+
+# Tyrion Lannister's 10 Best 'Game of Thrones' Quotes That Still Live Rent-Free in Our Heads
+
+TV Lists, Game Of Thrones, Game of Thrones, Fantasy
+
+Wed, 30 Sep 2026 02:00:25 GMT
+
+https://movieweb.com/game-of-thrones-tyrion-lannister-best-quotes/
+
+Tyrion Lannister gets by on knowledge and fast talking, and it shows in his greatest quotes from throughout 'Game of Thrones.'
+---------
+
 # 10 Best Minecraft Ancient City Seeds
 
 Gaming, Minecraft, PC
