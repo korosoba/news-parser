@@ -1,3 +1,366 @@
+# Clint Eastwood & Michael Connelly’s 110-Minute Mystery Thriller Introduces Bosch's Replacement
+
+Streaming TV, Clint Eastwood, Michael Connelly
+
+Thu, 01 Oct 2026 01:30:16 GMT
+
+https://screenrant.com/clint-eastwood-blood-work-terry-mccaleb-michael-connelly-bosch-successor/
+
+Prime Video's Bosch franchise has the perfect successor in the form of Terry McCaleb, a Michael Connelly hero Clint Eastwood has already played.
+---------
+
+# 12 Spider-Man Villains We’d Love To See After Brand New Day
+
+Superheroes, Marvel Cinematic Universe, Spider-Man: Brand New Day
+
+Thu, 01 Oct 2026 01:09:55 GMT
+
+https://screenrant.com/12-spider-man-5-villains-after-brand-new-day/
+
+Following the major success of Spider-Man: Brand New Day, it's fun to think about who might serve as the best villain for the inevitable Spider-Man 5.
+---------
+
+# Major Streamer Could Be Shutting Down For Millions Amid Major Dispute
+
+TV, STARZ
+
+Thu, 01 Oct 2026 01:01:16 GMT
+
+https://screenrant.com/starz-streamer-carriage-dispute-verizon-fios/
+
+A major streaming platform could go dark for millions on Verizon FiOS as carriage dispute threatens customers' access to its content and channels.
+---------
+
+# Scrubs Season 2 Review: ABC’s Breakout Revival Is Haunted By Its Past
+
+Network TV, Scrubs
+
+Thu, 01 Oct 2026 01:00:18 GMT
+
+https://screenrant.com/scrubs-season-2-review/
+
+The Scrubs reboot has taken the world by storm this year, but ABC's reboot of the hit medical drama hasn't found its new-age footing just yet.
+---------
+
+# Marvel’s New 2026 Avengers Special Becomes An Instant Disney+ Sensation Ahead Of Doomsday
+
+Movies, Masked Recs
+
+Thu, 01 Oct 2026 00:30:41 GMT
+
+https://screenrant.com/spidey-avengers-halloween-team-up-special-disney-plus-streaming-success-september-2026/
+
+Marvel just released a new Avengers special on Disney+, and it has instantly become a streaming sensation ahead of the MCU's Avengers: Doomsday.
+---------
+
+# Every Lost Character Still On The Island When The Show Ended
+
+Classic TV, Lost
+
+Thu, 01 Oct 2026 00:30:17 GMT
+
+https://screenrant.com/lost-characters-still-on-island-ending/
+
+Many of Lost's characters either died on the island or escaped it, but several characters were still there by the end of the show's present-day story.
+---------
+
+# Charlie Sheen’s Upcoming Two & A Half Men Reunion Is His Perfect TV Return
+
+TV, Masked Recs
+
+Wed, 30 Sep 2026 23:51:44 GMT
+
+https://screenrant.com/charlie-sheen-happy-jack-tv-return-perfect/
+
+Charlie Sheen's new major Two and a Half Men reunion will officially mark his return to TV, and it is the perfect project for the actor's new chapter.
+---------
+
+# 3 Months Before Doomsday, Marvel Redesigns An Iconic MCU Hero
+
+Comics, Avengers: Doomsday, Marvel Cinematic Universe, The Fantastic Four: First Steps
+
+Wed, 30 Sep 2026 23:30:58 GMT
+
+https://screenrant.com/3-months-before-avengers-doomsday-marvel-redesigns-iconic-mcu-hero-the-thing/
+
+With Avengers: Doomsday just a few months away from being released in theaters, Marvel reveals a surprising redesign for one of its strongest heroes.
+---------
+
+# MobLand: Forget Lioness, Paramount+'s New #1 Series Deserves The Crown
+
+Streaming TV, Masked Recs
+
+Wed, 30 Sep 2026 23:04:16 GMT
+
+https://screenrant.com/mobland-paramount-plus-number-1-series-lioness/
+
+MobLand has overtaken Lioness as Paramount+'s #1 series, and Tom Hardy's crime drama has earned its place at the top.
+---------
+
+# It's Officially The End Of An Era For Disney Lorcana
+
+Gaming, Disney Lorcana
+
+Wed, 30 Sep 2026 23:00:16 GMT
+
+https://screenrant.com/disney-lorcana-great-hunny-rescue-end-current-arc/
+
+Explore Disney Lorcana is ending a popular storyline. What's coming next for storylines in the enchanting trading card game.
+---------
+
+# Ridley Scott & Hugh Jackman's Remake of a Robert Louis Stevenson Classic Lands 2027 Release
+
+Movies, ridley scott
+
+Thu, 01 Oct 2026 01:42:18 GMT
+
+https://www.cbr.com/ridley-scott-treasure-island-2027-release-date/
+
+Ridley Scott reimagines the iconic story with Hugh Jackman.
+---------
+
+# 5 Forgotten Fantasy Action Movies That Are Perfect From Start to Finish
+
+Movies, Fantasy
+
+Thu, 01 Oct 2026 01:30:11 GMT
+
+https://www.cbr.com/forgotten-fantasy-action-movies-list/
+
+The fantasy genre is always remembered for movies like Lord of the Rings, but there are some perfect fantasy action films fans forgot.
+---------
+
+# 5 Forgotten Toonami Anime That Are Perfect From Start to Finish
+
+Anime, mecha, Gundam
+
+Thu, 01 Oct 2026 01:25:12 GMT
+
+https://www.cbr.com/forgotten-toonami-anime-perfect-from-start-to-finish/
+
+Toonami has plenty of classic anime that a lot of fans don't even remember anymore.
+---------
+
+# Henry Cavill & Guy Ritchie's Action Thriller Refuses to Give Up Its No. 1 Streaming Spot
+
+Movies, In the Grey, STARZ, Henry Cavill
+
+Thu, 01 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/in-the-grey-thriller-starz-success-september-2026/
+
+Henry Cavill's action film is finding new life on streaming after a disappointing box office run.
+---------
+
+# Peacock’s Friday the 13th Reset Is Changing the Rules for ‘80s Horror Revivals
+
+TV, Crystal Lake, Friday The 13th, Horror
+
+Thu, 01 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/peacock-crystal-lake-changing-horror-revival-rules/
+
+Crystal Lake is set to breathe new life into not only Friday the 13th, but potentially other '80s horror franchises as well.
+---------
+
+# Netflix’s 104M-View Thriller Team Sets New Book Adaptation After Making 2026's No. 1 Most-Watched Show
+
+TV, His & Hers
+
+Thu, 01 Oct 2026 00:49:28 GMT
+
+https://www.cbr.com/his-hers-team-alice-feeney-twist/
+
+They found their follow-up show after developing the most-watched series of the year.
+---------
+
+# 5 Biggest Chase Cards In Magic: The Gathering's Reality Fracture Set
+
+Games, Magic: The Gathering, trading cards, TCG, Tabletop
+
+Thu, 01 Oct 2026 00:45:11 GMT
+
+https://www.cbr.com/magic-the-gathering-reality-fracture-chase-cards/
+
+Reality Fracture is the newest Magic: The Gathering set and some of the biggest chase cards are already emerging on the market.
+---------
+
+# Apple TV’s New 6-Part Mystery Series Is Quickly Becoming a Streaming Favorite
+
+TV, Last Seen, Apple TV, Mystery
+
+Thu, 01 Oct 2026 00:30:11 GMT
+
+https://www.cbr.com/last-seen-thriller-apple-tv-success-september-2026/
+
+This Stephen King-approved thriller is rising on the streaming charts.
+---------
+
+# 1 Year Later, Solo Leveling Producer Confirms Release Date Coming 'Very Soon'
+
+Anime, Solo Leveling
+
+Thu, 01 Oct 2026 00:20:11 GMT
+
+https://www.cbr.com/solo-leveling-karma-release-date-very-soon-producer-reveal/
+
+The ongoing uncertainty around Solo Leveling: Karma's release date is starting to make more sense following a new interview with the game's producers.
+---------
+
+# Taylor Sheridan’s ‘Landman’ Officially Returns in First Look at Season 3
+
+TV News, Landman, Taylor Sheridan, Billy Bob Thornton, Paramount Plus
+
+Thu, 01 Oct 2026 01:30:12 GMT
+
+https://collider.com/taylor-sheridan-landman-season-3-first-look-images/
+
+The stars of Taylor Sheridan's Landman have officially confirmed the start of Season 3's filming with some new images.
+---------
+
+# 7 Near-Perfect Thriller Books From the Last 20 Years, Ranked
+
+Books and Comics, Thriller, Books, Gillian Flynn, Slow Horses
+
+Thu, 01 Oct 2026 01:13:12 GMT
+
+https://collider.com/near-perfect-thriller-books-last-20-years-ranked/
+
+From Gone Girl to Razorblade Tears, these thrillers prove the best suspense stories leave plenty behind after the mystery is solved.
+---------
+
+# Jason Sudeikis Officially Broke From His 'Ted Lasso' Formula in This Twisty Psychological Thriller
+
+Movie Features, Colossal, Jason Sudeikis, Anne Hathaway, Ted Lasso
+
+Thu, 01 Oct 2026 01:03:12 GMT
+
+https://collider.com/colossal-jason-sudeikis-anne-hathaway-streaming-paramount-plus-october-2026/
+
+The 2017 Anne Hathaway sci-fi thriller Colossal showed that even Jason Sudeikis has a dark side, as the Ted Lasso star took on the rare villain role.
+---------
+
+# Netflix’s 8-Part Sci-Fi Masterpiece Officially Recruits a Taylor Sheridan Favorite
+
+TV News, Netflix, Black Mirror, Emma Laird, Taylor Sheridan
+
+Thu, 01 Oct 2026 01:00:12 GMT
+
+https://collider.com/netflix-black-mirror-season-8-cast-emma-laird/
+
+Black Mirror is officially returning for Season 8, bringing more tech-driven dystopias and a newstar in a Taylor Sheridan veteran.
+---------
+
+# Harlan Coben Confirms ‘Reacher’ and ‘Bosch’ Inspired His New Crime Series [Exclusive]
+
+TV News, Harlan Coben, Untitled Myron Bolitar Series, Reacher, Bosch
+
+Thu, 01 Oct 2026 01:00:12 GMT
+
+https://collider.com/harlan-coben-new-series-reacher-bosch-comparison-myron-bolitar/
+
+Harlan Coben says Netflix’s Myron Bolitar is planned as an ongoing series, comparing its potential to Reacher and Bosch.
+---------
+
+# 'Scrubs' Revival Is Officially Fixing Its Mistakes For an Even Better Season 2 | Review
+
+TV Reviews, Zach Braff, Donald Faison, Scrubs, Hulu
+
+Thu, 01 Oct 2026 01:00:12 GMT
+
+https://collider.com/scrubs-revival-season-2-review/
+
+Scrubs feels much more confident about what the revival wants to be with its Season 2 return, which focuses more on the characters and comedy.
+---------
+
+# Jodie Whittaker Officially Returns to ‘Doctor Who’ Ahead of The BBC’s Sci-Fi Reboot
+
+TV News, Doctor Who, Science Fiction, Jodie Whittaker, The Big Finish
+
+Thu, 01 Oct 2026 00:45:12 GMT
+
+https://collider.com/doctor-who-jodie-whittaker-return-armageddon-dawn/
+
+Jodie Whittaker is officially returning to Doctor Who following The BBC's plans to reboot the long-running sci-fi series.
+---------
+
+# Netflix’s ‘Off Campus’ Rival Officially Finds Its Stellar Cast in 'Moana' and 'Rivals' Stars
+
+TV News, Netflix, Off Campus, Moana, Rivals
+
+Thu, 01 Oct 2026 00:30:12 GMT
+
+https://collider.com/netflix-icebreaker-adaptation-cast-gabriel-tierney-aulii-cravalho/
+
+Netflix's ambitious answer to Off Campus has officially added recognizable stars from Rivals, Moana, and more.
+---------
+
+# Matt Damon’s Action Hero Icon Officially Returns With Major New Release
+
+Movie News, Matt Damon, Netflix, Jason Bourne, The Bourne Identity
+
+Thu, 01 Oct 2026 00:15:12 GMT
+
+https://collider.com/matt-damon-jason-bourne-franchise-netflix-release-date-october-2026/
+
+Matt Damon's Jason Bourne is officially back with a new release launching the first week of October. Read on for more.
+---------
+
+# 5 Best 'South Park' Episodes of the Last 5 Years, Ranked
+
+TV, South Park, Animation, Comedy, Sitcom
+
+Thu, 01 Oct 2026 00:06:11 GMT
+
+https://collider.com/best-south-park-episodes-last-5-years-ranked/
+
+Although South Park is far past its golden age, the adult animated sitcom has still given audiences great episodes, like Season 26's "Deep Learning."
+---------
+
+# Prime Video’s Greatest Action Thriller Is So Good, Two More Seasons Are Coming
+
+Features, Reacher, Action, Thriller
+
+Thu, 01 Oct 2026 01:00:15 GMT
+
+https://movieweb.com/reacher-prime-seasons-renewal/
+
+Prime Video's international action thriller streaming sensation hasn't missed yet, and the streamer is so confident it's been renewed in advance.
+---------
+
+# Who Every 'Scrubs' Legacy Character Is Now Mentoring in the Revival
+
+TV Lists, Scrubs, Comedy
+
+Thu, 01 Oct 2026 01:00:15 GMT
+
+https://movieweb.com/scrubs-revival-legacy-characters-mentors/
+
+The dynamic between JD and Dr. Cox is one of the best parts of the classic 'Scrubs' run, and the revival is trying to replicate it. Read on for more.
+---------
+
+# 11 Most Powerful Sci-Fi Creatures in the Alien Franchise
+
+Movie Lists, Alien, Sci-Fi
+
+Thu, 01 Oct 2026 00:00:15 GMT
+
+https://movieweb.com/alien-franchise-most-powerful-creatures/
+
+The Alien series features an eclectic array of nightmarish sci-fi creatures beyond the franchise's famous Xenomorphs.
+---------
+
+# 22 Years Later, Nicolas Cage's Action-Adventure Classic Sets New Release Ahead of Long-Awaited Sequel
+
+Movie News, National Treasure, Nicolas Cage, Action, Adventure, Blu-ray
+
+Wed, 30 Sep 2026 23:01:14 GMT
+
+https://movieweb.com/national-treasure-nicolas-cage-4k-blu-ray-release/
+
+Disney is releasing a 4K Blu-ray steelbook of Nicolas Cage's action-adventure classic 'National Treasure' ahead of the new sequel.
+---------
+
 # Bestselling Author Of Jon Bernthal’s Record-Breaking Netflix Hit Sets New Mystery Series Adaptation
 
 TV, His & Hers, Netflix
