@@ -1,3 +1,344 @@
+# East Of Eden Review: Florence Pugh Soars In Netflix's Stiff Adaptation Of John Steinbeck's Magnum Opus
+
+TV, East of Eden
+
+Thu, 01 Oct 2026 07:01:15 GMT
+
+https://screenrant.com/east-of-eden-show-review-netflix/
+
+As Cathy Ames, Florence Pugh embodies one of literature's best characters, but Netflix's John Steinbeck adaptation feels stiff and subdued.
+---------
+
+# The Expanse Is Officially Replacing Its Main Character In New Release
+
+Gaming, The Expanse, PC
+
+Thu, 01 Oct 2026 06:30:16 GMT
+
+https://screenrant.com/expanse-osiris-reborn-new-main-character-confirmed/
+
+The sci-fi masterpiece series The Expanse is replacing its original crew in the franchise's highly anticipated 2027 return.
+---------
+
+# Star Trek: The Next Generation Officially Returns This Month
+
+Gaming, Star Trek: The Next Generation, Star Trek, PC
+
+Thu, 01 Oct 2026 05:30:15 GMT
+
+https://screenrant.com/star-trek-next-generation-fluxx-october-2026-psa/
+
+Star Trek: The Next Generation is making an official return in October with the long-awaited release of a brand-new adaptation.
+---------
+
+# HBO's 10-Part Stephen King Masterpiece Deserves Kudos For Avoiding A Common Adaptation Mistake
+
+TV, Masked Recs
+
+Thu, 01 Oct 2026 05:29:15 GMT
+
+https://screenrant.com/the-outsider-hbo-stephen-king-series-avoid-adaptation-problem/
+
+HBO's chilling Stephen King series wisely resisted easy reinvention by leaning into slow-building suspense, layered characters, and unexpected twists.
+---------
+
+# New Star Trek Movie Not Set In J.J. Abrams’ Kelvin Timeline & Has No Legacy Characters, Filmmakers Confirm
+
+Movies, Star Trek
+
+Thu, 01 Oct 2026 05:00:15 GMT
+
+https://screenrant.com/star-trek-new-movie-different-timeline-not-jj-abrams-kelvin-no-legacy-characters/
+
+Filmmakers John Francis Daley and Jonathan Goldstein discuss when the new Star Trek movie they're writing is set and what tone they're going for.
+---------
+
+# Gundam: Stardust Trails Officially Releases This Month
+
+Gaming, Gundam, Mobile Suit Gundam ZZ, tabletop games
+
+Thu, 01 Oct 2026 04:30:15 GMT
+
+https://screenrant.com/gundam-stardust-trails-october-2026-release/
+
+Gundam: Stardust Trails is officially releasing toward the end of October 2026, bringing iconic Mobile Suits from Gundam ZZ into the fray.
+---------
+
+# It's Official: Dungeon Crawler Carl Returns Next Month
+
+Gaming, Dungeon Crawler Carl, Dungeons & Dragons
+
+Thu, 01 Oct 2026 04:15:16 GMT
+
+https://screenrant.com/dungeon-crawler-carl-unstoppable-november-2026-psa/
+
+New Dungeon Crawler Carl content is officially coming this November, thanks to the Iron Tangle Expansion that will be arriving next month.
+---------
+
+# A Knight Of The Seven Kingdoms Returns October 21 In The Brightflame
+
+Gaming, A Knight Of The Seven Kingdoms, Game of Thrones, Game of Thrones: Legends, PC
+
+Thu, 01 Oct 2026 04:00:21 GMT
+
+https://screenrant.com/game-of-thrones-legends-brightflame-reveal/
+
+A Knight of the Seven Kingdom's most iconic characters return on October 21 in a brand-new Game of Thrones release titled The Brightflame.
+---------
+
+# Star Wars Meets Star Trek In The New Sci-Fi Masterpiece From The Creator Of 2020's Biggest Superhero Series
+
+Comics, Masked Recs
+
+Thu, 01 Oct 2026 03:58:29 GMT
+
+https://screenrant.com/void-rivals-star-wars-meets-star-trek/
+
+Star Trek-style encounters turn Star Wars on its head in what might become one of the best sci-fi comics ever written.
+---------
+
+# Transformers: 20 Greatest Quotes From The Live-Action Films
+
+Movies, Transformers
+
+Thu, 01 Oct 2026 03:56:18 GMT
+
+https://screenrant.com/transformers-20-greatest-quotes-from-the-live-action-films-ranked/
+
+Let's take a look back of some the greatest, most memorable, hilarious, and absolutely unhinged quotes from the live-action Transformers movies.
+---------
+
+# Verity Review: Anne Hathaway Makes Colleen Hoover’s Twisted Thriller Worth Watching
+
+Movies, Verity, anne hathaway, josh hartnett
+
+Thu, 01 Oct 2026 06:15:17 GMT
+
+https://www.cbr.com/verity-review/
+
+Anne Hathaway elevates Colleen Hoover’s erotic thriller adaptation Verity despite uneven pacing and melodrama.
+---------
+
+# Forgotten Island Is Mandatory Viewing For KPop Demon Hunters Fans
+
+Movies, Forgotten Island, KPop Demon Hunters
+
+Thu, 01 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/forgotten-island-kpop-demon-hunters-replacement-movie/
+
+Universal Pictures' latest original animated film with a 95% on Rotten Tomatoes is the perfect follow-up to KPop Demon Hunters.
+---------
+
+# 10 Hardest '90s Games of All Time, Ranked
+
+Games, retro games
+
+Thu, 01 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/hardest-90s-games-of-all-time-ranked-list/
+
+Games like Super Star Wars and Ninja Gaiden 2 are some of the hardest games of the '90s.
+---------
+
+# 10 Best Peanuts Comics That Are Over 50 Years Old, Ranked
+
+Comics, Peanuts
+
+Thu, 01 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/best-peanuts-comics-over-fifty-years-old-ranked/
+
+These classic Peanuts strips capture the humor and heart of Schulz's work, showcasing moments that still resonate with fans decades later.
+---------
+
+# No Crunchyroll Required: Dragon Ball Super: Beerus Is Coming to Netflix U.S. This October
+
+Anime, Dragon Ball, Dragon Ball Super: Beerus, Netflix
+
+Thu, 01 Oct 2026 03:29:22 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-netflix-us-october-2026/
+
+Dragon Ball Super: Beerus lands a new streaming home as Netflix officially confirms its U.S. premiere for October 17.
+---------
+
+# 10 JRPGs That Are 10/10 Masterpieces
+
+Games, JRPG, RPG
+
+Thu, 01 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/most-perfect-jrpgs-all-time-ranked-list/
+
+JRPGs like Final Fantasy VI and Persona 5 Royal are masterpieces in every sense of the word.
+---------
+
+# Gundam Revives a 20-Year-Old Mecha Series With Legendary Original Designer
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam SEED, merchandise, toys, Mobile Suit Gundam SEED Freedom, bandai
+
+Thu, 01 Oct 2026 03:05:11 GMT
+
+https://www.cbr.com/gundam-seed-freedom-msv-reveal/
+
+A spinoff that introduced several all-new mobile suits is set to be revived as part of Bandai's renewed push of Gundam SEED and the Cosmic Era.
+---------
+
+# 5 Masterpiece Supernatural Anime Better Than Jujutsu Kaisen
+
+Anime, Jujutsu Kaisen
+
+Thu, 01 Oct 2026 02:45:11 GMT
+
+https://www.cbr.com/masterpiece-supernatural-anime-better-than-jjk-list/
+
+Anime like Death Note are even better than Jujutsu Kaisen at its peak.
+---------
+
+# 10 Most Valuable First Edition Pokémon Cards of All Time, Ranked by Price
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG
+
+Thu, 01 Oct 2026 02:30:13 GMT
+
+https://www.cbr.com/pokemon-most-valuable-first-edition-cards-ranked-by-price/
+
+Many classic Pokémon TCG sets had 1st Edition stamps on them, but some are more expensive than others.
+---------
+
+# 10 Best Horror Games Since 2020, Ranked
+
+Games, Horror, horror games, Silent Hill, Resident Evil
+
+Thu, 01 Oct 2026 02:30:13 GMT
+
+https://www.cbr.com/best-horror-games-since-2020/
+
+There's been a horror resurgence in recent years. From Pacific Drive to Zoochosis, these are the best horror games released since 2020.
+---------
+
+# Florence Pugh's 'East of Eden' Puts a Modern, Riveting Twist on the Classic American Novel | Review
+
+TV Reviews, East of Eden, Netflix, Zoe Kazan, Florence Pugh
+
+Thu, 01 Oct 2026 07:01:11 GMT
+
+https://collider.com/east-of-eden-netflix-review-florence-pugh-john-steinbeck/
+
+Zoe Kazan's East of Eden is a faithful, bold adaptation of Steinbeck's classic novel, compellingly led by Florence Pugh.
+---------
+
+# Tom Cruise's Forgotten 154-Minute Historical Epic Is Dominating Streaming
+
+Movie Features, Tom Cruise, The Last Samurai
+
+Thu, 01 Oct 2026 04:07:11 GMT
+
+https://collider.com/tom-cruise-last-samurai-hbo-max-streaming-october-2026/
+
+Tom Cruise's 2003 film, The Last Samurai, is seeing a major resurgence on HBO Max, with audiences tuning in to the historical epic set in 1800s Japan.
+---------
+
+# 14 Years Later, the Coldest Quote in Sci-Fi Gaming Still Hits Hard
+
+Gaming, Video Game, Mass Effect 3, Science Fiction, Action
+
+Thu, 01 Oct 2026 04:05:11 GMT
+
+https://collider.com/mass-effect-3-best-quote-still-hits-2026/
+
+The world of gaming has many badass quotes, none more memorable than Javik's cold, pragmatic declaration in the 2012 sci-fi masterpiece Mass Effect 3.
+---------
+
+# Blade Officially Returns Following Marvel’s Failed Reboot
+
+Movie News, Blade, Blade II, Blade: Trinity, Marvel
+
+Thu, 01 Oct 2026 03:40:11 GMT
+
+https://collider.com/blade-trilogy-streaming-peacock-october-2026/
+
+Marvel's Blade reboot may be dead, but fans can soon revisit the vampire hunter as Wesley Snipes' trilogy finds a new streaming home.
+---------
+
+# Keanu Reeves’ Disastrous Sci-Fi Remake Officially Returns as a Streaming Hit
+
+Movie News, Keanu Reeves, The Day the Earth Stood Still, Sci-Fi, Apple TV
+
+Thu, 01 Oct 2026 03:30:11 GMT
+
+https://collider.com/keanu-reeves-the-day-the-earth-stood-still-streaming-success-apple-tv-september-2026/
+
+Keanu Reeves’ reimagining of a sci-fi classic is officially making a streaming comeback 18 years after flopping in theaters.
+---------
+
+# Guillermo del Toro Officially Breaks Silence on Cancelled ‘Bioshock’ Adaptation
+
+Movie News, BioShock, BioShock Infinite, Guillermo del Toro, Sci-Fi
+
+Thu, 01 Oct 2026 03:20:12 GMT
+
+https://collider.com/guillermo-del-toro-cancelled-bioshock-movie-response/
+
+Guillermo del Toro officially explains why his adaptation of the hit game Bioshock never saw the light of day. Read on for more.
+---------
+
+# 10 Forgettable Movies That Somehow Won Oscars
+
+Movie, Academy Awards, Wonder Boys, What Dreams May Come, Mank
+
+Thu, 01 Oct 2026 03:19:12 GMT
+
+https://collider.com/forgettable-movies-won-oscars/
+
+Wonder Boys, What Dreams May Come, and Mank are pretty mediocre, forgettable movies that somehow won Oscars.
+---------
+
+# Prime Video's Near-Perfect 'Reacher' Spin-Off Is Officially Influencing Lee Child’s Books
+
+TV Features, Neagley, Reacher, Lee Child, Maria Sten
+
+Thu, 01 Oct 2026 03:15:11 GMT
+
+https://collider.com/prime-video-reacher-spinoff-neagley-lee-child-books/
+
+Reacher's new spin-off Neagley is officially influencing the book series, with a new novel centered on the character in the works from Lee Child.
+---------
+
+# Netflix Officially Finds Its Golden Ticket in Hit Willy Wonka Reboot
+
+TV News, Netflix, Wonka, Wonka's The Golden Ticket, Streaming
+
+Thu, 01 Oct 2026 03:13:45 GMT
+
+https://collider.com/netflix-wonkas-the-golden-ticket-streaming-success-september-2026/
+
+Netflix's divisive new Willy Wonka series is officially taking over the world, becoming one of Netflix's most-watched reality shows ever.
+---------
+
+# Xbox Officially Confirms New Replacement for Physical Media
+
+Gaming News, Microsoft Xbox, Xbox Series X/S, Xbox One, Microsoft
+
+Thu, 01 Oct 2026 03:07:23 GMT
+
+https://collider.com/xbox-disc-to-digital-licensing-feature/
+
+Xbox's latest feature is dividing gamers by offering a new approach to physical games as the industry shifts further toward digital.
+---------
+
+# 20 Years Later, 'Scrubs' Officially Fixes JD's Biggest Mistake
+
+Features, Scrubs, John C. McGinley, Zach Braff, Comedy, Hulu
+
+Thu, 01 Oct 2026 02:00:26 GMT
+
+https://movieweb.com/scrubs-revival-jd-mentor-grant-cabbage/
+
+Season 2, Episode 2 of the 'Scrubs' revival sees JD take on a mentee, but thankfully he doesn't pick another Cabbage, like in Season 5 of the OG run.
+---------
+
 # Clint Eastwood & Michael Connelly’s 110-Minute Mystery Thriller Introduces Bosch's Replacement
 
 Streaming TV, Clint Eastwood, Michael Connelly
