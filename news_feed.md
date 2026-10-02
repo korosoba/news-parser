@@ -1,3 +1,388 @@
+# Ridley Scott's 18-Episode Sci-Fi Series On HBO Is So Good, It Demands To Be Seen Twice
+
+Streaming TV, Masked Recs, Ridley Scott
+
+Fri, 02 Oct 2026 05:35:16 GMT
+
+https://screenrant.com/raised-by-wolves-ridley-scott-hbo-sci-fi-watched-twice/
+
+Ridley Scott might be known for movies, but his underrated sci-fi TV show is so complex that audiences have to watch it twice for the full impact.
+---------
+
+# Dungeon Crawler Carl: Princess Donut Officially Releases Next Month
+
+Gaming, Dungeon Crawler Carl, PC
+
+Fri, 02 Oct 2026 05:30:16 GMT
+
+https://screenrant.com/dungeon-crawler-carl-princess-donut-dice-set-release/
+
+Dungeon Crawler Carl: Princess Donut will officially be available in November 2026, giving fans a brand-new release ahead of The Beautiful Place.
+---------
+
+# The Legend Of Zelda: Twilight Princess Is Finally Getting The Remaster It Deserves
+
+Gaming, The Legend of Zelda: Twilight Princess, The Legend of Zelda, Triple-A Games, PC
+
+Fri, 02 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/legend-of-zelda-twilight-princess-dusklight-remaster/
+
+Twilight Princess has been left behind for a decade now, but there's finally an option to make it look even better than the Wii U version.
+---------
+
+# Final Fantasy 9: A Place To Call Home Officially Arrives This Month
+
+Gaming, Final Fantasy 9, Triple-A Games
+
+Fri, 02 Oct 2026 04:30:15 GMT
+
+https://screenrant.com/final-fantasy-9-place-to-call-home-october-2026-psa/
+
+For all the droves of fans out there for Final Fantasy 9, A Place To Call Home is finally coming this month after months of teases.
+---------
+
+# Backrooms Officially Returns 2027 In Shadow Of The Backrooms
+
+Gaming, Backrooms, PC, Steam
+
+Fri, 02 Oct 2026 04:15:16 GMT
+
+https://screenrant.com/shadow-of-the-backrooms-2027-release-date/
+
+Fans of Backrooms' liminal and surreal atmospheric horror will want to mark their calendars for Shadow of the Backrooms, coming in 2027.
+---------
+
+# Verity Ending Explained: Who Dies In The Movie & What Really Happened To Verity?
+
+Movies, Verity
+
+Fri, 02 Oct 2026 04:01:16 GMT
+
+https://screenrant.com/verity-ending-explainer/
+
+Anne Hathaway and Dakota Johnson's new thriller, Verity, has an action-packed, plot twist-heavy ending; here's everything you need to know.
+---------
+
+# 7 Years Ago, Breaking Bad Replaced Walter White In A Spinoff That Barely Lasted A Year
+
+Gaming, Breaking Bad, PC
+
+Fri, 02 Oct 2026 04:00:21 GMT
+
+https://screenrant.com/breaking-bad-walter-white-replacement-criminal-elements-bad/
+
+Breaking Bad attempted to replace Walter White as the main character in this absolutely abysmal spinoff that was cancelled after a year.
+---------
+
+# Naruto's Newest Official Release May Have Just Confirmed More Boruto Anime Soon
+
+Anime, Naruto
+
+Fri, 02 Oct 2026 03:59:16 GMT
+
+https://screenrant.com/naruto-boruto-two-blue-vortex-new-anime-special-movie/
+
+New York Comic Con has already got more Naruto anime news virtually guaranteed to please fans, but its sequel series has more in the works too.
+---------
+
+# The Witcher Officially Ends An Era In 2027
+
+Streaming TV, The Witcher
+
+Fri, 02 Oct 2026 03:45:16 GMT
+
+https://screenrant.com/the-witcher-2027-final-season-end-netflix-era/
+
+Netflix's The Witcher will officially see the end of an era in 2027, but it might not be the definitive end for the world of Geralt and Ciri.
+---------
+
+# 10 Most-Anticipated Comics Releasing In October 2026
+
+Comics, DC Comics, Marvel, image comics, IDW Publishing
+
+Fri, 02 Oct 2026 02:30:16 GMT
+
+https://screenrant.com/most-anticipated-comics-october-2026/
+
+DC’s Absolute Batman, Marvel Comics’ Miles Morales: Spider-Man, IDW’s Any Given Smile, and more rank among the top upcoming read in October.
+---------
+
+# The Sci-Fi Monster Movie Tarantino Calls 'Like Spielberg in His Prime' Returns to Theaters
+
+Movies, The Host
+
+Fri, 02 Oct 2026 03:57:24 GMT
+
+https://www.cbr.com/bong-joon-ho-the-host-return-theaters-20th-anniversary/
+
+The acclaimed feature has been called one of the greatest monster movies ever made.
+---------
+
+# 10 Strongest Predacons in Transformers, Ranked by Power
+
+Anime, Transformers
+
+Fri, 02 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/transformers-strongest-predacons-ranked-by-power/
+
+The Predacons aren't always brought up in discussions about the strongest Transformers, but they shouldn't be underestimated.
+---------
+
+# Stephen King's 2-Episode Horror Series Quietly Scared More Kids Than Any Movie
+
+TV, Salem's Lot
+
+Fri, 02 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/stephen-king-underrated-salems-lot-miniseries-scared-kids/
+
+With just two terrifying episodes, the Stephen King miniseries scared an entire generation of audiences by redefining monsters for the modern age.
+---------
+
+# Every Major Peanuts Character & The Comic They Debuted In, By Decade
+
+Comics, Peanuts
+
+Fri, 02 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/every-major-peanuts-character-comic-they-debuted-in-by-decade/
+
+Every major Peanuts character was introduced relatively early in the strip's run, as those earliest decades helped to define its prominent characters.
+---------
+
+# Beavis and Butt-Head Sets TV Return Date for What Could Be Paramount's Final Season
+
+TV, Beavis and Butt-Head
+
+Fri, 02 Oct 2026 03:23:01 GMT
+
+https://www.cbr.com/beavis-and-butt-head-season-4-comedy-central-release-date/
+
+Pop culture's most dimwitted duo are soon returning to television with all-new episodes.
+---------
+
+# 10 Best '80s Arcade Games of All Time, Ranked
+
+Games, retro games, Arcade
+
+Fri, 02 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/greatest-80s-arcade-games-ranked-list/
+
+Arcade games dominated in the '80s, and franchises like Donkey Kong and Pac-Man became all-time classics.
+---------
+
+# Mike Flanagan’s Stephen King Remake Debuts With Lower RT Score Than 50-Year-Old Original
+
+TV, Carrie
+
+Fri, 02 Oct 2026 02:50:17 GMT
+
+https://www.cbr.com/prime-video-carrie-rotten-tomatoes-score/
+
+They're all gonna laugh at you!
+---------
+
+# Transformers Officially Brings Back Its Most Colorful G1-Era Spinoff for 20th Anniversary
+
+Anime, Transformers, merchandise, toys
+
+Fri, 02 Oct 2026 02:50:11 GMT
+
+https://www.cbr.com/transformers-kiss-players-20th-anniversary-cassettetron-set-reveal/
+
+A new trio of toys and acrylic stands homages one of Takara Tomy's strangest and most contentious entries within the Transformers franchise.
+---------
+
+# 10 Cartoon Network Anime Where Every Episode Is a Masterpiece
+
+Anime, toonami, Cartoon Network
+
+Fri, 02 Oct 2026 02:45:11 GMT
+
+https://www.cbr.com/cartoon-network-anime-masterpiece-every-episode/
+
+Cartoon Network's Toonami lineup introduced lots of anime to American audiences, but some shows clearly had something special going on.
+---------
+
+# Every 3D Zelda Game, Ranked Worst to Best
+
+Games, Video Games, The Legend of Zelda
+
+Fri, 02 Oct 2026 02:15:11 GMT
+
+https://www.cbr.com/every-3d-zelda-game-ranked/
+
+Each 3D Zelda game offers something special, changing the franchise’s formula and introducing new gameplay mechanics that make each one stand out.
+---------
+
+# Disney's 5-Part Fantasy Franchise Is Officially the Best of the Year
+
+Movie Features, Toy Story, Disney+, Tom Hanks, Tim Allen
+
+Fri, 02 Oct 2026 04:15:11 GMT
+
+https://collider.com/toy-story-greatest-franchise-dominating-on-disney/
+
+Toy Story is one of the greatest franchises and continues to move viewers decades after the first movie premiered.
+---------
+
+# The Intense Reaction to 2026's Biggest Games Exposes an Even Bigger Problem
+
+Gaming, Video Game, Marvel's Wolverine, Grand Theft Auto, Action
+
+Fri, 02 Oct 2026 04:08:11 GMT
+
+https://collider.com/2026-video-games-marvels-wolverine-gta-6-reaction-problem-gaming-culture/
+
+The intense reaction to games like Marvel's Wolverine and GTA 6 points to questionable behaviors increasingly prevalent in the modern gaming industry.
+---------
+
+# 7 Most Perfect K-Dramas of the Last 10 Years, Ranked
+
+TV, South Korea, When Life Gives You Tangerines, Extraordinary Attorney Woo, It's Okay to Not Be Okay
+
+Fri, 02 Oct 2026 04:07:12 GMT
+
+https://collider.com/most-perfect-k-dramas-last-10-years-ranked/
+
+Extraordinary Attorney Woo, It's Okay to Not Be Okay, and Hospital Playlist are among the best K-dramas of the last decade, but which is the greatest?
+---------
+
+# With 1.4 Billion Views, Greg Davies & Alex Horne Aren’t Changing ‘Taskmaster’
+
+Interviews, Taskmaster, YouTube, Channel 4, Sketch comedy
+
+Fri, 02 Oct 2026 03:04:12 GMT
+
+https://collider.com/taskmaster-season-22-greg-davies-alex-horne-interview/
+
+Greg Davies and Alex Horne discuss Taskmaster Season 22, casting comedians, contestants’ loopholes, and the show’s growing North American audience.
+---------
+
+# James Bond Meets Quentin Tarantino in This Cult Classic Spy Thriller
+
+Movie Features, Héléne Cattet, Thriller, Quentin Tarantino, James Bond
+
+Fri, 02 Oct 2026 03:03:11 GMT
+
+https://collider.com/reflections-in-a-dead-diamond-james-bond-quentin-tarantino-streaming-shudder-october-2026/
+
+Reflection In a Dead Diamond takes a classic James Bond-style spy story and runs it through a psychedelic, Tarantino-like filter.
+---------
+
+# Disney+ Finds Its Next Global Hit in ABC’s Newest 80%-Rated Crime Series
+
+TV Features, R.J. Decker, Disney Plus, ABC, Hulu
+
+Fri, 02 Oct 2026 01:43:11 GMT
+
+https://collider.com/rj-decker-abc-series-disney-plus-global-streaming-charts-october-2026/
+
+ABC's detective series RJ Decker is a huge hit worldwide, thanks to its leading man and breezy storytelling.
+---------
+
+# ‘Avengers: Endgame Encore’ Officially Makes Marvel’s Best Series Required Viewing
+
+TV Features, Loki, Avengers: Endgame Encore, Marvel Studios, Disney+
+
+Fri, 02 Oct 2026 01:36:11 GMT
+
+https://collider.com/avengers-endgame-encore-loki-marvel-best-series-required-viewing/
+
+Avengers: Endgame Encore updates the original film with new scenes, making one MCU series required viewing before Doomsday.
+---------
+
+# Jon Bernthal’s Mega-Hit Crime Thriller Officially Gets a Spiritual Follow-Up
+
+TV News, His & Hers, Netflix, Jon Bernthal, Tessa Thompson
+
+Fri, 02 Oct 2026 01:30:12 GMT
+
+https://collider.com/his-and-hers-replacement-series-alice-feeney-adaptation-twist/
+
+William Oldroyd, creator of one of Netflix's most-watched series, His & Hers, is bringing another Alice Feeney book to life. Here's all to know.
+---------
+
+# Andrew Garfield’s 65% Rotten Tomatoes Audience Score Epic Officially Hits Streaming
+
+Movie News, Andrew Garfield, The Uprising, Paul Greengrass, Box Office
+
+Fri, 02 Oct 2026 01:00:12 GMT
+
+https://collider.com/andrew-garfield-cosmo-jarvis-the-uprising-streaming-pvod-debut-october-2026/
+
+Andrew Garfield's new period action movie, The Uprising, has been released on the PVOD market less than three weeks after its theatrical debut.
+---------
+
+# Anne Hathaway's New Thriller Officially Stumbles in Rotten Tomatoes Debut
+
+Movie News, Anne Hathaway, Verity, Colleen Hoover, Rotten Tomatoes
+
+Fri, 02 Oct 2026 00:30:12 GMT
+
+https://collider.com/anne-hathaway-verity-rotten-tomatoes-score-is-it-good/
+
+After an incredible year with The Odyssey and Devil Wears Prada 2, Anne Hathaway's newest movie isn't earning the same praise.
+---------
+
+# 'American Horror Story: 13' Episode 5's Major Killer Return Explained by Star
+
+Exclusives, American Horror Story, Horror, Thriller, Ryan Murphy
+
+Fri, 02 Oct 2026 05:33:14 GMT
+
+https://movieweb.com/american-horror-story-13-killer-return-elle-chapman/
+
+'American Horror Story' Season 13 is airing on FX and streaming on Hulu/Disney+, and brings back characters from Ryan Murphy's horror anthology.
+---------
+
+# ‘Quantum Leap’ Meets ‘Sherlock Holmes’ In a Sleeper Hit Sci-Fi Thriller You Can Binge in a Day
+
+Features, Sci-Fi, Thriller, Bodies, Netflix
+
+Fri, 02 Oct 2026 02:30:15 GMT
+
+https://movieweb.com/bodies-quantum-leap-sherlock-comparison/
+
+This ambitious sci-fi thriller is an 8-episode sleeper hit that combines elements from Quantum Leap with Sherlock Holmes.
+---------
+
+# 6 Biggest Questions After 'Digger's Mind-Blowing Ending, Explained
+
+Movie Lists, Digger
+
+Fri, 02 Oct 2026 02:03:19 GMT
+
+https://movieweb.com/digger-biggest-questions-explained/
+
+Tom Cruise's new epic has so many layers to unravel. Let's break down all the main beats.
+---------
+
+# 8 Perfect Thriller Miniseries That Get More Intense With Every Episode
+
+TV Lists, Thriller, I Will Find You, The Stranger, The Undoing
+
+Fri, 02 Oct 2026 02:00:24 GMT
+
+https://movieweb.com/thriller-miniseries-more-intense-every-episode/
+
+These thriller miniseries are so intense and compelling that they keep revealing plot twists and red herrings in every episode.
+---------
+
+# 21 Years Later, Aragorn's Wisest 'Lord of the Rings' Quote Still Defines the Whole Franchise
+
+Features, The Lord of the Rings, The Lord of the Rings: The Two Towers, Fantasy
+
+Fri, 02 Oct 2026 01:00:15 GMT
+
+https://movieweb.com/lord-of-the-rings-aragorn-hope-quote/
+
+Aragorn's wisest 'Lord of the Rings' quote is one of the simplest bits of dialogue from the trilogy, but it defines the entire fantasy franchise.
+---------
+
 # Lili Reinhart's The Love Hypothesis Just Hit #1 In 49 Countries — Here's Amazon's Bigger Plan
 
 Books, The Love Hypothesis
