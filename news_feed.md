@@ -1,3 +1,443 @@
+# Yellowstone Is Officially Changing Genres With Spinoff's Season 2 Return
+
+TV, Marshals, Marshals - Season 2, Yellowstone
+
+Fri, 02 Oct 2026 21:08:51 GMT
+
+https://screenrant.com/yellowstone-marshals-season-2-genre-change-legal-drama/
+
+EXCLUSIVE: Taylor Sheridan has played a large role in popularizing the Western genre in recent years, but a Yellowstone spinoff is shaking that up.
+---------
+
+# Verity Ending's Major Changes From Colleen Hoover Novel Explained By Director & Author
+
+Movies, Verity
+
+Fri, 02 Oct 2026 21:01:15 GMT
+
+https://screenrant.com/verity-movie-ending-book-changes-colleen-hoover-michael-showalter/
+
+Exclusive: Verity author Colleen Hoover and Director Michael Showalter reveal why they made some adjustments to the original story for the big screen.
+---------
+
+# A Beloved 1999 PlayStation Franchise Is Finally Returning
+
+Gaming, PlayStation (Original), PlayStation
+
+Fri, 02 Oct 2026 21:01:15 GMT
+
+https://screenrant.com/playstation-ps1-1999-ape-escape-return/
+
+The original PlayStation has an incredible library of classic games, and it looks like one PS1 franchise will finally be returning soon.
+---------
+
+# HBO's Unfinished 4-Part Sci-Fi Thriller Is Officially A Streaming Hit Before Reboot
+
+TV, Masked Recs
+
+Fri, 02 Oct 2026 21:00:06 GMT
+
+https://screenrant.com/hbo-westworld-unfinished-reboot-apple-vod-streaming-success-october-2026/
+
+HBO's 4-part sci-fi thriller series was canceled a season too soon, but it has now returned as a digital hit right before a reboot is set to happen.
+---------
+
+# 3 Best New Netflix Series To Binge-Watch This Weekend (October 2–4, 2026)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 02 Oct 2026 20:54:16 GMT
+
+https://screenrant.com/best-new-netflix-shows-to-binge-weekend-october-2-2026/
+
+Looking for a Netflix series to binge this weekend? These 3 picks include East of Eden, Monster: The Lizzie Borden Story, and A Different World.
+---------
+
+# Tom Cruise's 10 Biggest Opening Weekend Box Office Movies
+
+Classic Movies, Tom Cruise
+
+Fri, 02 Oct 2026 20:45:16 GMT
+
+https://screenrant.com/tom-cruise-movies-box-office-biggest-opening-weekends/
+
+Tom Cruise has headlined some major box office hits, and these 10 movies across multiple decades have had the biggest opening weekends of his career.
+---------
+
+# Lord Of The Rings Meets Dungeon Crawler Carl In Netflix’s Undisputed Best Fantasy Series
+
+Anime, Netflix, Fantasy, Masked Recs
+
+Fri, 02 Oct 2026 20:22:14 GMT
+
+https://screenrant.com/lord-rings-dungeon-crawler-carl-delicious-in-dungeon-netflix/
+
+Fantasy's best new series has graced Netflix and is already rivaling the likes of The Lord of the Rings as a popular adaptation, and deservedly so.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (October 3-4)
+
+Movies, Disney+, Recommendation
+
+Fri, 02 Oct 2026 20:20:17 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-october-3/
+
+The best movies to watch on Disney+ this weekend include a new Avengers special, a fun ghost story, and the Sci-Fi movie that started a hit franchise.
+---------
+
+# DC's 100% RT Cyberpunk Series Is Bruce Wayne & Peter Parker In One
+
+Classic TV, Masked Recs
+
+Fri, 02 Oct 2026 20:13:17 GMT
+
+https://screenrant.com/batman-beyond-dc-cyberpunk-tv-show-like-spider-man/
+
+With its tale of a plucky teen hero with great power and responsibility, Batman Beyond often felt more like a Spider-Man show than a Batman show.
+---------
+
+# Russell Crowe's Netflix Crime Thriller Remains One Of The Biggest Hits On Streaming
+
+Movies, Masked Recs
+
+Fri, 02 Oct 2026 20:02:25 GMT
+
+https://screenrant.com/russell-crowe-unabomber-movie-netflix-hit-streaming/
+
+Russell Crowe's new Netflix crime thriller remains one of the biggest hits on all of streaming, a week after it was released on the service.
+---------
+
+# 4 Anime Series Where the Hero Dies in the Final Battle
+
+Anime, Akame ga Kill!, Devilman Crybaby
+
+Fri, 02 Oct 2026 21:15:11 GMT
+
+https://www.cbr.com/anime-where-the-hero-dies-in-final-battle/
+
+These anime series take their final battles in tragic directions by having their heroes die before the story ends.
+---------
+
+# Underworld Star Kate Beckinsale Wraps Filming on George A. Romero's Final Zombie Movie
+
+Movies, Horror, Twilight of the Dead
+
+Fri, 02 Oct 2026 21:07:58 GMT
+
+https://www.cbr.com/twilight-of-the-dead-wraps-filming-kate-beckinsale/
+
+Kate Beckinsale stars in the "final chapter" of horror legend George A. Romero's zombie saga.
+---------
+
+# Prime Video’s Reacher Replacement Dethrones the Original With 1.8 Billion Minutes Watched
+
+TV, Neagley, Prime Video
+
+Fri, 02 Oct 2026 21:00:11 GMT
+
+https://www.cbr.com/neagley-prime-video-streaming-success-nielsen-september-2026/
+
+Reacher is no longer the top show on Prime Video.
+---------
+
+# 10 Films To Watch if You Cannot Wait for the Legend of Zelda
+
+Movies, The Legend of Zelda
+
+Fri, 02 Oct 2026 21:00:11 GMT
+
+https://www.cbr.com/movies-to-watch-while-waiting-for-the-legend-of-zelda-list/
+
+From The Neverending Story to Pan's Labyrinth, these films are sure to whet the appetite of Legend of Zelda fans.
+---------
+
+# Sony Lands Michael B. Jordan’s New War Movie Based on Hit Video Game Series
+
+Movies, Sony, Michael B. Jordan, Battlefield
+
+Fri, 02 Oct 2026 20:57:37 GMT
+
+https://www.cbr.com/sony-lands-michael-b-jordan-battlefield-movie-based-on-hit-video-game/
+
+The Academy Award-winning Sinners star has sparked a bidding war for his video game adaptation that Sony intends to win.
+---------
+
+# Jurassic World Replaces Rebirth Director With $1.3B Franchise Veteran
+
+Movies, Jurassic World Rebirth, Jurassic Park, Jurassic World Fallen Kingdom
+
+Fri, 02 Oct 2026 20:54:03 GMT
+
+https://www.cbr.com/jurassic-world-rebirth-2-ja-bayona-director/
+
+Jurassic World is looking to bring back the director of one of its highest-grossing sequels for the follow-up to Rebirth.
+---------
+
+# Spy x Family Launches Its Next Major Mission in New Official Trailer
+
+Anime, Spy X Family
+
+Fri, 02 Oct 2026 20:35:11 GMT
+
+https://www.cbr.com/spy-x-family-2-new-trailer-release/
+
+The Forger family returns in a brand-new trailer featuring the stars of Spy x Family's second major stage show adaptation.
+---------
+
+# 8 Movies To Watch If You Love Project Hail Mary
+
+Movies, Project Hail Mary, Sci-Fi, The Martian
+
+Fri, 02 Oct 2026 20:30:11 GMT
+
+https://www.cbr.com/must-watch-movies-if-you-love-project-hail-mary-list/
+
+Project Hail Mary landed in theaters as one of the most thrilling sci-fi flicks, and these space-centric movies make perfect companion pieces.
+---------
+
+# Marvel’s Best Show Is Now Streaming for Free on YouTube Ahead of Sequel (But There’s a Catch)
+
+TV, WandaVision, Marvel Cinematic Universe, VisionQuest
+
+Fri, 02 Oct 2026 20:25:04 GMT
+
+https://www.cbr.com/wandavision-streaming-free-youtube/
+
+Now's the perfect time to catch up with Marvel's best show.
+---------
+
+# 10 Most Unplayable Games on the PS2, Ranked
+
+Games, The Simpsons, ps2, Sony, PlayStation 2
+
+Fri, 02 Oct 2026 20:16:11 GMT
+
+https://www.cbr.com/most-unplayable-ps2-games-ranked/
+
+These PS2 games did the unimaginable, turning a promising experience with tremendous potential, and delivering on nothing that was promised.
+---------
+
+# Sony Officially Finds the Perfect Rival to Taylor Sheridan's 'Call of Duty' Movie
+
+Movie News, Battlefield, Call of Duty, Christopher McQuarrie, Michael B. Jordan
+
+Fri, 02 Oct 2026 21:14:25 GMT
+
+https://collider.com/battlefield-movie-sony-talks-michael-b-jordan/
+
+Christopher McQuarrie and Michael B. Jordan's Battlefield adaptation has officially taken its biggest step forward yet.
+---------
+
+# The 8 Most Fun Books of All Time, Ranked
+
+Books and Comics, Books, Harry Potter, William Goldman, J.R.R. Tolkien
+
+Fri, 02 Oct 2026 21:05:11 GMT
+
+https://collider.com/most-fun-books-all-time-ranked/
+
+Page-turners like Jurassic Park by Michael Crichton and Catch-22 by Joseph Heller are among the most purely fun and entertaining books ever written.
+---------
+
+# This 5-Part Psychological Thriller Pulled Off What Most Horror Prequels Couldn’t
+
+TV Features, Bates Motel, Vera Farmiga, Freddie Highmore, Psycho
+
+Fri, 02 Oct 2026 20:07:13 GMT
+
+https://collider.com/bates-motel-perfect-psycho-prequel-psychological-thriller/
+
+Bates Motel was a modern prequel to Alfred Hitchcock's Psycho and was utterly unafraid of getting weird.
+---------
+
+# 7 Best Anime Series Coming to Crunchyroll and Netflix in October 2026
+
+TV, Anime, Crunchyroll, Netflix
+
+Fri, 02 Oct 2026 20:05:13 GMT
+
+https://collider.com/best-anime-series-crunchyroll-netflix-october-2026/
+
+Returning shows like Black Clover and awaited debuts like The Vermillion Mask are among the best anime coming to Crunchyroll and Netflix this October.
+---------
+
+# The 6 Best Miniseries Released Between 2000 and Now
+
+TV, When They See Us, Chernobyl, HBO, TV Miniseries
+
+Fri, 02 Oct 2026 19:31:11 GMT
+
+https://collider.com/best-miniseries-since-2000/
+
+Chernobyl, When They See Us, and Band of Brothers are among the best miniseries released since the year 2000.
+---------
+
+# 10 Great Sci-Fi Video Games You Haven't Played
+
+Gaming, Video Game, Science Fiction, Battlefield, Action
+
+Fri, 02 Oct 2026 19:29:12 GMT
+
+https://collider.com/sci-fi-video-games-you-have-not-played/
+
+Sci-fi has produced many great video games, many of which remain sadly undiscovered by mainstream fans, including masterpieces like SOMA and EndWar.
+---------
+
+# 20 Best Song Lyrics Everyone Misheard, Ranked
+
+Music Features, Music, Madonna, Pop, Elton John
+
+Fri, 02 Oct 2026 19:20:12 GMT
+
+https://collider.com/best-song-lyrics-everyone-misheard-ranked/
+
+Iconic songs like "Tiny Dancer" by Elton John and "Like a Virgin" by Madonna have famously misheard lyrics. We're here to clarify.
+---------
+
+# Star Wars' Biggest Release of 2026 Is Officially a Masterpiece
+
+Gaming News, Star Wars, Games, Gaming, Video Game
+
+Fri, 02 Oct 2026 19:04:00 GMT
+
+https://collider.com/star-wars-galactic-racer-metacritic-score-is-it-good/
+
+Star Wars' newest release of 2026 has set a new gold standard for the franchise, racing past Maul: Shadow Lord and Zero Company on Metacritic.
+---------
+
+# Harry Potter: How HBO Turns Britain Into One Wizarding World
+
+TV, Originals, Harry Potter
+
+Fri, 02 Oct 2026 18:27:47 GMT
+
+https://collider.com/video/harry-potter-how-hbo-turns-britain-into-one-wizarding-world/
+
+Harry Potter’s new HBO series is turning locations scattered across Britain into one continuous Wizarding World. From connected sets at Leavesden to real streets, forests, villages, and coastlines, the production is combining massive builds with practical locations on an ambitious scale.
+---------
+
+# 5 Crime Shows That Make Every Suspect Look Guilty
+
+TV, Crime, The Wire, Better Call Saul, Mindhunter
+
+Fri, 02 Oct 2026 18:08:12 GMT
+
+https://collider.com/crime-shows-every-suspect-guilty/
+
+Explore crime TV shows that blur the lines of morality, making every character seem guilty, from Presumed Innocent to Defending Jacob.
+---------
+
+# 'Harry Potter' Season 1 Early Reaction Reveals Magical Verdict on HBO Reboot
+
+TV News, Harry Potter
+
+Fri, 02 Oct 2026 21:16:50 GMT
+
+https://movieweb.com/harry-potter-season-1-hbo-ceo-reaction/
+
+A key insider's initial reaction fuels anticipation for 'Harry Potter' Season 1.
+---------
+
+# 67 Years Later, a Sci-Fi Thriller Masterpiece That Spawned 3 Reboots Remains Essential Viewing
+
+Features, The Twilight Zone, Science Fiction
+
+Fri, 02 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/the-twilight-zone-sci-fi-recommendation/
+
+This sci-fi thriller TV series is one of the most impressive and influential in the genre, leading to a movie and three reboots.
+---------
+
+# Fox Unleashes Action-Packed Teasers for Star-Studded Reboot of Classic '90s Television Staple
+
+TV Trailers, Baywatch, Drama, Stephen Amell
+
+Fri, 02 Oct 2026 20:45:30 GMT
+
+https://movieweb.com/baywatch-teasers-fox-stephen-amell/
+
+The new cast of 'Baywatch' runs, swims, and saves lives in these teasers.
+---------
+
+# CBS Officially Crosses Over Two of Its Most Popular Action Shows in First Teaser
+
+TV News, CIA, FBI, Crime
+
+Fri, 02 Oct 2026 20:44:27 GMT
+
+https://movieweb.com/cia-season-2-fbi-crossover-cbs/
+
+This 'CIA' Special Agent is calling in reinforcements for Season 2.
+---------
+
+# Anne Hathaway's New Thriller Officially Dominates Box Office as Tom Cruise Faces Jaw-Dropping Bomb
+
+Movie News, Digger, Verity, Anne Hathaway, Tom Cruise, Box Office
+
+Fri, 02 Oct 2026 20:14:49 GMT
+
+https://movieweb.com/verity-digger-opening-box-office-numbers/
+
+'Verity' is tracking to be the number one movie at the box office while 'Digger' looks to be one of the biggest bombs of 2026.
+---------
+
+# New 'Jurassic World' Movie Eyeing Colossal Return of Veteran Franchise Director
+
+Movie News, Jurassic World Rebirth, Jurassic World, Jurassic Park, Action
+
+Fri, 02 Oct 2026 19:53:29 GMT
+
+https://movieweb.com/jurassic-world-rebirth-sequel-ja-bayona-list/
+
+After losing Gareth Edwards, the next 'Jurassic World' sequel may be going back to its root with a veteran franchise director.
+---------
+
+# Johnny Depp's 105-Minute R-Rated Gothic Thriller Classic Surges on Streaming Ahead of Remake
+
+Movie News, Sleepy Hollow, Hot on Streaming, Johnny Depp, Thriller
+
+Fri, 02 Oct 2026 19:30:16 GMT
+
+https://movieweb.com/sleepy-hollow-johnny-depp-streaming-free-tubi-october-2026/
+
+Before Depp makes his Hollywood comeback next month in 'Ebenezer', one of his best movies is enjoying new life on streaming.
+---------
+
+# So, What’s the Deal with the Elevator in 'The Big Bang Theory'?
+
+Features, Big Bang Theory, Comedy
+
+Fri, 02 Oct 2026 19:30:16 GMT
+
+https://movieweb.com/big-bang-theory-elevator-explained/
+
+'The Big Bang Theory' never fixed its building's broken elevator for years. Here's the real reason behind the show's longest-running joke.
+---------
+
+# Michael B. Jordan Heads to the Battlefield as Blockbuster Action Adaptation Officially Moves Forward
+
+Movie News, Battlefield, Michael B. Jordan, War
+
+Fri, 02 Oct 2026 19:17:21 GMT
+
+https://movieweb.com/battlefield-michael-b-jordan-sony-pictures/
+
+One of the successful video game franchises of all time is heading to the big screen.
+---------
+
+# Apple TV's Most Thrilling Sci-Fi Adaptation Was So Good, It Went Past the Book Story
+
+Features, Dark Matter, Apple TV, Thriller, Sci-Fi
+
+Fri, 02 Oct 2026 18:00:14 GMT
+
+https://movieweb.com/dark-matter-season-2-past-book/
+
+Apple TV's most thrilling sci-fi adaptation goes right past its book story, and it has the perfect premise to justify doing so.
+---------
+
 # New Fallout Game Officially Shut Down By Bethesda
 
 Gaming, Fallout, Fallout 5
