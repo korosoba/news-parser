@@ -1,3 +1,443 @@
+# New Fallout Game Officially Shut Down By Bethesda
+
+Gaming, Fallout, Fallout 5
+
+Fri, 02 Oct 2026 17:04:18 GMT
+
+https://screenrant.com/fallout-new-york-game-shut-down-bethesda/
+
+Bethesda has put its foot down to thwart a new Fallout game, and it's not really any surprise why it would've been shut down in the first place.
+---------
+
+# Old Gibbs Is Shot In Mark Harmon's NCIS Return
+
+Network TV, NCIS: Origins, NCIS
+
+Fri, 02 Oct 2026 17:02:46 GMT
+
+https://screenrant.com/ncis-origins-season-3-mark-harmon-gibbs-shot/
+
+Mark Harmon's return to the CBS procedural franchise puts Old Gibbs' life in danger as revealed in new NCIS: Origins season 3 reveal.
+---------
+
+# DC Rewrites Justice League Lore For Batman’s New Era
+
+Comics, Justice League, Batman
+
+Fri, 02 Oct 2026 17:00:18 GMT
+
+https://screenrant.com/dc-batman-justice-league-new-era/
+
+A new era begins
+---------
+
+# Hogwarts Legacy Step Aside, A New Harry Potter RPG Officially Releases This Month
+
+Gaming, Hogwarts Legacy, Harry Potter
+
+Fri, 02 Oct 2026 17:00:18 GMT
+
+https://screenrant.com/harry-potter-defenders-hogwarts-october-psa/
+
+Fans of Hogwarts Legacy, there's a new Harry Potter game releasing in October that will hopefully scratch that itch until Hogwarts Legacy 2 arrives.
+---------
+
+# Forget Mindhunter, One Of The Best Crime Series Is Officially #1 On Streaming
+
+TV, Masked Recs
+
+Fri, 02 Oct 2026 17:00:18 GMT
+
+https://screenrant.com/criminal-minds-show-streaming-success-october-2026/
+
+Netflix's Mindhunter might have ended, but this crime series with multiple seasons continues to put up strong numbers, and it has just become US' #1.
+---------
+
+# The 30 Best Crime Drama Series Of All Time, Ranked
+
+Classic TV, Crime
+
+Fri, 02 Oct 2026 17:00:18 GMT
+
+https://screenrant.com/best-crime-drama-shows-all-time/
+
+From The Wire to Breaking Bad to Mare of Easttown, TV audiences have been treated to all kinds of crime drama masterpieces over the years.
+---------
+
+# Backrooms Has Already Avoided The Worst Horror Movie Fate
+
+Movies, Backrooms
+
+Fri, 02 Oct 2026 16:55:17 GMT
+
+https://screenrant.com/backrooms-avoided-the-worst-horror-movie-fate-franchise-setup/
+
+2026's Backrooms movie and its unusual construction helps the film and its teased sequel navigate a common challenge horror series often face.
+---------
+
+# Marvel Shares First Look At New Storm Design For X-Men's Big Reboot
+
+Marvel Comics, X-Men
+
+Fri, 02 Oct 2026 16:47:47 GMT
+
+https://screenrant.com/xmen-midnight-storm-redesign/
+
+The X-Men's Storm gets new powers and a different design in Marvel's brand-new universe, where Ororo Munroe seems to be a major antagonist.
+---------
+
+# Joel Kinnaman's New CIA Thriller Series Has A Vital Message For The World
+
+Interviews, Joel Kinnaman, High Value Target: The Hunt for Saddam
+
+Fri, 02 Oct 2026 16:43:09 GMT
+
+https://screenrant.com/high-value-target-hunt-for-saddam-joel-kinnaman-interview/
+
+High Value Target: The Hunt for Saddam star Joel Kinnaman explains how he approached playing such a crucial yet private figure in recent U.S. history.
+---------
+
+# Boston Blue's Reagan Family Separation Makes Total Sense
+
+Network TV, Boston Blue, Blue Bloods
+
+Fri, 02 Oct 2026 16:30:16 GMT
+
+https://screenrant.com/boston-blue-season-2-danny-jamie-one-off-case-make-sense/
+
+Boston Blue's Reagan family separation makes total sense following a season 2 update that sees a core member of the family make a return.
+---------
+
+# Apple TV’s New 10-Episode Serial Killer Thriller Belongs on Every Hannibal Fan’s Radar
+
+TV, Nocturne, Apple TV, Crime
+
+Fri, 02 Oct 2026 17:00:11 GMT
+
+https://www.cbr.com/apple-tv-nocturne-perfect-for-hannibal-fans/
+
+Nordic noir adaptation Nocturne features Stephen Graham as a brilliant incarcerated killer, with many dubbing him the new Hannibal Lecter.
+---------
+
+# Review: Power Rangers: Green #2 Offers the Franchise's Most Profound Story Yet
+
+Comics, Power Rangers
+
+Fri, 02 Oct 2026 17:00:11 GMT
+
+https://www.cbr.com/power-rangers-green-2-review/
+
+BOOM! Studios' Power Rangers: Green #2 cracks open one of the biggest and most genuinely insightful stories that the franchise has ever told.
+---------
+
+# Assassin's Creed Game Will Disappear Forever January 2027
+
+Games, Assassin's Creed
+
+Fri, 02 Oct 2026 16:47:11 GMT
+
+https://www.cbr.com/assassins-creed-game-shutdown-january-2027/
+
+One of the most underrated Assassin's Creed titles is about to go offline entirely in January, and fans won't have another chance to play it afterward
+---------
+
+# Say Goodbye to Warner Bros. as 103-Year-Old Studio Prepares to Disappear
+
+TV, warner bros
+
+Fri, 02 Oct 2026 16:41:30 GMT
+
+https://www.cbr.com/warner-bros-michael-de-luca-pamela-abdy-exit-skydance-takeover/
+
+Major change is coming after the upcoming mega-merger.
+---------
+
+# 7 Weakest Primes In Transformers
+
+Anime, Transformers
+
+Fri, 02 Oct 2026 16:15:12 GMT
+
+https://www.cbr.com/transformers-weakest-primes-ranked/
+
+Primes are meant to be among the very strongest Transformers, but some still manage to be relatively weak.
+---------
+
+# Pokémon Returns With New 30th Anniversary Releases Available Now
+
+Games, Pokemon, Pokemon TCG, Tabletop
+
+Fri, 02 Oct 2026 16:11:11 GMT
+
+https://www.cbr.com/pokemon-returns-new-30th-anniversary-release-available-now/
+
+The Pokémon Company has released new 30th-anniversary TCG items that may give fans access to rare cards featuring the original Kanto 151.
+---------
+
+# Netflix and Disney Enter New Era With Historic Content-Sharing Deal
+
+TV, Netflix, Percy Jackson & the Olympians, Disney
+
+Fri, 02 Oct 2026 16:07:34 GMT
+
+https://www.cbr.com/netflix-licenses-disney-movies-tv-percy-jackson-ice-age/
+
+Disney and Netflix are teaming up.
+---------
+
+# Ted Lasso's Core 'Believe' Message Is Officially Changing in Season 4, Say Stars
+
+TV, Ted Lasso, Apple TV, Comedy
+
+Fri, 02 Oct 2026 16:00:42 GMT
+
+https://www.cbr.com/ted-lasso-season-4-changes-believe-message-rex-hayes-aisling-sharkey/
+
+"Believe" isn't enough for AFC Richmond's women's team.
+---------
+
+# James Gunn Is Already Replacing Lex Luthor in the DCU
+
+Movies, DCU, Man of Tomorrow, Superman
+
+Fri, 02 Oct 2026 16:00:11 GMT
+
+https://www.cbr.com/james-gunn-dcu-lex-luthor-replacement-man-of-tomorrow/
+
+Fans loved Nicholas Hoult's version of the iconic Superman foe, but James Gunn is already replacing him in the upcoming sequel.
+---------
+
+# Avengers: Endgame Already Planted Doomsday Clues, Russo Brothers Confirm
+
+CBR Exclusives, Avengers: Endgame Encore, Avengers: Endgame, Avengers: Doomsday
+
+Fri, 02 Oct 2026 15:34:52 GMT
+
+https://www.cbr.com/avengers-endgame-doomsday-clues-joe-russo-anthony-russo/
+
+In an exclusive interview with CBR, Joe and Anthony Russo confirm that clues about Avengers: Doomsday can be found throughout Avengers: Endgame.
+---------
+
+# Boyd Holbrook Breaks Down the Brutal Filming of His Newest War Movie’s Intense Rooftop Shootout
+
+Interviews, Atonement, Boyd Holbrook, The Morning Show
+
+Fri, 02 Oct 2026 17:00:12 GMT
+
+https://collider.com/boyd-holbrook-atonement-war-movie-rooftop-scene-details/
+
+Boyd Holbrook discusses Atonement, taking a personal approach to the Iraq War, joining The Morning Show, and losing nearly 50 pounds for Last Meals.
+---------
+
+# Tim Allen's Hit Sitcom Is Officially Coming to Netflix
+
+TV News, Tim Allen, Shifting Gears, Netflix, Kat Dennings
+
+Fri, 02 Oct 2026 16:42:44 GMT
+
+https://collider.com/tim-allen-shifting-gears-netflix-streaming-december-2026/
+
+Tim Allen's biggest sitcom since Home Improvement is officially setting up shop at Netflix. Read on for more.
+---------
+
+# Netflix Officially Revives a Beloved 7-Season Military Series
+
+TV News, Army Wives, Disney, Netflix, Sterling K. Brown
+
+Fri, 02 Oct 2026 16:29:15 GMT
+
+https://collider.com/army-wives-netflix-streaming-return-2026/
+
+Netflix is officially reviving Army Wives on streaming, bringing the seven-season military drama back 13 years after its finale.
+---------
+
+# Percy Jackson Is Officially Moving to Netflix
+
+TV News, Percy Jackson & The Olympians, Percy Jackson & the Olympians, Disney+, Netflix
+
+Fri, 02 Oct 2026 16:28:09 GMT
+
+https://collider.com/percy-jackson-and-the-olympians-streaming-netflix-october-2026/
+
+Percy Jackson and the Olympians arrives on Netflix this week ahead of Season 3’s November Disney+ premiere.
+---------
+
+# Netflix Officially Scores 4-Season ‘Lincoln Lawyer’ Replacement
+
+TV News, Will Trent, Netflix, The Lincoln Lawyer, Disney
+
+Fri, 02 Oct 2026 16:19:22 GMT
+
+https://collider.com/will-trent-streaming-netflix-november-2026/
+
+Will Trent Seasons 1–4 arrive on Netflix globally next month, giving viewers time to catch up before Season 5 premieres in 2027.
+---------
+
+# The 10 Most Fun Sci-Fi Movies of All Time, Ranked
+
+Movie, Star Wars, Back to the Future, Jurassic Park, Spider-Man Into the Spider-Verse
+
+Fri, 02 Oct 2026 16:17:11 GMT
+
+https://collider.com/most-fun-sci-fi-movies-all-time-ranked/
+
+If you're after the most fun sci-fi movies of all time, it's well worth watching classics like Jurassic Park, Face/Off, and the original Star Wars.
+---------
+
+# ‘CIA’ and ‘FBI’ Are Officially Crossing Over in New Premiere Sneak Peek [Exclusive]
+
+TV News, CIA, FBI, CBS, Paramount
+
+Fri, 02 Oct 2026 16:00:12 GMT
+
+https://collider.com/cia-season-2-premiere-sneak-peek/
+
+CBS has released a new sneak peek of the Season 2 premiere of CIA, which features a crossover from another beloved show, FBI. Check it out here.
+---------
+
+# Joel Kinnaman’s ‘Zero Dark Thirty’ Replacement Gets Official New Look Before Finale [Exclusive]
+
+TV News, High Value Target: The Hunt for Saddam, Joel Kinnaman, TNT, Zero Dark Thirty
+
+Fri, 02 Oct 2026 16:00:12 GMT
+
+https://collider.com/joel-kinnaman-high-value-target-season-1-finale-sneak-peek/
+
+TNT has released a new sneak peek at the finale episode of High Value Target: The Hunt for Saddam, the political thriller starring Joel Kinnaman.
+---------
+
+# ‘Tracker’ Officially Returns in 48 Hours With Gritty First Look at Season 4 [Exclusive]
+
+TV News, Tracker, Justin Hartley, Jensen Ackles, CBS
+
+Fri, 02 Oct 2026 16:00:12 GMT
+
+https://collider.com/tracker-season-4-premiere-sneak-peek/
+
+CBS has released a new look at Tracker Season 4 starring Justin Hartley before it premieres on the network this Sunday.
+---------
+
+# ‘NCIS’ Season 24 Officially Reunites Tony DiNozzo and McGee in New Sneak Peek [Exclusive]
+
+Exclusives, NCIS, Michael Weatherly, Sean Murray, CBS
+
+Fri, 02 Oct 2026 16:00:12 GMT
+
+https://collider.com/ncis-season-24-premiere-sneak-peek-michael-weatherly-sean-murray/
+
+A new sneak peek at the premiere of NCIS Season 24 reunites Michael Weatherly and Sean Murray for a father-to-father talk.
+---------
+
+# 10 Most Popular Superheroes of All Time
+
+Movie Lists, Superhero, DCU, Marvel Cinematic Universe
+
+Fri, 02 Oct 2026 17:00:18 GMT
+
+https://movieweb.com/most-popular-superheroes-right-now/
+
+These iconic superheroes have shaped comics and pop culture, with their impacts enduring across generations.
+---------
+
+# 8 New Marvel Easter Eggs in 'Avengers: Endgame Encore'
+
+Movie Lists, Avengers: Endgame Encore, Marvel Cinematic Universe, Superhero
+
+Fri, 02 Oct 2026 17:00:17 GMT
+
+https://movieweb.com/avengers-endgame-encore-new-marvel-easter-eggs/
+
+The four additional minutes of footage included in 'Avengers: Endgame's re-release include plenty of references to the MCU's future.
+---------
+
+# Brad Pitt's 161-Minute Blockbuster Is One of the Biggest Streaming Hits in the World Ahead of Netflix Sequel
+
+Movie News, Brad Pitt, Once Upon a Time in Hollywood, Hot on Streaming
+
+Fri, 02 Oct 2026 16:30:14 GMT
+
+https://movieweb.com/once-upon-time-hollywood-brad-pitt-stream-prime-video-october-2026/
+
+As fans go crazy for the upcoming Netflix sequel, the one that started it all rises up the charts.
+---------
+
+# Disney Walks Back Foundational Rule of Disney+ in Major Netflix Streaming Deal
+
+TV News, Disney+, Netflix
+
+Fri, 02 Oct 2026 16:17:11 GMT
+
+https://movieweb.com/disney-netflix-streaming-license-titles/
+
+Disney is entering a new partnership with Netflix, making a major change to a rule that has been in place for the last seven years.
+---------
+
+# Neil Patrick Harris Breaks Bad in Sequel To Underrated Action Thriller Franchise
+
+Movie News, Becky, Neil Patrick Harris, Horror, Action
+
+Fri, 02 Oct 2026 16:14:08 GMT
+
+https://movieweb.com/neil-patrick-harris-the-last-temptation-of-becky-teasers/
+
+The bloody 'Becky' franchise is back and better than ever with 'The Last Temptation of Becky.'
+---------
+
+# 'Barbarian' Ending, Explained
+
+Features, Barbarian
+
+Fri, 02 Oct 2026 16:00:16 GMT
+
+https://movieweb.com/barbarian-ending-explained/
+
+What is the real monster in 'Barbarian,' and what does it take to destroy it?
+---------
+
+# 'Scrubs' Revival Season 2 Officially Answers a 25-Year-Old Dr. Kelso Question
+
+Features, Scrubs, Comedy
+
+Fri, 02 Oct 2026 16:00:15 GMT
+
+https://movieweb.com/scrubs-revival-kelso-cox-question-answered/
+
+Sacred Heart's former Chief now makes way more sense after a clever line from Dr. Cox. Read on for more.
+---------
+
+# Vin Diesel Fast Tracks New Streaming Spin-off to His $7.3 Billion Action Franchise
+
+TV News, Fast and Furious, Vin Diesel, Action
+
+Fri, 02 Oct 2026 15:32:06 GMT
+
+https://movieweb.com/fast-and-furious-tv-series-peacock/
+
+Vin Diesel's massive franchise is moving towards a streaming release after years of dominating the big screen.
+---------
+
+# Jane Austen’s Classic 215-Year-Old Novel Remake Sacrifices Book Accuracy For Modernity | Review
+
+Movie Reviews, Sense and Sensibility, Romance, Jane Austen
+
+Fri, 02 Oct 2026 15:30:17 GMT
+
+https://movieweb.com/sense-and-sensibility-review/
+
+The new 'Sense and Sensibility' seems designed to draw newcomers to Jane Austen rather than appeal to purists, and that's not necessarily a bad thing.
+---------
+
+# 20 Years Later, 'Parasite' Director's Near-Perfect Monster Movie Masterpiece Confirms New Release
+
+Movie News, The Host, Bong Joon  Ho
+
+Fri, 02 Oct 2026 15:24:14 GMT
+
+https://movieweb.com/the-host-2006-4k-re-release/
+
+Bong Joon Ho's gripping creature feature scores a new release.
+---------
+
 # The Expanse Is Officially Switching Genres In 2027
 
 Gaming, The Expanse
