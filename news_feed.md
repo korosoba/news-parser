@@ -1,3 +1,443 @@
+# Lili Reinhart's The Love Hypothesis Just Hit #1 In 49 Countries — Here's Amazon's Bigger Plan
+
+Books, The Love Hypothesis
+
+Fri, 02 Oct 2026 00:10:44 GMT
+
+https://screenrant.com/the-love-hypothesis-amazon-romance-adaptation-plan/
+
+Lili Reinhart's The Love Hypothesis became a global sensation, which is a great sign that Amazon could succeed at their larger adaptation goal.
+---------
+
+# Eddie Murphy Is Officially Making TV History In Mad Men Creator’s Next Series
+
+TV, Eddie Murphy
+
+Fri, 02 Oct 2026 00:02:44 GMT
+
+https://screenrant.com/eddie-murphy-new-series-peacock/
+
+Eddie Murphy is teaming up with Mad Men creator Matthew Weiner for a new TV show on Peacock that will make history for the actor's career.
+---------
+
+# All 7 Upcoming Mike Flanagan Movies And Shows
+
+Streaming TV, Mike Flanagan
+
+Fri, 02 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/upcoming-mike-flanagan-movies-tv-shows/
+
+It's the next chapter of Mike Flanagan's career, and he'll be taking on Stephen King and some very famous horror IP for his next film and TV projects.
+---------
+
+# All 17 Kaiju In Pacific Rim Movies, Ranked By How Powerful They Are
+
+Movies
+
+Fri, 02 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/all-17-kaiju-in-pacific-rim-movies-ranked-by-how-powerful-they-are/
+
+From blink-and-you-miss-them creatures to Jaeger-killers, Pacific Rim's 17 movie Kaiju are ranked by what they actually pull off on screen.
+---------
+
+# American Horror Story Season 13's Crossover Gamble Pays Off As Disney+'s #1 U.S. Series
+
+Streaming TV, American Horror Story
+
+Thu, 01 Oct 2026 23:54:17 GMT
+
+https://screenrant.com/american-horror-story-season-13-disney-plus-number-1-crossover/
+
+American Horror Story Season 13 becomes Disney+'s #1 U.S. series as its major crossover brings back fan-favorite characters from past seasons.
+---------
+
+# NCIS Season 24 Will Officially Introduce Torres' Mike Franks Counterpart
+
+TV, NCIS
+
+Thu, 01 Oct 2026 23:36:55 GMT
+
+https://screenrant.com/ncis-season-24-torres-mike-franks-counterpart-binder/
+
+Early into NCIS season 24, the procedural will introduce the man who mentored Nick Torres much like Mike Franks did for Leroy Jethro Gibbs.
+---------
+
+# The Objective Best Solo Leveling Replacement Returns In Less Than 1 Month
+
+Anime, Masked Recs
+
+Thu, 01 Oct 2026 23:30:05 GMT
+
+https://screenrant.com/solo-leveling-best-replacement-lord-mysteries-bluray/
+
+One of Crunchyroll's best fantasy series, ideal for watching while waiting for the return of Solo Leveling, has a new release coming.
+---------
+
+# Fast & Furious Franchise Expands With New TV Series
+
+TV, Fast & Furious
+
+Thu, 01 Oct 2026 23:16:38 GMT
+
+https://screenrant.com/fast-and-furious-new-tv-series-peacock/
+
+The Fast & Furious franchise is not going anywhere as Peacock announces an upcoming project, continuing the property's legacy on television.
+---------
+
+# The Rings Of Power's Tom Bombadil: Everything You Need To Know About Tolkien's Most Mysterious Character
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Thu, 01 Oct 2026 23:15:17 GMT
+
+https://screenrant.com/lotr-rings-of-power-tom-bombadil-explained-history-powers/
+
+Rings of Power season 2 brought Tom Bombadil into the mix, a character with deep roots in Middle-earth and a deliberately mysterious backstory.
+---------
+
+# Bosch Is Finally Ready For Titus Welliver's Exit
+
+TV, Bosch, Bosch: Start of Watch - Season 1, Titus Welliver
+
+Thu, 01 Oct 2026 23:15:16 GMT
+
+https://screenrant.com/bosch-titus-welliver-exit-ready-start-of-watch/
+
+Prime Video's Bosch franchise will soon return without Titus Welliver, dropping nostalgic narration to sharpen the show's tense LA crime roots.
+---------
+
+# It's Officially the End of an 11-Year Era for Dragon Ball
+
+Anime, Dragon Ball, Dragon Ball Super, Shonen Jump
+
+Fri, 02 Oct 2026 00:20:11 GMT
+
+https://www.cbr.com/dragon-ball-super-goku-missing-jump-festa/
+
+For the first time in 11 years, Shonen Jump has removed Dragon Ball's Son Goku from the key visual for Shueisha's Jump Festa event this December.
+---------
+
+# Serial Experiments Lain Officially Returns in 2027
+
+Anime, Serial Experiments Lain, Sci-Fi
+
+Fri, 02 Oct 2026 00:15:11 GMT
+
+https://www.cbr.com/serial-experiments-lain-return-despera-manga-date/
+
+One of the greatest sci-fi anime of all time is making a comeback next year with both a new spiritual successor and an individual release of its own.
+---------
+
+# 1 of the Best Classic '90s Sitcoms Is Taking Over the World 22 Years After Its Last Episode
+
+TV, Frasier, NBC, Paramount Plus
+
+Fri, 02 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/frasier-comedy-paramount-plus-success-september-2026/
+
+Over two decades after the final episode, a classic sitcom is climbing up the charts on Paramount+.
+---------
+
+# Netflix’s Narnia Reboot Is Changing An Important Characters Name
+
+Movies, Narnia: The Magician's Nephew, Netflix
+
+Fri, 02 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/netflix-narnia-magicians-nephew-reboot-flora-mabel-name-change/
+
+One change from page to screen in Netflix's upcoming Narnia: The Magician's Nephew adaptation actually makes one character way more meaningful.
+---------
+
+# Batman Is No Longer DC's Most Interesting Character—And That's a Good Thing
+
+Comics, Batman, DC Comics, Superman
+
+Fri, 02 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/batman-not-dc-comics-most-interesting-character-good-thing/
+
+The 2020s have seen a radical shift in American comics, and Batman losing ground as DC’s most compelling character is a prime example of that change.
+---------
+
+# CBS' Newest Matlock Rival Show Arrives in 1 Week With Very First Episode
+
+TV, Cupertino, CBS, Crime
+
+Thu, 01 Oct 2026 23:30:11 GMT
+
+https://www.cbr.com/cbs-cupertino-series-premiere-release-date/
+
+As Matlock's third season prepares for a midseason 2027 premiere, CBS' rival show, Cupertino, will be premiering in just one week.
+---------
+
+# 10 Most Unwatchable Isekai Anime of All Time
+
+Anime, Isekai
+
+Thu, 01 Oct 2026 23:15:11 GMT
+
+https://www.cbr.com/most-unwatchable-isekai-anime-of-all-time/
+
+Isekai anime have a bad reputation for a reason, with many series to fall within the genre being utterly unwatchable.
+---------
+
+# HBO Max’s 98% RT Sci-Fi Miniseries Is a Rare 1-Day Binge With Zero Weak Episodes
+
+TV, Station Eleven, HBO Max, Sci-Fi
+
+Thu, 01 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/hbo-station-eleven-flawless-sci-fi-series/
+
+Based on the best-selling novel, HBO's underrated sci-fi series imagines a world where healers and artists strive to create purpose from what remains.
+---------
+
+# 8 Masterpiece Movies Recommended By Brandon Sanderson
+
+Movies
+
+Thu, 01 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/best-movies-recommended-by-brandon-sanderson-list/
+
+Brandon Sanderson has never hidden his love of movies, and the fantasy author has a soft spot for stories he can watch over and over again.
+---------
+
+# Robert Eggers’ Unreleased Horror Movie Outranks Spider-Man & The Odyssey 3 Months Ahead of Release
+
+Movies, Werwulf
+
+Thu, 01 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/werwulf-horror-imdb-success-september-2026/
+
+Monster movies haven't gone out of style.
+---------
+
+# 9 Sci-Fi Movies With Aliens That Are 10/10 Masterpieces
+
+Movie, Sci-Fi, Science Fiction, Project Hail Mary, The Thing
+
+Fri, 02 Oct 2026 00:11:11 GMT
+
+https://collider.com/sci-fi-movies-aliens-masterpieces/
+
+From the '80s horror film The Thing to the modern masterpiece Project Hail Mary, these are the greatest sci-fi movies that feature aliens.
+---------
+
+# 7 Must See Movies Coming to HBO in October 2026
+
+Movie, The Invite, The Death of Robin Hood, Scooby-Doo, The Internship
+
+Fri, 02 Oct 2026 00:08:11 GMT
+
+https://collider.com/must-see-movies-coming-to-hbo-in-october-2026/
+
+The 7 best movies coming to HBO in October 2026.
+---------
+
+# Alan Ritchson's New Action Movie Officially Removed From 1,200 Theaters
+
+Movie News, Alan Ritchson, Runner, Owen Wilson, Box Office
+
+Fri, 02 Oct 2026 00:00:11 GMT
+
+https://collider.com/alan-ritchson-action-movie-runner-removed-from-1200-theaters-box-office/
+
+Alan Ritchson's new action movie, Runner, is gearing up for its PVOD debut after losing half of its theatrical footprint in 20 days.
+---------
+
+# ‘Wednesday’ Cast Officially Hints at Series End
+
+TV News, Wednesday, Netflix, Jenna Ortega, The Addams Family
+
+Thu, 01 Oct 2026 23:46:58 GMT
+
+https://collider.com/netflix-wednesday-season-3-ending/
+
+Wednesday may be ending with Season 3 after Jenna Ortega's stunt double declared the “end of an era” in since-deleted posts.
+---------
+
+# 7 Romance Books You Can Finish in a Weekend
+
+Books and Comics, Romance, Beach Read, Red, White & Royal Blue, Books
+
+Thu, 01 Oct 2026 23:40:12 GMT
+
+https://collider.com/romance-books-read-in-one-weekend/
+
+From Emily Henry's Beach Read to Casey McQuiston's Red, White & Royal Blue, these romance books are the perfect page-turners for a weekend of reading.
+---------
+
+# 'KPop Demon Hunters 2' Is Officially Coming to Theaters
+
+Movie News, KPop Demon Hunters, Netflix, Narnia: The Magician's Nephew, Ted Sarandos
+
+Thu, 01 Oct 2026 23:30:11 GMT
+
+https://collider.com/netflix-kpop-demon-hunters-2-sequel-theatrical-release-ted-sarandos/
+
+Netflix co-CEO Ted Sarandos confirmed that KPop Demon Hunters 2 is aiming for a larger theatrical release in 2029. Read on for more.
+---------
+
+# Fast & Furious Is Officially Coming to TV
+
+TV News, Fast and Furious, Vin Diesel, Peacock, Universal
+
+Thu, 01 Oct 2026 23:26:53 GMT
+
+https://collider.com/fast-and-furious-tv-series-vin-diesel-producing/
+
+A Fast & Furious TV series is officially in development at Universal, with Vin Diesel on board to produce. Read on for more details.
+---------
+
+# These 5 Charlize Theron Movies Are Masterpieces
+
+Movie, Charlize Theron, Mad Max: Fury Road, Monster, young adult
+
+Thu, 01 Oct 2026 23:21:11 GMT
+
+https://collider.com/charlize-theron-movies-masterpieces/
+
+From Monster to Young Adult, these Charlize Theron films showcase the fearless performances that define her finest work.
+---------
+
+# Netflix's 51% Rotten Tomatoes Audience Score Action Epic Officially Crowned the All-Time King of Streaming
+
+Movie News, Troll, Netflix, Action, Streaming
+
+Thu, 01 Oct 2026 23:18:56 GMT
+
+https://collider.com/netflix-troll-streaming-success-october-2026/
+
+Netflix officially has a new king, with a 4-year-old fantasy epic now its most popular non-English movie of all time. Read on for more.
+---------
+
+# Disney’s 94% Rotten Tomatoes Audience Score Sci-Fi Hit Officially Conquers Streaming
+
+Movie News, Predator: Badlands, Disney, Elle Fanning, Sci-Fi
+
+Thu, 01 Oct 2026 23:00:11 GMT
+
+https://collider.com/disney-sci-fi-predator-badlands-streaming-success-prime-video-october-2026/
+
+Disney's sci-fi thriller, Predator: Badlands, directed by Dan Trachtenberg, continues its streaming dominance across multiple platforms.
+---------
+
+# 'Scrubs' Revival Season 2 Officially Fixes Season 1's Divisive Dr. Cox Change
+
+TV Shows, Scrubs, Comedy
+
+Fri, 02 Oct 2026 00:00:14 GMT
+
+https://movieweb.com/scrubs-revival-dr-cox-mentor-fix/
+
+Dr. Cox's new status as a Sacred Heart patient has opened up several new storylines, but it hasn't swept the old ones aside. Read on for more.
+---------
+
+# 'Dexter: Resurrection' Is Bloodier Than Ever Before in New Season 2 Trailer
+
+TV News, Dexter: Resurrection, Dexter
+
+Thu, 01 Oct 2026 23:35:03 GMT
+
+https://movieweb.com/dexter-resurrection-season-2-official-trailer/
+
+The new trailer teases Dexter's biggest arch-enemy to date.
+---------
+
+# Walton Goggins Officially Cast as Villain in Upcoming Remake of Action Thriller Classic
+
+Movie News, Miami Vice, Walton Goggins
+
+Thu, 01 Oct 2026 22:28:25 GMT
+
+https://movieweb.com/miami-vice-85-walton-goggins/
+
+Walton Goggins will add to his list of memorable villains with a role in a thrilling new remake, coming in a couple of years.
+---------
+
+# 33 Years Later, Charlie Brown's Harshest 'Peanuts' Quote Remains His Wisest
+
+Features, Peanuts, comics
+
+Thu, 01 Oct 2026 22:00:15 GMT
+
+https://movieweb.com/peanuts-charlie-brown-quote-harsh-wisdom/
+
+Charles Schulz's 'Peanuts' comic strips tell memorable stories about Charlie Brown and his friends, and one quote in particular is harsh but smart.
+---------
+
+# Ethan Hawke's Near-Perfect Mystery Crime Thriller Officially Returns in Season 2 Trailer
+
+TV News, The Lowdown, Crime, Thriller, Ethan Hawke
+
+Thu, 01 Oct 2026 21:42:23 GMT
+
+https://movieweb.com/ethan-hawke-lowdown-season-2-trailer/
+
+There's more trouble down in Tulsa when 'The Lowdown' returns with Season 2 later this October.
+---------
+
+# New $75M Zombie Reboot Is Unstoppable Against Amazon's Action Sequel at the Global Box Office
+
+Movie News, Box Office Milestones, Masters of the Universe, Resident Evil, Action
+
+Thu, 01 Oct 2026 21:05:38 GMT
+
+https://movieweb.com/resident-evil-passes-mortal-kombat-2-box-office/
+
+Zach Cregger’s Resident Evil has already passed Mortal Kombat II’s entire global run.
+---------
+
+# Nicolas Cage's New Movie Is a 'Mr. Robot'-Esque Psychological Cyber-Thriller
+
+Movie News, Nicolas Cage, Mr. Robot, Thriller
+
+Thu, 01 Oct 2026 21:04:11 GMT
+
+https://movieweb.com/nicolas-cage-clay-thriller/
+
+Ever-busy, Nicolas Cage will appear in a hacker drama alongside Michael Sheen.
+---------
+
+# 'Reacher's Unofficial Replacement Is a 6-Episode Action Thriller Sleeper Hit on Streaming
+
+TV News, The Nowhere Man, STARZ, Hot on Streaming, Action, Reacher
+
+Thu, 01 Oct 2026 21:00:14 GMT
+
+https://movieweb.com/nowhere-man-action-stream-starz-october-2026/
+
+Who needs Alan Ritchson when you've got this guy?
+---------
+
+# 'Ted Lasso' Season 4 Is Running Out of Time To Pay Off Its Weirdest Storyline
+
+TV Shows, Ted Lasso, Comedy
+
+Thu, 01 Oct 2026 21:00:14 GMT
+
+https://movieweb.com/ted-lasso-season-4-old-beard-arc/
+
+Beard has had a relatively muted arc in 'Ted Lasso' Season 4, but the finale can bring it all together. Read on for more.
+---------
+
+# 'Landman' Officially Confirms Major Cast Change Ahead of Season 3
+
+TV News, Landman, Drama, Paramount Plus
+
+Thu, 01 Oct 2026 20:47:35 GMT
+
+https://movieweb.com/landman-season-3-new-series-regulars/
+
+A cast shake-up is inbound for the new season.
+---------
+
 # 13 Years Later, Littlefinger's Best Game Of Thrones Line Is Still The Coldest Quote In Fantasy History
 
 Classic TV, Game Of Thrones
