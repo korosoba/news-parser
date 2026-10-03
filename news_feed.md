@@ -1,3 +1,366 @@
+# Amazon Has Cast Indiana Jones' Successor, And She's The Perfect Choice
+
+Streaming TV, Masked Recs
+
+Sat, 03 Oct 2026 05:45:15 GMT
+
+https://screenrant.com/tomb-raider-lara-croft-sophie-turner-perfect-indiana-jones-successor/
+
+Amazon has found a spiritual successor to Indiana Jones in Tomb Raider, and its star could be just as great as Harrison Ford was as Indy.
+---------
+
+# Bleach Officially Returns November 2026 With Sequel To Thousand-Year Blood War Arc
+
+Gaming, Bleach
+
+Sat, 03 Oct 2026 05:15:15 GMT
+
+https://screenrant.com/bleach-mirrors-high-november-2026-sequel-release-date/
+
+Bleach will not end with the Thousand-Year Blood War arc after all.
+---------
+
+# Admit It, Paramount's 10-Part The Godfather Series Is Better Than The Godfather Part III
+
+TV, Masked Recs
+
+Sat, 03 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/the-offer-better-than-godfather-3/
+
+A rambunctious retelling of The Godfather’s making that revels in chaotic set drama, Paramount's shaggy 2022 Hollywood satire remains underrated.
+---------
+
+# Brandon Sanderson's Stormlight Officially Returns October 13
+
+Gaming, The Stormlight Archive
+
+Sat, 03 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/brandon-sanderson-stormlight-war-for-roshar-october-13/
+
+Experience the Stormlight Archive with the War for Roshar board game launching October 13!
+---------
+
+# Blade Runner Is Officially Switching Genres In 2027 In Upcoming Gaming Release
+
+Gaming, Blade Runner
+
+Sat, 03 Oct 2026 04:30:16 GMT
+
+https://screenrant.com/blade-runner-2027-immersive-experience-genre-switch/
+
+Experience Blade Runner's dystopian world in a unique 2027 immersive event.
+---------
+
+# Star Trek Officially Confirms Captain Archer's Return October 20 In Fluxx
+
+Gaming, Star Trek, PC, Star Trek: Enterprise
+
+Sat, 03 Oct 2026 04:15:15 GMT
+
+https://screenrant.com/star-trek-captain-archer-return-october-2026-fluxx/
+
+Star Trek's Captain Archer is officially returning in a new 60th anniversary release scheduled to arrive on October 20.
+---------
+
+# Dungeon Crawler Carl Will Officially Return Next Month
+
+Gaming, Dungeon Crawler Carl
+
+Sat, 03 Oct 2026 04:00:21 GMT
+
+https://screenrant.com/dungeon-crawler-carl-unstoppable-release-date-psa/
+
+Pre-order Dungeon Crawler Carl: Unstoppable for RPG fun!
+---------
+
+# 7 Anime That Defined Toonami's Golden Age
+
+Anime, Cartoon Network
+
+Sat, 03 Oct 2026 03:59:16 GMT
+
+https://screenrant.com/anime-defined-toonami-golden-age/
+
+Cartoon Network's Toonami block didn't take long to churn out some absolute all-time greats and beloved anime hits during its heyday.
+---------
+
+# The Next Star Wars Movie Breaks 6 Traditions To Save The Franchise
+
+Movies, Star Wars, Star Wars: Starfighter
+
+Sat, 03 Oct 2026 03:46:10 GMT
+
+https://screenrant.com/star-wars-starfighter-movie-traditions-break-save-franchise/
+
+Star Wars' next big theatrical release is set to break more than a few key traditions in order to save the franchise's cinematic reputation.
+---------
+
+# Disney+'s 24-Episode Sci-Fi Series Deserves Kudos For Breaking The Rules
+
+Streaming TV, Masked Recs
+
+Sat, 03 Oct 2026 03:30:16 GMT
+
+https://screenrant.com/andor-broke-star-wars-rules-disney-plus-masterpiece/
+
+A true sci-fi masterpiece was released on Disney+ and deserves kudos for, in every instance, breaking all of the rules imposed upon it.
+---------
+
+# Berserk Officially Drops Massive New $1,799 Release Available for Preorder Now
+
+Anime, Berserk, merchandise, collectibles
+
+Sat, 03 Oct 2026 03:59:11 GMT
+
+https://www.cbr.com/berserk-slan-prime-1-studio-reveal/
+
+Berserk's newest statue from Prime 1 Studio recreates the arrival of Slan of the God Hand, with a bonus version adding one of her compatriots.
+---------
+
+# Spider-Man is the Only One Who Can Stop the Hulk From Officially Starting the Age of Monsters
+
+Comics, Spider-Man, Hulk
+
+Sat, 03 Oct 2026 03:56:58 GMT
+
+https://www.cbr.com/spider-man-hulk-infernal-war-age-monsters/
+
+In a first look at Infernal Hulk vs. Spider-Man #1, see how Spidey is the only hero who can stop the Hulk from starting the Age of Monsters
+---------
+
+# Friday the 13th Returns With a New Release This Month
+
+TV, Crystal Lake, Friday The 13th
+
+Sat, 03 Oct 2026 03:53:56 GMT
+
+https://www.cbr.com/friday-the-13th-crystal-lake-debuts-peacock-october-15/
+
+It's another new beginning for the Friday the 13th franchise.
+---------
+
+# 10 Dragon Ball Villains Stronger Than Frieza
+
+Anime, Dragon Ball, Dragon Ball Z, Dragon Ball Super
+
+Sat, 03 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/dragon-ball-villains-stronger-than-frieza/
+
+Frieza has made waves as a standout Dragon Ball villain, yet his sinister strength is surpassed by several other intimidating antagonists.
+---------
+
+# M. Night Shyamalan's 'Heartbreaking' New Thriller Is 'Scary as Hell,' First Reactions Say
+
+Movies, Remain
+
+Sat, 03 Oct 2026 03:42:57 GMT
+
+https://www.cbr.com/m-night-shyamalan-remain-first-reactions/
+
+Nobody does "fun, movie theater horror" like M. Night Shyamalan according to the first reactions to his newest film.
+---------
+
+# The 95% RT Sci-Fi Masterpiece With the Greatest Pilot Episode in TV History
+
+TV, The Haunting of Hill House, Netflix, Horror
+
+Sat, 03 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/netflix-the-haunting-of-hill-house-gothic-masterpiece/
+
+This Netflix show is one of the best horror shows of the last decade, and it kicked off an entire trilogy of series that boosted the streamer's rep.
+---------
+
+# Two Years After Their Debut, This Peanuts Character's Most Iconic Trait Was Introduced
+
+Comics, Peanuts
+
+Sat, 03 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/peanuts-linus-blanket-history/
+
+There are few images in comics more recognizable than one Peanuts character's signature prop.
+---------
+
+# 10 Most Unplayable Games on the NES, Ranked
+
+Games, Nintendo, Ghostbusters, Back to the Future
+
+Sat, 03 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/most-unplayable-games-on-the-nes-ranked/
+
+The Nintendo Entertainment System created some of the most unforgettable titles in gaming history, but it also delivered many unplayable messes.
+---------
+
+# Sylvester Stallone Wants to Fix the Lowest-Rated Rocky Movie With a New Cut
+
+Movies, Rocky V
+
+Sat, 03 Oct 2026 03:00:04 GMT
+
+https://www.cbr.com/sylvester-stallone-rocky-v-recut-amazon/
+
+Maybe it's time for fans to campaign for Amazon to "release the Stallone Cut" of the most maligned Rocky movie.
+---------
+
+# 5 Non-Japanese Anime Series With No Bad Seasons, Ranked
+
+Anime, Avatar: The Last Airbender
+
+Sat, 03 Oct 2026 02:45:11 GMT
+
+https://www.cbr.com/non-japanese-anime-series-with-no-bad-seasons-ranked/
+
+These non-Japanese anime stay consistently entertaining from start to finish.
+---------
+
+# The Greatest Jane Austen Quote Comes From Her Most Underappreciated Book
+
+Books and Comics, Books, Jane Austen, Romance, Persuasion
+
+Sat, 03 Oct 2026 04:05:11 GMT
+
+https://collider.com/best-jane-austen-quote-persuasion-underappreciated-book/
+
+Persuasion might not be Jane Austen's most popular book, but it is her most beautifully written, featuring literature's greatest declaration of love.
+---------
+
+# Did ‘Ted Lasso’ Just Hint at [SPOILER]’s Fate With This Blink-and-You’ll-Miss-It Moment?
+
+TV Features, Ted Lasso, Apple TV, Juno Temple, Comedy
+
+Sat, 03 Oct 2026 03:48:12 GMT
+
+https://collider.com/ted-lasso-season-4-episode-9-keeley-pregnancy-fate-hint/
+
+This blink-and-you'll-miss-it moment in Ted Lasso's latest Season 4 episode could be hinting at a rough road ahead for one character.
+---------
+
+# This ‘Lincoln Lawyer’ Replacement Is the Perfect Weekend Binge Ahead of Season 2
+
+TV Features, The Lincoln Lawyer, The Rainmaker, USA Network, Netflix
+
+Sat, 03 Oct 2026 03:20:09 GMT
+
+https://collider.com/lincoln-lawyer-replacement-series-the-rainmaker-season-2/
+
+Lincoln Lawyer fans looking for a new legal drama have time to binge-watch The Rainmaker before it returns for Season 2.
+---------
+
+# Hugh Jackman's 'The Mummy' Replacement Is Officially Back on Streaming
+
+Movie Features, Van Helsing, Hugh Jackman, Kate Beckinsale, The Mummy
+
+Sat, 03 Oct 2026 03:09:11 GMT
+
+https://collider.com/hugh-jackman-van-helsing-the-mummy-streaming-peacock-october-2026/
+
+Hugh Jackman's 2004 Van Helsing, which shares a director with the 1999 blockbuster The Mummy, is now streaming on Peacock.
+---------
+
+# 'The Sopranos' Best Tony Moment Comes From a Near-Perfect Season 6 Episode
+
+TV Features, The Sopranos, James Gandolfini, HBO Max, Crime
+
+Sat, 03 Oct 2026 03:01:12 GMT
+
+https://collider.com/the-sopranos-tony-best-moment-second-coming-pool-scene/
+
+One of the darkest moments in The Sopranos occurs in the episode "The Second Coming," that finds Tony Soprano in a tough spot with his son, A.J.
+---------
+
+# It Was the End of an Era for ‘Smallville’ After This Unforgettable Episode
+
+TV Features, Smallville, Tom Welling, Hulu, Superman
+
+Sat, 03 Oct 2026 02:44:12 GMT
+
+https://collider.com/smallville-100th-episode-reckoning-jonathan-kent-death/
+
+Smallville’s 100th episode, “Reckoning,” ended an era with Jonathan Kent’s death and taught Clark a painful lesson about becoming Superman.
+---------
+
+# Netflix's 7-Part Western Epic Is Officially an Instant Streaming Smash
+
+TV News, East of Eden, Florence Pugh, Netflix, Western
+
+Sat, 03 Oct 2026 02:30:12 GMT
+
+https://collider.com/east-of-eden-netflix-western-epic-streaming-success-october-2026/
+
+Netflix's majestic East of Eden adaptation, starring Florence Pugh, has emerged as a critical and commercial success. Find out more.
+---------
+
+# ‘Magic: The Gathering’ Officially Revives Secret Lair Drop After Fan Backlash
+
+Gaming News, Magic: The Gathering, Hasbro, Fantasy, TableTop
+
+Sat, 03 Oct 2026 02:15:11 GMT
+
+https://collider.com/magic-the-gathering-zeta-set-pre-order-re-launch/
+
+Wizards of the Coast has reopened pre-orders for The Zeta Set after a rocky launch amid fan backlash.
+---------
+
+# Mark Wahlberg’s New Crime Thriller Officially Loses Nearly 3,000 Theaters
+
+Movie News, By Any Means, Mark Wahlberg, Yahya Abdul-Mateen II, Box Office
+
+Sat, 03 Oct 2026 02:00:21 GMT
+
+https://collider.com/mark-wahlberg-by-any-means-crime-movie-removed-from-2800-theaters-box-office/
+
+Mark Wahlberg's new crime movie, By Any Means, appears to have hit its box-office ceiling after being removed from nearly 3,000 theaters.
+---------
+
+# 'Tracker' Season 3 Recap: What To Remember Before Season 4 of CBS' Action Series
+
+TV Features, Tracker, Justin Hartley, CBS, Action
+
+Sat, 03 Oct 2026 01:55:12 GMT
+
+https://collider.com/tracker-season-3-recap-cbs-justin-hartley/
+
+Before Tracker Season 4 premieres, revisit Colter Shaw's biggest moments in Season 3 of the CBS action series.
+---------
+
+# Paramount's New $82M Action Thriller Gets Out-Powered at the Box Office by Avengers Endgame: Encore
+
+Movie News, Action, Thriller, Heart of the Beast, Brad Pitt, Box Office Milestones, Avengers: Endgame Encore
+
+Sat, 03 Oct 2026 03:00:16 GMT
+
+https://movieweb.com/avengers-endgame-encore-box-office-october-2026/
+
+Brad Pitt’s Heart of the Beast opened solidly, but Avengers: Endgame Encore made the weekend a lot tougher.
+---------
+
+# 8 Masterpiece Western Series That Tell the Whole Story in One Season
+
+TV Lists, Western
+
+Sat, 03 Oct 2026 02:00:24 GMT
+
+https://movieweb.com/western-series-one-season-stories/
+
+These Western series tell complete, self-contained stories in a single season, delivering satisfying endings without needing a renewal.
+---------
+
+# Jason Momoa's Forgotten 3-Part Sci-Fi Action Epic Is Making a Comeback on Streaming
+
+TV News, See, Apple TV, Hot on Streaming, Action, Sci-Fi
+
+Sat, 03 Oct 2026 01:00:16 GMT
+
+https://movieweb.com/see-jason-momoa-action-stream-apple-october-2026/
+
+The most underrated sci-fi show of the decade is now a cult classic thanks to streaming.
+---------
+
 # Green Lantern's New Series Reboots Hal Jordan's Biggest Villains
 
 DC Comics, Green Lantern
