@@ -1,3 +1,388 @@
+# Tom Cruise's Digger Rotten Tomatoes Score Gets Official Audience Verdict
+
+Movies, Tom Cruise, Digger
+
+Sat, 03 Oct 2026 21:53:55 GMT
+
+https://screenrant.com/tom-cruise-digger-movie-rotten-tomatoes-audience-score-record/
+
+Tom Cruise's Digger already fueled polarizing reviews with critics, but the Rotten Tomatoes score finally revealed audiences' verdict on the satire.
+---------
+
+# Doctor Who's Cancelled 2026 Episode Brought Back Iconic Villains For Mysterious Story
+
+TV, Doctor Who
+
+Sat, 03 Oct 2026 21:51:40 GMT
+
+https://screenrant.com/doctor-who-cancelled-christmas-2026-episode-plot-villain-russell-t-davies/
+
+Doctor Who showrunner Russell T. Davies speaks out about the cancelled Christmas Special's story, revealing what really happened with Billie Piper.
+---------
+
+# Mike Flanagan Bluntly Clarifies Ties To DC's New R-Rated Batman Movie
+
+Movies, Clayface, Batman, DC Universe, Mike Flanagan
+
+Sat, 03 Oct 2026 21:36:18 GMT
+
+https://screenrant.com/clayface-dc-batman-movie-mike-flanagan-role-connection-clarified/
+
+As DC Studios' new R-rated live-action Batman movie is releasing this fall, Mike Flanagan opens up about his involvement with the upcoming film.
+---------
+
+# RuneScape 4 Officially Revealed After 13 Years
+
+Gaming, RuneScape, Live Service Games, PC
+
+Sat, 03 Oct 2026 21:20:21 GMT
+
+https://screenrant.com/runescape-4-official-announcement-jagex-unreal/
+
+13 years after the release of RuneScape 4 and weeks after Dragonwilds, RuneScape is preparing to enter an entirely new era with a new MMORPG.
+---------
+
+# Taylor Sheridan's Sicario 3 Needs To Bring Back One Character The Sequel Never Should Have Lost
+
+Movies, Sicario
+
+Sat, 03 Oct 2026 21:16:16 GMT
+
+https://screenrant.com/taylor-sheridan-sicario-3-emily-blunt-return/
+
+The Sicario trilogy won't be complete without the return of the moral heart of the first movie, and Sicario 3 needs to right the wrong of the sequel.
+---------
+
+# All 8 DCU Characters Who Appear In James Gunn's HBO Max Superman Series' New Episode
+
+Streaming TV, Masked Recs
+
+Sat, 03 Oct 2026 21:10:07 GMT
+
+https://screenrant.com/all-dc-universe-characters-krypto-saves-the-day-season-2-hbo-max/
+
+James Gunn's Superman series is back on HBO Max with a new episode, and multiple characters who have appeared in the DCU return in this 2026 release.
+---------
+
+# Star Trek's New Enterprise Crew Explained, All Members and Connections
+
+Comics, Star Trek
+
+Sat, 03 Oct 2026 21:00:19 GMT
+
+https://screenrant.com/star-trek-new-crew-enterprise/
+
+Boldly go
+---------
+
+# It's Officially The End Of An Era For The Last Of Us
+
+Streaming TV, The Last of Us
+
+Sat, 03 Oct 2026 21:00:19 GMT
+
+https://screenrant.com/the-last-of-us-end-era-naughty-dog-season-3/
+
+With Naughty Dog withdrawing from the TV series, none of the games' original creators will be involved in HBO's The Last of Us going forward.
+---------
+
+# Sydney Sweeney Is The Secret Lead Of A Horror Master's Final Movie That Is Currently Streaming On Prime
+
+Movies, Masked Recs
+
+Sat, 03 Oct 2026 21:00:19 GMT
+
+https://screenrant.com/ward-movie-sydney-sweeney-secret-lead-john-carpenter-final-movie/
+
+Long before she became a major star, Sydney Sweeney was the secret lead in the final film from one of the horror genre's best directors.
+---------
+
+# Stargate Meets Baldur's Gate 3 In New Sci-Fi RPG
+
+Gaming, Steam, Indie Games, PC
+
+Sat, 03 Oct 2026 21:00:19 GMT
+
+https://screenrant.com/stargate-meets-baldurs-gate-3-new-sci-fi-rpg/
+
+Baldur's Gate 3 has inspired so many games since it was released, but this sci-fi RPG that also melds Stargate is something to watch.
+---------
+
+# Cult Classic 82-Minute Halloween Staple Gets Revived on Streaming Amid Sequel Woes
+
+Movies, Trick 'r Treat, Horror, HBO Max
+
+Sat, 03 Oct 2026 21:30:11 GMT
+
+https://www.cbr.com/trick-r-treat-horror-anthology-cult-classic-hbo-success-october-2026/
+
+One of the best comedy-horror cult classics, Trick 'r Treat, is now back as a streaming hit as the Halloween season begins.
+---------
+
+# 10 Near-Perfect 2000s Anime Series You Should Watch in 2026
+
+Anime, Gintama, The Twelve Kingdoms
+
+Sat, 03 Oct 2026 21:15:11 GMT
+
+https://www.cbr.com/near-perfect-2000s-anime-to-watch-in-2026/
+
+2026 is the perfect time to discover these classic anime series from the 2000s, like Paranoia Agent and Gintama.
+---------
+
+# Pokémon Ruby & Sapphire Return in New $165 Release Coming May 2027
+
+Games, Pokemon
+
+Sat, 03 Oct 2026 21:00:12 GMT
+
+https://www.cbr.com/pokemon-ruby-sapphire-return-new-release-may-2027/
+
+Pokémon is returning to Hoenn once against with a new Ruby and Sapphire release, coming out in 2027.
+---------
+
+# Johnny Depp’s 77-Minute Gem Is Quietly Climbing the Streaming Charts This Spooky Season
+
+Movies, Corpse Bride, tim burton, Animation
+
+Sat, 03 Oct 2026 21:00:12 GMT
+
+https://www.cbr.com/johnny-depp-tim-burton-corpse-bride-animation-hbo-success-october-2026/
+
+Johnny Depp's beloved Halloween classic, Corpse Bride, is one of the most-watched movies in the United States.
+---------
+
+# Prime Video Officially Reboots a $235M Franchise With a New TV Series
+
+TV, Barbershop
+
+Sat, 03 Oct 2026 20:46:28 GMT
+
+https://www.cbr.com/prime-video-barbershop-series-first-trailer/
+
+A hit franchise is being rebooted by Prime Video a decade after its last installment.
+---------
+
+# The 3-Part Apple TV Sci-Fi Series Stephen King Called a 10/10 Masterpiece
+
+TV, Silo, Apple TV, Stephen King
+
+Sat, 03 Oct 2026 20:30:11 GMT
+
+https://www.cbr.com/stephen-king-silo-terrifically-suspenseful-masterpiece/
+
+Stephen King, a master storyteller and the King of Horror, revealed the masterful sci-fi story that keeps even him on the edge of his seat.
+---------
+
+# 10 Greatest Time Travel Movies Of All Time, Ranked
+
+Movies, Sci-Fi, Back to the Future, Arrival
+
+Sat, 03 Oct 2026 20:30:11 GMT
+
+https://www.cbr.com/greatest-time-travel-movies-ever-ranked-list/
+
+These 10 time travel movies rise above all because they actually nailed the art of time travel.
+---------
+
+# Disney+'s Easy-to-Binge 21-Part Fantasy Series Earns Rare Rotten Tomatoes Score
+
+TV, Rotten Tomatoes, Coven Academy
+
+Sat, 03 Oct 2026 20:20:11 GMT
+
+https://www.cbr.com/disney-coven-academy-rotten-tomatoes-score/
+
+Disney+ is back with a brand-new original series with a brand-new format which has earned a rare score.
+---------
+
+# 10 Complete Shonen Anime Every Fan Needs to Watch At Least Once
+
+Anime, shonen anime
+
+Sat, 03 Oct 2026 20:15:11 GMT
+
+https://www.cbr.com/complete-shonen-anime-every-fan-should-watch/
+
+Some shonen anime turn simple stories into an experience that stays with fans for years after that first watch.
+---------
+
+# Disney's 96-Minute Cult Classic Returns as 1 of the Most-Watched Films on Streaming 33 Years Later
+
+Movies, Hocus Pocus, Disney, Fantasy
+
+Sat, 03 Oct 2026 20:00:11 GMT
+
+https://www.cbr.com/hocus-pocus-halloween-fantasy-comedy-disney-success-october-2026/
+
+Disney's beloved cult classic, Hocus Pocus, is back as a streaming hit as Halloween season stars.
+---------
+
+# 'Slow Horses' Just Officially Added a Surprising New Member to the Team
+
+TV Features, Slow Horses, Apple TV, Gary Oldman, Kristin Scott Thomas
+
+Sat, 03 Oct 2026 21:47:11 GMT
+
+https://collider.com/slow-horses-season-6-episode-3-flyte-slough-house/
+
+Slow Horses' latest episode involves a twist for one character that could mean a new addition to Jackson Lamb's team at Slough House.
+---------
+
+# The 6 Best Action Movies Released Between 2020 and Now
+
+Movie, Tenet, John Wick: Chapter 4, Top Gun: Maverick, The Furious
+
+Sat, 03 Oct 2026 21:30:11 GMT
+
+https://collider.com/best-action-movies-since-2020/
+
+John Wick: Chapter 4, Avatar: The Way of Water, and The Furious are all among the best action movies released since 2020.
+---------
+
+# Near-Perfect Zombie Classic Officially Rises From the Dead on Streaming
+
+Movie News, Train to Busan, Sci-Fi, Horror, Peninsula
+
+Sat, 03 Oct 2026 21:30:11 GMT
+
+https://collider.com/train-to-busan-streaming-peacock-october-2026/
+
+Acclaimed zombie masterpiece Train to Busan officially lands on Peacock this October alongside its sequel Peninsula.
+---------
+
+# Rebecca Ferguson’s Twisted Serial Killer Thriller Is Officially Streaming on Paramount+
+
+Movie News, Michael Fassbender, The Snowman, Rebecca Ferguson, Tomas Alfredson
+
+Sat, 03 Oct 2026 21:15:11 GMT
+
+https://collider.com/rebecca-ferguson-michael-fassbender-the-snowman-streaming-paramount-plus-october-2026/
+
+A Nordic Noir muder mystery starring Rebecca Ferguson and Michael Fassbender is streaming on Paramount+ after being disowned by its director.
+---------
+
+# 5 Classic Rock Songs for Spooky Season
+
+Music Features, Rock, Horror, Halloween, Music
+
+Sat, 03 Oct 2026 21:14:11 GMT
+
+https://collider.com/classic-rock-spooky-season-halloween-songs/
+
+Five classic rock hits that are perfect for Halloween season including songs from the Ramones, Blue Oyster Cult, Donovan, CCR, and Warren Zevon.
+---------
+
+# Say Goodbye to Showtime's 7-Part 'House' Replacement on Netflix
+
+TV Features, Nurse Jackie, House, Edie Falco, Merritt Wever
+
+Sat, 03 Oct 2026 21:10:11 GMT
+
+https://collider.com/nurse-jackie-netflix-leaving-october-2026/
+
+Before it leaves Netflix, catch Edie Falco's medical dramedy, Nurse Jackie, this weekend on the streamer.
+---------
+
+# Guy Ritchie’s Only $1 Billion Movie Officially Finds New Life 7 Years Later
+
+Movie News, Aladdin, Guy Ritchie, Will Smith, Disney+
+
+Sat, 03 Oct 2026 21:01:11 GMT
+
+https://collider.com/guy-ritchie-aladdin-streaming-success-disney-plus-october-2026/
+
+Guy Ritchie's only movie ever to gross $1 billion at the box office is finding new life on streaming seven years later.
+---------
+
+# One of Horror’s Most Infamous Summer Camps Is Now Open on Free Streaming
+
+Movie News, Sleepaway Camp, Sleepaway Camp II: Unhappy Campers, Sleepaway Camp III: Teenage Wasteland, Pluto TV
+
+Sat, 03 Oct 2026 20:45:12 GMT
+
+https://collider.com/sleepaway-camp-free-streaming-pluto-tv-october-2026/
+
+Sleepaway Camp is streaming free on Pluto TV, giving horror fans another slasher to add to their October movie marathon.
+---------
+
+# The 8 Best Sci-Fi Audiobooks of All Time, Ranked
+
+Books and Comics, Sci-Fi, 11.22.63, A Clockwork Orange, Frankenstein
+
+Sat, 03 Oct 2026 20:38:12 GMT
+
+https://collider.com/best-sci-fi-audiobooks-all-time-ranked/
+
+The best sci-fi audiobooks of all time include recordings of classics like Hyperion and Frankenstein alongside newer releases like Project Hail Mary.
+---------
+
+# 7 Years Later, Walton Goggins’ Hilarious Comedy Series Is Still the Perfect Binge
+
+TV Features, The Righteous Gemstones, Walton Goggins, HBO Max, Comedy
+
+Sat, 03 Oct 2026 20:34:12 GMT
+
+https://collider.com/walton-goggins-best-performance-the-righteous-gemstones/
+
+Walton Goggins plays Baby Billy in HBO Max's hit comedy series The Righteous Gemstones, created by Danny McBride.
+---------
+
+# Clint Eastwood's 116-Minute Action Thriller From 18 Years Ago Still Beats Any Western He Ever Made
+
+Features, Clint Eastwood, Gran Torino, Action, Thriller, Western
+
+Sat, 03 Oct 2026 21:01:14 GMT
+
+https://movieweb.com/clint-eastwood-gran-torino-better-than-westerns/
+
+One of Clint Eastwood's best movies is secretly a neo-Western that outshines his earlier genre entries, bringing frontier justice into the modern era.
+---------
+
+# Paramount's 20-Part Western Is the 'Yellowstone' Follow-up Taylor Sheridan Fans Have Been Waiting For
+
+Features, Sheriff Country, Action, Western, Marshals
+
+Sat, 03 Oct 2026 20:30:14 GMT
+
+https://movieweb.com/sheriff-county-streaming-recommendation/
+
+There's one modern Western crime drama that makes a perfect follow-up to Taylor Sheridan's shows, and there's time to catch up before Season 2.
+---------
+
+# Before 'Reacher' Season 5, This Underrated 118-Minute Action Thriller Is a Streaming Smash Hit
+
+Movie News, Tom Cruise, Jack Reacher, Hot on Streaming
+
+Sat, 03 Oct 2026 20:01:14 GMT
+
+https://movieweb.com/jack-reacher-tom-cruise-stream-prime-video-october-2026/
+
+This one might make you forget about the Amazon series, even for a couple of hours.
+---------
+
+# Jonathan Nolan's 10/10 Cyberpunk Sci-Fi Thriller Series Has One of the Best Seasons in TV History
+
+Features, Jonathan Nolan, Sci-Fi, Person of Interest
+
+Sat, 03 Oct 2026 20:01:14 GMT
+
+https://movieweb.com/person-of-interest-best-tv-seasons/
+
+Jonathan Nolan made a cyberpunk sci-fi thriller series that features a talented cast, and it has one particularly great season.
+---------
+
+# Forget 'Reacher': The Action Thriller Series Everyone's Been Waiting for Is Officially Returning Soon
+
+Features, The Night Agent, Reacher, Action, Thriller
+
+Sat, 03 Oct 2026 19:30:15 GMT
+
+https://movieweb.com/the-night-agent-season-4-2027/
+
+While 'Reacher' may be the most popular action thriller on streaming, another soon-to-return hit show outdoes it in pure, high-velocity action.
+---------
+
 # Pokémon Winds & Waves Opening Leaks, Reveals New Region Map Size
 
 Gaming, Pokemon Winds and Waves, Triple-A Games
