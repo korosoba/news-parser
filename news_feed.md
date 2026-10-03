@@ -1,3 +1,399 @@
+# Green Lantern's New Series Reboots Hal Jordan's Biggest Villains
+
+DC Comics, Green Lantern
+
+Sat, 03 Oct 2026 00:30:16 GMT
+
+https://screenrant.com/green-lantern-yellow-lanterns-reboot/
+
+DC's new universe reimagines two of Hal Jordan's most iconic villains by merging them and depicting them as heroes, at least initially.
+---------
+
+# Black Mirror Is Connected To A Popular 8-Show Franchise And Hardly Anyone Knows
+
+Streaming TV, Black Mirror
+
+Sat, 03 Oct 2026 00:30:16 GMT
+
+https://screenrant.com/black-mirror-philomena-cunk-connection/
+
+Black Mirror is one of the longest-running sci-fi series in Netflix history, but the dystopian masterpiece has shocking ties to a British icon.
+---------
+
+# Recasting The Big Bang Theory For 2026: All 8 Main Characters
+
+Classic TV, The Big Bang Theory
+
+Sat, 03 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/the-big-bang-theory-recasting-2026-actors/
+
+The Big Bang Theory has had an impressive impact on the sitcom landscape but it has not aged well, making a remake an exciting prospect.
+---------
+
+# Netflix's 7-Part East Of Eden Series Fixes The 1955 Movie's Biggest Flaw
+
+Streaming TV, East of Eden
+
+Fri, 02 Oct 2026 23:54:16 GMT
+
+https://screenrant.com/east-of-eden-netflix-series-1955-movie-adaptation/
+
+Netflix's 7-part East of Eden adapts far more of Steinbeck's novel than the 1955 movie, with Florence Pugh's Cathy at the center.
+---------
+
+# Baldur’s Gate 3 Is Coming Back With Official New Content For Karlach And Astarion
+
+Comics, Baldur's Gate, Baldur's Gate 3, Astarion
+
+Fri, 02 Oct 2026 23:36:38 GMT
+
+https://screenrant.com/baldurs-gate-3-astarion-karlach-backstory-comics/
+
+Baldur’s Gate 3 is officially returning with more content for fans, and this time it is all about Karlach and Astarion. Here is everything we know.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Weekend (October 3-4)
+
+Movies, HBO Max, Recommendation
+
+Fri, 02 Oct 2026 23:31:03 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-weekend-october-3/
+
+HBO Max subscribers looking for the streamer's best movies will find them in an R-rated action thriller, a horror comedy, and a dark game.
+---------
+
+# Gabby Petito Case Explained: What Happened To Brian Laundrie During His Disappearance
+
+Classic TV
+
+Fri, 02 Oct 2026 23:30:16 GMT
+
+https://screenrant.com/gabby-petito-brian-laundrie-death-time-case-explained/
+
+An exploration of the tragic timeline of Gabby Petito's case and Brian Laundrie's disappearance, revealing key investigation details.
+---------
+
+# Netflix's Most Anticipated 2026 Series Is Officially Its Most Controversial
+
+Streaming TV, Netflix
+
+Fri, 02 Oct 2026 23:30:16 GMT
+
+https://screenrant.com/jojos-bizarre-adventure-steel-ball-run-netflix-controversy/
+
+Netflix's streaming release line-up for the final three months of 2026 features the most anticipated yet controversial series of the whole year.
+---------
+
+# Chrono Trigger Gets A Gorgeous HD-2D Overhaul Thanks To Fans
+
+Gaming, Chrono Trigger, Triple-A Games
+
+Fri, 02 Oct 2026 23:00:18 GMT
+
+https://screenrant.com/chrono-trigger-hd-2d-remake-fan-project/
+
+If you've ever wondered what Chrono Trigger would look like in the HD-2D style popularized by Octopath Traveler, one fan has you covered.
+---------
+
+# DC's Original Green Lantern Was Almost Another Classic Character Who Makes Hal Look Weak
+
+Comics, Green Lantern
+
+Fri, 02 Oct 2026 23:00:18 GMT
+
+https://screenrant.com/superman-almost-green-lantern-stronger-hal-jordan/
+
+Before Hal Jordan was selected to become the Green Lantern of Sector 2814, there was another classic DC character who nearly got the ring instead.
+---------
+
+# 10 Hardest Game Boy Games of All Time, Ranked
+
+Games, Nintendo, retro games
+
+Sat, 03 Oct 2026 00:30:11 GMT
+
+https://www.cbr.com/hardest-game-boy-games-of-all-time-ranked-list/
+
+Game Boy games like Mega Man: Wily's Revenge pushed players to their limits.
+---------
+
+# 10 Years Later, Gundam's Darkest Anime Revives 1 of Its Most Sinister Mecha in New First Look
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: Iron Blooded Orphans, merchandise, toys, action figures, bandai
+
+Sat, 03 Oct 2026 00:20:24 GMT
+
+https://www.cbr.com/gundam-iron-blooded-orphans-metal-robots-spirits-vidar-first-look/
+
+Bandai has released a promo image for an upcoming Gundam action figure that's set to revamp a previously-released Iron Blooded Orphans collectible.
+---------
+
+# Flawless Anime Series With No Weak Episodes, Ranked
+
+Anime, Mob Psycho 100, Vinland Saga
+
+Sat, 03 Oct 2026 00:15:12 GMT
+
+https://www.cbr.com/flawless-anime-no-weak-episode-ranked-list/
+
+From their opening episodes to their finales, these anime maintain a level of quality that few series can match.
+---------
+
+# Landman Quietly Confirmed Its New Tommy Norris Ahead of Season 3
+
+TV, Landman
+
+Sat, 03 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/landman-season-3-cooper-replace-tommy-norris/
+
+Landman Season 3 has a striking replacement for Billy Bob Thornton's lead character, Tommy Norris, who was quietly revealed in Season 2's finale.
+---------
+
+# New 99-Minute R-Rated Steamy Sci-Fi Is 1 of the Most-Watched Films After Mixed Reviews
+
+Movies, SOULM8TE
+
+Sat, 03 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/soulm8te-sci-fi-hulu-success-october-2026/
+
+The R-rated headed straight to streaming after being scrapped from theaters.
+---------
+
+# 10 RPGs With the Best Combat Systems, Ranked
+
+Games
+
+Sat, 03 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/best-rpg-combat-systems-ranked/
+
+An RPG's combat system can make or break a potentially great game, and these games got it right.
+---------
+
+# Star Wars: Galactic Racer Delivers Thrilling Racing, but the Ride Isn't Always Smooth
+
+Games, Star Wars, PlayStation (Original), Video Games
+
+Sat, 03 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/star-wars-galactic-racer-review/
+
+Star Wars: Galactic Racer nails the series' aesthetic and delivers high-octane action, but it's let down by major issues with its track design.
+---------
+
+# Garfield and 9 Other Best Comic Pets, Ranked
+
+Comics, Garfield
+
+Sat, 03 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/garfield-other-best-comic-pets-ranked/
+
+Comic characters put a ton of work in, but everyone knows it's pets like Garfield, Lockheed, Krypto, and others who are the real stars of the show.,
+---------
+
+# The Strongest Anime Character of All Time Is Still Unbeatable 40 Years Later
+
+Anime, Dragon Ball, Goku
+
+Fri, 02 Oct 2026 23:45:11 GMT
+
+https://www.cbr.com/all-time-strongest-anime-character-unbeatable-40-years-later/
+
+There might be plenty of powerful characters, but only one anime legend rules as the strongest of all time.
+---------
+
+# 10 PS1 RPGs With the Best Stories, Ranked
+
+Games, PlayStation (Original), RPG
+
+Fri, 02 Oct 2026 23:30:11 GMT
+
+https://www.cbr.com/ps1-rpgs-best-stories-all-time-ranked/
+
+PS1 RPGs like Final Fantasy Tactics have some of the best video game stories of all time.
+---------
+
+# Al Pacino’s Hit Crime Thriller Officially Brings a Deadly Love Affair to Prime Video
+
+Movie News, Al Pacino, Basic Instinct, Prime Video, Sea of Love
+
+Sat, 03 Oct 2026 00:30:12 GMT
+
+https://collider.com/al-pacino-sea-of-love-streaming-prime-video-october-2026/
+
+Al Pacino's steamy crime thriller officially returns to streaming, reviving a deadly game of obsession and deception.
+---------
+
+# ‘American Horror Story’ Is Officially Taking Over the World Following Season 13 Release
+
+TV News, Halloween, Horror, Hulu, American Horror Story
+
+Sat, 03 Oct 2026 00:15:12 GMT
+
+https://collider.com/american-horror-story-streaming-success-disney-plus-hulu-october-2026/
+
+A long-running horror phenomenon is haunting streaming charts worldwide as fresh episodes turn early autumn into spooky season.
+---------
+
+# 10 Sci-Fi Miniseries That Are Perfect From Start to Finish
+
+TV, Sci-Fi, Science Fiction, TV Miniseries, WandaVision
+
+Sat, 03 Oct 2026 00:02:11 GMT
+
+https://collider.com/sci-fi-miniseries-perfect-start-to-finish/
+
+HBO Max's Station Eleven, Netflix's Maniac, and Disney+'s WandaVision are some of the sci-fi miniseries that are perfect from start to finish.
+---------
+
+# The Greatest Sports Anime Ever Made Officially Returns to Theaters
+
+TV News, Yuri on Ice, Crunchyroll, Anime, Sports
+
+Sat, 03 Oct 2026 00:01:11 GMT
+
+https://collider.com/yuri-on-ice-theater-release-october-2026/
+
+Yuri!!! on Ice is officially celebrating its 10th anniversary with a theatrical release following the movie's cancellation.
+---------
+
+# ‘Pokémon's Biggest Game Yet Officially Returns With New Release
+
+Gaming News, Pokémon, Nintendo, Video Game, Nintendo Switch
+
+Fri, 02 Oct 2026 23:45:11 GMT
+
+https://collider.com/pokemon-legends-z-a-complete-switch-2-release-october-2026/
+
+Pokémon Legends: Z-A celebrates its anniversary with a complete Switch 2 release and Mega Dimension DLC this October.
+---------
+
+# 3 Prime Video Shows to Watch This Weekend Where Every Episode Is a 10/10 Masterpiece
+
+TV, Fleabag, Bates Motel, Supernatural, Prime Video
+
+Fri, 02 Oct 2026 23:43:11 GMT
+
+https://collider.com/prime-video-shows-binge-october-3-2026/
+
+Bates Motel, Supernatural, and Fleabag make up our list of the best Prime Video shows to watch the weekend of October 3.
+---------
+
+# HBO Max Officially Revives George R.R. Martin’s Sci-Fi Fantasy
+
+Movie News, HBO Max, In the Lost Lands, George R.R. Martin, Dave Bautista
+
+Fri, 02 Oct 2026 23:30:12 GMT
+
+https://collider.com/george-rr-martin-in-the-lost-lands-streaming-success-hbo-max-october-2026/
+
+Milla Jovovich and Dave Bautista's sci-fi fantasy epic is officially finding fresh viewers on streaming.
+---------
+
+# 10 Biggest Unsolved ‘Pokémon’ Mysteries, Ranked
+
+TV, Pokémon, Anime, Cartoon Network, Animation
+
+Fri, 02 Oct 2026 23:29:11 GMT
+
+https://collider.com/pokemon-biggest-unsolved-mysteries/
+
+Pokémon turns 30 in 2026, but mysteries surrounding Ash’s father, Tobias’ team, and Lumiose City’s ghost girl still leave fans guessing.
+---------
+
+# Nicolas Cage Officially Compares the MCU to the WWE
+
+Movie News, Avengers: Doomsday, Nicolas Cage, MCU, WWE
+
+Fri, 02 Oct 2026 23:15:12 GMT
+
+https://collider.com/nicolas-cage-mcu-criticisms-spider-noir/
+
+Despite his long history with Marvel, Nicolas Cage has shared a damning rebuke of the MCU, comparing it to a big-budget WWE event.
+---------
+
+# Robert Pattinson's 9 Best Movies in the Last 10 Years, Ranked
+
+Movie, Robert Pattinson, The Odyssey, Primetime, The Batman
+
+Fri, 02 Oct 2026 23:05:12 GMT
+
+https://collider.com/robert-pattinson-movies-last-10-years-ranked/
+
+From superhero movies like The Batman to psychological thrillers like Primetime, Robert Pattinson has shown off his range within the last decade.
+---------
+
+# Apple TV's Near-Perfect Sci-Fi Adaptation Finally Explains Its Confusing Book Change
+
+Features, Dark Matter, Sci-Fi, Apple TV
+
+Sat, 03 Oct 2026 00:00:15 GMT
+
+https://movieweb.com/dark-matter-season-2-entanglement-explained/
+
+'Dark Matter' Season 2 has largely adhered to book lore, but Season 2 has made at least one big change. Read on for more.
+---------
+
+# 50 Years Later, an Unsung Sci-Fi Action Classic Resurfaces as It Sets New Release
+
+Movie News, Logan's Run, Logan's Run (1976), Sci-Fi, Action, Blu-ray
+
+Fri, 02 Oct 2026 23:30:15 GMT
+
+https://movieweb.com/logans-run-4k-blu-ray-release/
+
+The unsung 1976 sci-fi action classic 'Logan's Run' is finally making its highly anticipated debut on 4K Ultra HD Blu-ray, courtesy of Arrow Video.
+---------
+
+# James Gunn's DC Studios Fate Officially Confirmed as Warner Bros. Takeover Ousts Top Bosses
+
+Movie News, James Gunn
+
+Fri, 02 Oct 2026 23:02:48 GMT
+
+https://movieweb.com/james-gunn-fate-warner-bros-paramount-deal/
+
+What does the Paramount-Skydance merger mean for DC's James Gunn?
+---------
+
+# 'Landman' Season 3 Officially Fixes a Major Character Problem
+
+Features, Landman, Western
+
+Fri, 02 Oct 2026 23:00:17 GMT
+
+https://movieweb.com/landman-season-3-casting-changes/
+
+After receiving minor criticism for poorly developed side characters, Landman is graduating its guest stars to series regulars in Season 3.
+---------
+
+# 6 Biggest Questions After 'Verity's Twisty Ending, Explained
+
+Movie Lists, Verity, Thriller
+
+Fri, 02 Oct 2026 22:00:18 GMT
+
+https://movieweb.com/verity-biggest-questions-explained/
+
+The ending of 'Verity' keeps the twists coming, revealing dark truths about the characters and raising as many questions as it answers.
+---------
+
+# 'Game of Thrones' Icon's Forgotten 105-Minute Western Thriller Shoots Up Netflix Streaming Charts
+
+Movie News, The Thicket, Peter Dinklage, Western, Thriller, Hot on Streaming
+
+Fri, 02 Oct 2026 21:30:15 GMT
+
+https://movieweb.com/the-thicket-peter-dinklage-western-netflix-stream-october-2026/
+
+Forget 'Yellowstone' and its spin-offs: this is the best modern Western you've never seen.
+---------
+
 # Yellowstone Is Officially Changing Genres With Spinoff's Season 2 Return
 
 TV, Marshals, Marshals - Season 2, Yellowstone
