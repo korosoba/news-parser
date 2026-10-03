@@ -1,3 +1,399 @@
+# Disney's New Fantasy Horror Series Earns Rare Rotten Tomatoes Score
+
+TV, Masked Recs
+
+Sat, 03 Oct 2026 15:08:00 GMT
+
+https://screenrant.com/disney-plus-coven-academy-rotten-tomatoes-score/
+
+Disney and Hulu's new horror series is ringing in spooky season exactly the right way, earning praise for its fast pace and cast performances.
+---------
+
+# Every Community Halloween Episode (In Chronological Order)
+
+Classic TV, Community
+
+Sat, 03 Oct 2026 15:00:18 GMT
+
+https://screenrant.com/community-halloween-episodes-every/
+
+Greendale sure knew how to get into the spooky spirit, as seen through multiple episodes of Community — here's a breakdown of the Halloween specials.
+---------
+
+# Yellowstone Will Officially Return To Its Most Iconic Location In 2026
+
+TV, Marshals, Marshals - Season 2, Yellowstone
+
+Sat, 03 Oct 2026 15:00:16 GMT
+
+https://screenrant.com/yellowstone-iconic-location-return-main-camp-marshals-season-2-confirmed/
+
+Exclusive: Marshals showrunner Spencer Hudnut confirms that Yellowstone is officially returning to its most iconic location and evolve East Camp.
+---------
+
+# 3 X-Men Heroes We Hope Make The Team's Final Lineup In The MCU's 2028 Reboot
+
+Movies, X-Men, Marvel Cinematic Universe
+
+Sat, 03 Oct 2026 15:00:16 GMT
+
+https://screenrant.com/x-men-heroes-hope-make-final-lineup-characters/
+
+Who else is joining the MCU's X-Men cast? These three Marvel Comics characters will hopefully be on the team when the final roster is confirmed.
+---------
+
+# Where The Menendez Brothers Are Now: Resentencing & Possible Parole Explained
+
+Streaming TV, Monsters: The Lyle and Erik Menendez Story
+
+Sat, 03 Oct 2026 15:00:16 GMT
+
+https://screenrant.com/where-lyle-erik-menendez-brothers-are-now/
+
+Erik and Lyle Menendez’s story has captivated the public for years and continues to do so today, especially now that they are back in the spotlight.
+---------
+
+# Sydney Sweeney's Heroes Character Is A Distant Memory 17 Years Later
+
+Classic TV, Heroes, Sydney Sweeney
+
+Sat, 03 Oct 2026 14:45:17 GMT
+
+https://screenrant.com/heroes-sydney-sweeney-character/
+
+Before Euphoria, Sydney Sweeney had supporting roles on several major TV shows, but many forget that she had a small role on the sci-fi series Heroes.
+---------
+
+# After Verity, Layla Is The Colleen Hoover Book Hollywood Needs To Adapt Next
+
+Movies, Verity
+
+Sat, 03 Oct 2026 14:40:17 GMT
+
+https://screenrant.com/verity-next-colleen-hoover-movie-adaptation/
+
+Colleen Hoover’s novels have made for some great films, from It Ends With Us to Verity, and this popular novel is primed for a great adaptation.
+---------
+
+# Ethan Hawke's Batman Series Officially Returns With New Episodes On HBO Max
+
+Streaming TV, Masked Recs
+
+Sat, 03 Oct 2026 14:35:10 GMT
+
+https://screenrant.com/ethan-hawke-batwheels-hbo-max-batman-series-season-3-release/
+
+Ethan Hawke's Batman is one of DC's best to date, and the actor's hit three-season series has just returned with new episodes on HBO Max.
+---------
+
+# Bailey’s The Rookie Exit Scare Is Fantastic News For Its Future
+
+Network TV, The Rookie
+
+Sat, 03 Oct 2026 14:30:17 GMT
+
+https://screenrant.com/the-rookie-season-9-bailey-exit-scare-good-future/
+
+An update from Jenna Dewan sparked concerns about Bailey Nune's future in The Rookie. Despite the worries, this is actually great development.
+---------
+
+# All 8 Upcoming Scarlett Johansson Movies & TV Shows (Releasing In 2026 & Beyond)
+
+New Movies, Scarlett Johansson
+
+Sat, 03 Oct 2026 14:15:17 GMT
+
+https://screenrant.com/scarlett-johansson-upcoming-movies-shows-release-dates/
+
+Scarlett Johansson is going to be busy for years to come, as the actress has multiple movies and TV shows on the horizon in 2026 and beyond.
+---------
+
+# Tom Hanks' 10/10 WW2 Drama Returns to the Charts Ahead of Highly-Anticipated Sequel
+
+Movies, Greyhound
+
+Sat, 03 Oct 2026 15:00:12 GMT
+
+https://www.cbr.com/tom-hanks-greyhound-war-apple-tv-success-october-2026/
+
+Hanks' war movie is back in the mix as one of the best streaming movies.
+---------
+
+# Netflix’s 3-Season Sci-Fi Masterpiece Has 1 of the Greatest Final Episodes Ever Made
+
+TV, Dark, Netflix, Sci-Fi, Innovation
+
+Sat, 03 Oct 2026 15:00:12 GMT
+
+https://www.cbr.com/netflix-dark-series-finale/
+
+Netflix has had some outstanding sci-fi shows, but one in particular delivered an unforgettable series finale.
+---------
+
+# 10 Strongest Non-Canon Dragon Ball Characters, Ranked
+
+Anime, Dragon Ball, Akira Toriyama
+
+Sat, 03 Oct 2026 15:00:12 GMT
+
+https://www.cbr.com/strongest-non-canon-dragon-ball-characters-ranked/
+
+Outside of Dragon Ball's canon continuity are some incredibly powerful individuals, like Fu, Mechikabura, and Cumber, who all deserve more recognition
+---------
+
+# The Rocketeer's Greatest Classic Stories of All Time Are Officially Confirmed To Return
+
+Comics, The Rocketeer, The Return of the Rocketeer
+
+Sat, 03 Oct 2026 14:55:28 GMT
+
+https://www.cbr.com/the-rocketeer-greatest-stories-of-all-time-officially-confirmed-to-return/
+
+The Rocketeer is a legendary franchise and fans craving a collection of his greatest tales just got their wish granted.
+---------
+
+# 10 Pokémon Games That Have Aged the Best, Ranked
+
+Games, Pokemon, Nintendo
+
+Sat, 03 Oct 2026 14:30:11 GMT
+
+https://www.cbr.com/pokemon-games-aged-the-best-ranked-list/
+
+Pokémon games like HeartGold and SoulSilver have aged like fine wine.
+---------
+
+# 7 Weakest Legendary Pokémon in the Anime, Ranked
+
+Anime, Pokemon, Pokémon
+
+Sat, 03 Oct 2026 14:15:12 GMT
+
+https://www.cbr.com/weakest-legendary-pokemon-anime-ranked/
+
+The Pokémon anime introduces plenty of Legendary Pokémon across the series, but a few of them are actually pretty weak by comparison.
+---------
+
+# Jake Gyllenhaal's 121-Minute Action Remake Returns as a Streaming Hit on a Brand-New Platform
+
+Movies, Road House
+
+Sat, 03 Oct 2026 14:00:11 GMT
+
+https://www.cbr.com/jake-gyllenhaal-road-house-action-hulu-success-october-2026/
+
+Jake Gyllenhaal's action movie is gaining a ton of new fans.
+---------
+
+# Baldur's Gate 3 Officially Returning Soon With An Unexpected Collaboration
+
+Comics, Baldur's Gate 3, Dungeons and Dragons
+
+Sat, 03 Oct 2026 14:00:11 GMT
+
+https://www.cbr.com/baldurs-gate-3-dark-horse-comics-confirmed/
+
+Fans of Baldur's Gate 3 are about to get the chance to dive back into the world of one of their favorite games, and in a completely different format.
+---------
+
+# KPop Demon Hunters 2 Is Already The Biggest Movie in Netflix History
+
+Movies, KPop Demon Hunters, Netflix
+
+Sat, 03 Oct 2026 14:00:11 GMT
+
+https://www.cbr.com/kpop-demon-hunters-2-biggest-netflix-movie-ever/
+
+KPop Demon Hunters 2 is already set to surpass the original as Netflix's most popular movie.
+---------
+
+# Evangelion Brings Adult Asuka to Life With Massive $1,285 Release
+
+Anime, Neon Genesis Evangelion, merchandise, collectibles, Evangelion: 3.0+1.0 Thrice Upon a Time
+
+Sat, 03 Oct 2026 14:00:11 GMT
+
+https://www.cbr.com/rebuild-of-evangelion-asuka-adult-form-infinity-studio-release/
+
+Fans can now pre-order the most life-like recreation of Asuka yet, with this new statue bringing her final Rebuild of Evangelion form to life.
+---------
+
+# Forget ‘Knives Out’, Netflix’s 4-Part Murder Mystery Is Officially a Global Streaming Smash
+
+TV News, Netflix, Mystery, Knives Out, Agatha Christie
+
+Sat, 03 Oct 2026 14:45:12 GMT
+
+https://collider.com/the-final-problem-netflix-global-streaming-hit-october-2026/
+
+Netflix’s four-part murder mystery The Final Problem becomes a global Top 10 streaming hit with 2.6 million views.
+---------
+
+# Dominic Cooper's New Romance Film Is the Polar Opposite of 'Mamma Mia' in This Sneak Peek [Exclusive]
+
+Exclusives, Dominic Cooper, Drama, Romance, Sarah Bolger
+
+Sat, 03 Oct 2026 14:30:12 GMT
+
+https://collider.com/the-lightkeeper-sneak-peek-dominic-cooper-sarah-bolger/
+
+Ahead of its Hamptons International Film Festival premiere, The Lightkeeper received a new sneak peek centered on Dominic Cooper's listless wickie.
+---------
+
+# These 10 Action Movies Are Officially the Best of All Time
+
+Movie, Mad Max: Fury Road, Die Hard, Aliens, Action
+
+Sat, 03 Oct 2026 14:05:12 GMT
+
+https://collider.com/best-action-movies-of-all-time/
+
+Die Hard, Mad Max: Fury Road, and The Matrix are all among the absolute greatest action movies in cinematic history.
+---------
+
+# ‘Mindhunter’ Fans Have a New Russell Crowe Psychological Thriller Taking Over Netflix
+
+Movie News, Unabomber, Russell Crowe, Netflix, Mindhunter
+
+Sat, 03 Oct 2026 14:00:12 GMT
+
+https://collider.com/unabomber-russell-crowe-netflix-streaming-hit-october-2026/
+
+Russell Crowe’s new psychological thriller tops Netflix’s global English movie chart with 16.4 million views.
+---------
+
+# 7 Best DreamWorks Movies of the 2020s, Ranked
+
+Movie, DreamWorks, How to Train Your Dragon, Forgotten Island, The Wild Robot
+
+Sat, 03 Oct 2026 13:24:12 GMT
+
+https://collider.com/best-dreamworks-movies-2020s-ranked/
+
+Forgotten Island, Puss in Boots: The Last Wish, and The Bad Guys 2 are among the best DreamWorks movies of the 2020s, but which is the greatest?
+---------
+
+# HBO’s New Legal Thriller Is Officially One of Streaming’s Biggest Shows
+
+TV News, War, HBO, Dominic West, Sienna Miller
+
+Sat, 03 Oct 2026 13:15:12 GMT
+
+https://collider.com/war-hbo-succession-replacement-streaming-hit-october-2026/
+
+HBO’s War, starring Sienna Miller and Dominic West, is already a Top 10 U.S. streaming hit following its October 1 premiere.
+---------
+
+# 'Scrubs' Star Confirms How the Revival Fixed One of the OG Show's Biggest Problems
+
+Interviews, Scrubs, Hulu, Sitcom
+
+Sat, 03 Oct 2026 13:01:12 GMT
+
+https://collider.com/scrubs-revival-season-2-tosh-ava-bunn-hulu/
+
+Newly minted series regular Ava Bunn talks about the Scrubs revival and what to expect from Dr. Tosh in Season 2.
+---------
+
+# Brad Pitt’s Haunting ‘Interstellar’-Style Sci-Fi Thriller Is Officially on Netflix
+
+Movie News, Ad Astra, Brad Pitt, James Gray, Sci-Fi
+
+Sat, 03 Oct 2026 12:45:12 GMT
+
+https://collider.com/brad-pitt-sci-fi-ad-astra-streaming-netflix-october-2026/
+
+Brad Pitt's acclaimed 83% Rotten Tomatoes sci-fi epic Ad Astra has officially landed on Netflix in the United States.
+---------
+
+# Chris Pratt’s ‘Reacher’-Style Action Thriller Officially Returns After a 4-Year Hiatus
+
+TV News, The Terminal List, The Terminal List: Dark Wolf, Chris Pratt, Prime Video
+
+Sat, 03 Oct 2026 12:30:12 GMT
+
+https://collider.com/chris-pratt-the-terminal-list-season-2-release-date-october-2026/
+
+Chris Pratt's action-packed Prime Video series The Terminal List will officially return with a second season this month, after a four-year gap.
+---------
+
+# The 10 Greatest Sci-Fi Cult Classic Movies, Ranked
+
+Movie, Science Fiction, Blade Runner, The Thing, Starship Troopers
+
+Sat, 03 Oct 2026 12:29:12 GMT
+
+https://collider.com/best-sci-fi-cult-classic-movies-ranked/
+
+From franchise starters like Tron to outright masterpieces like The Thing, these are the greatest, most iconic cult classics in sci-fi movie history.
+---------
+
+# 10 Movies to Watch If You Loved 'Purple Hearts'
+
+Movie Lists, Purple Hearts
+
+Sat, 03 Oct 2026 15:00:16 GMT
+
+https://movieweb.com/purple-hearts-movies-to-watch/
+
+If 'Purple Hearts' left you emotional, these 10 romance movies deliver the same heartfelt storytelling, sacrifice, and slow-burn chemistry.
+---------
+
+# 10 Underrated Crime Thriller Movies That Had a Resurgence Streaming on Netflix
+
+Movie Lists, Netflix, Crime, Thriller, Wrath of Man, The Ministry of Ungentlemanly Warfare
+
+Sat, 03 Oct 2026 15:00:15 GMT
+
+https://movieweb.com/underrated-crime-movies-netflix-resurgence/
+
+These crime thriller movies didn't perform that well at the box office, but they were more successful when released on Netflix later.
+---------
+
+# Denzel Washington's Near-Perfect 109-Minute Action Thriller Is a Global Streaming Hit Ahead of New Sequel
+
+Movie News, The Equalizer 3, Netflix, Hot on Streaming, Action
+
+Sat, 03 Oct 2026 14:30:15 GMT
+
+https://movieweb.com/equalizer-3-denzel-washington-stream-netflix-october-2026/
+
+Two more sequels are in the works!
+---------
+
+# 'Happy Death Day 3' Gets Major Update From Star Jessica Rothe
+
+Movie News, Happy Death Day to Us, Happy Death Day
+
+Sat, 03 Oct 2026 13:55:55 GMT
+
+https://movieweb.com/happy-death-day-3-update-story-jessica-rothe/
+
+Jessica Rothe offers a promising update on the much-anticipated 'Happy Death Day' threequel.
+---------
+
+# James Bond's Son Wields a Licence To Kill in New 82-Minute Action Thriller That's Streaming Now
+
+Movie News, Action, Thriller, James Bond, Roger Moore, Streaming
+
+Sat, 03 Oct 2026 13:01:15 GMT
+
+https://movieweb.com/knightfall-stream-action-thriller-october-2026/
+
+The under-the-radar spy thriller has been hailed as "reminiscent of one of the best 007 epics."
+---------
+
+# New 10-Part Action Thriller Becomes One of the Biggest Streaming Hits in the World After 1 Episode
+
+TV News, S.W.A.T. Exiles, Hot on Streaming, Action, S.W.A.T.
+
+Sat, 03 Oct 2026 12:00:16 GMT
+
+https://movieweb.com/swat-exiles-streaming-starz-october-2026/
+
+It hasn't taken long for Shemar Moore's anticipated action thriller spinoff to rise the ranks on streaming.
+---------
+
 # Netflix's 'Sherlock But Cooler' Detective Series Is Officially Returning This Month
 
 Streaming TV, Masked Recs
