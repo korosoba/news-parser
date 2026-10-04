@@ -1,3 +1,399 @@
+# 5 Reasons It's Hard To Watch Dances With Wolves Today
+
+Classic Movies, Dances With Wolves
+
+Sun, 04 Oct 2026 00:10:16 GMT
+
+https://screenrant.com/dances-with-wolves-reasons-hard-to-watch-today/
+
+Dances With Wolves remains one of the best Kevin Costner Westerns of all time, but there are some things that don't hold up as well today.
+---------
+
+# Forget Last Of Us, Dave Bautista & Jason Momoa's 3-Part Sci-Fi Series Is An Apple TV Sensation
+
+TV, Masked Recs
+
+Sun, 04 Oct 2026 00:01:16 GMT
+
+https://screenrant.com/dave-bautista-jason-momoa-see-last-of-us-replacement-apple-tv-global-streaming-success-october-2026/
+
+The Last of Us has achieved monumental success worldwide and reached historic viewership numbers, but Apple TV's sci-fi series could hit new heights.
+---------
+
+# The Expanse Meets Metal Gear Solid In This Sci-Fi Stealth Game
+
+Gaming, Steam, Indie Games, PC
+
+Sun, 04 Oct 2026 00:01:16 GMT
+
+https://screenrant.com/expanse-meets-metal-gear-solid-sci-fi-stealth-game/
+
+The vast setting of The Expanse is hard to truly replicate it, but when you mix in some stealth gameplay, it's easy to see how the project got there.
+---------
+
+# 6 Saddest Calvin & Hobbes Comics That Hit Harder As An Adult
+
+Comics, Calvin and Hobbes
+
+Sat, 03 Oct 2026 23:30:16 GMT
+
+https://screenrant.com/calvin-hobbes-saddest-comics-adult/
+
+Bill Watterson's Calvin and Hobbes comics can be as heartbreaking as they are funny and whimsical, especially from the perspective of an adult.
+---------
+
+# After 24 Years, Aragorn's Crucial The Lord Of The Rings Quote Still Defines The Best Fantasy Franchise
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Two Towers
+
+Sat, 03 Oct 2026 23:25:07 GMT
+
+https://screenrant.com/lord-of-the-rings-aragorn-quote-define-fantasy-franchise/
+
+Viggo Mortensen's Aragorn delivered one of the most crucial quotes in The Lord of the Rings franchise 24 years ago, and it still defines the universe.
+---------
+
+# Casting Amazon's Fourth Wing TV Show: 15 Actors Who'd Be Perfect For Main Roles
+
+Streaming TV, Fourth Wing
+
+Sat, 03 Oct 2026 23:16:04 GMT
+
+https://screenrant.com/fourth-wing-tv-show-fan-casting-main-roles/
+
+Amazon is adapting Rebecca Yarros' Fourth Wing books into a TV series, and the show must get the casting for the major characters right.
+---------
+
+# Tom Cruise Celebrates Digger's Opening Amid Disappointing Box Office
+
+Movies, Digger
+
+Sat, 03 Oct 2026 23:13:17 GMT
+
+https://screenrant.com/tom-cruise-digger-opening-celebration-box-office-disappointing/
+
+During a disappointing opening weekend box office for Digger, Tom Cruise is instead focusing on celebrating the movie now playing in theaters.
+---------
+
+# The Boys Officially Switched Genres In Trigger Warning (To Mixed Results)
+
+Gaming, The Boys
+
+Sat, 03 Oct 2026 23:00:17 GMT
+
+https://screenrant.com/boys-trigger-warning-genre-switch-reactions/
+
+Explore mixed reviews of The Boys: Trigger Warning VR game set in the hit superhero universe.
+---------
+
+# 7 Most Exciting Fantasy Books Still Due Out In 2026
+
+Books, Fantasy
+
+Sat, 03 Oct 2026 22:30:16 GMT
+
+https://screenrant.com/most-exciting-books-fall-winter-2026/
+
+2026 may be drawing to a close, but there are still massive fantasy books due out this year - including Sarah J Maas and Brandon Sanderson!
+---------
+
+# 9 New Thriller Books With Twists You'll Never See Coming
+
+Books, Thriller
+
+Sat, 03 Oct 2026 22:27:57 GMT
+
+https://screenrant.com/new-thriller-books-shocking-unpredictable-twists/
+
+2026 has brought many compelling thriller books, and these nine will provide you with shocking and exciting twists you'll never predict.
+---------
+
+# 10 Best Digimon Mega Evolutions in the Anime, Ranked
+
+Anime, Digimon
+
+Sun, 04 Oct 2026 00:15:11 GMT
+
+https://www.cbr.com/best-digimon-mega-evolutions-anime-ranked/
+
+These Mega Digimon reshaped the Digital World and became the unforgettable stars of the anime.
+---------
+
+# Jennifer Carpenter's Underrated 18-Year-Old Zombie Movie Remake Now Streaming for Free
+
+Movies, Quarantine
+
+Sun, 04 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/quarantine-horror-streaming-pluto-tv-october-2026/
+
+The underappreciated zombie flick and its forgotten sequel are both streaming for free.
+---------
+
+# Naruto Gives Pain a Dark New Akatsuki Design in Official Reveal
+
+Anime, Naruto, merchandise
+
+Sun, 04 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/naruto-akatsuki-pain-noir-edge-collection-release/
+
+Bandai Spirits has revealed a dark noir redesign for Naruto’s iconic villain Pain along with other Akatsuki members.
+---------
+
+# Tom Cruise Speaks Out After New Movie Gets His Lowest Box Office Opening in 19 Years
+
+Movies, Digger
+
+Sat, 03 Oct 2026 23:49:07 GMT
+
+https://www.cbr.com/digger-tom-cruise-reaction/
+
+Tom Cruise comments as his newest feature film sinks at the box office upon arrival.
+---------
+
+# 8 Reasons It's Hard to Watch the Pokémon Anime Today
+
+Anime, Pokemon, Pokémon
+
+Sat, 03 Oct 2026 23:45:11 GMT
+
+https://www.cbr.com/reasons-its-hard-to-watch-the-pokemon-anime-today/
+
+The Pokémon anime introduced countless kids to the world of Pikachu and pals, but it's not exactly easy to watch because of the odd way it was made.
+---------
+
+# The Most Underrated Evil Dead Movie Has a New Streaming Home
+
+Movies, Evil Dead
+
+Sat, 03 Oct 2026 23:30:12 GMT
+
+https://www.cbr.com/evil-dead-horror-new-streaming-home-october-2026/
+
+The most underrated (and divisive) Evil Dead movie is now available for streaming on one of the biggest platforms of all time.
+---------
+
+# The Princess Bride's Greatest Inigo Montoya Line Is Still the Best Revenge Quote in Fantasy
+
+Movies, The Princess Bride, Fantasy
+
+Sat, 03 Oct 2026 23:30:12 GMT
+
+https://www.cbr.com/princess-bride-inigo-montoya-best-fantasy-revenge-quote/
+
+The Princess Bride has plenty of great quotes, but Inigo Montoya's most famous line comes with an entire lifetime of revenge behind it.
+---------
+
+# 5 Classic Anime That Shaped Solo Leveling
+
+Anime, Solo Leveling, Innovation
+
+Sat, 03 Oct 2026 23:15:11 GMT
+
+https://www.cbr.com/classic-anime-shaped-solo-leveling-list/
+
+Solo Leveling is one of the biggest anime ever, but it took inspiration from many classic series.
+---------
+
+# The Rock's 91-Minute Maligned Mummy Spinoff With 40% RT Has a New Streaming Home
+
+Movies, The Scorpion King, The Mummy
+
+Sat, 03 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/dwayne-johnson-the-scorpion-king-new-streaming-home/
+
+One of the most divisive spinoff films of all time is making waves on another streaming platform ahead of the next The Mummy sequel.
+---------
+
+# Guillermo del Toro Slams Criticism for Tom Cruise's New Movie: 'Entirely Petty'
+
+Movies, tom cruise, Digger
+
+Sat, 03 Oct 2026 22:52:19 GMT
+
+https://www.cbr.com/guillermo-del-toro-slams-criticism-for-tom-cruise-digger/
+
+The Academy Award-winning creator just threw haymakers at those hating on Digger.
+---------
+
+# Brendan Fraser's $400M Fantasy Classic Officially Hits New Streamer Before Long-Awaited Sequel
+
+Movie News, The Mummy, Brendan Fraser, The Mummy Returns, The Mummy 4
+
+Sun, 04 Oct 2026 00:15:12 GMT
+
+https://collider.com/the-mummy-brendan-fraser-streaming-peacock-october-2026/
+
+Brendan Fraser’s $400 million fantasy blockbuster The Mummy is officially coming to Peacock ahead of the franchise’s long-awaited sequel.
+---------
+
+# Peacock’s Unhinged 2-Season Action Series Is the Perfect Binge for ‘Fallout’ Fans
+
+TV Features, Peacock, Twisted Metal, Fallout, Prime Video
+
+Sun, 04 Oct 2026 00:07:11 GMT
+
+https://collider.com/peacock-twisted-metal-fallout-perfect-post-apocalyptic-action-binge/
+
+Missing Fallout? Peacock has you covered with the zany, hyper-violent Twisted Metal.
+---------
+
+# Forget ‘Tulsa King,’ Ethan Hawke’s Taylor Sheridan-Style Crime Thriller Officially Returns This Month
+
+TV News, Tulsa King, The Lowdown, Ethan Hawke, Betty Gilpin
+
+Sun, 04 Oct 2026 00:00:11 GMT
+
+https://collider.com/ethan-hawke-the-lowdown-season-2-release-date-october-2026/
+
+Ethan Hawke's critically acclaimed Tulsa King replacement, The Lowdown, officially returns with a second season this month. Find out more.
+---------
+
+# This 3-Part Disney+ Star Wars Show Was at Its Best When It Kept the Franchise Small
+
+TV Features, The Mandalorian, Star Wars, Disney+, The Mandalorian and Grogu
+
+Sat, 03 Oct 2026 23:52:12 GMT
+
+https://collider.com/the-mandalorian-disney-plus-star-wars-best-small-franchise/
+
+Disney+'s The Mandalorian thrived most when it maintained a small, intimate narrative within the greater Star Wars galaxy.
+---------
+
+# Pokémon Fans’ Next Big Hunt Is Officially Heading Somewhere Unexpected
+
+Gaming News, Pokémon, Gaming, Games, Pikachu
+
+Sat, 03 Oct 2026 23:45:12 GMT
+
+https://collider.com/pokemon-tcg-cvs-mega-evolution-mini-tin-knockout-collection/
+
+CVS expects two Pokémon TCG Mega Evolution products at select stores in early October, with prices starting at $12.99.
+---------
+
+# 'Game of Thrones' Already Spoiled the Grim Death of This 'Knight of the Seven Kingdoms' Character
+
+TV Features, Game Of Thrones, A Knight Of The Seven Kingdoms, House of the Dragon, George R.R. Martin
+
+Sat, 03 Oct 2026 23:36:14 GMT
+
+https://collider.com/game-of-thrones-knight-of-the-seven-kingdoms-aerion-targaryen-death/
+
+Fans of the original Game of Thrones series already have a pretty good idea about where some of the prequel spinoffs are headed. (Thanks, Joffrey.)
+---------
+
+# Netflix Officially Lands One of Michael Bay’s Biggest War Movies
+
+Movie News, Michael Bay, Josh Hartnett, Ben Affleck, Pearl Harbor
+
+Sat, 03 Oct 2026 23:30:12 GMT
+
+https://collider.com/michael-bay-ww2-pearl-harbor-streaming-netflix-october-2026/
+
+Michael Bay's critically panned World War 2 romance film Pearl Harbor is now streaming on Netflix. Find out more.
+---------
+
+# Ben Affleck’s $117 Million ‘Minority Report’ Replacement Officially Finds a New Streaming Home
+
+Movie News, Sci-Fi, Ben Affleck, Paycheck, Uma Thurman
+
+Sat, 03 Oct 2026 23:15:12 GMT
+
+https://collider.com/paycheck-ben-affleck-paramount-plus-october-2026/
+
+Ben Affleck's $117 million Philip K. Dick sci-fi thriller Paycheck officially begins streaming on Paramount+ on October 1.
+---------
+
+# Tom Hanks’ 91-Minute War Thriller Officially Remains a Global Streaming Smash
+
+Movie News, Greyhound, Tom Hanks, Apple TV, Stephen Graham
+
+Sat, 03 Oct 2026 23:00:12 GMT
+
+https://collider.com/tom-hanks-greyhound-streaming-success-apple-tv-october-2026/
+
+The WWII movie Tom Hanks was "devastated" didn't make it to theaters is now dominating streaming six years later.
+---------
+
+# The Best Album From Every Year of the 1960s
+
+Music Features, The Beach Boys, The Beatles, The Velvet Underground, Music
+
+Sat, 03 Oct 2026 22:51:11 GMT
+
+https://collider.com/best-album-from-every-year-1960s/
+
+From John Coltrane's Giant Steps to Hot Buttered Soul by Isaac Hayes, this is a rundown of the best album released in each year of the 1960s.
+---------
+
+# One of TV's Best Crime Thrillers Is Still Dominating Streaming Ahead of Its New Season
+
+TV News, Thriller, Dexter, Hot on Streaming, Paramount Plus
+
+Sat, 03 Oct 2026 23:30:15 GMT
+
+https://movieweb.com/dexter-streaming-hit-paramount-october-2026/
+
+Twenty years after its debut, Dexter is finding fresh streaming momentum as viewers revisit the original series before Resurrection returns.
+---------
+
+# Anne Hathaway's Steamy New Thriller Lands a Brutal RT Score Despite Dominating at the Box Office
+
+Movie News, Verity, Anne Hathaway, Thriller
+
+Sat, 03 Oct 2026 23:20:17 GMT
+
+https://movieweb.com/verity-anne-hathaway-rotten-tomatoes-score/
+
+A devoted fanbase keeps 'Verity' thriving at the box office despite a chilly reception from critics.
+---------
+
+# Netflix's 119-Minute Streaming Giant Action Thriller Continues To Get More Popular
+
+Features, Carry-On, Netflix, Action, Thriller
+
+Sat, 03 Oct 2026 23:00:15 GMT
+
+https://movieweb.com/carry-on-netflix-streaming-recommendation/
+
+Netflix's action thriller is one of the most beloved movies released on the streaming service, and it holds up as an entertaining watch.
+---------
+
+# Tom Cruise's New 128-Minute Box Office Disaster Gets Official Audience Verdict On Rotten Tomatoes
+
+Movie News, Digger, Drama, Tom Cruise
+
+Sat, 03 Oct 2026 22:05:17 GMT
+
+https://movieweb.com/digger-tom-cruise-rotten-tomatoes-audience-score/
+
+Audiences weigh in on Tom Cruise's 'Digger' following its dismal box office opening.
+---------
+
+# Amazon Finds Sleeper Hit in New 93-Minute Tension-Packed Thriller You Missed This Summer
+
+Movie News, Prime Video, Thriller, Hot on Streaming, The Passenger
+
+Sat, 03 Oct 2026 22:01:15 GMT
+
+https://movieweb.com/the-passenger-prime-video-october-2026/
+
+After slipping through the cracks in June, The Passenger is finding new life on Prime Video’s U.S. charts.
+---------
+
+# 6 Years Later, Paramount’s Star-Studded Stephen King Fantasy Thriller Adaptation Is the Perfect Weekend Binge
+
+Features, Stephen King, Thriller, Fantasy, The Stand
+
+Sat, 03 Oct 2026 22:01:15 GMT
+
+https://movieweb.com/the-stand-stephen-king-recommendation/
+
+Stephen King's bestselling novels have been adapted into many great TV shows and movies, but this fantasy thriller miniseries stands out.
+---------
+
 # Tom Cruise's Digger Rotten Tomatoes Score Gets Official Audience Verdict
 
 Movies, Tom Cruise, Digger
