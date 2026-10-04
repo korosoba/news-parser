@@ -1,3 +1,278 @@
+# Battlestar Galactica’s Forgotten 19-Part Replacement Series Was Years Ahead Of Its Time
+
+Classic TV, Masked Recs
+
+Sun, 04 Oct 2026 06:00:15 GMT
+
+https://screenrant.com/caprica-battlestar-galactica-prequel-aged-well/
+
+Battlestar Galactica is not easily replaced, but while Caprica had the potential to fill the gap the iconic series left behind, it came too early.
+---------
+
+# It's The End Of An Era For Nintendo LEGO Sets
+
+Gaming, Nintendo, LEGO
+
+Sun, 04 Oct 2026 06:00:15 GMT
+
+https://screenrant.com/nintendo-lego-sets-retiring-2026/
+
+LEGO lovers and Nintendo fans may want to act fast, as this will be their last chance to purchase several collaborative sets before they retire.
+---------
+
+# Netflix’s 16-Episode Sci-Fi Masterpiece Deserves Kudos For Being Insanely Ambitious
+
+Classic TV, Masked Recs
+
+Sun, 04 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/netflix-the-oa-deserves-respect-ambitious-sci-fi/
+
+Netflix is the streaming home of an insanely ambitious sci-fi series that remains incredibly imaginative and novel throughout its 16-episode runtime.
+---------
+
+# Red Dead Redemption 2 Players Can Now Explore Mexico In Full
+
+Gaming, Red Dead Redemption 2
+
+Sun, 04 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/red-dead-redemption-2-mexico-fan-expansion/
+
+Download the free Nuevo Paraíso mod and explore Mexico in Red Dead Redemption 2, featuring new regions and activities.
+---------
+
+# Star Trek: Lower Decks Finally Returns This Month In Fluxx
+
+Gaming, Star Trek
+
+Sun, 04 Oct 2026 04:30:16 GMT
+
+https://screenrant.com/star-trek-lower-decks-return-october-2026-psa/
+
+Discover the return of Star Trek: Lower Decks Fluxx for the franchise's 60th anniversary!
+---------
+
+# Marvel Officially Confirms Why Green Goblin Is Evil, And It’s Sadder Than You Think
+
+Comics, Green Goblin
+
+Sun, 04 Oct 2026 04:08:10 GMT
+
+https://screenrant.com/green-goblin-evil-reason-explained/
+
+Green Goblin is maybe the best rogues' gallery supervillain Spider-Man will ever have, and Marvel Comics' latest story about him confirms that.
+---------
+
+# John Wick Is Officially Rewriting The Baba Yaga's Origin Story In Upcoming Prequel
+
+Gaming, John Wick, PC
+
+Sun, 04 Oct 2026 04:00:21 GMT
+
+https://screenrant.com/john-wick-saber-prequel-baba-yaga-rewrite/
+
+John Wick fans are going to learn more about the Baba Yaga's origin story than ever before in this upcoming prequel from Saber Interactive.
+---------
+
+# Absolute Green Lantern Just Set Up The Return Of DC's Most Surreal Superhero
+
+Comics, Green Lantern, DC Comics
+
+Sun, 04 Oct 2026 03:59:16 GMT
+
+https://screenrant.com/green-lantern-yellow-aliens-animal-man/
+
+DC's Absolute Universe has been doing a killer job of reinventing the Lanterns, but one guest appearance begets one other iconic hero's debut.
+---------
+
+# David Tennant Undertakes One Of His Harshest Roles Yet In BBC's Hit Crime Series
+
+TV, Time
+
+Sun, 04 Oct 2026 03:53:30 GMT
+
+https://screenrant.com/david-tennant-time-season-3-trailer-bbc/
+
+Season 3 of a BBC hit crime series reveals David Tennant taking on one of his harshest roles yet in the trailer for the coming episodes.
+---------
+
+# Syfy's 47-Part Time Travel Series Is So Good, Even Its Worst Episode Beats Most Sci-Fi Shows
+
+Classic TV, Masked Recs
+
+Sun, 04 Oct 2026 03:45:16 GMT
+
+https://screenrant.com/12-monkeys-syfy-series-no-bad-episodes/
+
+One of Syfy’s greatest shows is a 47-part time travel series that is so good that even some of its weaker episodes are better than most sci-fi series.
+---------
+
+# The 10/10 Slasher Flick Quentin Tarantino Says Stephen King Ripped Off Is Blowing Up on Streaming
+
+Movies, A Nightmare on Elm Street
+
+Sun, 04 Oct 2026 03:56:48 GMT
+
+https://www.cbr.com/a-nightmare-on-elm-street-horror-streaming-success-october-2026/
+
+Quentin Tarantino said Stephen King stole the idea for one of his most popular novels from the beloved horror film.
+---------
+
+# 5 Forgotten 2020s Anime Series That Are Masterpieces From Start to Finish
+
+Anime, Innovation
+
+Sun, 04 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/forgotten-2020s-anime-series-masterpieces/
+
+Some of the best anime of the 2020s, like The Dungeon of Black Company, have gone completely unnoticed.
+---------
+
+# 17 Years Later, Kamen Rider W Returns With a Brand-New Release
+
+Anime, Kamen Rider, Tojima Wants to Be a Kamen Rider, Crunchyroll
+
+Sun, 04 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/kamen-rider-w-hot-toys-figure/
+
+After 17 years, Kamen Rider W is back with a premium new Hot Toys release featuring its iconic Cyclone Joker form.
+---------
+
+# Prime Video’s 30-Episode Spy Thriller Deserves to Be Binged All Over Again
+
+TV, Prime Video
+
+Sun, 04 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/prime-video-john-krasinski-jack-ryan-bingeworthy-perfection/
+
+A thrilling journey across four gripping seasons, this series redefines the spy genre with its smart writing and heart-pounding action.
+---------
+
+# Peanuts' Golden Age Broke Several Problematic Trends That Make It Even More Important 6 Decades Later
+
+Comics
+
+Sun, 04 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/peanuts-golden-age-broke-several-problematic-trends-important/
+
+Peanuts was a groundbreaking comic in many ways, but its golden age broke several problematic trends that remain important today.
+---------
+
+# 10 Open-World Games to Play If You Can't Wait for GTA 6
+
+Games, Video Games, Grand Theft Auto 6, Red Dead Redemption, Cyberpunk 2077
+
+Sun, 04 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/open-world-games-to-play-before-gta-6/
+
+GTA fans can play these amazing open-world games while they wait for Grand Theft Auto 6.
+---------
+
+# The Batman 2 Set Photos Reveal First Look at Robert Pattinson's Return as Bruce Wayne
+
+Movies, The Batman Part II
+
+Sun, 04 Oct 2026 03:10:27 GMT
+
+https://www.cbr.com/the-batman-part-ii-set-photos-robert-pattinson-bruce-wayne/
+
+Bruce Wayne is back in Gotham with Robert Pattinson now filming the sequel.
+---------
+
+# 10 Most Powerful D&D Magic Items That Don't Require Attunement
+
+Games, Dungeons and Dragons
+
+Sun, 04 Oct 2026 02:45:12 GMT
+
+https://www.cbr.com/most-powerful-dnd-magic-items-dont-require-attunement/
+
+Most Dungeons & Dragons 5e magic items require attunement, but some of the best equipment in the game can be used straight out of the box.
+---------
+
+# Absolute Batgirl Officially Joins Batman
+
+Comics, Absolute Batman
+
+Sun, 04 Oct 2026 02:33:08 GMT
+
+https://www.cbr.com/absolute-batman-24-review-batgirl-debuts/
+
+In a CBR review of Absolute Batman #24, see how Batgirl debuts in the Absolute Universe, and how Batman gets set to face the Joker
+---------
+
+# 5 Non-Japanese Anime With No Bad Arcs, Ranked
+
+Anime, Avatar: The Last Airbender, Castlevania
+
+Sun, 04 Oct 2026 02:30:11 GMT
+
+https://www.cbr.com/non-japanese-anime-no-bad-arcs-ranked-list/
+
+Anime may be intertwined with Japan, but these series from other countries are masterpieces inspired by the medium.
+---------
+
+# 9 Most Fun Sci-Fi Shows of All Time, Ranked
+
+TV, Sci-Fi, Misfits, Futurama, Stranger Things
+
+Sun, 04 Oct 2026 01:33:11 GMT
+
+https://collider.com/most-fun-sci-fi-shows-all-time-ranked/
+
+Stranger Things, Misfits, Futurama, Fallout, Firefly, and more make up our list of the most fun sci-fi shows of all time.
+---------
+
+# 10 Mystery Shows That Prove Slow Burns Are Always Worth It
+
+TV, Mystery, The Mentalist, Pretty Little Liars, Yellowjackets
+
+Sun, 04 Oct 2026 01:03:34 GMT
+
+https://collider.com/mystery-shows-slow-burns-worth-it/
+
+The Mentalist, True Detective, The Blacklist, and Pretty Little Liars are exceptional mystery shows that prove that slow burn storytelling pays off.
+---------
+
+# James Gunn's R-Rated 'Superman Movie Officially Conquers a New Streamer
+
+Movie News, Brightburn, James Gunn, Horror, Superman
+
+Sun, 04 Oct 2026 00:45:12 GMT
+
+https://collider.com/james-gunn-brightburn-streaming-peacock-october-2026/
+
+James Gunn's twisted Superman-inspired horror movie Brightburn officially begins streaming on Peacock in the United States on October 1.
+---------
+
+# Clint Eastwood’s Final Movie Is Officially Proving the Box Office Wrong on Streaming
+
+Movie News, Juror #2, Clint Eastwood, HBO Max, Warner Bros.
+
+Sun, 04 Oct 2026 00:30:14 GMT
+
+https://collider.com/clint-eastwood-juror-number-2-streaming-success-hbo-max-october-2026/
+
+Clint Eastwood's last movie continues its streaming redemption arc after Warner Bros bungled its theatrical run in America.
+---------
+
+# 25 Years Later, Jake Gyllenhaal’s Sci-Fi Thriller Flop Returns With Solid RT Audience Score
+
+Movie News, Donnie Darko, Jake Gyllenhaal, Sci-Fi, Thriller, Drew Barrymore
+
+Sun, 04 Oct 2026 02:10:54 GMT
+
+https://movieweb.com/donnie-darko-returns-with-solid-rt-audience-score/
+
+Made for $4.5 million, Donnie Darko barely made a dent at the box office before finding new life on DVD and becoming a cult classic.
+---------
+
 # 5 Reasons It's Hard To Watch Dances With Wolves Today
 
 Classic Movies, Dances With Wolves
