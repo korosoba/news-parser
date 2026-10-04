@@ -1,3 +1,410 @@
+# Peter Parker’s Spider-Man Origins Just Got A Disturbing Reboot In New Marvel Series
+
+Comics, Spider-Man
+
+Sun, 04 Oct 2026 20:01:45 GMT
+
+https://screenrant.com/spider-man-peter-parker-midnight-dark-reboot/
+
+Spider-Man's origin story has never been as haunting, nor as interesting, as it is in a horrifying, brand-new series that launches this upcoming week.
+---------
+
+# 1-Year-Old Remaster of Horror Classic Is Free For A Limited Time
+
+Gaming, System Shock (2023), Triple-A Games, PC
+
+Sun, 04 Oct 2026 20:00:16 GMT
+
+https://screenrant.com/system-shock-2-remastered-free-epic-games/
+
+A remake of a classic horror game is now free for a limited time, allowing players to experience the terror of a rogue AI bent on destroying humanity.
+---------
+
+# It's Officially The End Of An Era For Glen Powell's R-Rated Hulu Series
+
+TV, Masked Recs
+
+Sun, 04 Oct 2026 20:00:16 GMT
+
+https://screenrant.com/glen-powell-chad-powers-end-era-disney-plus-streaming-chart-drop-october-2026/
+
+Glen Powell's hit R-rated series has finally met the end of an era after a successful run led by its new episodes amid the actor's packed slate.
+---------
+
+# Forget Young Sherlock, George Lucas' 28-Episode Masterpiece Is Still The Better Prequel
+
+Classic TV, Masked Recs
+
+Sun, 04 Oct 2026 20:00:16 GMT
+
+https://screenrant.com/the-young-indiana-jones-tv-show-better-prequel-than-young-sherlock/
+
+Young Indy, the classic historical adventure series by Star Wars creator George Lucas, remains one of the best prequels in television history.
+---------
+
+# DC’s Most Underrated Villain Deserves A Major Return, Here’s How It Could Happen
+
+DC Comics, DC
+
+Sun, 04 Oct 2026 19:50:33 GMT
+
+https://screenrant.com/dc-underrated-villain-major-return/
+
+DC has either killed or benched one of its most underrated villains, and it's hopefully the latter due to how exceptional they could be in-universe.
+---------
+
+# Forget Bridgerton, Florence Pugh's R-Rated Netflix Thriller Is Officially The Better Show
+
+Streaming TV, Masked Recs
+
+Sun, 04 Oct 2026 19:45:16 GMT
+
+https://screenrant.com/east-of-eden-netflix-bridgerton-replacement-better-thriller/
+
+Bridgerton is easily one of the best period dramas of our time, but Netflix’s new R-rated thriller that stars Florence Pugh is arguably even better.
+---------
+
+# George A. Romero's Classic Zombie Franchise Hits Major Filming Milestone For Final Movie
+
+Movies, Twilight Of The Dead, Night of the Living Dead
+
+Sun, 04 Oct 2026 19:44:20 GMT
+
+https://screenrant.com/george-a-romero-twilight-of-the-dead-wraps-filming-milestone/
+
+George A. Romero's final zombie movie in the Night of the Living Dead franchise wraps filming, bringing his legendary horror closer to its end.
+---------
+
+# Denis Villeneuve & Timothée Chalamet's Dune Movies Get Official Reaction From Original Paul Atreides
+
+Movies, Dune
+
+Sun, 04 Oct 2026 19:36:06 GMT
+
+https://screenrant.com/denis-villeneuve-dune-movies-timothee-chalamet-paul-atreides-kyle-maclachlan/
+
+Timothée Chalamet's portrayal of Paul Atreides gets an official verdict from Dune alum, as the last installment awaits a tense box office battle.
+---------
+
+# Fox's British Remake Series Beats High Potential At Its Own Game
+
+Network TV, Best Medicine, High Potential
+
+Sun, 04 Oct 2026 19:30:15 GMT
+
+https://screenrant.com/best-medicine-beats-high-potential-slow-burn-romance/
+
+ABC's High Potential is one of network TV's biggest hits, but Fox's Best Medicine beats High Potential when it comes to a slow burn romance.
+---------
+
+# Jensen Ackles' Rumored DC Casting Officially Clarified By James Gunn
+
+Movies, DC Universe, Jensen Ackles, James Gunn
+
+Sun, 04 Oct 2026 19:19:14 GMT
+
+https://screenrant.com/jensen-ackles-dc-casting-rumors-james-gunn-response/
+
+Following rumors that Jensen Ackles is in talks to join the DC Universe, James Gunn officially sets the record straight on the actor's casting.
+---------
+
+# 7 Things We Want to See In The Apothecary Diaries Season 3
+
+Anime, The Apothecary Diaries
+
+Sun, 04 Oct 2026 20:15:11 GMT
+
+https://www.cbr.com/the-apothecary-diaries-season-3-fan-expectations/
+
+Season 3 of The Apothecary Diaries is here, but fans still wish to see these aspects of the series return.
+---------
+
+# After 27 Years, Naruto's Live-Action Movie May Finally Fix Its Biggest Sakura Problem
+
+Anime, Naruto, Naruto: Shippuden, Boruto: Naruto Next Generations
+
+Sun, 04 Oct 2026 20:00:11 GMT
+
+https://www.cbr.com/naruto-live-action-movie-sakura-fix/
+
+The upcoming live-action Naruto movie may finally fix one of the biggest flaws with its most overhated character.
+---------
+
+# Endlessly Quotable 97-Minute Comedy Surges on Streaming at the Perfect Time
+
+Movies, Mean Girls
+
+Sun, 04 Oct 2026 20:00:11 GMT
+
+https://www.cbr.com/mean-girls-comedy-paramount-plus-success-october-2026/
+
+It's a once-a-year tradition.
+---------
+
+# New Lord of the Rings Film Paused During Paramount's $111B Warner Bros. Merger
+
+Movies, The Lord of the Rings, The Lord of the Rings: Shadow of the Past, The Lord of the Rings: The Hunt for Gollum
+
+Sun, 04 Oct 2026 19:52:04 GMT
+
+https://www.cbr.com/lord-of-the-rings-shadow-of-the-past-paused-paramount-warner-bros-merger/
+
+The Lord of the Rings is still thriving, but one project took a step back.
+---------
+
+# Weakest Konoha Clans in Naruto, Ranked
+
+Anime, Naruto, Naruto: Shippuden
+
+Sun, 04 Oct 2026 19:15:11 GMT
+
+https://www.cbr.com/naruto-weakest-konoha-clans-ranked/
+
+When comparing the Konoha clans in Naruto by combat potential and notable members, these four stand out as the weakest.
+---------
+
+# James Gunn Finally Clarifies Jensen Ackles Batman Rumors: 'Nice Guy'
+
+Movies, James Gunn, Jensen Ackles, Batman
+
+Sun, 04 Oct 2026 19:05:24 GMT
+
+https://www.cbr.com/james-gunn-jensen-ackles-batman-rumors/
+
+The DCU has yet to confirm a new Batman, and Jensen Ackles is among the most fancast actors.
+---------
+
+# Why The Lord of the Rings Recast Aragorn in The Hunt for Gollum
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Viggo Mortensen
+
+Sun, 04 Oct 2026 18:30:11 GMT
+
+https://www.cbr.com/lotr-hunt-for-gollum-aragorn-recast-explained/
+
+Much of The Lord of the Rings' cast is returning for Andy Serkis' upcoming film, so why was Viggo Mortensen replaced?
+---------
+
+# 10 Long Anime Series With No Bad Seasons
+
+Anime
+
+Sun, 04 Oct 2026 18:15:11 GMT
+
+https://www.cbr.com/long-anime-series-with-no-bad-seasons/
+
+These long anime do the impossible by seemingly going on forever, without ever having a bad season.
+---------
+
+# Disney's New 21-Part Fantasy Series With 100% Is Officially the No. 1 Show on Streaming
+
+TV, Coven Academy, Disney+, Fantasy
+
+Sun, 04 Oct 2026 18:00:11 GMT
+
+https://www.cbr.com/coven-academy-supernatural-fantasy-disney-success-october-2026/
+
+Disney's latest fantasy series, Coven Academy, which is perfect for Halloween, is the most-watched show worldwide.
+---------
+
+# The Simpsons and Futurama Officially Cross Over After Futurama's Series Finale
+
+Comics, The Simpsons, Futurama
+
+Sun, 04 Oct 2026 18:00:11 GMT
+
+https://www.cbr.com/the-simpsons-and-futurama-officially-cross-over-after-series-finale/
+
+This might be the final time the world gets a dose of Futurama colliding with The Simpsons.
+---------
+
+# Taylor Sheridan's Masterful Neo-Western Is Officially a Must-Watch on Streaming Ahead of Long-Delayed Sequel
+
+Movie News, Wind River, Taylor Sheridan, Netflix, Jeremy Renner
+
+Sun, 04 Oct 2026 20:00:11 GMT
+
+https://collider.com/taylor-sheridan-wind-river-streaming-netflix-october-2026/
+
+Taylor Sheridan's $11 million neo-Western with shades of Bosch and True Detective is officially streaming on Netflix.
+---------
+
+# Peacock’s Cancelled 2-Season Murder Mystery Deserved a Much Longer Run
+
+TV Features, Poker Face, Natasha Lyonne, Peacock, Series
+
+Sun, 04 Oct 2026 19:55:11 GMT
+
+https://collider.com/poker-face-canceled-peacock-natasha-lyonne-season-3/
+
+Poker Face deserved more than two seasons. Here’s why Peacock’s acclaimed Natasha Lyonne murder mystery had plenty of story left to tell.
+---------
+
+# FX's 3-Part Psychological Thriller Remake Is Way Better Than Its 59% RT Score
+
+TV Features, Black Narcissus, Gemma Arterton, FX, Drama
+
+Sun, 04 Oct 2026 19:41:12 GMT
+
+https://collider.com/black-narcissus-fx-psychological-thriller-remake/
+
+FX's Black Narcissus remake, starring Gemma Arterton, is an intense psychological thriller, though it was overshadowed by the 1947 original.
+---------
+
+# Denzel Washington's $192M Action Hit Officially Finds a New Streaming Home on Netflix
+
+Movie News, The Equalizer, The Equalizer 2, The Equalizer 3, Denzel Washington
+
+Sun, 04 Oct 2026 19:30:11 GMT
+
+https://collider.com/the-equalizer-denzel-washington-streaming-netflix-october-2026/
+
+Denzel Washington's $192 million action hit The Equalizer officially takes the fight to Netflix. Find out everything you should know here.
+---------
+
+# 4 Terry Gilliam Movies That Are Perfect From Start to Finish
+
+Movie, Terry Gilliam, Brazil, 12 Monkeys, Time Bandits
+
+Sun, 04 Oct 2026 19:19:11 GMT
+
+https://collider.com/best-terry-gilliam-movies-perfect/
+
+From 12 Monkeys to wildly imaginative adventures, these films showcase a filmmaker who turns chaos, satire, and fantasy into art.
+---------
+
+# Brad Pitt and David Fincher’s Best Movie Is Officially Back From the Dead on Streaming
+
+Movie News, Fight Club, Brad Pitt, David Fincher, Edward Norton
+
+Sun, 04 Oct 2026 19:00:12 GMT
+
+https://collider.com/brad-pitt-david-fincher-fight-club-streaming-success-prime-video-apple-tv-october-2026/
+
+Brad Pitt and David Fincher's best movie is being resurrected on streaming as one of the most successful hits of 2026.
+---------
+
+# 5 Best Thriller Book Trilogies of All Time, Ranked
+
+Books and Comics, Thriller, Books, Thomas Harris, Stephen King
+
+Sun, 04 Oct 2026 18:49:12 GMT
+
+https://collider.com/best-thriller-book-trilogies-all-time-ranked/
+
+From The Millennium Trilogy to The Cartel Trilogy, these thriller sagas turn secrets, power, and obsession into addictive journeys.
+---------
+
+# The 10 Most Fun Martial Arts Movies of All Time, Ranked
+
+Movie, The Raid 2, Police Story, Kill Bill: The Whole Bloody Affair, The Matrix
+
+Sun, 04 Oct 2026 18:40:11 GMT
+
+https://collider.com/most-fun-martial-arts-movies-all-time-ranked/
+
+The most fun martial arts movies of all time include newer releases like The Raid 2 alongside classics like Enter the Dragon and Police Story.
+---------
+
+# NBC’s Best ‘Law & Order’ Series Broke the Franchise’s Formula
+
+TV Features, Law & Order: Organized Crime, Christopher Meloni, Law & Order: Special Victims Unit, Law and Order
+
+Sun, 04 Oct 2026 18:35:10 GMT
+
+https://collider.com/law-order-stabler-organized-crime-svu-best-spin-off-nbc-peacock/
+
+NBC and Peacock's Law & Order: Organized Crime puts Elliot Stabler at the center of a dark, serialized saga that departs from its procedural roots.
+---------
+
+# 7 Spy Shows To Watch While You Wait for 'Lioness' Season 4
+
+TV, Lioness, The Night Agent, Homeland, Slow Horses
+
+Sun, 04 Oct 2026 18:33:11 GMT
+
+https://collider.com/spy-shows-like-lioness/
+
+Apple TV's Slow Horses, Netflix's The Night Agent, and Showtime's Homeland are great spy shows to watch while you wait for Lioness Season 4.
+---------
+
+# 7 Hard Sci-Fi Space Movies With Scientifically Accurate Physics
+
+Movie Lists, Sci-Fi
+
+Sun, 04 Oct 2026 20:00:15 GMT
+
+https://movieweb.com/sci-fi-space-movies-scientifically-accurate-physics/
+
+Some sci-fi movies play fast and loose with physics, but these great films use hard science to portray space travel.
+---------
+
+# 5 Years Later, Marvel Finally Admits Where The Multiverse Saga Went Wrong
+
+Features, Avengers: Endgame, Marvel Cinematic Universe, Avengers: Doomsday, Superhero
+
+Sun, 04 Oct 2026 20:00:15 GMT
+
+https://movieweb.com/avengers-endgame-encore-multiverse-saga-problem/
+
+'Avengers Endgame: Encore' finally acknowledges the biggest problem with the Multiverse Saga, but it's too late for the MCU to course-correct.
+---------
+
+# "Taken Meets Rambo" 2-Part Action Thriller Sleeper Hit Is the No. 1 Franchise on Streaming
+
+Movie News, One Mile: Chapter One, Hot on Streaming, Action, Thriller
+
+Sun, 04 Oct 2026 19:30:15 GMT
+
+https://movieweb.com/one-mile-paramount-action-stream-october-2026/
+
+When was the last time you watched two solid action films in a single sitting?
+---------
+
+# The Greatest Sci-Fi Movie Franchise of All Time Finally Returns in 2 Months
+
+Features, Dune: Part Three, Sci-Fi
+
+Sun, 04 Oct 2026 19:01:15 GMT
+
+https://movieweb.com/dune-return-december-2026/
+
+Sci-Fi fans... prepare yourselves. This movie is about to bring the genre to new heights on the big screen.
+---------
+
+# Forget 'Marshals,' Taylor Sheridan's Best-Reviewed 'Yellowstone' Sequel Officially Sets New Release
+
+TV News, Dutton Ranch, Western, Taylor Sheridan, Yellowstone, Blu-ray
+
+Sun, 04 Oct 2026 18:14:42 GMT
+
+https://movieweb.com/dutton-ranch-blu-ray/
+
+This hugely successful show from the 'Yellowstone' universe is coming to Blu-ray!
+---------
+
+# David Tennant’s 3-Part Fantasy Masterpiece Makes ‘Game of Thrones’ Feel Small
+
+Features, David Tennant, Game Of Thrones, Good Omens, Prime Video, Fantasy
+
+Sun, 04 Oct 2026 18:00:15 GMT
+
+https://movieweb.com/good-omens-game-of-thrones-comparison/
+
+The epic scale of Game of Thrones has been unchallenged by most shows in the genre, but one series is worth comparing.
+---------
+
+# John Wayne's 182-Minute World War II Epic Still Beats Any Western He Ever Made
+
+Features, The Longest Day, John Wayne, Western, War
+
+Sun, 04 Oct 2026 17:30:16 GMT
+
+https://movieweb.com/the-longest-day-better-john-wayne-westerns/
+
+John Wayne may be most well-known for his many iconic Western movies, but one of his particular World War II epics outshines any of his Westerns.
+---------
+
 # Red Dead Redemption 2 Players Find Way Inside Braithwaite Girl's Locked Outhouse After 8 Years
 
 Gaming, Red Dead Redemption 2
