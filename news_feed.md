@@ -1,3 +1,443 @@
+# Recasting The Golden Girls For New Mystery Series Adaptation: All 6 Main Characters
+
+Classic TV, The Golden Girls
+
+Sun, 04 Oct 2026 23:15:17 GMT
+
+https://screenrant.com/golden-girls-recasting-2027-new-book-adaptation-main-characters/
+
+A potential new cast for The Golden Girls in a mystery novel adaptation, pulling new performers to embody the classic characters in a new way.
+---------
+
+# 10 Psychological Thrillers With Twist Endings You Never Saw Coming
+
+Classic Movies, Thriller
+
+Sun, 04 Oct 2026 23:15:17 GMT
+
+https://screenrant.com/psychological-thriller-movies-twist-endings/
+
+The biggest selling point of many psychological thrillers are the twist endings and these films have shocking endings that no one saw coming.
+---------
+
+# Naruto's Officially Confirmed Anime Sequel Will Revive The Franchise
+
+Anime, Naruto
+
+Sun, 04 Oct 2026 23:00:17 GMT
+
+https://screenrant.com/naruto-new-anime-sequel-revive-franchise/
+
+Three and a half years later, Naruto fans are ready to see its big anime return unveiled this weekend.
+---------
+
+# Star Wars Is Officially Switching Genre In New 2026 Release
+
+Gaming, Star Wars
+
+Sun, 04 Oct 2026 23:00:17 GMT
+
+https://screenrant.com/star-wars-switching-genres-new-galactic-racer-release/
+
+Discover Star Wars: Galactic Racer, a high-stakes racing game set in the chaotic post-Empire galaxy. Launching October 6.
+---------
+
+# 16 Years Later, DC Just Fixed Its Biggest Cinematic Flop
+
+Comics, DC
+
+Sun, 04 Oct 2026 22:30:16 GMT
+
+https://screenrant.com/jonah-hex-movie-flop-dc-comics/
+
+Finally fixed
+---------
+
+# Naruto: All Living Characters Who Surpassed Konoha's Strongest Hokage In Boruto
+
+Anime, Naruto, Boruto: Naruto Next Generations
+
+Sun, 04 Oct 2026 22:30:16 GMT
+
+https://screenrant.com/boruto-characters-stronger-than-naruto/
+
+Naruto Uzumaki reached the pinnacle of the ninja power scale before becoming the Seventh Hokage, but several characters in Boruto have surpassed him.
+---------
+
+# 7 Most Exciting Netflix Movies Still To Come In 2026, Ranked By Hype Level
+
+Movies, Netflix
+
+Sun, 04 Oct 2026 22:25:16 GMT
+
+https://screenrant.com/upcoming-new-netflix-movies-2026-ranked/
+
+With 3 months of 2026 left, Netflix has a number of particularly exciting movies still to come, including a war epic, a hot sequel, and 3 animations.
+---------
+
+# 2026's Best Historical Drama Is 12 Episodes Of Pure Perfection
+
+Streaming TV, Crunchyroll
+
+Sun, 04 Oct 2026 22:00:16 GMT
+
+https://screenrant.com/jaadugar-witch-mongolia-best-historical-drama/
+
+A gripping historical fantasy series set in 13th-century Mongolia blends science and witchcraft across twelve episodes in a unique format.
+---------
+
+# James Gunn’s New Hit Comedy With All-Time Rotten Tomatoes Record Is Officially Streaming's #1 Movie
+
+Movies, Masked Recs, James Gunn
+
+Sun, 04 Oct 2026 22:00:16 GMT
+
+https://screenrant.com/james-gunn-coyote-vs-acme-rotten-tomatoes-record-amazon-apple-vod-streaming-success-october-2026/
+
+While expanding the DC Universe franchise, James Gunn's new comedy film with a strong Rotten Tomatoes score is becoming a streaming success.
+---------
+
+# 7 Epic Fantasy Books To Read If You Love The Wheel Of Time
+
+Books, The Wheel of Time
+
+Sun, 04 Oct 2026 22:00:16 GMT
+
+https://screenrant.com/wheel-of-time-fantasy-books-like/
+
+If you love Robert Jordan's The Wheel of Time, these eight epic fantasy books are perfect to read - and they include some true fantasy classics!
+---------
+
+# Tombstone's Doc Holliday Has the Best Quote in Western History
+
+Movies, Tombstone
+
+Sun, 04 Oct 2026 23:15:11 GMT
+
+https://www.cbr.com/tombstone-best-doc-holliday-quote-western-history/
+
+Tombstone is jam-packed with iconic lines, but this one Doc Holliday quote is the greatest in Western movie history.
+---------
+
+# The Greatest Dystopian Thriller of the 21st Century Finds New Streaming Home Ahead of Theater Return
+
+Movies, V For Vendetta
+
+Sun, 04 Oct 2026 23:00:12 GMT
+
+https://www.cbr.com/v-for-vendetta-paramount-october-2026/
+
+One of the most critically acclaimed comic book adaptations of the past 20 years has a new streaming home on one of the biggest platforms online.
+---------
+
+# Disney+ Fantasy Adventure Series With 100% RT Score Arrives on Netflix
+
+TV, Percy Jackson & the Olympians
+
+Sun, 04 Oct 2026 22:46:41 GMT
+
+https://www.cbr.com/percy-jackson-olympians-netflix-october-2026/
+
+Netflix users can now watch the acclaimed fantasy series that had previously been exclusive to Disney+ up until now.
+---------
+
+# Every Official Mass Effect Novel From the Original Trilogy, Ranked
+
+Books, Mass Effect, Video Games, Mass Effect Legendary Edition
+
+Sun, 04 Oct 2026 22:15:11 GMT
+
+https://www.cbr.com/all-mass-effect-original-trilogy-novels-ranked-bioware/
+
+One of the greatest aspects of the Mass Effect franchise has always been the richness of its world, and these 4 novels vary in their contribution.
+---------
+
+# Assassin's Creed: Heredis Officially Revealed With December 2026 Launch
+
+Games, Assassin's Creed
+
+Sun, 04 Oct 2026 22:14:11 GMT
+
+https://www.cbr.com/assassin-creed-heredis-reveal-december-2026/
+
+Fans will be able to experience Assassin's Creed as they've never seen it before when Heredis arrives this December.
+---------
+
+# Netflix’s New 7-Part Series Based on Classic Novel Is Already the Biggest Show in the World
+
+TV, East of Eden
+
+Sun, 04 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/east-of-eden-netflix-global-success-october-2026/
+
+The new release also boasts fantastic reviews from critics.
+---------
+
+# Avatar: The Last Airbender Creator Weighs in On Who's Stronger: Aang vs. Korra
+
+Anime, Avatar: The Last Airbender
+
+Sun, 04 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/avatar-aang-vs-korra-who-stronger/
+
+One of the creators of Avatar: The Last Airbender has a surprising take on whether Aang is stronger than Korra, and he's probably right.
+---------
+
+# Netflix Quietly Dropped a 5-Episode Charlie Cox Spy Thriller That's Still a Hidden Gem
+
+TV, Treason, Netflix, Thriller
+
+Sun, 04 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/netflix-treason-charlie-cox-spy-thriller-hidden-gem/
+
+Daredevil's Charlie Cox stars as a British secret service agent in the 2022 Netflix limited series, a great watch that flew under the radar.
+---------
+
+# Gremlins 3 May Be Bringing Back Howie Mandel as the Voice of Gizmo
+
+Movies, Gremlins 3
+
+Sun, 04 Oct 2026 21:35:51 GMT
+
+https://www.cbr.com/gremlins-3-howie-mandel-gizmo-voice-tease/
+
+Warner Bros. appears to be teasing the return of Howie Mandel as Gizmo in Gremlins 3.
+---------
+
+# Quentin Tarantino’s 2026 Crime Thriller Sequel Is the End of an Era for Netflix
+
+Movies, Thriller, Netflix, The Further Mis-Adventures of Cliff Booth
+
+Sun, 04 Oct 2026 21:30:11 GMT
+
+https://www.cbr.com/cliff-booth-david-fincher-last-netflix-era-movie/
+
+David Fincher's Netflix era started with House of Cards and could end with Quentin Tarantino's 2026 crime thriller sequal.
+---------
+
+# ‘Pokémon Pokopia’ Officially Confirms 2 Fan-Favorite Halloween Characters
+
+Gaming News, Pokémon, Gaming, Games, Nintendo Switch
+
+Sun, 04 Oct 2026 23:15:11 GMT
+
+https://collider.com/pokemon-pokopia-halloween-event-pumpkaboo-gourgeist/
+
+Pokémon Pokopia’s Halloween event adds Pumpkaboo and Gourgeist, with Pumpkin Candy and seasonal furniture arriving October 17.
+---------
+
+# One of the Biggest Disaster Movies Ever Is Officially Changing Streamers Next Month
+
+Movie News, 2012, STARZ, Streaming, Roland Emmerich
+
+Sun, 04 Oct 2026 23:00:12 GMT
+
+https://collider.com/john-cusack-2012-streaming-starz-october-2026/
+
+The $791M disaster blockbuster 2012 is officially moving to a new streaming home this month, giving the apocalyptic epic another chance to find fans.
+---------
+
+# Netflix’s Forgotten 3-Season Sitcom Deserves One More Comeback
+
+TV Features, Girls5Eva, Netflix, Peacock, Series
+
+Sun, 04 Oct 2026 22:49:11 GMT
+
+https://collider.com/girls5eva-netflix-series-comeback/
+
+Girls5eva was critically acclaimed but canceled after three seasons. Here’s why Netflix should bring the hilarious sitcom back.
+---------
+
+# The Best Sci-Fi Horror Franchise of the '80s Is Officially Available to Stream in One Place
+
+Movie News, Ghostbusters, Ghostbusters 2, Ghostbusters: Answer the Call
+
+Sun, 04 Oct 2026 22:45:11 GMT
+
+https://collider.com/ghostbusters-franchise-streaming-free-fandango-october-2026/
+
+Three epic Ghostbusters films are officially available to stream for free ahead of Halloween! Here's all to know.
+---------
+
+# Horror’s $15K Box Office Miracle Officially Moves to a New Streamer for Halloween
+
+Movie News, Paranormal Activity, Horror, STARZ, Found Footage
+
+Sun, 04 Oct 2026 22:30:12 GMT
+
+https://collider.com/paranormal-activity-streaming-starz-october-2026/
+
+Paranormal Activity is getting a new streaming home, bringing the ultra-low-budget found-footage horror hit back for Halloween.
+---------
+
+# Netflix Officially Loses Russell Crowe's 10/10 'Rocky' Replacement
+
+Movie News, Russell Crowe, Cinderella Man, Ron Howard, Netflix
+
+Sun, 04 Oct 2026 22:15:12 GMT
+
+https://collider.com/russell-crowe-boxing-movie-cinderella-man-leaving-netflix-october-2026/
+
+Russell Crowe's critically acclaimed follow-up to A Beautiful Mind, Cinderella Man, has ended its Netflix run.
+---------
+
+# 8 Greatest Fantasy Shows of the Last 50 Years, Ranked
+
+TV, Fantasy, The Addams Family, Game Of Thrones, Supernatural
+
+Sun, 04 Oct 2026 22:05:12 GMT
+
+https://collider.com/best-fantasy-shows-last-50-years-ranked/
+
+Castlevania, Buffy the Vampire Slayer, Game of Thrones, Supernatural, and more make up our list of the best fantasy shows of the last 50 years.
+---------
+
+# ‘Beavis and Butt-Head’ Season 4 Officially Returns in Just 2 Weeks
+
+TV News, Beavis and Butt-Head, Animation, Comedy, Paramount
+
+Sun, 04 Oct 2026 22:01:11 GMT
+
+https://collider.com/beavis-and-butt-head-season-4-release-date-comedy-central-october-2026/
+
+2 animated icons return this month as behind-the-scenes moves quietly raise intriguing questions about what comes next.
+---------
+
+# 6 Best R-Rated Hard Sci-Fi Movies, Ranked
+
+Movie, Sci-Fi, Ex Machina, Moon, Sunshine
+
+Sun, 04 Oct 2026 21:55:11 GMT
+
+https://collider.com/perfect-r-rated-hard-sci-fi-movies-ranked/
+
+From The Fly to Moon, these hard sci-fi films turn scientific ideas into gripping, unsettling stories with real consequences.
+---------
+
+# 6 Best Steven Spielberg Movies of the Last 25 Years, Ranked
+
+Movie, Steven Spielberg, The Fabelmans, West Side Story, Lincoln
+
+Sun, 04 Oct 2026 21:42:11 GMT
+
+https://collider.com/best-steven-spielberg-movies-last-25-years-ranked/
+
+The Fabelmans, West Side Story, and Minority Report are all among the best Steven Spielberg Movies of the last 25 years.
+---------
+
+# Netflix's Smash Hit 50-Episode Crime Thriller Dominates New Streamer 1 Year After It Ended
+
+TV News, You, Hot on Streaming, Thriller, Crime
+
+Sun, 04 Oct 2026 23:01:15 GMT
+
+https://movieweb.com/you-thriller-apple-tv-stream-october-2026/
+
+The thriller featuring the most charismatic villain you can imagine has resurfaced on streaming.
+---------
+
+# Apple TV's New High Fantasy TV Series Officially Confirms It's Taking From Peak 'Game of Thrones'
+
+Features, The Stormlight Archive, Game Of Thrones, Fantasy, Apple TV, Brandon Sanderson
+
+Sun, 04 Oct 2026 23:01:15 GMT
+
+https://movieweb.com/stormlight-archive-brandon-sanderson-writing-schedule/
+
+This fixes a massive problem that 'The Witcher', 'The Rings of Power', and 'House of the Dragon' all share.
+---------
+
+# Disney's Biggest 'Harry Potter' Rival Is Officially Streaming on Netflix For The First Time
+
+TV News, Percy Jackson & the Olympians, Disney, Netflix, Fantasy, Coming/Leaving Streaming
+
+Sun, 04 Oct 2026 22:35:50 GMT
+
+https://movieweb.com/percy-jackson-netflix-season-3-october-2026/
+
+Percy Jackson and the Olympians has made the jump to Netflix for the first time, giving Disney’s YA fantasy hit a much wider audience.
+---------
+
+# Paramount's Final Movie Before Its Merger Is a 101-Minute Action Thriller Officially Hailed as "One of the Year's Best"
+
+Movie News, Heart of the Beast, Brad Pitt, Action
+
+Sun, 04 Oct 2026 21:37:05 GMT
+
+https://movieweb.com/heart-of-the-beast-rotten-tomatoes-score-verified/
+
+Paramount approaches the Skydance merger this week with a box office win.
+---------
+
+# Apple TV's 'Inception Meets Black Mirror' Sci-Fi Thriller Refuses to Slow Down on Streaming
+
+TV News, Dark Matter, Apple TV, Hot on Streaming, Sci-Fi
+
+Sun, 04 Oct 2026 21:30:15 GMT
+
+https://movieweb.com/dark-matter-apple-tv-hit-october-2026/
+
+With Season 2 nearing its finale, Dark Matter has emerged as one of Apple TV’s biggest current shows.
+---------
+
+# 55 Years Later, Snoopy’s Smartest 'Peanuts' Line Secretly Confirmed a Hidden Truth About the Comic
+
+Features, Peanuts, comics
+
+Sun, 04 Oct 2026 21:30:15 GMT
+
+https://movieweb.com/smartest-peanuts-snoopy-comic/
+
+Although Charlie Brown and Charles Schulz share the same name, the Peanuts character wasn't his primary stand-in.
+---------
+
+# The Best Sci-Fi Reboot of the Century Is a 6-Part "Game of Thrones in Space" Miniseries
+
+Features, Sci-Fi, Dune, Children of Dune
+
+Sun, 04 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/dune-miniseries-streaming-recommendation/
+
+An Emmy-winning sci-fi reboot from the early 2000s has flown under the radar in recent years, but there is no better time to revisit it than now.
+---------
+
+# James Gunn Officially Confirms Fate of His Next DC Project Before 'Superman' Sequel Hits Theaters
+
+Movie News, James Gunn, DCU, Man of Tomorrow
+
+Sun, 04 Oct 2026 20:40:35 GMT
+
+https://movieweb.com/james-gunn-writing-new-dc-movie/
+
+Before James Gunn brings his second 'Superman' movie, he confirmed what his immediate future looks like for new DCU projects.
+---------
+
+# Tom Cruise's $180M Movie Officially Delivers His Worst Box-Office Debut in 2 Decades
+
+Movie News, Digger, Tom Cruise, Comedy
+
+Sun, 04 Oct 2026 20:31:55 GMT
+
+https://movieweb.com/tom-cruise-digger-box-office-flop/
+
+Even Tom Cruise stars in a flop every now and then.
+---------
+
+# 33 Years Ago, Liam Neeson's Marriage Stopped Him From Becoming the Fifth James Bond
+
+Features, James Bond, Action, Liam Neeson, GoldenEye
+
+Sun, 04 Oct 2026 20:30:14 GMT
+
+https://movieweb.com/liam-neeson-james-bond-marriage/
+
+Discover the story of how Liam Neeson nearly became the fifth James Bond actor before his fiancée put him to the test.
+---------
+
 # Peter Parker’s Spider-Man Origins Just Got A Disturbing Reboot In New Marvel Series
 
 Comics, Spider-Man
