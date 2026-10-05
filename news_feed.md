@@ -1,3 +1,311 @@
+# GTA 6 Official Story Teaser Shared By Rockstar Games
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Mon, 05 Oct 2026 09:04:20 GMT
+
+https://screenrant.com/gta-6-new-story-teaser-rockstar-games/
+
+Grand Theft Auto VI is on the way very soon indeed, and Rockstar are sharing a lot more about what players can expect.
+---------
+
+# It's Official: A Knight Of The Seven Kingdoms Returns Winter 2026
+
+Gaming, A Knight Of The Seven Kingdoms, Game of Thrones
+
+Mon, 05 Oct 2026 04:30:15 GMT
+
+https://screenrant.com/a-knight-of-the-seven-kingdoms-winter-2026-set-release/
+
+A Knight of the Seven Kingdoms has been one of the most consistent fantasy shows around, and it's about to return in an entirely new adaptation.
+---------
+
+# 5 Anime War Arcs That Outshine Bleach's Thousand-Year Blood War
+
+Anime, Bleach, Bleach: Thousand Year Blood War
+
+Mon, 05 Oct 2026 04:03:31 GMT
+
+https://screenrant.com/bleach-thousand-year-blood-war-better-arcs/
+
+The Thousand-Year Blood War looks incredible, but a few anime take warfare much further by focusing on real battlefield tactics instead of flashy new
+---------
+
+# Wheel Of Time: The One Power Officially Ushers In A New Era
+
+Gaming, The Wheel of Time
+
+Mon, 05 Oct 2026 04:00:21 GMT
+
+https://screenrant.com/wheel-of-time-one-power-release-date-2027-psa/
+
+Robert Jordan's Wheel of Time remains one of the best fantasy series ever, and its next release is going to be one to remember.
+---------
+
+# 7 Adult Swim Anime With a Perfect First Episode
+
+Anime, Adult Swim, Cartoon Network
+
+Mon, 05 Oct 2026 03:58:26 GMT
+
+https://screenrant.com/adult-swim-anime-perfect-first-episode/
+
+Adult Swim has run countless amazing anime over the years, but the best ones are marked by strong pilots showing off their identity from the start.
+---------
+
+# 47 Years Later, The Alien Franchise Gets Its Most Brutal Upgrade Yet
+
+Comics, Alien, X-Men, Marvel
+
+Mon, 05 Oct 2026 03:52:58 GMT
+
+https://screenrant.com/47-years-later-the-alien-franchise-gets-its-most-brutal-upgrade-yet/
+
+For decades, Xenomorphs have been one of the scariest sci-fi creatures in cinematic history (and yet they just got even more dangerous).
+---------
+
+# Stephen King’s Most Lovecraftian Story Deserves A TV Adaptation After Failed Movie Plan
+
+Streaming TV, Masked Recs, Stephen King
+
+Mon, 05 Oct 2026 03:45:15 GMT
+
+https://screenrant.com/stephen-king-revival-lovecraftian-mike-flanagan-tv-adaptation/
+
+A planned movie adaptation of Stephen King’s most Lovecraftian movie never saw the light of day, but it deserves a second chance on the small screen.
+---------
+
+# The Expanse Officially Returns 2027 In Epic 6-Part Prequel
+
+Gaming, The Expanse
+
+Mon, 05 Oct 2026 03:45:15 GMT
+
+https://screenrant.com/expanse-official-return-telltale-prequel-series-2027/
+
+Explore The Expanse's 2027 prequel and new gaming titles here.
+---------
+
+# 7 Perfect Isekai Anime Fans Can Binge In Only One Weekend
+
+Anime, Isekai
+
+Mon, 05 Oct 2026 03:40:05 GMT
+
+https://screenrant.com/perfect-isekai-anime-fans-binge-one-weekend/
+
+For viewers short on time or those seeking original stories, these isekai titles are true anime gems worth watching from start to finish.
+---------
+
+# 8 Action-Packed Dramas To Watch If You Can't Get Enough Of Neagley & Reacher
+
+Classic TV
+
+Mon, 05 Oct 2026 03:37:49 GMT
+
+https://screenrant.com/best-action-drama-shows-like-neagley-and-reacher/
+
+There's a wait before either Reacher or Neagley comes out with new episodes. In the meantime, there is other chaotically intense action to consume.
+---------
+
+# Mike Flanagan's Horror Sequel That Was '2X Scarier' Than Original Now Streaming on Netflix
+
+Movies, Ouija: Origin of Evil
+
+Mon, 05 Oct 2026 03:51:06 GMT
+
+https://www.cbr.com/ouija-origin-of-evil-streaming-netflix-october-2026/
+
+Critics say it's one of the rare sequels to eclipse the original movie.
+---------
+
+# 7 Hard Sci-Fi Anime Series Where Every Episode Is a Masterpiece
+
+Anime, Sci-Fi
+
+Mon, 05 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/hard-sci-fi-anime-series-every-episode-masterpiece/
+
+Anime like Planetes are perfect for fans of hard sci-fi.
+---------
+
+# 10 Years Ago, the Hulk's Death Officially Tore the Marvel Universe Apart
+
+Comics, Hulk, CSBG, look back
+
+Mon, 05 Oct 2026 03:31:48 GMT
+
+https://www.cbr.com/hulk-civil-war-ii-hawkeye-killing/
+
+A look back to 2016, when the Hulk's death in Civil War II helped tear the Marvel Universe apart
+---------
+
+# CBS Cancels Marshals' Season 1 Finale Change in Just 1 Episode
+
+TV, Marshals, Yellowstone
+
+Mon, 05 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/cbs-marshals-season-2-episode-1-andrea-stay-in-montana/
+
+After just one episode of Marshals Season 2, Taylor Sheridan's Yellowstone spinoff walks back a major development for Kayce Dutton and his team.
+---------
+
+# Transformers Brings Back 2 Classic G1 Autobots With Premium New Designs
+
+Anime, Transformers
+
+Mon, 05 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/transformers-g1-twincast-rewind-premium-designs/
+
+Two of the most underrated Autobots are officially making a comeback with brand-new designs that collectors won't want to miss out on.
+---------
+
+# The Sweetest Characters In The Peanuts Comic Strips, Ranked
+
+Comics, Peanuts
+
+Mon, 05 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/sweetest-characters-in-the-peanuts-comic-strips-ranked/
+
+Charles M. Schulz created some of the kindest and most compassionate kids in comic strips when he created the beloved Peanuts comic strip series.
+---------
+
+# 10 Greatest Sega Dreamcast Games No One Remembers Today
+
+Games, dreamcast, sega, Video Games
+
+Mon, 05 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/best-forgotten-dreamcast-games/
+
+Almost no one remembers Dreamcast gems like Cannon Spike and Toy Commander.
+---------
+
+# Saturday Night Live Pokes Fun at The Legend of Zelda vs. GTA 6 Debate
+
+TV, Saturday Night Live
+
+Mon, 05 Oct 2026 03:06:33 GMT
+
+https://www.cbr.com/saturday-night-live-gta-6-legend-of-zelda/
+
+An SNL sketch pits The Legend of Zelda's Link against GTA 6's Jason ahead of their new game launches next month.
+---------
+
+# Clair Obscur: Expedition 33 Returns November 24 With Stunning New Release
+
+Games, Video Games, RPG
+
+Mon, 05 Oct 2026 02:57:11 GMT
+
+https://www.cbr.com/clair-obscur-expedition-33-new-release-november-2026/
+
+A brand-new Clair Obscur art book is perfect for fans of the series.
+---------
+
+# 10 Most Perfect NES Games of All Time, Ranked
+
+Games, Video Games, Nintendo, The Legend of Zelda
+
+Mon, 05 Oct 2026 02:45:11 GMT
+
+https://www.cbr.com/most-perfect-nes-games-of-all-time-ranked/
+
+The adventures of Mario, Link and other Nintendo icons helped make the NES a perfect console.
+---------
+
+# The 15 Best Animated Movies of the 2000s, Ranked According to Letterboxd
+
+Movie, Animation, Spirited Away, Howl's Moving Castle, Fantastic Mr. Fox
+
+Mon, 05 Oct 2026 09:11:11 GMT
+
+https://collider.com/best-animated-movies-2000s-letterboxd/
+
+From Persepolis to Spirited Away, these are the 10 best animated movies of the 2000s, according to Letterboxd.
+---------
+
+# 'Silo’ Meets ‘A Quiet Place’ in J.J. Abrams’ Sci-Fi Nightmare Officially Streaming Free
+
+Movie News, J.J. Abrams, 10 Cloverfield Lane, Mary Elizabeth Winstead, Pluto TV
+
+Mon, 05 Oct 2026 09:00:12 GMT
+
+https://collider.com/jj-abrams-sci-fi-thriller-10-cloverfield-lane-streaming-free-pluto-tv-october-2026/
+
+J.J. Abrams' sleeper hit sci-fi thriller, 10 Cloverfield Lane, is officially streaming for free in its 10th-anniversary year.
+---------
+
+# ‘Wednesday’ Meets ‘Charmed’ in Disney+’s Newest Supernatural Teen Drama, According to Creator
+
+Interviews, Coven Academy, Tim Federle, High School Musical: The Musical: The Series, Olivia Rodrigo
+
+Mon, 05 Oct 2026 08:00:12 GMT
+
+https://collider.com/disney-plus-series-coven-academy-finale-creator-tim-federle/
+
+Creator Tim Federle discusses Coven Academy, the love triangle, a possible cure for vampirism, Briar's real mother, and possibilities for Season 2.
+---------
+
+# 5 Essential Romance Books for Beginners
+
+Books and Comics, Romance, Pride and Prejudice, Outlander, A Court of Thorns and Roses
+
+Mon, 05 Oct 2026 03:22:12 GMT
+
+https://collider.com/essential-romance-books-beginners/
+
+For readers exploring the romance genre for the first time, books like Pride and Prejudice and A Court of Thorns and Roses are a great place to start.
+---------
+
+# ‘A Tale of Two Cities’ Star Breaks Down the Finale’s Heartbreaking “Gut Punch Beyond Words”
+
+Interviews, A Tale Of Two Cities, Mirren Mack, Kit Harington, François Civil
+
+Mon, 05 Oct 2026 02:15:15 GMT
+
+https://collider.com/a-tale-of-two-cities-finale-twist-love-triangle-mirren-mack/
+
+Mirren Mack discusses A Tale of Two Cities, Lucie's romantic relationships with Sydney and Charles, and the heartbreaking finale.
+---------
+
+# 11 Biggest Questions After 'Lanterns' Season 1, Episode 8's Ending, Explained
+
+TV Lists, Lanterns, DCU
+
+Mon, 05 Oct 2026 03:48:38 GMT
+
+https://movieweb.com/lanterns-finale-biggest-questions/
+
+The 'Lanterns' finale was intense, so let's break it all down, including its deeper meaning.
+---------
+
+# 7 Biggest Questions After 'Tracker' Season 4, Episode 1
+
+TV Lists, Tracker, Action, Thriller
+
+Mon, 05 Oct 2026 02:32:17 GMT
+
+https://movieweb.com/tracker-season-4-episode-1-questions-explained/
+
+'Tracker' Season 4, the action thriller TV series starring Justin Hartley, premiered on CBS on Sunday Oct. 4, 2026, and brings up many big questions.
+---------
+
+# Idris Elba’s “Anti Harry Potter” Fantasy Blockbuster Releases in 2027
+
+Features, Children of Blood and Bone, Fantasy, Harry Potter
+
+Mon, 05 Oct 2026 02:30:28 GMT
+
+https://movieweb.com/children-of-blood-and-bone-2027-release/
+
+If you're looking for an epic fantasy blockbuster to enjoy, Idris Elba's 2027 movie will go deeper than 'Harry Potter' and similar YA adaptations.
+---------
+
 # James Gunn's Superman Sequel Man Of Tomorrow Is Officially Starting Early On HBO Max
 
 Streaming TV, Masked Recs
