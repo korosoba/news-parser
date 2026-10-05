@@ -1,3 +1,388 @@
+# James Gunn's Superman Sequel Man Of Tomorrow Is Officially Starting Early On HBO Max
+
+Streaming TV, Masked Recs
+
+Mon, 05 Oct 2026 02:10:16 GMT
+
+https://screenrant.com/james-gunn-superman-man-of-tomorrow-lanterns-hbo-max-setup/
+
+DC's new HBO Max release officially marks the early start of James Gunn's Superman sequel, Man of Tomorrow, and it is perfect for the 2027 movie.
+---------
+
+# Lanterns Officially Unveils Nathan Fillion's Season 2 Cast Replacement
+
+Streaming TV, Lanterns, DC Universe
+
+Mon, 05 Oct 2026 02:05:16 GMT
+
+https://screenrant.com/lanterns-nathan-fillion-green-lantern-replacement-dc-universe/
+
+Nathan Fillion's Guy Gardner might be a fan-favorite, but the Green Lantern has just been replaced in James Gunn's DC Universe, and a new hero rises.
+---------
+
+# 20 Best Shows To Watch Like House
+
+Classic TV, House
+
+Mon, 05 Oct 2026 02:00:31 GMT
+
+https://screenrant.com/best-shows-like-house/
+
+Discover 20 compelling TV shows that capture the essence of House, from medical dramas and detective mysteries to thrillers and legal series.
+---------
+
+# Lanterns Showrunners Unpack Hal Jordan’s Killer Reveal In Devastating Finale
+
+TV, Lanterns, DC Universe
+
+Mon, 05 Oct 2026 02:00:26 GMT
+
+https://screenrant.com/lanterns-episode-8-hal-jordan-death-killer-revealed/
+
+Hal Jordan's killer has finally been revealed as the Lanterns' creative team breaks their silence on the massive twist in the season 1 finale.
+---------
+
+# Lanterns Creators Break Down Major Green Lantern Twist In James Gunn’s DCU
+
+TV, Lanterns, DC Universe
+
+Mon, 05 Oct 2026 02:00:26 GMT
+
+https://screenrant.com/lanterns-episode-8-john-stewart-dcu-oath-explained/
+
+The Lanterns creators open up on the massive Green Lantern change from the comics in the season 1 finale of James Gunn's DC Universe TV show.
+---------
+
+# Russell Crowe's Gritty New R-Rated Movie Officially Claims Its Streaming Crown
+
+Movies, Masked Recs
+
+Mon, 05 Oct 2026 02:00:26 GMT
+
+https://screenrant.com/russell-crowe-beast-starz-streaming-success-october-2026/
+
+Russell Crowe's career has been truly legendary, and now a new gritty R-rated movie is officially taking off thanks to a huge streaming success story.
+---------
+
+# Lanterns Season 1 Ending Explained: Who Killed Hal Jordan
+
+Streaming TV, Lanterns, DC Universe
+
+Mon, 05 Oct 2026 02:00:26 GMT
+
+https://screenrant.com/lanterns-season-1-finale-ending-explained/
+
+HBO's Lanterns season 1 finale is here, and not only does it reveal who killed Hal Jordan with a twist, but it sets up a major DC Universe change.
+---------
+
+# DC Announces Hal Jordan Return, Changing Green Lantern Lore Forever
+
+Comics, Green Lantern
+
+Mon, 05 Oct 2026 02:00:26 GMT
+
+https://screenrant.com/green-lantern-hal-jordan-return-corps/
+
+He's back
+---------
+
+# Marshals Season 2’s Premiere Can’t Outrun Its Biggest Flaw
+
+Network TV, Marshals
+
+Mon, 05 Oct 2026 02:00:26 GMT
+
+https://screenrant.com/marshals-season-2-episode-1-flaw-cant-outrun/
+
+Marshals season 2's premiere struggled with its identity and unresolved storylines as the show straddles two genres.
+---------
+
+# Pokémon Officially Switches Genre In The Twilight Trails
+
+Gaming, Pokemon, Pokemon GO, Live Service Games
+
+Mon, 05 Oct 2026 02:00:26 GMT
+
+https://screenrant.com/pokemon-twilight-trails-genre-switch-horror/
+
+Pokémon doesn't shy away from Pokédex entries that lean a little into the horror genre, and one new Pokémon GO Mon is a reminder that it never has.
+---------
+
+# Taylor Sheridan’s Yellowstone Spinoff Is Changing Formats in Season 2
+
+TV, Marshals, Yellowstone
+
+Mon, 05 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/marshals-season-2-episode-1-tate-kidnapping-break-format/
+
+Marshals Season 2 immediately breaks its format in the premiere, with Episode 1 showing just how good Taylor Sheridan's Yellowstone shows can be.
+---------
+
+# Every Transformers Movie, Ranked From Worst to Best
+
+Movies, Transformers, Sci-Fi
+
+Mon, 05 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/every-transformers-movies-ranked-list/
+
+There have been nine animated and live-action films in the Transformers franchise, and some are far better than others.
+---------
+
+# Fullmetal Alchemist Reveals First Look at Edward Elric's Major 2027 Debut
+
+Anime, Fullmetal Alchemist, merchandise
+
+Mon, 05 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/fullmetal-alchemist-edward-elric-grandista-figure-2027/
+
+Fullmetal Alchemist's Edward Elric is about to make his grand return in his new 2027 debut.
+---------
+
+# 10 Most Valuable Pokémon Cards From the 2010s, Ranked by Price
+
+Games, Pokemon, Pokemon TCG, Pokemon Trading Card Game, Tabletop
+
+Mon, 05 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/most-valuable-2010s-pokemon-cards/
+
+The Pokémon TCG had some highs and lows throughout the 2010s, but what are the most value cards of the decade?
+---------
+
+# Lanterns Showrunner Answers 8 Burning Questions About Gotham, Sinestro, Hal’s Future and More
+
+CBR Exclusives
+
+Mon, 05 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/lanterns-chris-mundy-talks-finale-gotham-sinestro/
+
+Chris Mundy sits down with CBR to dig into some of the biggest topics raised by the Lanterns season finale.
+---------
+
+# 10 Smartest Anime Villains Ever, Ranked By Intelligence
+
+Anime, Innovation
+
+Mon, 05 Oct 2026 01:45:11 GMT
+
+https://www.cbr.com/smartest-anime-villains-ranked-by-intelligence-list/
+
+Anime villains like Lelouch are incredibly powerful because of their intelligence, not their physical strength.
+---------
+
+# 5 Masterpiece GameCube Games No One Remembers
+
+Games, Nintendo, retro games
+
+Mon, 05 Oct 2026 01:30:11 GMT
+
+https://www.cbr.com/masterpiece-gamecube-games-no-one-remembers-list/
+
+Not every GameCube is as popular as Resident Evil 4, and some of its best games flew completely under the radar.
+---------
+
+# 5 Anime Heroes With Powers Stronger Than Sung Jinwoo
+
+Anime, Solo Leveling
+
+Mon, 05 Oct 2026 01:25:11 GMT
+
+https://www.cbr.com/solo-leveling-anime-heroes-stronger-than-sung-jinwoo-list/
+
+Sung Jinwoo becomes incredibly powerful once he becomes a player in the mysterious system, but some anime characters are even stronger.
+---------
+
+# Scooby-Doo Spoofs Obsession, Backrooms & Other Hit Horror Movies
+
+Movies, Scooby-Doo
+
+Mon, 05 Oct 2026 01:17:42 GMT
+
+https://www.cbr.com/scooby-doo-horror-parody-posters-obsession-backrooms/
+
+Scooby-Doo puts a spin on several major horror movies.
+---------
+
+# In Just 1 Day, 109-Minute 'Wickedly Satisfying' Horror Turns Into 1 of the Most-Watched Movies
+
+Movies, Evil Dead Burn
+
+Mon, 05 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/evil-dead-burn-horror-hbo-max-streaming-success-october-2026/
+
+The visceral horror feature is an instant streaming hit.
+---------
+
+# 'Lanterns' Co-Creator Officially Confirms Season 2 Is in Early Development [Exclusive]
+
+Exclusives, Lanterns, Damon Lindelof, DCU, Aaron Pierre
+
+Mon, 05 Oct 2026 02:00:22 GMT
+
+https://collider.com/lanterns-season-2-update-writers-room-damon-lindelof/
+
+Lanterns co-creator Damon Lindelof may not return for a potential Season 2, but he has revealed that work on John Stewart's next chapter is underway.
+---------
+
+# ‘Lanterns’ Co-Creator Officially Answers the Biggest Questions From the Season 1 Finale
+
+Exclusives, Lanterns, Damon Lindelof, HBO Max, Man of Tomorrow
+
+Mon, 05 Oct 2026 02:00:22 GMT
+
+https://collider.com/lanterns-season-1-finale-is-hal-dead-damon-lindelof-interview/
+
+Lanterns co-creator Damon Lindelof breaks down the Season 1 finale and expresses excitement for what John Stewart does next.
+---------
+
+# HBO's 'Lanterns' Finale Officially Kicks Off a Whole New Era for the DCU | Review
+
+TV Reviews, Lanterns, Kyle Chandler, Aaron Pierre, HBO
+
+Mon, 05 Oct 2026 02:00:22 GMT
+
+https://collider.com/lanterns-finale-episode-8-recap/
+
+In the Lanterns finale, John Stewart uncovers the truth behind Hal Jordan's tragic fate before a whole new era for the DCU begins.
+---------
+
+# Kit Harington Addresses the Devastating ‘A Tale of Two Cities’ Finale and Its “Horrific” Impact
+
+Interviews, Kit Harington, A Tale Of Two Cities, Mirren Mack, Industry
+
+Mon, 05 Oct 2026 02:00:22 GMT
+
+https://collider.com/a-tale-of-two-cities-finale-sydney-carton-fate-kit-harington/
+
+Kit Harington discusses A Tale of Two Cities, the love triangle at the core of the classic story, and joining the Harry Potter series for Season 2.
+---------
+
+# 'Marshals' Found a Perfect Yellowstone Solution for the 'Dutton Ranch' Crossover Problem
+
+TV Features, Marshals, Luke Grimes, Dutton Ranch, Yellowstone
+
+Mon, 05 Oct 2026 01:45:12 GMT
+
+https://collider.com/marshals-season-2-episode-1-dutton-ranch-crossover-tate-weaver/
+
+Marshals Season 2 premiere reveals a surprising plot twist when it comes to Tate's kidnapping by Weaver, but it's not the one fans hoped it would be.
+---------
+
+# Luke Grimes Officially Confirms What’s Next for ‘Marshals’ After Season 2's Brutal Premiere Twist and Death
+
+Interviews, Marshals, Luke Grimes, Yellowstone
+
+Mon, 05 Oct 2026 01:30:12 GMT
+
+https://collider.com/marshals-season-2-premiere-death-luke-grimes/
+
+Luke Grimes discusses Marshals, the high stakes rescue of Tate, whether Kayce Dutton could find new romance, and what's still to come in Season 2.
+---------
+
+# Peacock Just Added the Greatest 5-Season Spin-Off of All Time
+
+TV Features, The Originals, The Vampire Diaries, Peacock, Television
+
+Mon, 05 Oct 2026 01:21:11 GMT
+
+https://collider.com/peacock-the-originals-vampire-diaries-spinoff-series/
+
+The five season series is a rare triumph over its predecessor.
+---------
+
+# ‘Silent Hill’ Fans Officially Get a New Survival Horror Nightmare for Halloween
+
+Gaming News, Gaming, Video Game, Silent Hill, Horror
+
+Mon, 05 Oct 2026 00:45:11 GMT
+
+https://collider.com/silent-hill-heartworm-console-release-october-2026/
+
+Heartworm brings its Silent Hill-inspired survival horror to consoles just in time for Halloween, with a camera as your weapon.
+---------
+
+# Anya Taylor-Joy's Bonkers Action Thriller Officially Lands a Netflix Premiere Date
+
+Movie News, Anya Taylor-Joy, Chris Evans, Sacrifice, Netflix
+
+Mon, 05 Oct 2026 00:30:12 GMT
+
+https://collider.com/anya-taylor-joy-sacrifice-netflix-streaming-release-date-october-2026/
+
+Anya Taylor-Joy and Chris Evans star in the bonkers new action thriller Sacrifice, which has officially set its streaming premiere.
+---------
+
+# ‘The Gentlemen’ Star's Gripping Crime Thriller Officially Soars on Prime Video
+
+Movie News, Fuze, Theo James, Prime Video, Aaron Taylor-Johnson
+
+Mon, 05 Oct 2026 00:15:11 GMT
+
+https://collider.com/theo-james-fuze-streaming-hit-prime-video-october-2026/
+
+Fuze, starring the lead of Guy Ritchie’s hit series The Gentlemen, is officially taking over Prime Video with its twisty crime thriller.
+---------
+
+# Roger Ebert Loved One '90s Sci-Fi Cult Classic So Much, He Broke His Own Rule To Promote It
+
+Features, Dark City, Roger Ebert, Sci-Fi
+
+Mon, 05 Oct 2026 01:00:09 GMT
+
+https://movieweb.com/dark-city-roger-ebert-praise/
+
+Roger Ebert famously recorded a legendary bit of commentary for the DVD of a cult classic sci-fi thriller that he absolutely loved upon its release.
+---------
+
+# The Biggest Movie in History Is Officially No Longer 'Avatar' After a Sci-Fi Action Epic Steals the Crown
+
+Movie News, Avatar, Sci-Fi, Avengers: Endgame Encore, Box Office Milestones
+
+Mon, 05 Oct 2026 00:02:27 GMT
+
+https://movieweb.com/avengers-endgame-avatar-box-office-october-2026/
+
+Avengers: Endgame has reportedly reclaimed the all-time worldwide box office record.
+---------
+
+# 6 Best Martial Arts War Movies of All Time
+
+Movie Lists, Martial Arts, Action, War
+
+Mon, 05 Oct 2026 00:00:14 GMT
+
+https://movieweb.com/best-martial-arts-war-movies/
+
+These action-packed war movies prove that sometimes the best weapon to win an epic battle is skillful martial arts.
+---------
+
+# HBO's Masterpiece Sci-Fi Mystery Thriller Has One of the Best Seasons in TV History
+
+Features, The Leftovers, HBO Max, Sci-Fi, Thriller
+
+Sun, 04 Oct 2026 23:33:04 GMT
+
+https://movieweb.com/the-leftovers-best-tv-season/
+
+HBO's underrated sci-fi thriller has one of the best TV seasons of all time, and it perfectly ends an already impressive run for the series.
+---------
+
+# 28 Years Later, Jackie Chan's 97-Minute Action Classic Is a Streaming Hit Ahead of a Long-Awaited Sequel
+
+Movie News, Rush Hour, Jackie Chan, Hot on Streaming, Paramount Plus, Action
+
+Sun, 04 Oct 2026 23:31:15 GMT
+
+https://movieweb.com/rush-hour-paramount-plus-hit-october-2026/
+
+Rush Hour has jumped into Paramount+’s U.S. movie top 10 just one day after arriving on the service.
+---------
+
 # Recasting The Golden Girls For New Mystery Series Adaptation: All 6 Main Characters
 
 Classic TV, The Golden Girls
