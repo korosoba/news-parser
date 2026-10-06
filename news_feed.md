@@ -1,3 +1,377 @@
+# Steam's New Free 9/10 Stealth Game Has Serious Metal Gear Solid Vibes
+
+Gaming, Steam, Metal Gear Solid
+
+Tue, 06 Oct 2026 07:02:16 GMT
+
+https://screenrant.com/steam-free-game-intravenous-3-metal-gear-solid-vibes/
+
+A free Steam stealth game is drawing Metal Gear comparisons with tactical gameplay, punishing combat, and two full missions to try.
+---------
+
+# PlayStation Plus Officially Drops Free Spider-Man Download For October 6
+
+Gaming, Spider-Man: Brand New Day, PlayStation Plus
+
+Tue, 06 Oct 2026 07:01:07 GMT
+
+https://screenrant.com/playstation-plus-free-spider-man-download-october-2026/
+
+PlayStation Plus subscribers can claim free Spider-Man: Brand New Day avatars today, alongside three new games arriving for October.
+---------
+
+# New Pokémon TCG Set In 2027 Is The First Of Its Kind In 30 Years
+
+Gaming, Pokemon Trading Card Game, Pokemon
+
+Tue, 06 Oct 2026 07:00:18 GMT
+
+https://screenrant.com/pokemon-tcg-valentines-day-set-2027/
+
+The Pokémon Trading Card Game will be releasing a new set in 2027 that will be the first of its kind in 30 years when it arrives next year.
+---------
+
+# Forget Wednesday, Disney+'s New Fantasy Series Beats Even The MCU
+
+Streaming TV, Disney+
+
+Tue, 06 Oct 2026 06:00:16 GMT
+
+https://screenrant.com/coven-academy-disney-plus-series-streaming-success-october-2026/
+
+Wednesday has dominated the fantasy genre in recent years, but a strong competitor is now taking over Disney+, and it has already beaten the MCU.
+---------
+
+# Star Trek Is Officially Switching Genres On October 20
+
+Gaming, Star Trek, Star Trek: Lower Decks, Star Trek: The Original Series
+
+Tue, 06 Oct 2026 06:00:16 GMT
+
+https://screenrant.com/star-trek-outposts-unknown-genre-switch/
+
+Star Trek is heading in a completely new direction on October 20 with the release of a brand-new experience longtime fans cannot skip.
+---------
+
+# Lost's 100-Episode Fox Replacement Is The Best Sci-Fi Thriller Of The Last 18 Years
+
+Classic TV, Masked Recs
+
+Tue, 06 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/fringe-lost-replacement-fox-best-sci-fi-thriller/
+
+Lost finally got a worthy replacement in Fringe, and this show ended up becoming one of the best TV sci-fi thrillers of the last 18 years.
+---------
+
+# Game of Thrones' Night King and Daenerys Targaryen Will Officially Return in 2027
+
+Gaming, Game of Thrones, Game of Thrones: War for Westeros, PC
+
+Tue, 06 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/game-of-thrones-night-king-daenerys-2027-return/
+
+Nearly a decade after the original series ended, Game of Thrones' Night King and Daenerys Targaryen are set to make a triumphant return.
+---------
+
+# Bleach: Thousand-Year Blood War Officially Returns November 2026
+
+Gaming, Bleach, Bleach: Thousand Year Blood War
+
+Tue, 06 Oct 2026 04:30:15 GMT
+
+https://screenrant.com/bleach-thousand-year-bloodwar-union-arena-decks/
+
+As Bleach: Thousand-Year Blood War comes to a close, fans are being treated to an official new release this November.
+---------
+
+# Brandon Sanderson's Mistborn Officially Returns Fall 2026 With 3 New Books
+
+Gaming, Brandon Sanderson, The Cosmere RPG
+
+Tue, 06 Oct 2026 04:01:16 GMT
+
+https://screenrant.com/brandon-sanderson-mistborn-3-new-books-fall-2026/
+
+Fans of Mistborn and Brandon Sanderson's Cosmere should be delighted to learn that Fall 2026 will see three new books around Scadrial release.
+---------
+
+# 6 Greatest Anime That Teach Vital Life Lessons
+
+Anime, Crunchyroll, Life Lessons with Uramichi-Oniisan
+
+Tue, 06 Oct 2026 03:59:16 GMT
+
+https://screenrant.com/best-anime-life-lessons/
+
+Anime, much like any artistic medium, can be enjoyed for far more than base entertainment value alone, with plenty to learn for grownups, too.
+---------
+
+# Ghostbusters' Next Live-Action Movie Gets a Big Update Ahead of Netflix Animated Series
+
+Movies, Ghostbusters
+
+Tue, 06 Oct 2026 04:30:11 GMT
+
+https://www.cbr.com/ghostbusters-nightmare-on-34th-street-report/
+
+A big update has been revealed on the live-action future of the Ghostbusters franchise.
+---------
+
+# 5 Greatest SNES Games No One Remembers
+
+Games, Nintendo
+
+Tue, 06 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/greatest-snes-games-no-one-remembers/
+
+Everyone has played Super Mario World and Chrono Trigger, but most people don't even remember Terranigma or Metal Warriors.
+---------
+
+# Supernatural’s 3 Essential Episodes Show the Series at Its Best
+
+TV, Supernatural, Horror, The CW
+
+Tue, 06 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/supernatural-most-essential-episodes/
+
+Throughout Supernatural's 15 seasons, many episodes are considered essential by fans, but these three stand out at the top of the list.
+---------
+
+# 10 Times Snoopy Completely Stole the Peanuts Strip
+
+Comics, Peanuts
+
+Tue, 06 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/best-moments-when-snoopy-completely-stole-the-peanuts-strip/
+
+Charlie Brown may be the face of the Peanuts gang, but Snoopy made just about everything so much better.
+---------
+
+# 5 Masterpiece Action Anime Better Than Solo Leveling
+
+Anime, Solo Leveling, Innovation
+
+Tue, 06 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/masterpiece-action-anime-better-than-solo-leveling-like-jjk/
+
+Solo Leveling is beloved for its action scenes, but anime like JJK are even better.
+---------
+
+# After 26 Years, Zoids: Chaotic Century Officially Returns to Complete Its Story
+
+Anime, Zoids
+
+Tue, 06 Oct 2026 03:05:11 GMT
+
+https://www.cbr.com/zoids-chaotic-century-officially-returns-to-complete-its-story/
+
+One of the most beloved mecha titles of all time is about to make a long-overdue comeback, and fans couldn't be happier about it.
+---------
+
+# 10 Best Isekai Anime to Watch If You Hate Isekai
+
+Anime, Isekai, Re:Zero -Starting Life in Another World-, Overlord
+
+Tue, 06 Oct 2026 02:45:11 GMT
+
+https://www.cbr.com/best-isekai-anime-to-watch-if-you-hate-isekai/
+
+Isekai anime get a bad reputation, but these series prove the genre has more range than its tired tropes would suggest.
+---------
+
+# 10 Best '90s Arcade Games of All Time, Ranked
+
+Games, Arcade, retro games
+
+Tue, 06 Oct 2026 02:30:11 GMT
+
+https://www.cbr.com/best-90s-arcade-games-all-time-ranked-list/
+
+Classic '90s arcade games like X-Men and Mortal Kombat II are still classics today.
+---------
+
+# Assault on Precinct 13 Meets Terminator in New Sci-Fi Thriller Hitting Digital This Week
+
+Movies, Onslaught
+
+Tue, 06 Oct 2026 02:11:17 GMT
+
+https://www.cbr.com/onslaught-digital-vod-release-date/
+
+The film has been described as a love letter to classic John Carpenter movies.
+---------
+
+# 5 Best Sci-Fi Anime Released Since 2020, Ranked
+
+Anime, Dandadan, Cyberpunk: Edgerunners, 86: EIGHTY-SIX, Pluto, Vivy: Fluorite Eye's Song, Sci-Fi
+
+Tue, 06 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/best-sci-fi-anime-2020s-ranked-list/
+
+Science fiction is a popular genre in anime, and the 2020s have brought some of the greatest stories.
+---------
+
+# 8 Essential Sci-Fi Books You Must Read at Least Once
+
+Books and Comics, Sci-Fi, Science Fiction, Dune, Frankenstein
+
+Tue, 06 Oct 2026 04:18:11 GMT
+
+https://collider.com/essential-sci-fi-books/
+
+From the Gothic classic Frankenstein to Frank Herbert's masterpiece Dune, these sci-fi books are essential and are worth reading at least once.
+---------
+
+# 34 Years Later, This Cult Classic Sci-Fi Officially Scores a New Sequel
+
+Movie Features, Attack of the Killer Tomatoes!, Return of the Killer Tomatoes!, Parody
+
+Tue, 06 Oct 2026 04:05:12 GMT
+
+https://collider.com/attack-of-the-killer-tomatoes-organic-intelligence-streaming-interview-directors/
+
+The directors of Attack of the Killer Tomatoes: Organic Intelligence, the cult sci-fi series' first film in 34 years, talk reviving the franchise.
+---------
+
+# 6 MCU Show Endings That Are Genuine Masterpieces
+
+TV, MCU, WandaVision, Loki, Daredevil
+
+Tue, 06 Oct 2026 03:55:12 GMT
+
+https://collider.com/mcu-show-endings-masterpieces/
+
+It's a badge of honor to end a series well, but MCU shows like Agatha All Along, Daredevil, Loki have endings that are genuine masterpieces.
+---------
+
+# Netflix’s New ‘Willy Wonka’ Series Just Broke a 21-Year Record for All the Wrong Reasons
+
+TV Features, Wonka's The Golden Ticket, Netflix, Willy Wonka and the Chocolate Factory, Roald Dahl
+
+Tue, 06 Oct 2026 03:32:11 GMT
+
+https://collider.com/wonkas-the-golden-ticket-rotten-tomatoes-record/
+
+Netflix’s Wonka’s The Golden Ticket broke a Rotten Tomatoes record, but its $3 million prize and AI Gene Wilder voice miss Dahl’s point.
+---------
+
+# 10 Perfect Fantasy Movies With the Most Interesting Characters, Ranked
+
+Movie, Fantasy, The Lord of the Rings, Star Wars, Pan's Labyrinth
+
+Tue, 06 Oct 2026 03:11:12 GMT
+
+https://collider.com/fantasy-movies-most-interesting-characters-ranked/
+
+Star Wars, Pan's Labyrinth, and The Lord of the Rings Trilogy are perfect fantasy movies with unforgettable characters.
+---------
+
+# Marvel Is Officially Making a Big Mistake With ‘Avengers: Endgame: Encore’
+
+Movie Features, Avengers: Endgame Encore, Avengers: Doomsday, MCU
+
+Tue, 06 Oct 2026 01:38:11 GMT
+
+https://collider.com/avengers-endgame-encore-marvel-infinity-vision-extra-scenes/
+
+Avengers: Endgame Encore was released with four new scenes, but only three are available to fans who don't pay for an Infinity Vision/ IMAX screening.
+---------
+
+# Disney+’s New ‘Agatha All Along’ Replacement Is Officially Taking Over the World
+
+TV News, Coven Academy, Disney+, The CW, Loki
+
+Tue, 06 Oct 2026 01:15:12 GMT
+
+https://collider.com/disney-plus-new-fantasy-drama-coven-academy-streaming-success-october-2026/
+
+Disney+'s hit witch drama, with a perfect rating and a captivating plot, is dominating global charts shortly after premiering.
+---------
+
+# 3 Prime Video Shows Where Every Episode Is a Masterpiece (Oct 5-9)
+
+TV, Chucky, The Night Manager, The Peripheral, Prime Video
+
+Tue, 06 Oct 2026 01:11:12 GMT
+
+https://collider.com/prime-video-shows-binge-october-5-2026/
+
+The Night Manager, Chucky, and The Peripheral make up our list of the best Prime Video shows to binge the week of October 5.
+---------
+
+# Ben Affleck’s New Netflix Thriller Officially Arrives October 9
+
+Movie News, Animals, Netflix, Ben Affleck, Steven Yeun
+
+Tue, 06 Oct 2026 01:00:12 GMT
+
+https://collider.com/netflix-action-movie-animals-ben-affleck-release-date-october-2026/
+
+Netflix's next big action blockbuster is officially set to be released in four days. The film was written and directed by Ben Affleck.
+---------
+
+# 'FBI' Star Officially Confirms "The Worst Is Yet To Come" in Season 9
+
+Interviews, FBI, Zeeko Zaki, Missy Peregrym, CBS
+
+Tue, 06 Oct 2026 01:00:12 GMT
+
+https://collider.com/fbi-season-9-episode-1-oa-maggie-romance-zeeko-zaki/
+
+Zeeko Zaki discusses FBI, shaking things up in Season 9, whether there could ever be an OA and Maggie romance, and what's still to come.
+---------
+
+# 7 HBO Thrillers That Will Get You Hooked in the First 10 Minutes
+
+TV Lists, HBO Max, Thriller
+
+Tue, 06 Oct 2026 02:00:25 GMT
+
+https://movieweb.com/hbo-thriller-series-hooked-10-minutes/
+
+HBO shines when it comes to TV thrillers, and these series know how to keep viewers on edge from the very beginning of their stories.
+---------
+
+# Forget David Fincher, New 109-Minute Thriller Officially Topples His Near-Perfect Masterpiece
+
+Movie News, Primetime, Zodiac, Box Office Milestones, David Fincher, Thriller
+
+Tue, 06 Oct 2026 01:00:15 GMT
+
+https://movieweb.com/primetime-box-office-robert-pattinson-october-2026/
+
+David Fincher’s Zodiac became a cult favorite long after its release, but Robert Pattinson’s Primetime has broken its record at the box office.
+---------
+
+# 10 Years Later, an Unfinished Sci-Fi Thriller Franchise Officially Gets a Revival This Week
+
+Features, The Divergent Series, Sci-Fi, Thriller
+
+Tue, 06 Oct 2026 01:00:15 GMT
+
+https://movieweb.com/divergent-sixth-faction-release/
+
+An unfinished sci-fi thriller franchise officially returns this week, and it offers hope for a more positive send-off in multiple ways.
+---------
+
+# 7 Ways 'Lanterns' Permanently Changes Green Lantern Lore in the DC Universe
+
+TV Lists, Lanterns, Sci-Fi, Superhero, DCU
+
+Tue, 06 Oct 2026 00:45:28 GMT
+
+https://movieweb.com/lanterns-dcu-lore-changes/
+
+The acclaimed HBO series honored the original source material, but made some fundamental changes that will take the DCU in a new direction.
+---------
+
 # 31 Years Later, Tuvok’s Best Star Trek Line Has Taken On New Meaning
 
 TV, Star Trek, Star Trek: Strange New Worlds, Star Trek: Voyager
