@@ -1,3 +1,443 @@
+# 31 Years Later, Tuvok’s Best Star Trek Line Has Taken On New Meaning
+
+TV, Star Trek, Star Trek: Strange New Worlds, Star Trek: Voyager
+
+Tue, 06 Oct 2026 00:30:16 GMT
+
+https://screenrant.com/star-trek-voyaker-tuvok-best-quote-meaning-for-strange-new-worlds/
+
+Voyager’s iconic Tuvok line reframes Vulcan composure as painstaking discipline, and this paints Spock’s Strange New Worlds story in a new light.
+---------
+
+# Man Of Tomorrow Is The DCU's Empire Strikes Back
+
+Movies, Man of Tomorrow, DC Universe
+
+Tue, 06 Oct 2026 00:19:02 GMT
+
+https://screenrant.com/man-of-tomorrow-empire-strikes-back-comparison-david-corenswet-explained/
+
+Superman actor David Corenswet teases how the upcoming Man of Tomorrow is the DC Universe's version of The Empire Strikes Back.
+---------
+
+# Stephen King’s “Bats--t Insane” Horror Adaptation Is Officially One Of The Biggest Movies In The World
+
+Movies, Masked Recs, Stephen King, Horror
+
+Tue, 06 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/stephen-king-the-monkey-hbo-max-global-streaming-success-october-2026/
+
+One of Stephen King's horror adaptations that he himself was thrilled by and holds a record box office spot is back as a global streaming hit.
+---------
+
+# Terry Pratchett's 3-Hour Fantasy Series Has Hands Down The Best Casting Since LOTR
+
+Classic TV, Masked Recs
+
+Tue, 06 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/the-color-of-magic-terry-pratchett-best-fantasy-casting/
+
+The Lord of the Rings is regularly lauded for its excellent casting, but an oft-forgotten Terry Pratchett adaptation comes close to matching it.
+---------
+
+# Why Dark Star Perfectly Pairs With Ridley Scott's The Martian
+
+Movies, Dark Star, The Martian
+
+Tue, 06 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/dark-star-ridley-scott-double-bill-the-martian/
+
+John Carpenter’s Dark Star makes a surprisingly good companion to The Martian, with both finding humor in isolation, broken gear, and survival.
+---------
+
+# The Cast Of The Love Hypothesis Are Put To The Romcom Test In WWXD
+
+Videos, The Love Hypothesis
+
+Mon, 05 Oct 2026 23:43:19 GMT
+
+https://screenrant.com/video/the-love-hypothesis-wwxd-romcom-test/
+
+The cast of The Love Hypothesis follow in Lili Reinhart's method-dressing ways to tell us what they would do if they were put in these rom-com scenarios!Is Rachel Marsh gonna succeed like Ariana Grande in Fockers in Law? Would Jaboukie Young-White put up with a You've Got Male situation? Can Nicholas Duvernay make it to the top of the Empire State Building like An Affair to Remember (Or Sleepless in Seattle)?
+---------
+
+# 5 Best New Paramount+ Series To Watch This Week (October 5–9, 2026)
+
+Streaming TV, Paramount Plus, What to Watch on Paramount+
+
+Mon, 05 Oct 2026 23:35:16 GMT
+
+https://screenrant.com/best-new-paramount-plus-shows-to-watch-week-october-5-2026/
+
+The 5 best new Paramount+ series to watch October 5–9, 2026 include NCIS: New York, Avatar: Seven Havens, Cupertino, Eternally Yours, and This Is Us.
+---------
+
+# 6 Near-Perfect TV Episodes Inspired By Franz Kafka
+
+Classic TV
+
+Mon, 05 Oct 2026 23:15:15 GMT
+
+https://screenrant.com/best-tv-show-episodes-inspired-by-kafka/
+
+The works of Franz Kafka have been greatly influential on TV, with some shows having near-perfect episodes inspired by his best stories.
+---------
+
+# 10 Fantasy Academia Books That Will Give You Harry Potter Nostalgia
+
+Books, Harry Potter
+
+Mon, 05 Oct 2026 23:01:15 GMT
+
+https://screenrant.com/fantasy-academia-book-recommendations-harry-potter-nostalgia/
+
+Fall is the perfect time to read fantasy and academia books, so here are ten fantasy academia recommendations for fans of the Harry Potter series.
+---------
+
+# Taylor Sheridan’s Record-Breaking Yellowstone Spinoff Rides Up Streaming Charts As An Instant Hit
+
+TV, Masked Recs
+
+Mon, 05 Oct 2026 23:01:15 GMT
+
+https://screenrant.com/taylor-sheridan-yellowstone-marshals-record-break-paramount-plus-streaming-success-october-2026/
+
+Ever since he created Yellowstone, Taylor Sheridan has continued to churn out hits, including a Western that has dethroned another one of his series.
+---------
+
+# Nintendo Responds to Zelda: Majora's Mask Rumors With 3 Free Releases
+
+Games, The Legend of Zelda, The Legend of Zelda: Majora's Mask, Nintendo
+
+Tue, 06 Oct 2026 00:30:11 GMT
+
+https://www.cbr.com/zelda-majoras-mask-remake-nintendo-today-music-cards/
+
+Nintendo’s heavy focus on Majora’s Mask this month feels like an intentional wink at the Zelda fandom’s biggest subject of speculation lately.
+---------
+
+# Star Trek VI Gives Spock the Greatest Quote in Sci-Fi History
+
+Movies, Star Trek VI: The Undiscovered Country
+
+Tue, 06 Oct 2026 00:30:11 GMT
+
+https://www.cbr.com/star-trek-vi-the-undiscovered-country-spock-best-quote-sci-fi-history/
+
+The cast of Star Trek: The Original Series are all legends on and off screen, which is why one Spock line from their final film is simply the best.
+---------
+
+# Transformers Gives 2 Classic G1 Dinobots Premium New Cartoon Designs
+
+Anime, Transformers, The Transformers, toys, action figures
+
+Tue, 06 Oct 2026 00:20:11 GMT
+
+https://www.cbr.com/transformers-dinobot-island-part-2-takara-tomy-reveal/
+
+Transformers fans won't have to wait long before picking up two more of the most beloved Dinobots of all time to bring home for themselves.
+---------
+
+# 10 Times Naruto’s “Talk No Jutsu” Was the Only Solution
+
+Anime, Naruto
+
+Tue, 06 Oct 2026 00:15:11 GMT
+
+https://www.cbr.com/naruto-best-talk-no-jutsu-moments/
+
+Naruto Uzumaki is famous for saving the day not by being the strongest, but with his words.
+---------
+
+# Hugh Jackman's Treasure Island Is Mandatory Viewing For Indiana Jones Fans
+
+Movies, Treasure Island, Indiana Jones, Adventure
+
+Tue, 06 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/hugh-jackman-treasure-island-adventure-movie-indiana-jones-replacement/
+
+This upcoming adventure movie reboot will be a must-watch for those who miss the Indiana Jones franchise.
+---------
+
+# Anya Taylor-Joy's New 100-Minute Action Film Officially Debuts on Netflix Next Week
+
+Movies, Netflix, Action, Sacrifice
+
+Tue, 06 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/sacrifice-action-thriller-netflix-streaming-debut-october-2026/
+
+Next week, Netflix's next big action film finally hits streaming--and it might be one of the most controversial movies of the year.
+---------
+
+# Disney’s $3.2 Billion Adventure Franchise Takes Over Netflix After Just 1 Day
+
+Movies, Ice Age, Netflix, Disney
+
+Mon, 05 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/disney-ice-age-adventure-netflix-success-october-2026/
+
+One of Disney's biggest franchises ever has dominated Netflix after its debut.
+---------
+
+# Netflix's 3-Season Instant Sci-Fi Classic Is as Close to Perfect as Remakes Get
+
+TV, Lost In Space, Netflix, Sci-Fi
+
+Mon, 05 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/netflix-lost-in-space-best-sci-fi-remake/
+
+A beloved sci-fi classic received a jaw-dropping 21st-century makeover from Netflix that defied expectations and deserved all the praise it received.
+---------
+
+# 10 Greatest Sci-Fi Movie Deaths We’ll Never Get Over
+
+Movies, Sci-Fi, alien, The Mist
+
+Mon, 05 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/saddest-sci-fi-movie-deaths-list/
+
+Some of the best sci-fi movies in cinema history have included dramatic and emotionally intense deaths that we can't move on from even years later.
+---------
+
+# 10 DC Villains Who Became More Popular Than Anyone Expected
+
+Movies, DC Comics, Joker, Clayface
+
+Mon, 05 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/dc-villains-who-became-more-popular-than-anyone-expected/
+
+The DC Comics universe has elevated countless villains from obscurity to fame, but some far surpassed what anyone expected of them.
+---------
+
+# Russell Crowe's Best-Reviewed Movie in 27 Years Officially Removed From 1,400 Theaters
+
+Movie News, Russell Crowe, Unabomber, The Weight, Box Office
+
+Tue, 06 Oct 2026 00:30:11 GMT
+
+https://collider.com/the-weight-russell-crowe-best-reviewed-movie-removed-from-1400-theaters/
+
+Russell Crowe's best-reviewed movie in nearly three decades is struggling at the box office, while his critically panned Netflix movie succeeds.
+---------
+
+# Alan Ritchson’s New Action Movie Officially Removed from 2,200 Theaters as Digital Debut Looms
+
+Movie News, Alan Ritchson, Box Office, Runner, Action
+
+Tue, 06 Oct 2026 00:15:11 GMT
+
+https://collider.com/runner-alan-ritchson-action-movie-box-office-removed-from-2200-theaters/
+
+Ahead of its digital debut, Alan Ritchson's Runner has officially been removed from nearly every theater it began its run in.
+---------
+
+# Every Tom Cruise Movie Since 2016, Ranked
+
+Movie, Tom Cruise, Digger, Mission: Impossible - Fallout, Top Gun: Maverick
+
+Tue, 06 Oct 2026 00:09:12 GMT
+
+https://collider.com/tom-cruise-movies-since-2016-ranked/
+
+From action masterpieces like Mission: Impossible – Fallout to satires like Digger, which movie is Tom Cruise's greatest since 2016?
+---------
+
+# Jason Statham’s Action Thriller With a 92% Rotten Tomatoes Audience Score Is a 200-Day Must-Watch Hit
+
+Movie News, The Beekeeper, Jason Statham, Prime Video, The Beekeeper 2
+
+Tue, 06 Oct 2026 00:01:11 GMT
+
+https://collider.com/jason-statham-the-beekeeper-streaming-success-prime-video-200-days/
+
+Jason Statham's action movie with a 92% from audiences on Rotten Tomatoes has been in the streaming top 10 for 200 days now.
+---------
+
+# Apple TV's New Fantasy Series Is Officially Searching for a Showrunner
+
+Exclusives, The Stormlight Archive, Brandon Sanderson, Fantasy, FanX
+
+Mon, 05 Oct 2026 23:45:11 GMT
+
+https://collider.com/stormlight-archive-tv-series-showrunner-brandon-sanderson-update/
+
+Brandon Sanderson has revealed what's currently holding up Apple TV's Stormlight Archive adaptation — and he's personally involved in solving it.
+---------
+
+# Chace Crawford Officially Defends His "Cheesy" Fantasy Cult Classic [Exclusive]
+
+Movie News, The Covenant, Chace Crawford, Sebastian Stan, FanX
+
+Mon, 05 Oct 2026 23:30:12 GMT
+
+https://collider.com/chace-crawford-the-covenant-sequel-update-sebastian-stan/
+
+After 21 years, Chace Crawford gives an update on a potential sequel to The Covenant, the 2005 fantasy movie co-starring Sebastian Stan.
+---------
+
+# 25 Years Later, ‘Spirited Away’ Is Officially Returning to Theaters
+
+Movie News, Spirited Away, Hayao Miyazaki, Studio Ghibli, Animation
+
+Mon, 05 Oct 2026 23:19:30 GMT
+
+https://collider.com/spirited-away-25th-anniversary-theaters-october-2026/
+
+Hayao Miyazaki’s Spirited Away returns to theaters for five nights celebrating the Oscar-winning film’s 25th anniversary.
+---------
+
+# Anya Taylor-Joy's New 'White Lotus' Replacement Officially Hits Netflix Next Week
+
+Movie News, Anya Taylor-Joy, The White Lotus, Netflix, Sacrifice
+
+Mon, 05 Oct 2026 23:15:11 GMT
+
+https://collider.com/anya-taylor-joy-sacrifice-streaming-release-date-netflix-october-16-2026/
+
+Anya Taylor-Joy and Chris Evans star in Sacrifice, coming to Netflix this month ahead of Dune: Part Three and Avengers: Doomsday.
+---------
+
+# 'Marshals' Officially Confirms the Truth Behind Season 1’s Most Tragic Death
+
+TV Features, Marshals, Luke Grimes, Logan Marshall-Green, Yellowstone
+
+Mon, 05 Oct 2026 22:52:15 GMT
+
+https://collider.com/marshals-season-2-episode-1-weaver-double-g-garrett-death/
+
+Marshals Season 2 reveals that Tom Weaver's actions in Season 1 directly connect to a major death in the team.
+---------
+
+# Amazon's Next Major Comic Book Adaptation From 'Spider-Verse' Writer Gets "Extremely Positive" Update [Exclusive]
+
+Exclusives, Image Comics, FanX, Spider-Verse, Amazon Studios
+
+Mon, 05 Oct 2026 22:45:11 GMT
+
+https://collider.com/eight-billion-genies-adaptation-update-charles-soule-rodney-rothman/
+
+Charles Soule revealed that Amazon's adaptation of Eight Billion Genies is making progress with Spider-Verse writer Rodney Rothman.
+---------
+
+# Prime Video's New Viking Series Is Officially a 'Game of Thrones'-Level Epic in First Look
+
+TV News, Bloodaxe, Drama, Prime Video
+
+Mon, 05 Oct 2026 23:32:22 GMT
+
+https://movieweb.com/bloodaxe-prime-video-first-look-images/
+
+Michael and Horatio Hirst fuse family ties and ruthless ambition into a lavish Norse saga centered on Erik Bloodaxe.
+---------
+
+# Forget Harry Potter, Disney's New 21-Episode Fantasy Thriller Is the No. 1 Biggest Streaming Hit in the World
+
+TV News, Coven Academy, Hot on Streaming, Fantasy, Thriller, Disney+
+
+Mon, 05 Oct 2026 23:00:15 GMT
+
+https://movieweb.com/coven-academy-streaming-disney-plus-hulu-october-2026/
+
+Disney has officially found its newest global streaming hit by way of a 21-episode supernatural coming-of-age series rated 100% on Rotten Tomatoes.
+---------
+
+# Charles Dickens' Classic 169-Year-Old Thriller Officially Gets a Dark Remake Led by 'The Hobbit' Star
+
+Movie News, Charles Dickens, Thriller, Fantasy, Martin Freeman
+
+Mon, 05 Oct 2026 22:17:03 GMT
+
+https://movieweb.com/the-brides-chamber-martin-freeman-new-role/
+
+Morgan Freeman's The Bride’s Chamber will premiere on BBC Two during the festive season.
+---------
+
+# 8 Masterpiece Mystery Thrillers That Tell the Whole Story in One Season
+
+TV Lists, Thriller, Mystery
+
+Mon, 05 Oct 2026 22:00:14 GMT
+
+https://movieweb.com/mystery-thriller-tv-perfect-one-season/
+
+These 8 mystery thriller series deliver complete, self-contained stories in a single season, with every twist resolved by the finale.
+---------
+
+# 13 Years Later, Hugh Jackman's 153-Minute Gripping Crime Thriller Classic Is Being Eyed for a Remake
+
+TV News, Prisoners, Hugh Jackman, Jake Gyllenhaal, Crime, Thriller
+
+Mon, 05 Oct 2026 21:17:26 GMT
+
+https://movieweb.com/prisoners-hugh-jackman-tv-remake/
+
+Alcon's new studio division is handling the project.
+---------
+
+# Amazon's Overlooked Stephen King Sci-Fi Thriller Officially Returns Next Month in Chilling New Trailer
+
+TV Trailers, The Institute, Sci-Fi, Stephen King
+
+Mon, 05 Oct 2026 21:07:30 GMT
+
+https://movieweb.com/the-institute-season-2-trailer-mgm/
+
+This show deserves more attention.
+---------
+
+# HBO Max's Record-Breaking Sci-Fi Thriller Remains One of the Biggest Shows on Streaming
+
+TV News, Lanterns, HBO Max, Hot on Streaming, Sci-Fi, DCU
+
+Mon, 05 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/lanterns-scifi-stream-hbo-october-2026/
+
+Season 2, when?
+---------
+
+# 'Tracker' Season 4 Secretly Sets Up Jensen Ackles' Return
+
+Features, Tracker, Action, Thriller, Jensen Ackles
+
+Mon, 05 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/tracker-season-4-jensen-ackles-storyline/
+
+'Tracker's Russell Shaw may have a bigger role this chapter, especially if a subtle clue from the Season 4 premiere is connected to him.
+---------
+
+# Marvel Officially Comes to the End of an Era After 19 Years
+
+Movie News, Superhero, Marvel Cinematic Universe
+
+Mon, 05 Oct 2026 20:40:45 GMT
+
+https://movieweb.com/marvel-unlimited-shutting-down-webtoon/
+
+Marvel is officially shuttering the Marvel Unlimited service this December.
+---------
+
+# 'Sicario 3' Officially Replaces Taylor Sheridan
+
+Features, Sicario: Capos, Sicario, Taylor Sheridan, Crime, Thriller
+
+Mon, 05 Oct 2026 20:31:24 GMT
+
+https://movieweb.com/sicario-3-taylor-sheridan-steven-knight/
+
+'Sicario 3' is officially happening, and it is the highly anticipated third movie in the action thriller franchise starring Emily Blunt.
+---------
+
 # Prime Video’s New Vikings Meets Game Of Thrones Series Officially Unveiled
 
 TV, Bloodaxe
