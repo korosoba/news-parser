@@ -1,3 +1,443 @@
+# NCIS: New York Takes the Pressure Off With 1 Refreshing Creative Change
+
+Network TV, NCIS: New York
+
+Wed, 07 Oct 2026 02:34:17 GMT
+
+https://screenrant.com/ncis-new-york-sam-hanna-nick-schaeffer-partnership-pressure-change/
+
+NCIS: New York brings a major change that is going to help the series to thrive, creating a family rather than unnecessary competition.
+---------
+
+# X-Men's New Hero Has One Of The Most OP Superpowers Of All Time
+
+Marvel Comics, X-Men
+
+Wed, 07 Oct 2026 02:00:27 GMT
+
+https://screenrant.com/x-men-repent-superpower/
+
+The X-Men's new mutant hero has an ability no other Marvel character has, which makes him incredibly powerful against a very specific type of villain.
+---------
+
+# Forget The Expanse, Fox’s 23-Episode Space Opera Is The Original Military Sci-Fi Masterpiece
+
+Classic TV, Sci-Fi
+
+Wed, 07 Oct 2026 02:00:27 GMT
+
+https://screenrant.com/space-above-and-beyond-original-military-sci-fi-tv-show-before-the-expanse/
+
+If you've watched The Expanse and are looking for another epic military space opera, you can't go wrong with Fox's 23-episode Space: Above and Beyond.
+---------
+
+# Jon Bernthal & Brad Pitt’s Gritty WWII Thriller Explodes Onto Apple TV’s Top Streaming Chart
+
+Movies, Fury
+
+Wed, 07 Oct 2026 02:00:27 GMT
+
+https://screenrant.com/jon-bernthal-brad-pitt-fury-apple-tv-streaming-success-october-2026/
+
+More than 10 years after its release, a violent R-rated World War II thriller starring Jon Bernthal and Brad Pitt has become a big streaming hit.
+---------
+
+# Recasting Lord Of The Rings For 2026 With Paul Giamatti And 8 Other Stars
+
+Movies, The Lord of the Rings
+
+Wed, 07 Oct 2026 02:00:27 GMT
+
+https://screenrant.com/lord-of-the-rings-recast-2026/
+
+A remake of The Lord of the Rings would be a risky project, but a cast with nine fantastic performers like these might be able to make it work.
+---------
+
+# LL Cool J & Scott Caan Bring Back NCIS's Lost Mojo In New New York Spinoff | Review
+
+Network TV, NCIS: New York
+
+Wed, 07 Oct 2026 02:00:27 GMT
+
+https://screenrant.com/ncis-new-york-season-1-review/
+
+CBS's franchise is expanding again with NCIS: New York starring Sam Hanna & Scott Caan, and the new spinoff is bringing back the universe's old charm.
+---------
+
+# Mike Flanagan's Exorcist Movie Officially Unveils First Look & Story Details
+
+Movies, The Exorcist, The Exorcist: Martyrs
+
+Wed, 07 Oct 2026 01:37:29 GMT
+
+https://screenrant.com/mike-flanagan-exorcist-martyrs-teaser-story-details/
+
+Mike Flanagan's new The Exorcist movie starring Scarlett Johansson and John Leguizamo reveals its first official look and story details.
+---------
+
+# Tom Holland's 99% RT Historical Masterpiece Predicted His Role In The Odyssey
+
+Classic TV, Tom Holland
+
+Wed, 07 Oct 2026 01:30:16 GMT
+
+https://screenrant.com/tom-holland-wolf-hall-gregory-cromwell-predicted-telemachus-the-odyssey/
+
+Years before The Odyssey, Tom Holland starred in a near-perfect historical drama masterpiece that brilliantly predicted his role as Telemachus.
+---------
+
+# 10 Sci-Fi Books I Knew Would Be Masterpieces From The First 10 Pages
+
+Books, Sci-Fi
+
+Wed, 07 Oct 2026 01:24:55 GMT
+
+https://screenrant.com/masterpiece-sci-fi-books-first-10-pages/
+
+These ten masterpiece sci-fi books are so masterfully written that they convinced me within the first 10 pages that they'd be brilliant.
+---------
+
+# Marvel Confirms The Hero Punisher Is Scared Of More Than Anyone
+
+Comics, punisher, The Punisher
+
+Wed, 07 Oct 2026 01:10:06 GMT
+
+https://screenrant.com/punisher-marvel-one-hero-scared-of-thor/
+
+Marvel's big, bad Punisher has a beating heart, and it's beating quite rapidly lately because of an iconic MCU character he finds particularly scary.
+---------
+
+# 5 Strongest Ancient Sorcerers in Jujutsu Kaisen, Ranked
+
+Anime, Jujutsu Kaisen, shonen anime
+
+Wed, 07 Oct 2026 02:30:11 GMT
+
+https://www.cbr.com/jujutsu-kaisen-strongest-ancient-sorcerers-ranked/
+
+JJK's ancient sorcerers are incredibly strong, with unique and overpowered abilities, but which one reigns supreme?
+---------
+
+# 6 RPGs With Skill Trees That Are 10/10 Masterpieces
+
+Games, RPG, Video Games, Yakuza 0, Dragon Age: Inquisition, The Witcher 3: Wild Hunt
+
+Wed, 07 Oct 2026 02:00:22 GMT
+
+https://www.cbr.com/masterpiece-rpgs-with-skill-trees/
+
+The skill tree system is one of the most fun ways to level up, and it's been used in some incredible games.
+---------
+
+# CBS Just Broke a 3-Year NCIS Rule With Sam Hanna’s New York Return
+
+TV, NCIS: New York, NCIS, CBS
+
+Wed, 07 Oct 2026 02:00:07 GMT
+
+https://www.cbr.com/ncis-new-york-season-1-episode-1-premiere-sam-hanna-return/
+
+The premiere of NCIS: New York breaks the franchise rule established three years ago about Sam Hanna, as LL Cool J and Scott Caan return to CBS.
+---------
+
+# Scarlett Johansson Faces Evil in First Look at Mike Flanagan's The Exorcist Movie
+
+Movies, The Exorcist, The Exorcist: Martyrs
+
+Wed, 07 Oct 2026 01:53:42 GMT
+
+https://www.cbr.com/mike-flanagan-the-exorcist-first-look/
+
+Mike Flanagan's take on The Exorcist unveils its first footage and images along with full plot details.
+---------
+
+# 5 Greatest Disney Lorcana Ink Drop Cards from Hyperia City
+
+Games, Disney Lorcana, TCG, Tabletop
+
+Wed, 07 Oct 2026 01:45:11 GMT
+
+https://www.cbr.com/best-disney-lorcana-ink-drop-cards-hyperia-city/
+
+October's latest release for Disney Lorcana is titled Hyperia City, and these five amazing Ink Drop cards are definitely worth chasing after.
+---------
+
+# 5 Forgotten R-Rated Thrillers That Are Perfect From Start to Finish
+
+Movies, Thriller
+
+Wed, 07 Oct 2026 01:30:11 GMT
+
+https://www.cbr.com/best-r-rated-thrillers-no-one-remembers-list/
+
+The thriller boasts one of the biggest footprints in cinema, leaving plenty of forgotten and undiscovered gems every mystery fan needs to see.
+---------
+
+# 5 Anime With Better Worldbuilding Than Mushoku Tensei
+
+Anime, One Piece, Hunter x Hunter, Mushoku Tensei: Jobless Reincarnation
+
+Wed, 07 Oct 2026 01:25:11 GMT
+
+https://www.cbr.com/anime-better-worldbuilding-than-mushoku-tensei/
+
+The anime medium features some of the best worldbuilding in all fiction, far surpassing Mushoku Tensei.
+---------
+
+# Luffy's Single Greatest One Piece Line Hits Harder Than Any Anime Quote Since
+
+Anime, One Piece
+
+Wed, 07 Oct 2026 01:00:12 GMT
+
+https://www.cbr.com/one-piece-luffy-best-anime-quote/
+
+Luffy's best quote in One Piece sums up exactly what makes the classic anime series so great.
+---------
+
+# Cult Classic Horror Franchise Gets Revived 34 Years Later With Iconic Actor Returning
+
+Movies, Attack of the Killer Tomatoes!
+
+Wed, 07 Oct 2026 00:41:27 GMT
+
+https://www.cbr.com/attack-of-the-killer-tomatoes-organic-intelligence-vod/
+
+Over three decades since the last installment, a new sequel has officially been released.
+---------
+
+# 10 Greatest Hard Sci-Fi Games of All Time
+
+Games, Sci-Fi, Video Games
+
+Wed, 07 Oct 2026 00:30:11 GMT
+
+https://www.cbr.com/greatest-hard-sci-fi-games-all-time-list/
+
+Sci-fi games like Elite Dangerous are even better because of their commitment to real-world science.
+---------
+
+# Russell Crowe’s New Netflix Hit Officially Loses Streaming Crown
+
+Movie News, Russell Crowe, Unabomber, Netflix, Mindhunter
+
+Wed, 07 Oct 2026 02:30:12 GMT
+
+https://collider.com/unabomber-russell-crowe-streaming-drop-netflix-october-2026/
+
+Russell Crowe's Mindhunter replacement, Unabomber, has lost its crown on the Netflix viewership charts domestically. Find out more.
+---------
+
+# Streaming's Funniest Show Is Finally Back
+
+TV Features, Dropout TV, Make Some Noise, Game Changer, Josh Ruben
+
+Wed, 07 Oct 2026 02:29:12 GMT
+
+https://collider.com/make-some-noise-season-5-premiere-return-dropout-tv-streaming/
+
+Two weeks after Game Changer's season finale, Make Some Noise Season 5 has debuted on Dropout.
+---------
+
+# Harry Potter Casts a Spell on Two Major Streaming Services Ahead of HBO Adaptation
+
+Movie News, Chris Columbus, Harry Potter and the Sorcerer's Stone, Harry Potter, Apple TV
+
+Wed, 07 Oct 2026 02:15:12 GMT
+
+https://collider.com/harry-potter-and-the-philosophers-stone-streaming-success-apple-tv-prime-video-october-2026/
+
+Harry Potter and the Philosopher's Stone is officially a streaming mega-hit ahead of HBO's upcoming adaptation.
+---------
+
+# ‘Death Stranding’ Creator Confirms Return to Movies, But There's a Catch
+
+Movie News, Hideo Kojima, Anime, Video Game, Death Stranding
+
+Wed, 07 Oct 2026 02:01:12 GMT
+
+https://collider.com/hideo-kojima-major-live-action-movie-cameo-comments/
+
+Hideo Kojima has secretly filmed several cameos, including a mysterious role in a major upcoming live-action movie.
+---------
+
+# Apple TV’s Most Popular Series of All Time Officially Crosses Major Milestone
+
+TV News, Ted Lasso, Apple TV, Jason Sudeikis, Hannah Waddingham
+
+Wed, 07 Oct 2026 01:45:12 GMT
+
+https://collider.com/ted-lasso-sesaon-4-streaming-success-apple-tv-october-2026/
+
+Apple TV's most-watched series of 2026 has officially reached over 275 days at the top of streaming charts.
+---------
+
+# Forget ‘Agatha All Along,’ This 21-Episode Masterpiece Fantasy Is the Perfect Replacement
+
+TV Features, Coven Academy, Agatha All Along, Series, Disney+
+
+Wed, 07 Oct 2026 01:43:12 GMT
+
+https://collider.com/agatha-all-along-series-replacement-coven-academy-disney-plus/
+
+Coven Academy is the perfect Agatha All Along replacement, blending witches, vampires, romance, mystery and supernatural teen drama.
+---------
+
+# The 6 Best Horror Books Released Since 1990, Ranked
+
+Books and Comics, Horror, Books, 1990s, Stephen Graham
+
+Wed, 07 Oct 2026 01:43:12 GMT
+
+https://collider.com/best-horror-books-since-1990-ranked/
+
+From The Ruins to The Terror, these modern horror novels transform grief, guilt, isolation, and fear into nightmares.
+---------
+
+# ‘House of the Dragon’ Star Eyed for James Bond Villain Role
+
+Movie News, James Bond, Ewan Mitchell, Amazon, House of the Dragon
+
+Wed, 07 Oct 2026 01:31:12 GMT
+
+https://collider.com/james-bond-villain-role-house-of-the-dragon-star-ewan-mitchell/
+
+A House of the Dragon star may be leaving Westeros behind for Denis Villeneuve's new James Bond movie. Read on for more.
+---------
+
+# The Greatest Heist Thriller in History Officially Arrives on Netflix in 10 Days
+
+Movie News, Heat, Netflix, Michael Mann, Heat 2
+
+Wed, 07 Oct 2026 01:15:11 GMT
+
+https://collider.com/heat-netflix-streaming-release-date-october-2026/
+
+Netflix has acquired the greatest crime thriller in history, Heat, meaning it will begin streaming on the platform in 10 days.
+---------
+
+# Kevin Costner’s ‘Yellowstone’ Return Officially Addressed by Taylor Sheridan Star
+
+TV News, Marshals, Kevin Costner, Luke Grimes, Taylor Sheridan
+
+Wed, 07 Oct 2026 01:00:12 GMT
+
+https://collider.com/taylor-sheridan-marshals-kevin-costner-return-comments-luke-grimes/
+
+Despite Taylor Sheridan’s feud with Kevin Costner, Marshals star Luke Grimes still wants to see the Yellowstone star return in some form.
+---------
+
+# 8 Perfect Miniseries You’ll Rewatch Over and Over
+
+TV Lists, Netflix, Prime Video, The Haunting of Hill House, Station Eleven
+
+Wed, 07 Oct 2026 02:00:26 GMT
+
+https://movieweb.com/perfect-miniseries-rewatch/
+
+These sci-fi, drama, horror, and thriller miniseries from Netflix, Hulu, and HBO are even more compelling and memorable when you rewatch them.
+---------
+
+# Jamie Foxx's 132-Minute Action Thriller Sets New Release Ahead of Star-Studded Remake
+
+Movie News, Miami Vice, Jamie Foxx, Colin Farrell, Action, Thriller, Crime, Blu-ray
+
+Wed, 07 Oct 2026 00:30:15 GMT
+
+https://movieweb.com/miami-vice-2006-4k-blu-ray-release/
+
+Jamie Foxx and Colin Farrell's 2006 action thriller 'Miami Vice' is coming to 4K Ultra HD Blu-ray ahead of Joseph Kosinski's forthcoming reboot.
+---------
+
+# 11 Years Later, Mads Mikkelsen's Psychological Thriller Masterpiece Still Deserves a Comeback
+
+Features, Hannibal, Mads Mikkelsen, Crime, Thriller
+
+Wed, 07 Oct 2026 00:00:15 GMT
+
+https://movieweb.com/hannibal-series-comeback-deserved/
+
+Mads Mikkelsen has been in countless projects over his career, but one ended far sooner than it should have. Read on for more.
+---------
+
+# 10 Movies Considered True Masterpieces That Failed With Audiences and Critics on Release
+
+Movie Lists, Sci-Fi, Drama, Horror, Comedy
+
+Tue, 06 Oct 2026 23:01:15 GMT
+
+https://movieweb.com/masterpiece-movies-divided-audiences-critics/
+
+Even some of cinema's most lauded directors have classics that didn't truly connect with audiences until years after their release.
+---------
+
+# Matt Damon & Leonardo DiCaprio's Near-Perfect 151-Minute Crime Thriller Is Officially a Streaming Smash
+
+Movie News, The Departed, Hot on Streaming, Matt Damon, Leonardo DiCaprio, Crime, Thriller
+
+Tue, 06 Oct 2026 23:01:15 GMT
+
+https://movieweb.com/the-departed-dicaprio-damon-streaming-hit-hbo-max-october-2026/
+
+Damon and DiCaprio's only movie together is a crime thriller masterpiece that's back with a vengeance on streaming.
+---------
+
+# Andrew Garfield's New Thriller Proves It's the Perfect 'Social Network' Sequel After Rotten Tomatoes Debut
+
+Movie News, Artificial, Andrew Garfield, Thriller, Comedy
+
+Tue, 06 Oct 2026 22:36:52 GMT
+
+https://movieweb.com/artificial-andrew-garfield-rotten-tomatoes/
+
+Andrew Garfield scores a career win with his new satirical corporate drama.
+---------
+
+# Original 'Scream' Star Confirms Departure From Franchise 3 Years After Melissa Barrera's Firing
+
+Movie News, Melissa Barrera, Skeet Ulrich, Scream, Horror
+
+Tue, 06 Oct 2026 22:03:04 GMT
+
+https://movieweb.com/scream-skeet-ulrich-departure/
+
+Original 'Scream' star Skeet Ulrich has confirmed that he will not be finishing his character's arc after the firing of Melissa Barrera.
+---------
+
+# 49 Years Later, Steven Spielberg's Greatest Alien Movie Is Officially Streaming Free on YouTube
+
+Features, Close Encounters of The Third Kind, Sci-Fi, Steven Spielberg
+
+Tue, 06 Oct 2026 22:00:14 GMT
+
+https://movieweb.com/close-encounters-third-kind-spielberg-free-youtube/
+
+Turning 49 in November, Steven Spielberg's all-time best sci-fi alien movie is a must-see as Disclosure Day nears its streaming release.
+---------
+
+# Owen Wilson's New Movie Lands Record-Low Box Office Debut
+
+Movie News, Rolling Loud, Owen Wilson, Comedy
+
+Tue, 06 Oct 2026 21:34:59 GMT
+
+https://movieweb.com/rolling-loud-the-movie-owen-wilson-box-office/
+
+Owen Wilson's festival comedy 'Rolling Loud' stumbled at the box office after its viral Travis Scott moment lost steam and theaters remained limited.
+---------
+
+# New 95-Minute Action Thriller Reboot With Near-Perfect RT Score Breaks 16-Year-Old Box Office Record
+
+Movie News, Resident Evil, Box Office Milestones, Action, Thriller, Horror
+
+Tue, 06 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/resident-evil-2026-domestic-box-office-record/
+
+The franchise took a bold and risky swing with a breakout director at the helm.
+---------
+
 # 18 Years Later, Walton Goggins’ Best Line In The Shield Is Still A Top 5 Cop Show Quote
 
 Classic TV, The Shield
