@@ -1,3 +1,443 @@
+# Your Apothecary Diaries Character, Based On Your Birthday And Zodiac Sign
+
+Anime, The Apothecary Diaries, The Apothecary Diaries - Season 2, The Apothecary Diaries - Season 1
+
+Wed, 07 Oct 2026 22:00:17 GMT
+
+https://screenrant.com/which-apothecary-diaries-character-zodiac-sign/
+
+The Apothecary Diaries is an amazing drama anime with a rich cast of characters that resemble the Zodiac Signs perfectly, so which one are you?
+---------
+
+# Dragon's Dogma 2: Dark Arisen Review - More Of A Pawn Than A Queen
+
+Gaming, Dragon's Dogma II, PC, Triple-A Games
+
+Wed, 07 Oct 2026 22:00:16 GMT
+
+https://screenrant.com/dragons-dogma-2-dark-arisen-review/
+
+Dragon's Dogma 2: Dark Arisen fixes many technical issues with the base game, but its gameplay additions compromise the series' core vision.
+---------
+
+# Widow's Bay Season 2 Release Timeline On Apple TV Unveiled By Star Matthew Rhys
+
+TV, Widow's Bay
+
+Wed, 07 Oct 2026 21:56:06 GMT
+
+https://screenrant.com/apple-tv-widows-bay-season-2-release-timeline-matthew-rhys/
+
+Widow's Bay season 2's release timeline has been officially unveiled by Matthew Rhys, but it is not the happy news fans of the Apple TV series wanted.
+---------
+
+# America's Number 1 Comedy Is Officially Coming Back In 24 Hours
+
+Network TV, Georgie & Mandy's First Marriage
+
+Wed, 07 Oct 2026 21:45:17 GMT
+
+https://screenrant.com/georgie-and-mandys-first-marriage-return-season-3-premiere/
+
+CBS's Premiere Week being in full swing warrants the return of several successful TV shows, including one dubbed America's number 1 comedy.
+---------
+
+# Jessica Chastain’s New Horror Movie Is The Perfect Follow-Up To Mama 13 Years Later
+
+Movies, Other Mommy, Mama
+
+Wed, 07 Oct 2026 21:21:16 GMT
+
+https://screenrant.com/jessica-chastain-new-horror-movie-mama-follow-up/
+
+Jessica Chastain protected two girls in Mama. Now she’s the monster wearing a mother’s face in Other Mommy, and the casting couldn’t be crueler.
+---------
+
+# Sons Of Anarchy Officially Replaces Jax Teller In New Reboot
+
+Streaming TV, Sons of Anarchy
+
+Wed, 07 Oct 2026 21:15:16 GMT
+
+https://screenrant.com/sons-of-anarchy-new-series-jax-teller-charlie-hunnam-play-himself/
+
+Sons of Anarchy is coming back with a reboot with an interesting twist, thanks to which it will replace Jax Teller as the main character.
+---------
+
+# Tom Selleck's Blue Bloods Return Chances In 2026 Returning Spinoff Addressed By Showrunners
+
+TV, Boston Blue, Blue Bloods, Tom Selleck
+
+Wed, 07 Oct 2026 21:10:29 GMT
+
+https://screenrant.com/boston-blue-season-2-tom-selleck-frank-return-showrunners-response/
+
+EXCLUSIVE: Tom Selleck has yet to appear on Blue Bloods spinoff Boston Blue, and the showrunners are now revealing if that will change anytime soon.
+---------
+
+# 4 RPGs Perfect For Fallout Fans
+
+Gaming, Fallout, Triple-A Games, PC
+
+Wed, 07 Oct 2026 21:01:16 GMT
+
+https://screenrant.com/rpgs-most-like-fallout-games/
+
+Fallout fills a highly specific niche in the RPG scene, but these alternatives do a surprisingly great job at scratching a similar itch.
+---------
+
+# Prime Video Officially Finds The Next Epic Fantasy Series To Rival The Witcher & LOTR
+
+TV, The Witcher, Masked Recs
+
+Wed, 07 Oct 2026 21:01:16 GMT
+
+https://screenrant.com/the-dark-tower-mike-flanagan-prime-video-epic-fantasy-rival/
+
+With layered timelines, mythology, character arcs, and a reluctant hero, Prime Video's fantasy epic could be a modern classic on par with LotR.
+---------
+
+# 4 Underrated Thriller Authors As Good As Grisham
+
+Books, John Grisham
+
+Wed, 07 Oct 2026 21:01:16 GMT
+
+https://screenrant.com/john-grisham-underrated-authors-comparison/
+
+John Grisham is one of the best authors in the business, but some other incredible writers show the same skill, talent, and knowledge of the law.
+---------
+
+# Nintendo Reveals Official Zelda: Majora's Mask Animation Amid Switch 2 Remake Rumors
+
+Games, The Legend of Zelda: Majora's Mask, The Legend of Zelda, Nintendo
+
+Wed, 07 Oct 2026 22:06:11 GMT
+
+https://www.cbr.com/zelda-majoras-mask-nintendo-today-animation/
+
+Nintendo seems to be trolling Zelda fans at this point, as they've now dropped their fourth piece of Majora's Mask-themed content in the past 2 days.
+---------
+
+# Netflix’s New 7-Part Series Based on Classic Novel Is 1 of the Most-Watched Shows With 6.5M Views
+
+TV, East of Eden, Netflix
+
+Wed, 07 Oct 2026 22:00:12 GMT
+
+https://www.cbr.com/east-of-eden-drama-netflix-success-october-2026/
+
+Days after premiering, Netflix's adaptation is officially the most-watched show worldwide.
+---------
+
+# Nearly Five Decades Later, Judge Dredd's Biggest Joke Is Still Relevant Today
+
+Comics, Judge Dredd, Sci-Fi, Action
+
+Wed, 07 Oct 2026 22:00:12 GMT
+
+https://www.cbr.com/judge-dredd-satire-still-misunderstood/
+
+Since his 1977 debut, Judge Dredd has been a perfect work of political satire, but many often forget that the biggest joke is on reality.
+---------
+
+# Fallout Season 3 Is Officially Not Returning in 2026
+
+TV, Fallout
+
+Wed, 07 Oct 2026 21:44:19 GMT
+
+https://www.cbr.com/fallout-season-3-officially-returning-in-2026/
+
+Prime Video's Fallout won't be back for Season 3 this year, although there is a very good reason fans will have to keep waiting for it.
+---------
+
+# Ghost of Yōtei Complete Edition Is Officially the Best PlayStation 5 Exclusive
+
+Games, Ghost of Yotei
+
+Wed, 07 Oct 2026 21:15:11 GMT
+
+https://www.cbr.com/ghost-of-yotei-complete-edition-review/
+
+One year later, Ghost of Yōtei brings even more features with the Complete Edition that makes the case for the best PlayStation 5 exclusive.
+---------
+
+# Tom Cruise’s 'Excruciatingly Painful' Flop Dethrones Resident Evil as World’s Most Popular Movie
+
+Movies, Digger, IMDb
+
+Wed, 07 Oct 2026 21:01:31 GMT
+
+https://www.cbr.com/digger-most-popular-movie-imdb/
+
+The polarizing film gets a much-needed win after flopping hard in theaters.
+---------
+
+# Netflix's Narnia Reboot Is Replacing The Pevensie Children
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, Netflix
+
+Wed, 07 Oct 2026 21:00:11 GMT
+
+https://www.cbr.com/netflix-narnia-magicians-nephew-reboot-replacing-pevensie-children/
+
+Narnia: The Magician's Nephew will make some huge changes from Narnia's previous live-action adaptations, including its leading characters.
+---------
+
+# Dragon Ball Releases Akira Toriyama's Original Super Saiyan Gohan 1 Week Before His Official Debut
+
+Anime, Dragon Ball, weekly shonen jump
+
+Wed, 07 Oct 2026 20:35:11 GMT
+
+https://www.cbr.com/dragon-ball-akira-toriyama-original-super-saiyan-gohan-reveal/
+
+New original Akira Toriyama art of the 'four great Super Saiyans' has been released in its official draft form.
+---------
+
+# Superman’s New Man of Tomorrow Suit Confirmed by David Corenswet
+
+Movies, Superman, DCU, Man of Tomorrow
+
+Wed, 07 Oct 2026 20:33:30 GMT
+
+https://www.cbr.com/david-corenswet-superman-new-costume-man-of-tomorrow/
+
+Superman is getting a new look.
+---------
+
+# 10 Complete Sci-Fi Anime Series That Are 10/10, No Notes
+
+Anime, Gintama, Neon Genesis Evangelion
+
+Wed, 07 Oct 2026 20:15:12 GMT
+
+https://www.cbr.com/perfect-complete-sci-fi-anime-series/
+
+Sci-fi anime series like Gintama and Neon Genesis Evangelion offer complete stories that have virtually no flaws.
+---------
+
+# 'Ted Lasso' Just Set Up 8 Unexpected Season 5 Mysteries
+
+TV, Ted Lasso, Jason Sudeikis, Apple TV, Comedy
+
+Wed, 07 Oct 2026 22:03:11 GMT
+
+https://collider.com/ted-lasso-season-5-mysteries/
+
+From a new vacant coaching role to Roy and Keeley's future parenting, Ted Lasso has left us with burning questions while we wait for Season 5.
+---------
+
+# David Boreanaz’s 52-Year-Old Detective Series Reboot Gets Bonkers Budget Reveal
+
+TV News, The Rockford Files, David Boreanaz, NBC, Jacki Weaver
+
+Wed, 07 Oct 2026 22:00:51 GMT
+
+https://collider.com/the-rockford-files-reboot-season-1-budget-70-million-california-tax-credit/
+
+A new report officially reveals the expected cost and tax credits for David Boreanaz’s reboot of a 52-year-old detective series.
+---------
+
+# Aaron Taylor-Johnson’s British Cult Classic Officially Gets Netflix Reboot
+
+TV News, Aaron Taylor-Johnson, Netflix, Angus, Thongs and Perfect Snogging, Comedy
+
+Wed, 07 Oct 2026 22:00:11 GMT
+
+https://collider.com/aaron-taylor-johnson-angus-thongs-and-full-frontal-snogging-adaptation-netflix-confirmed/
+
+Aaron Taylor-Johnson's 2008 rom-com cult classic is officially getting rebooted at Netflix. Read on for more details.
+---------
+
+# Disney Is Completely Replacing a Beloved Icon After 20 Years
+
+Theme Parks, Walt Disney World, Disney World, Disney
+
+Wed, 07 Oct 2026 21:51:51 GMT
+
+https://collider.com/expedition-everest-yeti-replacement-disney-animal-kingdom-joe-rohde/
+
+Disney legend reveals that the company is completely redoing one of its most notorious failures after 20 years.
+---------
+
+# The 6 Best Adventure Books Released Since 1990, Ranked
+
+Books and Comics, Adventure, Books, 1990s, Jurassic Park
+
+Wed, 07 Oct 2026 21:51:11 GMT
+
+https://collider.com/best-adventure-books-released-since-1990-ranked/
+
+From Shantaram to The Martian, these unforgettable adventures deliver survival, discovery, danger, and epic journeys.
+---------
+
+# Samuel L. Jackson Confirms Official MCU Return of Nick Fury, But There's a Catch
+
+Movie News, Avengers: Secret Wars, Avengers: Doomsday, Samuel L. Jackson, Nick Fury
+
+Wed, 07 Oct 2026 21:45:10 GMT
+
+https://collider.com/avengers-secret-wars-cast-samuel-l-jackson-nick-fury-return/
+
+Samuel L. Jackson has officially confirmed that Nick Fury will return to the MCU, but not for Avengers: Doomsday. Read on for more details.
+---------
+
+# 10 Western Movies That Changed the Genre Forever
+
+Movie, Western, Brokeback Mountain, Tombstone, No Country for Old Men
+
+Wed, 07 Oct 2026 21:29:12 GMT
+
+https://collider.com/western-movies-changed-genre-forever/
+
+From Stagecoach, the godfather of the genre, all the way to the bleakness of No Country for Old Men, these seminal movies changed the Western forever.
+---------
+
+# 'Abbott Elementary' Officially Raises the Bar in a Milestone Season 6 | Review
+
+TV Reviews, Abbott Elementary, ABC, Sitcom, Comedy
+
+Wed, 07 Oct 2026 21:00:12 GMT
+
+https://collider.com/abbott-elementary-season-6-review/
+
+Abbott Elementary is hitting a milestone for Season 6, but it isn't resting on its laurels. Quinta Brunson's award-winning sitcom is still a winner!
+---------
+
+# The 6 Best Science Fantasy Books Released Since 2020, Ranked
+
+Books and Comics, Science Fiction, Fantasy, Books, Sci-Fi
+
+Wed, 07 Oct 2026 20:54:11 GMT
+
+https://collider.com/best-science-fantasy-books-since-2020-ranked/
+
+From Cyber Mage to Light from Uncommon Stars, these wildly inventive science fantasy novels turn genre rules inside out.
+---------
+
+# 8 Horror Shows to Watch if You Love Prime Video's ‘Carrie’
+
+TV, Carrie, Stephen King, Mike Flanagan, It
+
+Wed, 07 Oct 2026 20:28:12 GMT
+
+https://collider.com/horror-shows-like-carrie-prime-video/
+
+Haunting of Hill House, Chilling Adventures of Sabrina, It: Welcome to Derry, and more make up our list of horror shows to watch if you love Carrie.
+---------
+
+# Prime Video's Post-Apocalyptic Action Hit Officially Breaks an Amazon Record Ahead of Season 3
+
+TV News, Fallout, Action, Drama
+
+Wed, 07 Oct 2026 21:47:51 GMT
+
+https://movieweb.com/fallout-season-3-prime-video-record-production-cost/
+
+One of Prime Video's biggest shows is coming back for its third season, breaking all kinds of records as it approaches its return.
+---------
+
+# Original MCU Icon Confirms 'Avengers: Secret Wars' Return 3 Years After Last Appearance
+
+Movie News, Avengers: Secret Wars, Marvel Cinematic Universe, Samuel L. Jackson
+
+Wed, 07 Oct 2026 21:23:50 GMT
+
+https://movieweb.com/samuel-l-jackson-avengers-secret-wars-cast/
+
+Nick Fury star Samuel L. Jackson confirms he won't appear in 'Avengers: Doomsday' but will return in the next MCU film, 'Avengers: Secret Wars.'
+---------
+
+# Kevin Costner's Return to 'Yellowstone' Officially Addressed by Taylor Sheridan Sequel Star
+
+TV News, Yellowstone, Kevin Costner, Taylor Sheridan, Drama, Marshals, Luke Grimes, Western
+
+Wed, 07 Oct 2026 21:16:38 GMT
+
+https://movieweb.com/yellowstone-kevin-costner-luke-grimes-marshals/
+
+Luke Grimes addresses Kevin Costner's possible return to the 'Yellowstone' universe in 'Marshals.'
+---------
+
+# Netflix's New 10-Part Reboot of an Iconic '80s Classic Quickly Becomes a Global Streaming Smash
+
+TV News, A Different World, Hot on Streaming, Comedy, Drama, Netflix
+
+Wed, 07 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/a-different-world-streaming-netflix-october-2026/
+
+Despite being a streaming success, not everyone is impressed with Netflix's take on the beloved '80s hit, which brings the series into a new era.
+---------
+
+# Jason Momoa Officially Joined by 'Game of Thrones' Icon in Star-Studded New Adventure Series
+
+TV News, Emilia Clarke, Jason Momoa
+
+Wed, 07 Oct 2026 20:20:45 GMT
+
+https://movieweb.com/emilia-clarke-jason-momoa-roadmap-to-happiness/
+
+Jason Momoa is joined by a fellow 'Game of Thrones' icon Emilia Clarke in the star-studded series.
+---------
+
+# 6 Biggest Questions After 'Ted Lasso' Season 4, Episode 10's Ending, Explained
+
+TV Lists, Ted Lasso, Apple TV, Jason Sudeikis, Brett Goldstein, Tracey Ullman, Juno Temple, Hannah Waddingham, Comedy
+
+Wed, 07 Oct 2026 20:01:15 GMT
+
+https://movieweb.com/ted-lasso-season-4-finale-questions-explained/
+
+'Ted Lasso's Season 4 finale, "Being Alive," answers a lot of questions, but it also sets up plenty of new ones for Season 5 and beyond.
+---------
+
+# 'The Conjuring' Officially Returns With Haunting New Netflix Release
+
+Movie News, The Conjuring Universe, Horror
+
+Wed, 07 Oct 2026 19:53:46 GMT
+
+https://movieweb.com/the-conjuring-unspoken-game-netflix/
+
+Netflix serves up an immersive 'The Conjuring' experience in time for Halloween.
+---------
+
+# Liam Neeson Is on the Run in Tense Teaser for New Non-Stop Action Thriller
+
+Movie News, Liam Neeson, The Mongoose, Action
+
+Wed, 07 Oct 2026 19:13:54 GMT
+
+https://movieweb.com/mongoose-liam-neeson-gas-station-clip/
+
+A new look at the upcoming chase film has been revealed.
+---------
+
+# Netflix's Raunchy Mystery Thriller Hit Officially Confirms Fate 1 Month Ahead of Season 2
+
+TV News, The Hunting Wives, Thriller
+
+Wed, 07 Oct 2026 19:05:23 GMT
+
+https://movieweb.com/netflix-hunting-wives-season-3-renewal/
+
+Netflix's 'The Hunting Wives' just got an official Season 3 update ahead of the show's return this year.
+---------
+
+# James Bond's Son Takes Over From 007 as New 82-Minute Action Thriller Sets November Release
+
+Movie News, James Bond, james bond, Action, Thriller, Blu-ray
+
+Wed, 07 Oct 2026 19:00:15 GMT
+
+https://movieweb.com/knightfall-blu-ray-release/
+
+101 Films is preparing a Blu-ray release of the action thriller 'Knightfall,' starring Geoffrey Moore, the son of James Bond icon Roger Moore.
+---------
+
 # Hellboy Returns To His Greatest Era Today With A New Series
 
 Comics, Hellboy
