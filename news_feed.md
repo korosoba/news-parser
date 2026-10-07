@@ -1,3 +1,355 @@
+# Pokémon FireRed & LeafGreen Players Can Officially Grab A Free Mythical Pokémon Now
+
+Gaming, Pokemon FireRed and LeafGreen, Pokemon
+
+Wed, 07 Oct 2026 09:33:20 GMT
+
+https://screenrant.com/pokemon-firered-leafgreen-home-update-free-celebi/
+
+Link FireRed & LeafGreen to Pokémon HOME for a free Celebi!
+---------
+
+# Star Wars: Galactic Racer Planets & Tracks Guide
+
+Gaming, Star Wars, Star Wars: Galactic Racer
+
+Wed, 07 Oct 2026 09:18:04 GMT
+
+https://screenrant.com/star-wars-galactic-racer-planets-tracks-guide/
+
+Star Wars: Galactic Racer is the best genre entry of the last few years, so here's everything you need to know about its planets.
+---------
+
+# GTA 6 PC Release Gets Official Update
+
+Gaming, Grand Theft Auto, Grand Theft Auto 6
+
+Wed, 07 Oct 2026 09:16:39 GMT
+
+https://screenrant.com/gta-6-pc-release-official-update-no-streaming/
+
+GTA VI is going to be one of the biggest releases of all time, but one major element related to the PC isn't going ahead as previously thought.
+---------
+
+# PlayStation Plus Drops Bonus October 2026 Free Download For New Fantasy RPG
+
+Gaming, Dark Souls, PlayStation, PlayStation Plus
+
+Wed, 07 Oct 2026 09:06:06 GMT
+
+https://screenrant.com/playstation-plus-bonus-freebie-october-2026-valor-mortis/
+
+PlayStation Plus Premium members can soon avail of a 90 minute trial of a grotesque Soulslike Napoleonic horror RPG drenched in unsettling detail.
+---------
+
+# Carrie Ending Explained: Who The Others Are & That Margaret Twist
+
+Streaming TV, Carrie, Halloween 2026
+
+Wed, 07 Oct 2026 09:00:17 GMT
+
+https://screenrant.com/carrie-prime-video-ending-margaret-twist-explained/
+
+Mike Flanagan's Carrie adaptation may end with a bloody prom night, but it differs from the Stephen King novel and other movies in some big ways.
+---------
+
+# The Wheel Of Time's Long-Awaited Return Is Officially A Hit
+
+Gaming, The Wheel of Time, PC
+
+Wed, 07 Oct 2026 06:30:16 GMT
+
+https://screenrant.com/wheel-of-time-war-of-dragon-kickstarter-funding-goal/
+
+The Wheel of Time fans have nothing but good things to say about the franchise's long-awaited return after the Amazon series cancellation.
+---------
+
+# Star Trek Is Officially Switching Genre And Replacing Picard In 2027
+
+Gaming, Star Trek, Jean-Luc Picard, Star Trek: Picard, PC
+
+Wed, 07 Oct 2026 05:30:16 GMT
+
+https://screenrant.com/star-trek-shadow-frontier-genre-switch-picard-replaced/
+
+Star Trek's upcoming 2027 release is not only a massive shift in direction for the franchise, but it's kicking Picard to the curb for a new lead.
+---------
+
+# The Expanse Is Officially Returning In 2027 With A Brand-New Story
+
+Gaming, The Expanse, PC
+
+Wed, 07 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/the-expanse-osiris-reborn-new-story-2027/
+
+The Expanse is making an official return in 2027 with a completely original story set alongside familiar events from the original show.
+---------
+
+# Fallout: NCR Is Officially Releasing In 2027
+
+Gaming, Fallout, Triple-A Games
+
+Wed, 07 Oct 2026 04:30:17 GMT
+
+https://screenrant.com/fallout-ncr-collection-2027-release-date/
+
+While Fallout fans are used to waiting for any given release, we're getting one sooner than later, and certainly quicker than Fallout 5.
+---------
+
+# Game Of Thrones: The Rise Of Dragons Officially Announced For October 2026
+
+Gaming, Game of Thrones, Game of Thrones: Conquest, PC
+
+Wed, 07 Oct 2026 04:00:24 GMT
+
+https://screenrant.com/game-of-thrones-rise-of-dragons-october-2026/
+
+Game of Thrones: The Rise of Dragons is officially arriving later this month, featuring the franchise's most iconic dragons back for longtime fans.
+---------
+
+# Taylor Sheridan Already Replaced His Canceled Yellowstone Spinoff With Something Better
+
+TV, Dutton Ranch, Yellowstone, Paramount Plus, Innovation
+
+Wed, 07 Oct 2026 09:34:04 GMT
+
+https://www.cbr.com/taylor-sheridan-yellowstone-dutton-ranch-marshals-replaced-6666/
+
+Yellowstone co-creator Taylor Sheridan has slammed the door on his Four Sixes spinoff, but Dutton Ranch and Marshals are filling the void.
+---------
+
+# The Lincoln Lawyer Is Getting a Spinoff, but Netflix Picked the Wrong Character
+
+TV, The Lincoln Lawyer, Netflix
+
+Wed, 07 Oct 2026 09:18:54 GMT
+
+https://www.cbr.com/the-lincoln-lawyer-lorna-spinoff-mistake-netflix/
+
+The Lincoln Lawyer is ending after Season 5, but the Cobie Smulders-led spinoff leaves fans of Lorna disappointed in Netflix.
+---------
+
+# Legendary Marvel Writer Reveals How an Iconic Avengers Story Came to Be on Its 40th Anniversary
+
+Comics, Avengers
+
+Wed, 07 Oct 2026 03:58:54 GMT
+
+https://www.cbr.com/avengers-under-siege-40th-anniversary-roger-stern-interview/
+
+Legendary Marvel writer Roger Stern talks with CBR about his iconic Avengers story, "Under Siege," on the 40th anniversary of that epic tale
+---------
+
+# Blumhouse's Forgotten Legacy Sequel to 30-Year-Old Horror Hit Now Streaming for Free
+
+Movies, The Craft: Legacy
+
+Wed, 07 Oct 2026 03:56:28 GMT
+
+https://www.cbr.com/the-craft-legacy-streaming-tubi-october-2026/
+
+The legacy sequel had a quiet release and was missed by many horror fans.
+---------
+
+# Archie Officially Begins a Hilarious Brand-New Era
+
+Comics, archie
+
+Wed, 07 Oct 2026 03:52:30 GMT
+
+https://www.cbr.com/archie-1-review-2026-hilarious-brand-new-era/
+
+In a CBR review of Archie #1, learn how well the new reboot handles the classic character
+---------
+
+# 10 Fall 2026 Anime Series You Cannot Miss
+
+Anime, Tokyo Revengers, The Apothecary Diaries, Black Clover
+
+Wed, 07 Oct 2026 03:45:16 GMT
+
+https://www.cbr.com/must-watch-fall-2026-anime-series/
+
+The Fall 2026 lineup is already upon us and promises a roster of exceptional titles, including these 10 series that anime fans cannot afford to miss.
+---------
+
+# Other Comic Books Get the Midnight Universe Treatment
+
+Comics, Marvel, CSBG, The Line It Is Drawn
+
+Wed, 07 Oct 2026 03:35:35 GMT
+
+https://www.cbr.com/midnight-universe-treatment-comic-books-line-drawn/
+
+In a brand-new Line it is Drawn, our artists drew your suggestions for other comic book characters getting the Midnight Universe treatment
+---------
+
+# Stephen King’s Forgotten 3-Episode Horror Miniseries Is the Perfect Halloween Binge
+
+TV, Rose Red, Stephen King, Horror
+
+Wed, 07 Oct 2026 03:30:12 GMT
+
+https://www.cbr.com/stephen-king-rose-red-forgotten-horror-miniseries/
+
+Stephen King's many stories have defined horror for decades, and one of his most underrated miniseries remains the ideal watch for a good scare.
+---------
+
+# 15 Best Peanuts Comic Strips Featuring Linus
+
+Comics, Peanuts
+
+Wed, 07 Oct 2026 03:30:12 GMT
+
+https://www.cbr.com/best-peanuts-comic-strips-featuring-linus/
+
+Peanuts simply wouldn't be the same without resident scaredy-cat Linus Van Pelt and some of the best comic strip moments originate from Linus as well.
+---------
+
+# 10 Best '80s Games of All Time, Ranked
+
+Games, retro games, Video Games
+
+Wed, 07 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/best-80s-games-of-all-time-ranked/
+
+Games like Super Mario Bros. 3 and Contra helped define the '80s.
+---------
+
+# Gal Gadot’s 'Taken' Replacement Is a Surprise Prime Video Hit
+
+Movie News, Gal Gadot, The Runner, Prime Video, Taken
+
+Wed, 07 Oct 2026 09:31:12 GMT
+
+https://collider.com/gal-gadot-taken-replacement-the-runner-streaming-success-prime-video-october-2026/
+
+Despite poor reviews, Gal Gadot's Taken replacement, The Runner, shines on Prime Video charts. Read on for more details.
+---------
+
+# Every Stevie Ray Vaughan Instrumental, Ranked
+
+Music News, Music, Jimmie & Stevie Ray Vaughan: Brothers in Blues, Rock, Stevie Ray Vaughan and Double Trouble: Live at Montreux 1982 & 1985
+
+Wed, 07 Oct 2026 09:10:12 GMT
+
+https://collider.com/every-stevie-ray-vaughan-instrumental-ranked/
+
+From “Testify” and “Wham!” to “Riviera Paradise,” “Stang’s Swang,” “Little Wing” and “Lenny,”every Stevie Ray Vaughan instrumental, ranked.
+---------
+
+# 5 Wildly Oblivious Horror Characters That Had It Coming From the Start, Ranked
+
+Movie, Insidious, Midsommar, Orphan, Paranormal
+
+Wed, 07 Oct 2026 09:08:11 GMT
+
+https://collider.com/most-oblivious-horror-movie-husbands/
+
+The most oblivious horror movie characters are typically husbands who refuse to believe that the supernatural is happening right under their noses.
+---------
+
+# Alec Baldwin's Unintentionally Hilarious Thriller Is as Entertaining as Ever
+
+Movie Features, The Edge, Alec Baldwin, Anthony Hopkins, Tubi
+
+Wed, 07 Oct 2026 09:08:11 GMT
+
+https://collider.com/alec-baldwin-thriller-the-edge-anthony-hopkins-meme-charles-streaming-free/
+
+The Edge, Alec Baldwin and Anthony Hopkins' 1997 survival movie, delivers thrills and accidental laughs in equal measure.
+---------
+
+# Aaron Sorkin Confirms Why ‘The Social Reckoning’ Isn’t a 'Social Network' Sequel
+
+Exclusives, The Social Reckoning, Aaron Sorkin, The Social Network, Mikey Madison
+
+Wed, 07 Oct 2026 09:00:12 GMT
+
+https://collider.com/the-social-reckoning-facebook-mark-zuckerberg-aaron-sorkin/
+
+Aaron Sorkin explains why he doesn't view The Social Reckoning as a sequel and explains how the new film tackles Facebook's current real-world impact.
+---------
+
+# ‘Lonesome Dove’ Is Officially Returning With a New Netflix Adaptation
+
+TV News, Jeb Stuart, Lonesome Dove, East of Eden, Zoe Kazan
+
+Wed, 07 Oct 2026 09:00:12 GMT
+
+https://collider.com/lonesome-dove-netflix-remake-jeb-stuart-1989-miniseries/
+
+Jeb Stuart teases Netflix’s new Lonesome Dove adaptation and says the 900-page novel offers plenty the 1989 miniseries never covered.
+---------
+
+# 'Slow Horses' Star Reacts to the Grim Episode 4 Twist That Changes Everything
+
+Exclusives, Slow Horses, Apple TV, Thriller, Drama
+
+Wed, 07 Oct 2026 07:01:11 GMT
+
+https://collider.com/slow-horses-season-6-episode-4-coe-death-tom-brooke/
+
+Slow Horses star Tom Brooke discusses Episode 4's biggest twist and the moment he improvised with returning cast member Olivia Cooke.
+---------
+
+# Apple TV's Near-Perfect Fantasy Series Adds Magic to an Award-Winning Sitcom Formula | Review
+
+TV Reviews, Small Prophets, Apple TV, Mackenzie Crook, BBC
+
+Wed, 07 Oct 2026 07:01:11 GMT
+
+https://collider.com/small-prophets-review-apple-tv/
+
+Apple TV's new fantasy series Small Prophets will take you on a heartfelt, magical, and surprising journey.
+---------
+
+# The Best Western Series of All Time Is Taylor Sheridan’s Ambitious Effort on Paramount+
+
+TV Features, 1923, Taylor Sheridan, Harrison Ford, Helen Mirren
+
+Wed, 07 Oct 2026 04:45:11 GMT
+
+https://collider.com/best-western-series-taylor-sheridan-1923-yellowstone-paramount/
+
+Taylor Sheridan's layered Western epic 1923 is a compelling story of the Dutton family establishing the legacy fans know on Yellowstone.
+---------
+
+# Scarlett Johansson Debuts in First Teaser for New Reboot of '70s Thriller Masterpiece
+
+Movie News, Scarlett Johansson, The Exorcist: Martyrs, The Exorcist, Horror, Thriller
+
+Wed, 07 Oct 2026 09:14:47 GMT
+
+https://movieweb.com/exorcist-martyrs-scarlett-johansson-teaser/
+
+The Academy Award nominee is a detective hunting a mysterious killer in first footage from Mike Flanagan's revival.
+---------
+
+# 'Sherlock Holmes' Officially Rebooted in New Gender-Swapped Streaming Series
+
+TV News, Sherlock Holmes, Lucy Hale, Romance, Roku
+
+Wed, 07 Oct 2026 07:54:10 GMT
+
+https://movieweb.com/lucy-hale-scarlett-holmes-roku/
+
+Lucy Hale will star in 'Scarlett Holmes', a modern-day romantic comedy spin on Sherlock Holmes for Roku.
+---------
+
+# 'Practical Magic 2' Officially Confirms Digital Streaming Date
+
+Movie News, Practical Magic 2
+
+Wed, 07 Oct 2026 06:47:27 GMT
+
+https://movieweb.com/practical-magic-2-streaming-date/
+
+The legacy sequel starring Sandra Bullock and Nicole Kidman will be available to rent and buy digitally starting October 13, 2026.
+---------
+
 # NCIS: New York Takes the Pressure Off With 1 Refreshing Creative Change
 
 Network TV, NCIS: New York
