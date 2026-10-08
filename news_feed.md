@@ -1,3 +1,432 @@
+# Daredevil’s MCU Future After Born Again’s Shock Cancellation Gets Official Update From Charlie Cox
+
+TV, Daredevil: Born Again
+
+Thu, 08 Oct 2026 21:39:07 GMT
+
+https://screenrant.com/daredevil-mcu-future-born-again-cancellation-charlie-cox-response/
+
+EXCLUSIVE: Charlie Cox breaks his silence on the future for Matt Murdock after Daredevil: Born Again season 3 brings the show to an end in 2027.
+---------
+
+# 3 Best New HBO Max Series To Binge-Watch This Weekend (October 9–11, 2026)
+
+Streaming TV, HBO Max, What to Watch on Max
+
+Thu, 08 Oct 2026 21:30:17 GMT
+
+https://screenrant.com/best-new-hbo-max-shows-to-binge-weekend-october-9-2026/
+
+The best new shows to binge-watch on HBO Max this weekend, October 9–11, 2026, are The Pet Cemetery Murders: A Ghost Story, Rage season 2, and War.
+---------
+
+# Every R-Rated Sydney Sweeney Movie Officially Releasing On HBO Max In The Next 2 Weeks
+
+Movies, Sydney Sweeney
+
+Thu, 08 Oct 2026 21:25:56 GMT
+
+https://screenrant.com/sydney-sweeney-movies-release-hbo-max-october-2026/
+
+Multiple Sydney Sweeney R-rated movies are coming to HBO Max in October, including one hit that has a star-studded sequel set for 2027.
+---------
+
+# Apple TV's Action Thriller With John Cena Debuts To Disappointing Rotten Tomatoes Score
+
+Movies, Matchbox the Movie
+
+Thu, 08 Oct 2026 21:11:12 GMT
+
+https://screenrant.com/matchbox-movie-apple-tv-john-cena-rotten-tomatoes-score-debut/
+
+Apple TV's new action thriller starring John Cena debuts with a disappointing Rotten Tomatoes score ahead of its release date on October 9.
+---------
+
+# Disney+’s $650 Million Cyberpunk Series Is The Best Sci-Fi Show Of The Decade
+
+Classic TV, Masked Recs
+
+Thu, 08 Oct 2026 21:00:17 GMT
+
+https://screenrant.com/star-wars-andor-best-sci-fi-show-of-the-decade/
+
+Disney+ spent over half a billion dollars on its first cyberpunk series, and Andor became the greatest science fiction show of the entire decade.
+---------
+
+# Legend Of Zelda Officially Returns To The Wilds Era For New October 2026 Release
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Breath of the Wild, Nintendo, Nintendo Switch 2
+
+Thu, 08 Oct 2026 21:00:17 GMT
+
+https://screenrant.com/legend-of-zelda-wilds-era-official-return-october-2026-40th-anniversary/
+
+The Legend of Zelda is finally heading back to the Wilds era for a brand-new release that is set to drop later this month.
+---------
+
+# 10 Greatest Opening Lines In Horror Movie History
+
+Movies, Horror, House of 1000 Corpses, The Omen, frankenstein, The Witch, The Thing, Scream, The Texas Chainsaw Massacre, Candyman, Terrifier 3, Nosferatu
+
+Thu, 08 Oct 2026 21:00:17 GMT
+
+https://screenrant.com/horror-movie-best-opening-lines-ever/
+
+From Scream to Nosferatu, these horror movies prove a single line of dialogue can create dread, establish mythology, and define a classic.
+---------
+
+# Marvel Studios' Spider-Man TV Show Gets Official Release Date For Disney+
+
+TV, Masked Recs, Spider-Man, Marvel Cinematic Universe, New York Comic-Con 2010
+
+Thu, 08 Oct 2026 20:41:36 GMT
+
+https://screenrant.com/your-friendly-neighborhood-spider-man-season-2-release-date-2027/
+
+After a very long hiatus, Marvel Studios has officially revealed when its big Spider-Man TV show will finally be back for season 2 on Disney+.
+---------
+
+# Marvel Officially Confirms Next Live-Action Series For Disney+
+
+TV, Marvel Cinematic Universe, New York Comic-Con 2010
+
+Thu, 08 Oct 2026 20:33:02 GMT
+
+https://screenrant.com/zodiac-project-marvel-live-action-show-confirmed-release-year/
+
+Marvel Studios has officially announces their next major live-action TV show for Disney+, including when the show will finally get into production.
+---------
+
+# Netflix's Perfect Peaky Blinders Replacement Is A Remake Of 56-Year-Old Crime Classic
+
+TV, Masked Recs
+
+Thu, 08 Oct 2026 20:32:17 GMT
+
+https://screenrant.com/netflix-peaky-blinders-molly-maguires-remake/
+
+Period authenticity and moral ambiguity turns real-life resistance into a tense, stylish survival saga in Netflix's perfect Peaky Blinders follow-up.
+---------
+
+# The Best Spider-Man Show of the 21st Century Returns in 3 Months After Major Delay
+
+TV, Your Friendly Neighborhood Spider-Man, Disney+, New York Comic Con, NYCC2026
+
+Thu, 08 Oct 2026 21:40:20 GMT
+
+https://www.cbr.com/your-friendly-neighborhood-spider-man-season-2-release-date-2027/
+
+Spider-Man is swinging back onto television after a months-long delay, with a beloved Marvel Comics storyline.
+---------
+
+# Marvel Confirms She-Hulk for New TV Appearance 4 Years After Disney+ Finale
+
+TV, X-Men '97, NYCC2026
+
+Thu, 08 Oct 2026 21:39:20 GMT
+
+https://www.cbr.com/she-hulk-x-men-97-season-3/
+
+Marvel Studios isn't done with She-Hulk.
+---------
+
+# Georgie & Mandy Showrunner Teases Season 3’s Georgie and Mary Fight
+
+TV, Georgie & Mandy's First Marriage, CBS, The Big Bang Theory
+
+Thu, 08 Oct 2026 21:33:11 GMT
+
+https://www.cbr.com/georgie-mandys-first-marriage-season-3-mary-fight-interview/
+
+In an exclusive CBR interview, Steve Holland previews family fallout, Missy's return and Mandy's career in Georgie & Mandy's First Marriage.
+---------
+
+# 10 Best Fights in Isekai Anime History, Ranked
+
+Anime, Isekai, That Time I Got Reincarnated as a Slime
+
+Thu, 08 Oct 2026 21:30:11 GMT
+
+https://www.cbr.com/best-isekai-anime-fights-ever-ranked-list/
+
+Anime like Reincarnated as a Slime have some of the greatest fights in the history of isekai anime.
+---------
+
+# 10 RPGs Everyone Owned in the '90s
+
+Games, Role Playing Game, Video Games, Chrono Trigger, Final Fantasy
+
+Thu, 08 Oct 2026 21:15:12 GMT
+
+https://www.cbr.com/popular-rpgs-everyone-owned-1990s/
+
+Diehard RPG fans in the '90s almost assuredly owned hit titles like Baldur's Gate and Fallout.
+---------
+
+# Star Trek IV Has Bones Mccoy's Funniest Quote in Sci-fi History
+
+Movies, Star Trek IV: The Voyage Home
+
+Thu, 08 Oct 2026 21:00:12 GMT
+
+https://www.cbr.com/star-trek-iv-bones-mccoy-funniest-quote/
+
+Leonard McCoy is one of the most beloved characters in Star Trek history and this hilarious quote reminds fans of why they love him.
+---------
+
+# Marvel Zombies Officially Resurrected as Disney+ Confirms New 2027 Release
+
+TV, Marvel Zombies, NYCC2026, Marvel Cinematic Universe
+
+Thu, 08 Oct 2026 20:54:16 GMT
+
+https://www.cbr.com/marvel-zombies-three-new-specials-starting-halloween-2027/
+
+The bloody MCU series and spinoff of What If...? will be back for more in 2027.
+---------
+
+# Marvel Officially Confirms New Spy Thriller Series Perfect for Agents of SHIELD Fans
+
+TV, Marvel Cinematic Universe, NYCC2026, Disney+, New York Comic Con
+
+Thu, 08 Oct 2026 20:47:25 GMT
+
+https://www.cbr.com/marvel-zodiac-disney-plus-series-2028/
+
+Marvel Television is returning to the MCU's shadows.
+---------
+
+# Gundam SEED Officially Returns in February 2027 With Brand-New Anime Movie
+
+Anime, Gundam SEED, NYCC2026, Mobile Suit Gundam, New York Comic Con
+
+Thu, 08 Oct 2026 20:35:07 GMT
+
+https://www.cbr.com/gundam-seed-freedom-zero-us-release-date/
+
+Mobile Suit Gundam SEED FREEDOM ZERO confirms its February 2027 North American release with a brand-new trailer.
+---------
+
+# Xbox Game Is Free to Play Until October 11, No Game Pass Required
+
+Games, Xbox Series X (1)
+
+Thu, 08 Oct 2026 20:32:09 GMT
+
+https://www.cbr.com/xbox-game-pass-free-play-days-arc-raiders/
+
+Xbox's regularly scheduled Free Play Days promotion is back, and now any Xbox user can try one of last year's best games for the whole weekend.
+---------
+
+# 7 Years Later, Quentin Tarantino's 161-Minute Thriller Classic Still Beats Any Movie He Ever Made
+
+Movie, Once Upon a Time in Hollywood, Leonardo DiCaprio, Brad Pitt, Quentin Tarantino
+
+Thu, 08 Oct 2026 21:35:12 GMT
+
+https://collider.com/once-upon-a-time-in-hollywood-best-quentin-tarantino-movie/
+
+Quentin Tarantino may never top his 2019 masterpiece, Once Upon a Time in Hollywood, the ultimate entertainment fairytale.
+---------
+
+# HBO Officially Revives 'Crazy Rich Asians' Sequel
+
+TV News, Crazy Rich Asians, Constance Wu, Henry Golding, Jon M. Chu
+
+Thu, 08 Oct 2026 21:24:15 GMT
+
+https://collider.com/crazy-rich-asians-sequel-series-hbo-cosntance-wu-henry-golding-michelle-yeoh-returning/
+
+After almost a decade in development hell, a sequel to Crazy Rich Asians is finally happening with the entire main cast returning. Read on for more.
+---------
+
+# 10 Flawless Movies With the Cleverest Protagonists
+
+Movie, Home Alone, A Beautiful Mind, Arrival, Oppenheimer
+
+Thu, 08 Oct 2026 21:09:12 GMT
+
+https://collider.com/flawless-movies-clever-protagonists/
+
+Whether it's superhero actioners like Iron Man or Oscar-winning dramas like Good Will Hunting, these movies have cinema's most clever protagonists.
+---------
+
+# Marvel Officially Announces New Spy Thriller Series for 2028
+
+TV News, Marvel, Disney+, Secret Invasion, Agents of S.H.I.E.L.D.
+
+Thu, 08 Oct 2026 21:04:14 GMT
+
+https://collider.com/marvel-zodiac-spy-thriller-series-2028-shield/
+
+Marvel announces Zodiac, a new spy thriller series coming in 2028, with production beginning next year and a possible SHIELD tease.
+---------
+
+# New Spider-Man Disney+ Release Officially Teases the Return of Venom
+
+TV News, Disney+, Your Friendly Neighborhood Spider-Man, New York Comic Con, Jeff Trammell
+
+Thu, 08 Oct 2026 21:00:23 GMT
+
+https://collider.com/your-friendly-neighborhood-spider-man-season-2-release-date-poster/
+
+Your Friendly Neighborhood Spider-Man Season 2 gets a new Marvel poster ahead of and officially sets Disney+ release date.
+---------
+
+# 'Matlock' Meets 'Mr. Robot' in CBS' New Sci-Fi Procedural From the Creators of 'Evil' | Review
+
+TV Reviews, Cupertino, CBS, Mike Colter, Rachel Keller
+
+Thu, 08 Oct 2026 21:00:12 GMT
+
+https://collider.com/cupertino-review-cbs-mike-colter-rachel-keller/
+
+Cupertino stars Mike Colter and Rachel Keller as they team up to take on Silicon Valley in CBS' newest legal procedural that dabbles in sci-fi.
+---------
+
+# This Quote Defined Horror for an Entire Generation
+
+Movie, The Shining, Horror, Stanley Kubrick, Stephen King
+
+Thu, 08 Oct 2026 20:57:11 GMT
+
+https://collider.com/heres-johnny-the-shining-quote-defined-horror-entire-generation/
+
+The Shining is easily one of the most genre-defining works of horror of all time, and Jack Nicholson saying "Here's Johnny" is beyond iconic.
+---------
+
+# 'X-Men '97' Season 3 Officially Adds Marvel's Most R-Rated Hero
+
+TV News, X-Men, X-Men '97, Deadpool, MCU
+
+Thu, 08 Oct 2026 20:49:29 GMT
+
+https://collider.com/deadpool-is-officially-crashing-x-men-97-season-3/
+
+After Morph transformed into the character in the hit show's last outing, X-Men '97 Season 3 will officially feature Deadpool. Read on for more.
+---------
+
+# Disney's R-Rated Marvel Series Officially Renewed for 2 More Seasons
+
+TV News, Marvel Zombies, Marvel Animation
+
+Thu, 08 Oct 2026 20:48:06 GMT
+
+https://collider.com/marvel-zombies-seasons-3-4-renewed/
+
+Marvel's hit horror series Marvel Zombies is officially returning for not one, not two, but three more installments. Read on for more.
+---------
+
+# ‘Doctor Who’s Greatest 4-Part Adventure Just Got a Revival on Streaming
+
+TV Features, Doctor Who, BBC, BBC iPlayer
+
+Thu, 08 Oct 2026 20:23:12 GMT
+
+https://collider.com/doctor-who-the-savages-4-part-sci-fi-adventure-bbc-iplayer/
+
+The Doctor Who serial "The Savages" is finally available to stream, letting fans see a long-lost piece of history.
+---------
+
+# Marvel Studios Officially Confirms New MCU Spy Thriller Streaming Series With Official Title & Release Date
+
+TV News, Marvel Cinematic Universe, Disney+, Superhero
+
+Thu, 08 Oct 2026 21:23:49 GMT
+
+https://movieweb.com/zodiac-mcu-disney-series-2028/
+
+Marvel Television has confirmed 'Zodiac', a new original spy series set to debut on Disney+ in 2028.
+---------
+
+# 4 Years Later, Netflix’s Forgotten 7-Part Thriller Series Officially Confirms Perfect Cast for Long-Awaited Return
+
+TV News, The Watcher
+
+Thu, 08 Oct 2026 21:05:40 GMT
+
+https://movieweb.com/the-watcher-netflix-season-2-cast-return/
+
+Ryan Murphy's 'The Watcher' is moving back into the Netflix neighborhood.
+---------
+
+# 8 Hard-Magic Fantasy Series to Read After Brandon Sanderson
+
+TV Lists, Fantasy, Brandon Sanderson
+
+Thu, 08 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/hard-magic-fantasy-series-recommendations/
+
+Brandon Sanderson is a beloved fantasy author known for his memorable books like 'The Stormlight Archive' series, and these books are just as good.
+---------
+
+# 'Marshals' Star Officially Confirms Interest in Joining Another Taylor Sheridan Action Thriller
+
+TV News, Marshals, Lioness, Action
+
+Thu, 08 Oct 2026 20:45:46 GMT
+
+https://movieweb.com/marshals-ash-santos-taylor-sheridan-lioness-show/
+
+The 'Marshals' star is eyeing a slot in Sheridan's repertory roster.
+---------
+
+# Tom Cruise's (Very) R-Rated 159-Minute Steamy Thriller Is One of the Biggest Movies in the World
+
+Movie News, Eyes Wide Shut, Tom Cruise, Hot on Streaming, Thriller
+
+Thu, 08 Oct 2026 20:30:16 GMT
+
+https://movieweb.com/eyes-wide-shut-tom-cruise-stream-hbo-october-2026/
+
+Of all the movies in Cruise's vast filmography, this one holds a Guinness record.
+---------
+
+# 21 Years Later, Sequel to Keanu Reeves’ Cult-Classic Fantasy Thriller Is Officially Still Happening
+
+Movie News, Constantine, Constantine 2, Horror, Superhero, Fantasy
+
+Thu, 08 Oct 2026 20:21:11 GMT
+
+https://movieweb.com/constantine-sequel-keanu-reeves-update/
+
+'Constantine 2', a sequel to the 2005 film 'Constantine', is reportedly still in development at Warner Bros. following Skydance's acquisition of the .
+---------
+
+# James Gunn's 'Lanterns' Season 1 Follow-up Will Officially Answer a New DCU Question
+
+Features, Lanterns, James Gunn, DCU, Superhero, Man of Tomorrow
+
+Thu, 08 Oct 2026 19:01:15 GMT
+
+https://movieweb.com/lanterns-finale-man-of-tomorrow-reveal/
+
+'Lanterns' ends with a tense moment, and while James Gunn could leave us waiting to see what happens next, it won't take all that long. Read on.
+---------
+
+# 25 Years Later, the Sci-Fi Adventure Epic Roger Ebert Hailed as Near-Perfect Sets New Release
+
+Movie News, A.I. Artificial Intelligence, A.I. Artificial Intelligence¬†, Steven Spielberg, Sci-Fi, Drama, Blu-ray
+
+Thu, 08 Oct 2026 19:01:15 GMT
+
+https://movieweb.com/ai-artificial-intelligence-4k-blu-ray-release/
+
+Steven Spielberg's epic sci-fi adventure 'A.I. Artificial Intelligence' is celebrating its 25th anniversary with a new 4K Ultra HD Blu-ray release.
+---------
+
+# Paramount Officially Adapting Modern Sci-Fi Action Masterpiece After Perfect Netflix Franchise
+
+Movie News, Sci-Fi, Cyberpunk: Edgerunners, Cyberpunk: Edgerunners 2
+
+Thu, 08 Oct 2026 18:28:30 GMT
+
+https://movieweb.com/cyberpunk-2077-movie-paramount/
+
+'Cyberpunk 2077' is getting a live-action movie from Paramount after two seasons of 'Edgerunners' on Netflix.
+---------
+
 # Michael Emerson's 10 Best Movies & TV Shows
 
 Classic TV, Michael Emerson
