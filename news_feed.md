@@ -1,3 +1,443 @@
+# Chicago Fire Season 15’s Explosive Cliffhanger Resolution Struggles To Ignite The Next Generation | Review
+
+Network TV, Chicago Fire
+
+Thu, 08 Oct 2026 02:00:27 GMT
+
+https://screenrant.com/chicago-fire-season-15-episode-1-review/
+
+Chicago Fire season 15's premiere episode features the fallout of the tragic structure fire and previews cast changes as the season continues on.
+---------
+
+# Carrie Season 2: What's Next If The Series Is Renewed
+
+Streaming TV, Carrie, Halloween 2026
+
+Thu, 08 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/carrie-season-2-renewal-status-updates/
+
+Carrie may have been billed as a miniseries, but Mike Flanagan's Prime Video show set up a future for the iconic Stephen King character, Carrie White.
+---------
+
+# Zelda Meets Studio Ghibli And Valheim In New Open-World Survival RPG You Can Play Free Now
+
+Gaming, Steam, Indie Games, PC
+
+Thu, 08 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/zelda-meets-studio-ghibli-valheim-stormforge-free-demo/
+
+Zelda fans don't need to look too far to find a game inspired by any number of the classics the series has hosted, but this one is a unique blend.
+---------
+
+# Chicago Med Season 12’s Mass Casualty Exposes The Cracks In Gaffney's Finest | Review
+
+Network TV, Chicago Med
+
+Thu, 08 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/chicago-med-season-12-episode-1-review/
+
+Chicago Med season 12's premiere opens with an intense mass casualty and revisits the unresolved storylines as tensions rise at Gaffney.
+---------
+
+# Gregory’s Abbott Elementary Season 6 Promotion Disrupts Its Status Quo | Review
+
+Network TV, Abbott Elementary
+
+Thu, 08 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/abbott-elementary-season-6-episode-1-review/
+
+Abbott Elementary Season 6 gets off to a strong start as Gregory’s promotion shakes up familiar dynamics and gives the sitcom room to grow.
+---------
+
+# Every Grey's Anatomy Spinoff Explained (& How They Connect)
+
+Network TV, Grey's Anatomy
+
+Thu, 08 Oct 2026 00:45:17 GMT
+
+https://screenrant.com/greys-anatomy-spinoff-shows-timeline-connections-explained/
+
+Grey's Anatomy has made way for three spin-off series, though not all of them have been set in a hospital. Here's what they're about.
+---------
+
+# George Lucas’ Unmade Revenge Of The Sith Sequel Was Way Ahead Of Its Time
+
+Classic TV, Star Wars, Star Wars: Underworld, Andor
+
+Thu, 08 Oct 2026 00:30:16 GMT
+
+https://screenrant.com/george-lucas-star-wars-underworld-revenge-of-the-sith-sequel/
+
+George Lucas had a planned sequel to Revenge of the Sith, but his live-action Star Wars show was too far ahead of its time to ever get made.
+---------
+
+# 9 Great Banned Books You Probably Haven’t Read
+
+Books
+
+Thu, 08 Oct 2026 00:16:16 GMT
+
+https://screenrant.com/best-underrated-banned-books/
+
+Unflinching narratives and strange worlds reveal how censorship reshapes youth reading and cultural memory.
+---------
+
+# All 5 Seasons Of Fargo & The Movie, Ranked
+
+Classic TV, Fargo
+
+Thu, 08 Oct 2026 00:16:16 GMT
+
+https://screenrant.com/fargo-tv-seasons-movie-ranked-worst-best/
+
+Fargo is synonymous with quality, with all five seasons and the movie being beloved, so here is every Fargo story ranked from worst to best.
+---------
+
+# 10 TV Shows That Can Never Be Remade
+
+Classic TV
+
+Thu, 08 Oct 2026 00:00:18 GMT
+
+https://screenrant.com/shows-that-can-never-be-remade/
+
+10 beloved TV shows that capture a unique legacy or existed in a specific cultural moment, which makes them impossible to recreate in the modern era.
+---------
+
+# CBS Officially Confirms NCIS's Leon Vance Replacement in Season 24
+
+TV, NCIS, CBS
+
+Thu, 08 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/ncis-season-24-episode-1-tony-dinozzo-replace-director/
+
+In the premiere, NCIS Season 24 officially replaces Director Leon Vance, pulling off one of the best bait-and-switches in franchise history.
+---------
+
+# Netflix's New Miniseries Based on a John Steinbeck Classic Is Taking Over the World
+
+TV, East of Eden, Netflix
+
+Thu, 08 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/netflix-east-of-eden-most-popular-tv-shows-october-2026/
+
+Netflix's adaptation of a classic book is a global sensation.
+---------
+
+# Weakest Pokémon From Every Generation, Ranked
+
+Games, Pokemon, Pokémon, Video Games
+
+Thu, 08 Oct 2026 01:45:11 GMT
+
+https://www.cbr.com/weakest-pokemon-every-generation-ranked/
+
+Each Pokémon generation has a creature that's worse than the rest, but only one is the strongest of the entire bunch, beating out the other weaklings.
+---------
+
+# 10 Anime to Watch If You Love Blue Box
+
+Anime, Blue Box
+
+Thu, 08 Oct 2026 01:25:11 GMT
+
+https://www.cbr.com/best-anime-like-blue-box/
+
+These anime bring that same fun combination of sports, romance, friendship and growing up as Blue Box.
+---------
+
+# Crystal Lake Officially Brings Back an Abandoned Friday the 13th Tradition After 23 Years
+
+TV, Crystal Lake, Friday The 13th
+
+Thu, 08 Oct 2026 01:15:22 GMT
+
+https://www.cbr.com/crystal-lake-friday-the-13th-novelization/
+
+Peacock's Crystal Lake series resurrects a Friday the 13th release tradition.
+---------
+
+# Prime Video’s New 8-Part Hit With 92% RT Has Refused to Leave the Top 10 for 146 Days
+
+TV, Off Campus, Prime Video, Romance
+
+Thu, 08 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/off-campus-romance-prime-video-success-october-2026/
+
+This hockey romance has dominated the streaming charts for nearly five months.
+---------
+
+# Stephen King's 30-Episode Crime Trilogy Is Still 1 of His Best
+
+TV, Mr. Mercedes, Stephen King, Thriller
+
+Thu, 08 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/mr-mercedes-stephen-king-best-series/
+
+Stephen King is one of the most adapted modern authors, but the 3-season hit now streaming on Peacock is one of his absolute best TV series.
+---------
+
+# 10 Most Anticipated Disney Lorcana Hyperia City Cards, Ranked
+
+Games, Disney Lorcana, TCG, Tabletop
+
+Thu, 08 Oct 2026 00:45:11 GMT
+
+https://www.cbr.com/most-anticipated-disney-lorcana-hyperia-city-cards/
+
+The Hyperia City set will finally hit shelves in October 2026, bringing these 10 highly-anticipated cards and more to the Disney Lorcana TCG.
+---------
+
+# Martin Scorsese’s 20-Year-Old Crime Classic Shoots to No. 6 on HBO Max in Just 1 Day
+
+Movies, The Departed, Martin Scorsese, Mobsters
+
+Thu, 08 Oct 2026 00:30:11 GMT
+
+https://www.cbr.com/the-departed-crime-hbo-max-success-october-2026/
+
+Martin Scorsese's Oscar-winning crime thriller just topped the charts on HBO Max 20 years after its release.
+---------
+
+# Studio Ghibli Brings Totoro & the Catbus Into 2027 With New Official Release
+
+Anime, My Neighbor Totoro, Studio Ghibli, merchandise
+
+Thu, 08 Oct 2026 00:20:11 GMT
+
+https://www.cbr.com/studio-ghibli-my-neighbor-totoro-2027-calendar-release/
+
+Studio Ghibli's iconic forest spirit duo from My Neighbor Totoro returns to help anime lovers get ready for a promising new year.
+---------
+
+# Prime Video Just Landed Kevin Costner’s Ambitious $424 Million Western
+
+Movie News, Dances With Wolves, Kevin Costner, Prime Video, Yellowstone
+
+Thu, 08 Oct 2026 02:00:22 GMT
+
+https://collider.com/kevin-costner-dances-with-wolves-streaming-prime-video-october-2026/
+
+Prime Video has added Kevin Costner's Western masterpiece, Dances with Wolves, to its streaming service.
+---------
+
+# Apple TV's 'Last Seen' Star Confirms How the Finale Breaks the Typical Crime Drama Formula
+
+Interviews, Last Seen, Patrick Brammall, Evil, Colin from Accounts
+
+Thu, 08 Oct 2026 02:00:22 GMT
+
+https://collider.com/last-seen-apple-tv-finale-sarah-mags-fate-patrick-brammall/
+
+Patrick Brammall discusses Last Seen, the emotional finale, his time on Evil, the success of Colin from Accounts, and being a part of Bluey.
+---------
+
+# Crunchyroll’s Latest Anime Exit Exposes One of Streaming’s Biggest Problems
+
+TV Features, Crunchyroll, Akame ga Kill!, Black Lagoon, Demon Slayer
+
+Thu, 08 Oct 2026 01:21:12 GMT
+
+https://collider.com/crunchyroll-akame-ga-kill-exit-streamingproblem-exposed/
+
+Crunchyroll is about to remove Akame ga Kill from its streaming archive, exposing a major issue with anime access.
+---------
+
+# Netflix’s Agatha Christie-Like Murder Mystery Is Taking Over the World
+
+TV News, Agatha Christie, Netflix, Mystery, Thriller
+
+Thu, 08 Oct 2026 01:00:12 GMT
+
+https://collider.com/murder-mystery-final-problem-streaming-success-netflix-october-2026/
+
+Netflix's new sleeper hit murder mystery series is like a marriage between Agatha Christie and Sherlock Holmes. Find out more.
+---------
+
+# '3 Body Problem' Movie Officially in the Works Ahead of Season 2
+
+Movie News, 3 Body Problem, John Bradley, Eiza Gonzalez, Benedict Wong
+
+Thu, 08 Oct 2026 00:45:11 GMT
+
+https://collider.com/3-body-problem-movie-adaptation-zhang-yimou/
+
+Chinese filmmaker Zhang Yimou will still make a film adaptation of Liu Cixin's Remembrance of Earth's Past sci-fi trilogy.
+---------
+
+# Matt Damon's 10/10 Crime Thriller Is Officially Taking Over HBO Max
+
+Movie News, Matt Damon, The Departed, HBO Max, Streaming
+
+Thu, 08 Oct 2026 00:30:11 GMT
+
+https://collider.com/matt-damon-the-departed-streaming-success-hbo-max-october-2026/
+
+Matt Damon's beloved crime thriller, The Departed, is officially taking over HBO Max. Read on for all the details.
+---------
+
+# The 6 Best Thriller Books Released Since 1990, Ranked
+
+Books and Comics, Thriller, Books, 1990s, Gillian Flynn
+
+Thu, 08 Oct 2026 00:17:12 GMT
+
+https://collider.com/best-thriller-books-since-1990-ranked/
+
+From Shutter Island to The Firm, these masterful thrillers deliver relentless suspense, shocking twists, and impossible-to-stop reading.
+---------
+
+# ‘Battlestar Galactica’ Stars Officially Reunite in Mike Flanagan’s New Stephen King Series
+
+TV News, Carrie, Battlestar Galactica, Mike Flanagan, Prime Video
+
+Thu, 08 Oct 2026 00:15:12 GMT
+
+https://collider.com/mike-flanagan-carrie-battlestar-galactica-reunion/
+
+Mike Flanagan's Carrie, which premiered today, sets up a surprise Battlestar Galactica cast reunion, 17 years after the sci-fi masterpiece ended.
+---------
+
+# Christopher Nolan's 'The Odyssey' Officially Returns to IMAX for Another Big-Screen Run
+
+Movie News, The Odyssey, IMAX, Christopher Nolan, Fantasy
+
+Thu, 08 Oct 2026 00:00:11 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-imax-return-october-2026/
+
+Even after grossing over a billion dollars at the box office, Christopher Nolan's The Odyssey is officially returning to IMAX theaters this month.
+---------
+
+# ‘Glee’ Legend Officially Reveals If He’ll Return for Ryan Murphy’s Reboot
+
+TV News, Glee, Ryan Murphy, Chris Colfer, Fox
+
+Wed, 07 Oct 2026 23:45:12 GMT
+
+https://collider.com/ryan-murphy-glee-reboot-chris-colfer-response/
+
+Glee favorite Chris Colfer has officially responded to reports that Ryan Murphy is planning on rebooting the cult classic series.
+---------
+
+# 8 American Military Series Like 'Band of Brothers' That Are Undisputed Masterpieces
+
+TV Lists, War, Band of Brothers, Thriller
+
+Thu, 08 Oct 2026 02:01:14 GMT
+
+https://movieweb.com/american-military-series-best/
+
+'Band of Brothers' is one of the best miniseries on HBO, but these American military war TV shows are just as good.
+---------
+
+# Disney’s Hit Fantasy Series Officially Expands With a 4-Book Story Set Between Seasons
+
+Movie News, Rick Riordan, Fantasy, Percy Jackson & the Olympians, Disney+
+
+Thu, 08 Oct 2026 01:44:36 GMT
+
+https://movieweb.com/percy-jackson-camp-half-blood-books-rick-riordan/
+
+The first book comes out just in time for the new season.
+---------
+
+# 25 Years Later, Gandalf's Best Line Is Still the Most Important Quote in 'The Lord of the Rings'
+
+Features, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, Fantasy
+
+Thu, 08 Oct 2026 01:30:15 GMT
+
+https://movieweb.com/lord-of-the-rings-gandalf-death-quote-meaning/
+
+Gandalf is the ultimate source of wisdom in 'The Lord of the Rings' movies, but one line from 'The Fellowship of the Ring' stands above the rest.
+---------
+
+# Netflix Lands New Streaming Hit With Taylor Sheridan's 40-Episode Crime Thriller Ahead of Final Season
+
+TV News, Taylor Sheridan, Mayor of Kingstown, Hot on Streaming, Crime, Thriller
+
+Thu, 08 Oct 2026 01:30:15 GMT
+
+https://movieweb.com/mayor-of-kingstown-taylor-sheridan-stream-netflix-october-2026/
+
+Sheridan is the undisputed king of streaming.
+---------
+
+# 'Scrubs' Officially Ends a 24-Year-Old JD Storyline
+
+Features, Scrubs, Comedy
+
+Thu, 08 Oct 2026 01:00:15 GMT
+
+https://movieweb.com/scrubs-revival-jd-sean-jealousy-over/
+
+Zach Braff's JD has been held hostage by a certain emotion since 2002, but now he's free from it all. Read on for more.
+---------
+
+# Samuel L. Jackson's New Action Thriller Hailed as Perfect John Carpenter Throwback in First Reviews
+
+Movie News, The Beast, Samuel L. Jackson, Action
+
+Thu, 08 Oct 2026 00:59:55 GMT
+
+https://movieweb.com/the-beast-samuel-l-jackson-first-reviews/
+
+Samuel L. Jackson is back in action with a new movie, which is already giving him another success story in early reviews.
+---------
+
+# Tom Cruise's New Movie Is Officially One of the Biggest Bombs of All Time
+
+Movie News, Tom Cruise, Digger, Box Office
+
+Thu, 08 Oct 2026 00:08:22 GMT
+
+https://movieweb.com/digger-tom-cruise-box-office-opening-bomb/
+
+While Tom Cruise has found plenty of success at the box office, he did not land big in any way with his latest movie.
+---------
+
+# What Went Wrong With Tom Cruise's 'Digger'
+
+Features, Digger, Tom Cruise, Comedy
+
+Thu, 08 Oct 2026 00:00:16 GMT
+
+https://movieweb.com/digger-tom-cruise-box-office-bomb/
+
+Alejandro Iñárritu's ambitious satirical black comedy starring Tom Cruise had the ingredients for a hit, but instead is a record-breaking bomb.
+---------
+
+# Brad Pitt's New Near-Perfect Action Thriller Officially Beats His Own 26-Year-Old Gangster Classic
+
+Movie News, Heart of the Beast, Box Office Milestones, Action, Brad Pitt, Thriller, Snatch
+
+Wed, 07 Oct 2026 23:01:15 GMT
+
+https://movieweb.com/heart-of-the-beast-brad-pitt-box-office-october-2026/
+
+Brad Pitt's new film has now outperformed one of his acclaimed cult classics at the box office.
+---------
+
+# 'Man of Tomorrow' Officially Debuting New Superman Costume in James Gunn Sequel
+
+Movie News, David Corenswet, Man of Tomorrow, Superman, Action
+
+Wed, 07 Oct 2026 22:51:18 GMT
+
+https://movieweb.com/man-of-tomorrow-superman-costume/
+
+New year, new look for David Corenswet's Man of Steel in James Gunn's 'Man of Tomorrow.'
+---------
+
 # Your Apothecary Diaries Character, Based On Your Birthday And Zodiac Sign
 
 Anime, The Apothecary Diaries, The Apothecary Diaries - Season 2, The Apothecary Diaries - Season 1
