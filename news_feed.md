@@ -1,3 +1,311 @@
+# 6 Batman Stories That Permanently Reinvented Bruce Wayne
+
+DC Comics, Batman
+
+Thu, 08 Oct 2026 09:00:17 GMT
+
+https://screenrant.com/batman-stories-changed-bruce-wayne/
+
+Bruce Wayne is just as fascinating a character as Batman, and several stories have been instrumental in defining him in the last 86 years.
+---------
+
+# Doctor Who's 2026 Christmas Special Plot Fixes Ncuti Gatwa's Ending
+
+Classic TV, Doctor Who
+
+Thu, 08 Oct 2026 09:00:17 GMT
+
+https://screenrant.com/doctor-who-2026-christmas-special-plot-fixes-ncuti-gatwa-ending/
+
+Russell T Davies reveals the basic plot of Doctor Who's canceled 2026 Christmas special, and it would've gone some way to fixing Ncuti Gatwa's ending.
+---------
+
+# Below: Netflix's Messy Monster Series Is More Scooby-Doo Than Widow's Bay | Review
+
+Streaming TV, Below, Halloween 2026
+
+Thu, 08 Oct 2026 07:01:16 GMT
+
+https://screenrant.com/below-netflix-review/
+
+Josh Hartnett's new supernatural mystery series takes in Stephen King, South Korean monster movies and Stranger Things, but never quite finds balance.
+---------
+
+# Carrie's Powers Explained: How Mike Flanagan's Character Compares To Past Versions
+
+Streaming TV, Carrie
+
+Thu, 08 Oct 2026 07:00:17 GMT
+
+https://screenrant.com/carrie-powers-show-compare-book-movie-characters/
+
+Carrie's powers are at the front and center of the Prime Video TV show, but they are different from the book and past adaptations of the novel.
+---------
+
+# Incredibly Valuable Pokémon Card Just Became The First Of Its Kind
+
+Gaming, Pokemon Trading Card Game, Pokemon
+
+Thu, 08 Oct 2026 07:00:17 GMT
+
+https://screenrant.com/pokemon-tcg-pikachu-ex-card-sent-to-space/
+
+One rare Pikachu card from the Pokémon Trading Card Game just became the first of its kind, likely making it even more valuable than it already was.
+---------
+
+# The Elder Scrolls 6 Title Officially Teased By Xbox
+
+Gaming, The Elder Scrolls 6, Triple-A Games
+
+Thu, 08 Oct 2026 05:30:17 GMT
+
+https://screenrant.com/elder-scrolls-6-title-official-tease-xbox/
+
+While we're waiting for basically any information about the game, a higher-up at Xbox has officially teased the title of Elder Scrolls 6.
+---------
+
+# Stardew Valley Dev Delivers Official Update On Semi-Sequel Haunted Chocolatier
+
+Gaming, Haunted Chocolatier, Stardew Valley, Indie Games, PC
+
+Thu, 08 Oct 2026 05:00:17 GMT
+
+https://screenrant.com/stardew-valley-dev-haunted-chocolatier-official-update/
+
+Haunted Chocolatier has to wait its turn, but developer ConcernedApe has checked in with fans to offer an update on its development status.
+---------
+
+# Star Trek's Kelvin Timeline Is Officially Returning
+
+Gaming, Star Trek, Star Trek Online, PC
+
+Thu, 08 Oct 2026 04:45:16 GMT
+
+https://screenrant.com/star-trek-2009-kelvin-timeline-return-rediscovered/
+
+Star Trek's alternate Kelvin timeline is making an official return in a new 60th anniversary celebration release, taking us back to the 2009 film era.
+---------
+
+# Bethesda Officially Unveils New $13,999 Fallout Release
+
+Gaming, Fallout, Triple-A Games
+
+Thu, 08 Oct 2026 04:30:16 GMT
+
+https://screenrant.com/bethesda-fallout-stern-pinball-october-2026/
+
+Although fans are eagerly awaiting the next mainline Fallout (or even confirmation of the setting), this new release is coming sooner.
+---------
+
+# Game Of Thrones Is Officially Getting A Brand-New Finale In 2027
+
+Gaming, Game of Thrones
+
+Thu, 08 Oct 2026 04:15:16 GMT
+
+https://screenrant.com/game-of-thrones-is-getting-a-new-finale-in-war-for-westeros/
+
+Game Of Thrones: War For Westeros is one of the more exciting releases tied to the IP, and it might even fix that disastrous ending.
+---------
+
+# Elijah Wood's Underrated Zombie Movie Officially Streaming for Free 11 Years Later
+
+Movies, Cooties
+
+Thu, 08 Oct 2026 03:55:52 GMT
+
+https://www.cbr.com/cooties-comedy-horror-streaming-free-october-2026/
+
+Fans say the zombie flick didn't get the attention it deserved when it was released over a decade ago.
+---------
+
+# 10 Most Perfect Atari 2600 Games of All Time, Ranked
+
+Games, atari, retro games
+
+Thu, 08 Oct 2026 03:45:12 GMT
+
+https://www.cbr.com/best-atari-2600-games-all-time-list/
+
+Atari 2600 games like Pitfall! are the best titles on the console and still stand as classics today.
+---------
+
+# Family Guy Dethrones Disney+’s New 21-Part Fantasy Hit as No. 1 Show on Streaming
+
+TV, Family Guy, Disney+, Hulu, television
+
+Thu, 08 Oct 2026 03:39:31 GMT
+
+https://www.cbr.com/family-guy-happy-hell-o-ween-comedy-disney-plus-success-october-2026/
+
+Family Guy's latest special is already a major streaming hit.
+---------
+
+# This 38-Year-Old Charlie Brown Special Broke a Major Peanuts Rule
+
+Comics, Peanuts
+
+Thu, 08 Oct 2026 03:30:12 GMT
+
+https://www.cbr.com/this-is-america-charlie-brown-changed-peanuts-forever/
+
+A 38-year-old Charlie Brown special broke a major rule that has become a staple of the Peanuts franchise, and it worked surprisingly well.
+---------
+
+# 2 of Taylor Sheridan’s Biggest Shows Are Quietly Running Out of Steam
+
+TV, Yellowstone, Landman, Paramount Plus, Peacock
+
+Thu, 08 Oct 2026 03:25:57 GMT
+
+https://www.cbr.com/yellowstone-landman-running-out-of-steam-imdb/
+
+Two Taylor Sheridan favorites are starting to fade.
+---------
+
+# Freaky New R-Rated Horror Film Projected to Destroy Social Reckoning at Box Office
+
+Movies, Other Mommy
+
+Thu, 08 Oct 2026 03:25:03 GMT
+
+https://www.cbr.com/other-mommy-opening-box-office-projections/
+
+The Social Reckoning is on track to be left in the dust by the freaky new horror movie debuting this weekend.
+---------
+
+# 7 Hard Sci-Fi Anime Series That Are Perfect From Start to Finish
+
+Anime, Sci-Fi
+
+Thu, 08 Oct 2026 03:16:11 GMT
+
+https://www.cbr.com/perfect-hard-sci-fi-anime-series-from-start-to-finish-list/
+
+Hard sci-fi anime like Planetes show how good science fiction anime can be when it takes things seriously.
+---------
+
+# Netflix Orders New Adaptation of 27-Year-Old Bestselling Series
+
+TV, Netflix
+
+Thu, 08 Oct 2026 03:14:55 GMT
+
+https://www.cbr.com/angus-thongs-and-full-frontal-snogging-tv-show-netflix/
+
+Netflix has ordered a pilot for an adaptation of a beloved book.
+---------
+
+# Final Fantasy Meets Pokémon in New Turn-Based RPG Coming to Steam
+
+Anime, Steam, Final Fantasy
+
+Thu, 08 Oct 2026 03:05:11 GMT
+
+https://www.cbr.com/record-of-dorathia-steam-announce/
+
+An upcoming Steam title has players explore a world teeming with uniquely designed creatures while utilizing an FF-inspired jobs-based combat system.
+---------
+
+# Prime Video’s Reacher Takeover Just Got an Unexpected Upgrade
+
+TV, Reacher, Jack Reacher: Never Go Back, Prime Video
+
+Thu, 08 Oct 2026 03:00:11 GMT
+
+https://www.cbr.com/jack-reacher-never-go-back-action-prime-video-success-october-2026/
+
+Following a new season of Reacher and the premiere of its spinoff, 2016's Jack Reacher: Never Go Back is climbing up the Prime Video charts.
+---------
+
+# ‘Avengers: Doomsday’ Is Officially a Box Office Hit Ahead of December Premiere
+
+Movie News, Avengers: Doomsday, Box Office, Robert Downey Jr, Chris Evans
+
+Thu, 08 Oct 2026 09:00:12 GMT
+
+https://collider.com/avengers-doomsday-pre-release-box-office-100-million/
+
+More than two months ahead of its release, Marvel's Avengers: Doomsday has already grossed more than $100 million at the box office. Find out more.
+---------
+
+# Bill Burr Doesn't Hold Back on Big Tech: “These People Are Reptiles”
+
+Exclusives, The Social Reckoning, Bill Burr, Aaron Sorkin, The Social Network
+
+Thu, 08 Oct 2026 08:15:13 GMT
+
+https://collider.com/bill-burr-the-social-reckoning-aaron-sorkin-interview/
+
+Burr discusses his experience working with Aaron Sorkin, refuting the “punctuation tyrant” rumors.
+---------
+
+# Josh Hartnett's Netflix Thriller 'Below' Subverts Its 'Jaws'-Style Horror With Deeper Themes | Review
+
+TV Reviews, Below, Netflix, Josh Hartnett, Mackenzie Davis
+
+Thu, 08 Oct 2026 07:01:11 GMT
+
+https://collider.com/below-netflix-review-josh-hartnett/
+
+Josh Hartnett's new Netflix sea-monster thriller Below subverts its Jaws-style horror with deeper themes than you'd expect.
+---------
+
+# ‘Lanterns’ Season 2 Can’t Undo the HBO Series’ Greatest Twist
+
+TV Features, Lanterns, Aaron Pierre, Kyle Chandler, DCU
+
+Thu, 08 Oct 2026 04:06:11 GMT
+
+https://collider.com/lanterns-season-2-hal-jordan-death-revived-twist/
+
+Hal Jordan's death is crucial for John Stewart's growth in Lanterns, and that's why the show absolutely can't bring him back to life in Season 2.
+---------
+
+# HBO Already Has the Perfect 'Station Eleven' Replacement Dystopian Sci-Fi To Adapt
+
+TV Features, Station Eleven, HBO, Sci-Fi, Books
+
+Thu, 08 Oct 2026 03:15:12 GMT
+
+https://collider.com/hbo-perfect-station-eleven-replacement-exit-party-dystopian-sci-fiadaptation/
+
+HBO already has the perfect Station Eleven replacement to adapt in Emily St. John Mandel's new dystopian sci-fi novel Exit Party.
+---------
+
+# ‘Digger’ Gives Tom Cruise the One Role He's Almost Never Played
+
+Movie Features, Digger, Tom Cruise, Alejandro Gonzalez Inarritu, Riz Ahmed
+
+Thu, 08 Oct 2026 03:03:12 GMT
+
+https://collider.com/tom-cruise-digger-role-not-hero-mission-impossible-top-gun/
+
+Tom Cruise's new film Digger sees him take on a role viewers have almost never seen him in: a man who can't save the day.
+---------
+
+# 7 Mystery Books You Can Finish in a Weekend
+
+Books and Comics, Mystery, Stephen King, Sherlock, The Postman Always Rings Twice
+
+Thu, 08 Oct 2026 03:01:12 GMT
+
+https://collider.com/mystery-books-read-in-one-weekend/
+
+From Stephen King's The Colorado Kid to Sir Arthur Conan Doyle's A Study in Scarlet, these mystery books are perfect for a weekend of reading.
+---------
+
+# Apple TV’s ‘Last Seen’ Star Explains How That Tragic Finale Choice Changes Everything
+
+Interviews, Last Seen, Brendan Cowell, Maxine Peake, Patrick Brammall
+
+Thu, 08 Oct 2026 02:15:11 GMT
+
+https://collider.com/last-seen-finale-henry-fate-brendan-cowell-maxine-peake/
+
+Brendan Cowell and Maxine Peake discuss Last Seen, Henry's heartbreaking finale decision, and working with the incredibly talented Chloe Jean Lourdes.
+---------
+
 # Chicago Fire Season 15’s Explosive Cliffhanger Resolution Struggles To Ignite The Next Generation | Review
 
 Network TV, Chicago Fire
