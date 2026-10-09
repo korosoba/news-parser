@@ -1,3 +1,344 @@
+# What Happened To Korra In Avatar: Seven Havens
+
+Streaming TV, Avatar: Seven Havens, The Legend of Korra, Avatar: The Last Airbender
+
+Fri, 09 Oct 2026 08:00:19 GMT
+
+https://screenrant.com/avatar-seven-havens-korra-what-happened/
+
+Avatar: Seven Havens follows the next Avatar after The Legend of Korra, but Korra's later life and legacy are still shrouded in mystery.
+---------
+
+# The Expanse TV Series Officially Returns With Massive August 2027 Release
+
+Books, The Expanse
+
+Fri, 09 Oct 2026 08:00:19 GMT
+
+https://screenrant.com/the-expanse-complete-visual-history-august-2027/
+
+The acclaimed sci-fi phenomenon that is The Expanse officially returns in August 2027 with a new release for longtime fans and newcomers alike.
+---------
+
+# Avatar: Seven Havens - The Avatar Franchise Enters A Brave New Era In This Creative Sequel Series | Review
+
+Streaming TV, Avatar: Seven Havens, Avatar: The Last Airbender
+
+Fri, 09 Oct 2026 07:00:16 GMT
+
+https://screenrant.com/avatar-seven-havens-season-1-review/
+
+Avatar: Seven Havens pushes the Avatar franchise in a whole new direction with creativity, heart, and genuine bravery. Everything is about to change.
+---------
+
+# The Lord Of The Rings: Nazgul King Officially Releasing Spring 2027
+
+Gaming, The Lord of the Rings
+
+Fri, 09 Oct 2026 07:00:16 GMT
+
+https://screenrant.com/lord-of-the-rings-nazgul-king-spring-2027/
+
+One of the most fearsome villains in all of fiction is set to return Spring 2027 in this new Lord Of The Rings release.
+---------
+
+# 41 Years Later, Dragon Ball Z Has Officially Replaced Goku
+
+Gaming, Dragon Ball
+
+Fri, 09 Oct 2026 06:00:16 GMT
+
+https://screenrant.com/dragon-ball-z-goku-replaced-xenoverse-3/
+
+Discover Dragon Ball Xenoverse 3's new hero and gameplay features.
+---------
+
+# Xbox Game Pass Adds Long-Awaited Sequel As Day-One Release In October
+
+Gaming, Xbox Game Pass, Bluey, Xbox
+
+Fri, 09 Oct 2026 05:30:15 GMT
+
+https://screenrant.com/xbox-game-pass-day-one-sequel-release-october-2026/
+
+After waiting an eternity, fans are finally getting the long-awaited sequel to their favorite game as a day-one release on Xbox Game Pass.
+---------
+
+# Amazon Deserves Credit For Reviving Syfy’s Canceled Space Opera Masterpiece
+
+Classic TV, Prime Video
+
+Fri, 09 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/amazon-the-expanse-revival-syfy-canceled-space-opera/
+
+A space opera masterpiece that premiered on Syfy was cancelled after 3 seasons, but Prime Video surprisingly stepped in and gave it a second chance.
+---------
+
+# House Of The Dragon Officially Returns October 21
+
+Gaming, House of the Dragon, Game of Thrones
+
+Fri, 09 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/house-of-the-dragon-collection-october-2026/
+
+House Of The Dragon is still going very strong, and there are plenty of releases on the way tied to the burgeoning franchise.
+---------
+
+# Star Trek: Enterprise Officially Returns December 2026
+
+Gaming, Star Trek: Enterprise, Star Trek, PC, Star Trek Online
+
+Fri, 09 Oct 2026 04:30:17 GMT
+
+https://screenrant.com/star-trek-enterprise-december-2026-return-confirmed/
+
+Star Trek officially returns to Enterprise in December in an incredible new 60th anniversary celebration release for longtime fans.
+---------
+
+# Dungeon Crawler Carl: Enchanted Big Boi Boxers Officially Arrives Next Month
+
+Gaming, Dungeon Crawler Carl, PC
+
+Fri, 09 Oct 2026 04:15:17 GMT
+
+https://screenrant.com/dungeon-crawler-carl-big-boi-boxers-november-2026-psa/
+
+Dungeon Crawler Carl's legendary Enchanted BigBoi Boxers get their own spotlight in November, giving fans a much-needed Constitution boost.
+---------
+
+# Avatar Seven Havens Review: A Bold New Era Loses the Franchise’s Rich Identity
+
+TV, Avatar: Seven Havens, Avatar: The Last Airbender, Paramount Plus
+
+Fri, 09 Oct 2026 07:00:11 GMT
+
+https://www.cbr.com/avatar-seven-havens-review/
+
+The animated sequel introduces a new Avatar after Korra, with compelling twins, a slow mystery, and an uneven post-apocalyptic setting.
+---------
+
+# Jennifer Coolidge Set to Return for Hit Netflix Thriller After 4-Year Wait for Season 2
+
+TV, The Watcher
+
+Fri, 09 Oct 2026 03:55:54 GMT
+
+https://www.cbr.com/jennifer-coolidge-confirmed-return-the-watcher/
+
+Fans had been hoping for Jennifer Coolidge's return after she stole the show in Season 1.
+---------
+
+# 10 Best Manga like Inoue Takehiko's Vagabond
+
+Anime, Vagabond, Berserk, Monster
+
+Fri, 09 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/best-manga-like-inoue-takehikos-vagabond/
+
+Vagabond's journey of violence, ambition, and self-discovery has captivated manga fans for decades, with these ten series exploring similar paths.
+---------
+
+# Mike Flanagan’s Netflix Hit Perfected Horror in Just 5 Minutes
+
+TV, Midnight Mass, Netflix, Horror
+
+Fri, 09 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/mike-flanagan-midnight-mass-perfected-horror-tv/
+
+Mike Flanagan has delivered many amazing horror TV shows, but there's only one that chills audiences to the bone with a simple scene.
+---------
+
+# 10 Great Indie Comics To Read For Halloween
+
+Comics, indie comics
+
+Fri, 09 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/best-indie-comics-to-read-for-halloween/
+
+Some of the best horror comic books can be found beyond Marvel and DC in indie books that every comic fan should read this Halloween.
+---------
+
+# Freddy vs. Jason Star Recalls Killing Freddy Krueger in Robert Englund's Final Elm Street Movie
+
+Movies, Freddy vs. Jason
+
+Fri, 09 Oct 2026 03:24:31 GMT
+
+https://www.cbr.com/monica-keena-freddy-vs-jason-memories/
+
+It was the last time Robert Englund's Freddy Krueger was killed off on-screen, and it was cathartic for the film's final girl.
+---------
+
+# 10 Best JRPGs of the 2000s, Ranked
+
+Games, JRPG, retro games
+
+Fri, 09 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/best-2000s-jrpgs-list/
+
+The best 2000s JRPGs, like Kingdom Hearts II and Final Fantasy X, have only gotten better as the years have gone on.
+---------
+
+# Solo Leveling Star Reveals a Less Powerful Sung Jinwoo for New 27-Year War Story
+
+Anime, Solo Leveling, voice actors
+
+Fri, 09 Oct 2026 03:05:11 GMT
+
+https://www.cbr.com/solo-leveling-karma-sung-jinwoo-va-aleks-le-interview/
+
+In a new interview with CBR, Sung Jinwoo VA Aleks Le shares how the Shadow Monarch gets a significant power downgrade in Solo Leveling: Karma.
+---------
+
+# Charlie Cox Addresses Fan Campaign to 'Save Daredevil' After Disney+ Axes Born Again
+
+TV, Daredevil: Born Again, NYCC2026
+
+Fri, 09 Oct 2026 02:45:59 GMT
+
+https://www.cbr.com/charlie-cox-save-daredevil-born-again-campaign/
+
+Charlie Cox comments on the end of Daredevil: Born Again at NYCC.
+---------
+
+# Every Gohan Form in Dragon Ball, Ranked Weakest to Strongest
+
+Anime, Dragon Ball, gohan, Akira Toriyama
+
+Fri, 09 Oct 2026 02:45:13 GMT
+
+https://www.cbr.com/dragon-ball-every-gohan-form-ranked-weakest-to-strongest/
+
+Gohan is one of Dragon Ball's most important characters, and someone who has access to a wide range of powerful transformations.
+---------
+
+# Jeremy Allen White Slams Facebook’s Harmful Algorithm: "They Know, and They Continue"
+
+Exclusives, The Social Reckoning, Mikey Madison, Jeremy Allen White, Aaron Sorkin
+
+Fri, 09 Oct 2026 08:10:11 GMT
+
+https://collider.com/jeremy-allen-white-mikey-madison-the-social-reckoning-facebook-interview/
+
+Jeremy Allen White and Mikey Madison talk about working with Aaron Sorkin on The Social Reckoning and its important real-world messages.
+---------
+
+# 'Haunted Hotel' Season 2 Proves This Horror Sitcom Is Netflix's Best Dark Comedy Yet | Review
+
+TV Reviews, Haunted Hotel, Netflix, Dan Harmon, Horror
+
+Fri, 09 Oct 2026 07:01:11 GMT
+
+https://collider.com/haunted-hotel-season-2-netflix-review/
+
+Haunted Hotel Season 2 delivers sharp comedy, inventive scares, and a moving story for Will Forte’s Nathan on Netflix.
+---------
+
+# 8 Near-Perfect Harlan Coben Netflix Series You Can Binge in a Weekend
+
+TV, Harlan Coben, Netflix, I Will Find You, Run Away
+
+Fri, 09 Oct 2026 04:51:11 GMT
+
+https://collider.com/netflix-harlan-coben-series-binge-one-weekend/
+
+Fool Me Once, The Innocent, The Stranger, I Will Find You, and more make our list of the best Harlan Coben Netflix shows you can binge in a weekend.
+---------
+
+# 7 Fantasy Books With Time Travel That Are 10/10, No Notes
+
+Books and Comics, Fantasy, Outlander, A Wrinkle In Time
+
+Fri, 09 Oct 2026 04:07:11 GMT
+
+https://collider.com/fantasy-books-time-travel-perfect-no-notes/
+
+From the coming-of-age classic A Wrinkle in Time to the historical romance Outlander, these are the best fantasy books that feature time travel.
+---------
+
+# Joel Kinnaman Warns Against "Wars of Choice" After 'High Value Target: The Hunt for Saddam's Finale
+
+TV, Joel Kinnaman, High Value Target: The Hunt for Saddam, TNT, Drama
+
+Fri, 09 Oct 2026 03:04:11 GMT
+
+https://collider.com/joel-kinnaman-high-value-target-the-hunt-for-saddam-hussein-finale/
+
+Joel Kinnaman discusses High Value Target: The Hunt for Saddam, reflects on international conflicts, and U.S. foreign policy.
+---------
+
+# Netflix’s ‘East of Eden’ Stars Were “Terrified” To Take on Two Iconic Characters
+
+Interviews, East of Eden, Hoon Lee, Florence Pugh, Zoe Kazan
+
+Fri, 09 Oct 2026 02:58:12 GMT
+
+https://collider.com/east-of-eden-netflix-hoon-lee-joseph-zada-joe-anders-interview/
+
+Hoon Lee, Joseph Zada, and Joe Anders discuss fatherhood, brotherly rivalry, and bringing Netflix’s East of Eden to life.
+---------
+
+# ‘Harry Potter’s HBO Future Gets an Update From Paramount Boss
+
+TV News, Harry Potter, HBO Max, Paramount Plus
+
+Fri, 09 Oct 2026 02:30:11 GMT
+
+https://collider.com/hbo-harry-potter-series-streaming-paramount-plus-comments-david-ellison/
+
+Will HBO's Harry Potter series stream on Paramount+? CEO David Ellison has revealed the company's long-term streaming plan post-merger.
+---------
+
+# Superman Officially Gets a New Look for ‘Man of Tomorrow’
+
+Movie News, Man of Tomorrow, Superman, DCU, David Corenswet
+
+Fri, 09 Oct 2026 02:15:12 GMT
+
+https://collider.com/man-of-tomorrow-new-superman-costume-david-corenswet/
+
+David Corenswet teases a new look for Superman in Man of Tomorrow as Clark Kent prepares for his next DC adventure.
+---------
+
+# ‘Bourne’ Meets ‘Jack Ryan’ in Jon Bernthal’s Gritty Spy Thriller Back on Streaming
+
+Movie News, Jon Bernthal, Bourne, Jack Ryan, The Amateur
+
+Fri, 09 Oct 2026 02:10:12 GMT
+
+https://collider.com/jon-bernthal-the-amateur-hbo-max-streaming-october-2026/
+
+Jon Bernthal and Rami Malek's gritty spy thriller The Amateur is officially getting a new streaming home on HBO Max.
+---------
+
+# 'Ted Lasso' Star Officially Teases Season 5
+
+TV News, Ted Lasso, Brendan Hunt, Apple TV, Streaming
+
+Fri, 09 Oct 2026 02:00:22 GMT
+
+https://collider.com/ted-lasso-season-5-brendan-hunt/
+
+Ted Lasso star Brendan Hunt has officially teased the show's future following the Season 4 finale. Read on for more details.
+---------
+
+# 18 Years Later, 'Avatar: The Last Airbender's New Revival Is What The Franchise Needs | Review
+
+TV Reviews, Avatar: Seven Havens, Fantasy, Avatar: The Last Airbender
+
+Fri, 09 Oct 2026 07:01:15 GMT
+
+https://movieweb.com/avatar-seven-havens-review/
+
+There have been multiple additions to 'Avatar: The Last Airbender's world since the original show, but 'Avatar: Seven Havens' is the revival it needs.
+---------
+
 # Brand New Day Secretly Sets Up One Of Spider-Man's Darkest Ever Stories
 
 Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
