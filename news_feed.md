@@ -1,3 +1,432 @@
+# Brand New Day Secretly Sets Up One Of Spider-Man's Darkest Ever Stories
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Fri, 09 Oct 2026 01:32:28 GMT
+
+https://screenrant.com/spider-man-brand-new-day-sets-up-dark-spider-man-5-story-jean-dewolff/
+
+Brand New Day is one of the best Spider-Man movies of all time, thought it may have secretly set up a super dark story for the next chapter.
+---------
+
+# Black Clover Season 2, Episode 2 Release Date & Time
+
+Anime, Black Clover
+
+Fri, 09 Oct 2026 01:30:16 GMT
+
+https://screenrant.com/black-clover-season-2-episode-2-release-date-time/
+
+Black Clover Season 2 is keeping the momentum going this weekend, officially dropping its second episode across streaming platforms.
+---------
+
+# DC Announces Hal Jordan's Return For New Green Lantern Series The Dying Of The Light
+
+DC Comics, Green Lantern, New York Comic Con
+
+Fri, 09 Oct 2026 01:21:57 GMT
+
+https://screenrant.com/hal-jordan-return-dying-light-green-lantern-dc/
+
+DC officially announces a new Green Lantern series centered on an aged Hal Jordan who returns to the spotlight after an unfair punishment.
+---------
+
+# Nathan Fillion's New 8-Part HBO Detective Series Has One Of Its Best Casts
+
+Streaming TV, Masked Recs
+
+Fri, 09 Oct 2026 01:21:28 GMT
+
+https://screenrant.com/hbo-max-lanterns-detective-sci-fi-series-cast-best/
+
+Nathan Fillion is one of the stars in this new 8-episode HBO detective series that boasts one of the best casts of the genre and is a hit.
+---------
+
+# After 54 Years, DC Unveils Jaw-Dropping New Design For Classic Hero
+
+DC Comics
+
+Fri, 09 Oct 2026 01:12:18 GMT
+
+https://screenrant.com/etrigan-demon-jason-blood-redesign/
+
+DC’s latest title may be its best new comic yet, giving one classic hero a radical new character design that fans won’t soon forget.
+---------
+
+# Pokémon Officially Unveils Radical Pikachu Redesign
+
+Gaming, Pokemon, Pokemon GO, Pokémon, PC
+
+Fri, 09 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/pikachu-halloween-redesign-pokemon/
+
+Pokémon has just announced a wild and timely new Pikachu redesign that reimagines the face of the franchise like we've never seen before.
+---------
+
+# Eternally Yours Has The Potential To Be CBS's Worthy Ghosts Replacement | Review
+
+Network TV, Eternally Yours
+
+Fri, 09 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/eternally-yours-season-1-episode-1-review/
+
+The 2026-2027 network TV season is finally in full swing, and one of CBS' most anticipated new releases— Eternally Yours— is off to a promising start.
+---------
+
+# HBO Officially Confirms Long-Awaited Sequel Series To $239M Hit With Returning Cast & Production Timeline
+
+TV, Crazy Rich Asians
+
+Fri, 09 Oct 2026 00:56:17 GMT
+
+https://screenrant.com/crazy-rich-asians-sequel-show-hbo-confirmed-cast-production-details/
+
+HBO's new sequel series to a beloved hit film finally gets an official confirmation along with cast details and a production update for the show.
+---------
+
+# 10 Essential Stephen King Books For Beginners
+
+Books, Stephen King, Horror, Halloween 2026
+
+Fri, 09 Oct 2026 00:35:03 GMT
+
+https://screenrant.com/stephen-king-essential-starter-books-beginners/
+
+Stephen King has over 60 books to choose from, but these ten novels are essential for beginners looking to get into the King of Horror.
+---------
+
+# 10 Greatest Comic Book Characters Created In The 2000s
+
+Comics, DC Comics
+
+Fri, 09 Oct 2026 00:31:20 GMT
+
+https://screenrant.com/best-comic-characters-introduced-since-2000/
+
+The turn of the century ushered in a new era for comics, introducing standout characters that etched their names into the industry’s history.
+---------
+
+# Ghostbusters Icon Bill Murray Officially Returns as Peter Venkman
+
+Movies, Ghostbusters
+
+Fri, 09 Oct 2026 01:34:26 GMT
+
+https://www.cbr.com/bill-murray-ghostbusters-return-rivian-commercial/
+
+Bill Murray reprises his role as Peter Venkman in a new video Ghostbusters fans can watch now.
+---------
+
+# 10 Greatest RPG Masterpieces of the 21st Century, Ranked
+
+Games, Video Games, Elden Ring, RPG, Mass Effect
+
+Fri, 09 Oct 2026 01:30:11 GMT
+
+https://www.cbr.com/greatest-rpg-masterpieces-of-the-21st-century-ranked/
+
+RPGs like Elden Ring and Bloodborne are some of the best games of the 21st Century.
+---------
+
+# Deadpool Is Finally Joining Marvel's X-Men Universe in 2027
+
+TV, X-Men '97, NYCC2026
+
+Fri, 09 Oct 2026 01:01:38 GMT
+
+https://www.cbr.com/deadpool-x-men-97-season-3/
+
+The Merc with a Mouth returns to the screen alongside the X-Men in 2027.
+---------
+
+# After 36 Years, Tim Burton’s 105-Minute Gothic Fairytale Returns as Halloween Streaming Hit
+
+Movies, Edward Scissorhands, Disney+, Fantasy
+
+Fri, 09 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/edward-scissorhands-fantasy-disney-plus-streaming-success-october-2026/
+
+A number of spooky classics are taking over the Disney+ streaming charts.
+---------
+
+# CBS Just Set Up Justin Hartley's Replacement in Tracker Season 4
+
+TV, Tracker
+
+Fri, 09 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/cbs-tracker-s4-set-up-possible-justin-hartley-replacement/
+
+Tracker Season 4 is off to a good start, as the first case introduces Colter to a character who reminds him of his younger self.
+---------
+
+# 4 Weakest Paramecia Devil Fruits in One Piece, Ranked
+
+Anime, One Piece, shonen anime
+
+Fri, 09 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/weakest-paramecia-devil-fruits-in-one-piece-ranked/
+
+Paramecia Devil Fruits aren't always overpowered; some of them have very little combat value in One Piece
+---------
+
+# 5 Masterpiece Open World Survival Games
+
+Games, Video Games
+
+Fri, 09 Oct 2026 00:45:11 GMT
+
+https://www.cbr.com/masterpiece-open-world-survival-games/
+
+Alien oceans, frozen wastes and desperate rivers craft tense, immersive worlds where every choice reverberates in these masterpiece open world games.
+---------
+
+# 6 Biggest Unanswered Questions We Still Have After Avatar: Fire & Ash
+
+Movies, Avatar: Fire and Ash
+
+Fri, 09 Oct 2026 00:30:12 GMT
+
+https://www.cbr.com/avatar-fire-ash-biggest-unanswered-questions-list/
+
+Avatar: Fire and Ash posed some huge questions for James Cameron's epic sci-fi franchise that still haven't been addressed in the months since.
+---------
+
+# Miraculous Officially Reveals 'Dark' New Ladybug & Cat Noir TV Series for Older Audiences
+
+Anime, Miraculous: Tales of Ladybug & Cat Noir
+
+Fri, 09 Oct 2026 00:17:11 GMT
+
+https://www.cbr.com/miraculous-ladybug-cat-noir-live-action-tv-series-announce/
+
+Miraculous: Tales of Ladybug & Cat Noir is officially getting the live-action series fans have been waiting for, and it will be darker than expected.
+---------
+
+# 10 Strongest Espers in Anime History, Ranked
+
+Anime, One-Punch Man, Mob Psycho 100
+
+Fri, 09 Oct 2026 00:15:12 GMT
+
+https://www.cbr.com/strongest-espers-in-anime-history-ranked/
+
+Espers like Tetsuo and Mob are among the strongest characters in all of anime.
+---------
+
+# Batman and Teenage Mutant Ninja Turtles Get a $110 Billion Gaming Shake-Up
+
+Gaming News, Batman, Warner Bros., Paramount, Gaming
+
+Fri, 09 Oct 2026 01:30:11 GMT
+
+https://collider.com/batman-tmnt-mortal-kombat-warner-bros-paramount-games-merger/
+
+Warner Bros. and Paramount have combined their gaming divisions, bringing Batman, Mortal Kombat, and TMNT into the same operation.
+---------
+
+# 7 Most Universally Loved Movies Ever Made, Ranked
+
+Movie, The Breakfast Club, Jurassic Park, The Lion King, Back to the Future
+
+Fri, 09 Oct 2026 01:24:11 GMT
+
+https://collider.com/most-universally-loved-movies-ever-made-ranked/
+
+Back to the Future, Jurassic Park, The Shawshank Redemption, The Lion King, and more make up our list of the most universally loved movies of all time
+---------
+
+# Taylor Sheridan’s ‘Yellowstone’ Sequel Officially Returns as a Streaming Mega-Hit
+
+TV News, Marshals, Luke Grimes, Taylor Sheridan, Yellowstone
+
+Fri, 09 Oct 2026 01:15:12 GMT
+
+https://collider.com/taylor-sheridan-marshals-season-2-ratings-success-cbs-october-2026/
+
+Taylor Sheridan's Marshals returned as the number one scripted show on TV this past week, drawing 8 million viewers for its premiere episode.
+---------
+
+# Forget ‘John Wick,’ Jason Statham’s Guy Ritchie Revenge Thriller Just Hit a New Streamer
+
+Movie News, Wrath of Man, Guy Ritchie, Jason Statham, Action
+
+Fri, 09 Oct 2026 01:10:12 GMT
+
+https://collider.com/jason-statham-wrath-of-man-prime-video-streaming-october-2026/
+
+Jason Statham’s brutal Guy Ritchie revenge thriller Wrath of Man finds a new streaming home, giving the $104M action hit another chance.
+---------
+
+# ‘Black Mirror’ Creator’s New Netflix Series Officially Recruits Two ‘Game of Thrones’ Favorites
+
+TV News, Netflix, Black Mirror, Paddy Considine, Lena Headey
+
+Fri, 09 Oct 2026 01:00:12 GMT
+
+https://collider.com/netflix-black-mirror-replacement-blackmere/
+
+Netflix is releasing a new series from the creator of Black Mirror starring Game of Thrones franchise stars Paddy Considine and Lena Headey.
+---------
+
+# 'Elsbeth's Season 4 Premiere Keeps the CBS Procedural in the Perfect Sweet Spot | Review
+
+TV Reviews, Elsbeth, Carrie Preston, CBS, Wendell Pierce
+
+Fri, 09 Oct 2026 01:00:12 GMT
+
+https://collider.com/elsbeth-season-4-premiere-review-nicole-scherzinger/
+
+Elsbeth's Season 4 premiere brings in Nicole Scherzinger as a guest star and proves that the CBS procedural is still in its sweet spot.
+---------
+
+# Tom Cruise’s Steven Spielberg Sci-Fi Adaptation Is Taking Over the World
+
+Movie News, Tom Cruise, War of The Worlds, Steven Spielberg, Dakota Fanning
+
+Fri, 09 Oct 2026 00:45:11 GMT
+
+https://collider.com/steven-spielberg-tom-cruise-war-of-the-worlds-streaming-success-apple-tv-october-2026/
+
+Steven Spielberg's War of the Worlds is enjoying a resurgence on streaming platforms, thanks to Tom Cruise's unforgettable performance.
+---------
+
+# Stephen King’s New 8-Part Horror Series Is an Instant Prime Video Super-Hit
+
+TV News, Carrie, Mike Flanagan, Stephen King, Prime Video
+
+Fri, 09 Oct 2026 00:30:12 GMT
+
+https://collider.com/stephen-king-mike-flanagan-carrie-streaming-success-prime-video-october-2026/
+
+Stephen King's first-ever published novel gets a brand-new streaming series adaptation from the acclaimed Mike Flanagan, and it's a home run.
+---------
+
+# 'The Social Reckoning's Rotten Tomatoes Score Is No Where Near 'The Social Network'
+
+Movie News, The Social Reckoning, The Social Network, Thriller, Jeremy Allen White
+
+Fri, 09 Oct 2026 00:15:12 GMT
+
+https://collider.com/the-social-reckoning-rotten-tomatoes-score-is-it-good/
+
+The Social Reckoning arrives 16 years after The Social Network, but critics are divided over the long-awaited sequel.
+---------
+
+# 'Stuart Fails to Save the Universe' Bosses Tease an Even More Ambitious Season 2 After Its Finale
+
+Interviews, Stuart Fails to Save the Universe, The Big Bang Theory, Chuck Lorre
+
+Fri, 09 Oct 2026 00:14:12 GMT
+
+https://collider.com/stuart-fails-to-save-the-universe-season-1-finale-chuck-lorre-zak-penn-bill-prady/
+
+Chuck Lorre, Zak Penn, and Bill Prady talk the Stuart Fails to Save the Universe finale and how the show redefines spin-offs from TBBT universe.
+---------
+
+# Ridley Scott's Sci-Fi Action Epic Leaves 3,330 Theaters as One of the Year’s Biggest Box Office Flops
+
+Movie News, Ridley Scott, The Dog Stars, Sci-Fi, Box Office Milestones
+
+Fri, 09 Oct 2026 00:30:16 GMT
+
+https://movieweb.com/the-dog-stars-box-office-flop-october-2026/
+
+Ridley Scott’s The Dog Stars has ended its theatrical run with roughly $39 million worldwide.
+---------
+
+# The 10 Best 'Doctor Who' Episodes From the David Tennant Era, Ranked
+
+TV Lists, Doctor Who, Sci-Fi, David Tennant
+
+Fri, 09 Oct 2026 00:00:15 GMT
+
+https://movieweb.com/best-doctor-who-david-tennant-episodes/
+
+There have been so many episodes since the David Tennant tennure, and yet many of the franchise's strongest stories still come from his era.
+---------
+
+# 52 Years Later, 'Carrie' Finally Addresses A Key Missing Character Even Stephen King Ignored
+
+Features, Carrie, Stephen King, Horror, Thriller
+
+Fri, 09 Oct 2026 00:00:15 GMT
+
+https://movieweb.com/carrie-father-ralph-white/
+
+Prime Video's 'Carrie' expands on Stephen King's source material, and it even introduces one character who doesn't appear in the book.
+---------
+
+# Street Fighter 2 Status Officially Confirmed By Director Before New Movie Drops | Exclusive
+
+Movie News, Street Fighter, Action
+
+Thu, 08 Oct 2026 23:05:52 GMT
+
+https://movieweb.com/street-fighter-2-movie-sequel-director-kitao-sakurai/
+
+'Street Fighter' director Kitao Sakurai talks sequel prospects.
+---------
+
+# Ben Affleck's New Netflix Crime Movie Is a Misguided Throwback Thriller | Review
+
+Movie Reviews, Animals, Ben Affleck, Crime, Thriller, Netflix
+
+Thu, 08 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/animals-movie-2026-review/
+
+Ben Affleck's throwback crime thriller just barely escapes the shadow of the classics it imitates.
+---------
+
+# New 10-Part "John Wick Meets The Bear" Sci-Fi Thriller Officially Crowned a Global Streaming Hit
+
+Movie News, Get Jiro!, HBO Max, Hot on Streaming, Action, John Wick
+
+Thu, 08 Oct 2026 22:30:15 GMT
+
+https://movieweb.com/get-jiro-action-stream-hbo-october-2026/
+
+Warning: the following show may cause extreme excitement... and put you off your food.
+---------
+
+# Marvel's Post-Apocalyptic MCU Streaming Series Officially Returns With 3 New Sequels
+
+TV News, Marvel Zombies, Marvel Cinematic Universe, Horror
+
+Thu, 08 Oct 2026 22:21:18 GMT
+
+https://movieweb.com/marvel-zombies-halloween-specials-confirmed/
+
+'Marvel Zombies' will air three specials titled 'The Winter Soldier', 'The Fist of Khonshu,' and 'The Last Guardian' starting in 2027.
+---------
+
+# Hugh Jackman Officially Addresses Wolverine Return in Next Avengers Movies
+
+Movie News, Hugh Jackman, Wolverine, Avengers: Doomsday, Action, Avengers: Secret Wars
+
+Thu, 08 Oct 2026 22:03:09 GMT
+
+https://movieweb.com/hugh-jackman-avengers-doomsday-secret-wars/
+
+Ahead of 'Avengers: Doomsday,' Hugh Jackman was asked about his potential return as Wolverine, which may end up being in 'Secret Wars.'
+---------
+
+# 22 Years Ago, Punisher's Pre-MCU Crossover Was a Taste of Things To Come
+
+Features, Spider-Man 2, Marvel Cinematic Universe, Superhero, Punisher
+
+Thu, 08 Oct 2026 22:00:15 GMT
+
+https://movieweb.com/spider-man-2-punisher-crossover-theory/
+
+2004 was a big year for Marvel movies, with Spider-Man and the Punisher both getting new movies. They also seem connected. Read on for more.
+---------
+
 # Daredevil’s MCU Future After Born Again’s Shock Cancellation Gets Official Update From Charlie Cox
 
 TV, Daredevil: Born Again
