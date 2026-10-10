@@ -1,3 +1,432 @@
+# Prime Video's 8-Part Crime Thriller Adaptation Officially Sets Season 2 Release Window
+
+Streaming TV, Scarpetta
+
+Sat, 10 Oct 2026 00:04:04 GMT
+
+https://screenrant.com/scarpetta-season-2-prime-video-relelase-window-2027/
+
+One of Prime Video's 2026's releases, an 8-part crime thriller adapted from a series of bestselling novels, officially set a season 2 release window.
+---------
+
+# Crunchyroll's Isekai Solo Leveling Replacement Is Back And Better Than Ever
+
+Anime, Masked Recs
+
+Sat, 10 Oct 2026 00:00:20 GMT
+
+https://screenrant.com/crunchyroll-solo-leveling-anime-isekai-a-wild-last-boss-appeared-getting-better/
+
+It's been over a year since the debut of Solo Leveling's second season, and while fans wait for season 3, Wao World dropped a killer replacement.
+---------
+
+# Every Kingdom Hearts Game, Ranked From Worst To Best
+
+Game Features, PC, Kingdom Hearts
+
+Sat, 10 Oct 2026 00:00:16 GMT
+
+https://screenrant.com/kingdom-hearts-ranked-worst-best-kh2-358-coded/
+
+The Kingdom Hearts series has 11 mainline games, from numbered titles to smaller spin-offs, and each one brings something unique to the series.
+---------
+
+# Blumhouse's New Adaptation Of Bestselling Horror Series Confirmed With Acclaimed DC Director
+
+Movies, Something Is Killing The Children, New York Comic Con, Horror, Blumhouse
+
+Fri, 09 Oct 2026 23:55:19 GMT
+
+https://screenrant.com/something-is-killing-the-children-blumhouse-movie-confirmed-craig-zobel/
+
+Blumhouse is officially moving forward with their film adaptation of a bestselling horror series as well as bringing onboard an acclaimed DC director.
+---------
+
+# Taylor Sheridan’s Sicario 3 Absence Officially Addressed By Josh Brolin
+
+Movies, Sicario: Capos, Sicario, Taylor Sheridan, Josh Brolin, New York Comic Con
+
+Fri, 09 Oct 2026 23:41:31 GMT
+
+https://screenrant.com/taylor-sheridan-sicario-3-absence-josh-brolin-response/
+
+Exclusive: Josh Brolin confirms Sicario 3's development and weighs in on making the action sequel without Taylor Sheridan penning the script.
+---------
+
+# Ghosts Alum Is Officially Crossing Over To CBS' Companion Series Eternally Yours With New Role
+
+Network TV, Ghosts, Eternally Yours
+
+Fri, 09 Oct 2026 23:30:16 GMT
+
+https://screenrant.com/eternally-yours-asif-ali-casting-ghosts-crossover/
+
+Asif Ali will transition from a guest spot on Ghosts to new series, Eternally Yours, portraying Igor in CBS's supernatural comedy.
+---------
+
+# 10 Greatest Agatha Christie Books
+
+Books, Agatha Christie, Mystery
+
+Fri, 09 Oct 2026 23:30:16 GMT
+
+https://screenrant.com/10-greatest-agatha-christie-books/
+
+Locked rooms, isolated islands and deadly secrets collide in Christie’s craft of elegant cruelty and surprise.
+---------
+
+# Original RoboCop Creator's Involvement In Prime Video Reboot Officially Confirmed
+
+TV, New York Comic Con, Robocop
+
+Fri, 09 Oct 2026 23:29:44 GMT
+
+https://screenrant.com/robocop-prime-video-paul-verhoeven-involvement-confirmed/
+
+Prime Video is developing a RoboCop TV show, and Paul Verhoeven, who co-created the franchise, is involved with the making of this series.
+---------
+
+# Forget The Old Guard, Mark Wahlberg’s Sci-Fi Thriller Is Officially Redeemed As A Prime Video Sensation
+
+Movies, Infinite
+
+Fri, 09 Oct 2026 23:17:15 GMT
+
+https://screenrant.com/mark-wahlberg-infinite-old-guard-replacement-prime-video-streaming-success-october-2026/
+
+Mark Wahlberg's sci-fi thriller rises on Prime Video, finding redemption, and it might make viewers forget the popular The Old Guard franchise.
+---------
+
+# After 1 Month, HBO Max’s 108-Minute Space Adventure Is the No. 1 Most-Watched Movie in the World
+
+Movies, Supergirl, HBO Max, DCU
+
+Sat, 10 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/supergirl-sci-fi-hbo-max-success-october-2026/
+
+An epic space adventure is dominating HBO Max.
+---------
+
+# HBO's Gritty 8-Episode Detective Show Refuses to Slow Down on Streaming
+
+TV, Lanterns, HBO Max, Superhero
+
+Sat, 10 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/lanterns-hbo-crime-drama-success-october-2026/
+
+Lanterns continues to surpass new heights for both DC Studios and HBO.
+---------
+
+# 10 Hardest NES Games That Still Break Players in 2026, Ranked
+
+Games, Video Games, Nintendo, Marvel, Teenage Mutant Ninja Turtles
+
+Sat, 10 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/hardest-nes-games-players-cant-beat-2026/
+
+NES games like Battletoads and Super Mario The Lost Levels are still making gamers rage 40 years later.
+---------
+
+# Mike Flanagan Unveils ‘To Your Bones Scary’ Exorcist Movie
+
+Movies, The Exorcist: Martyrs, NYCC2026
+
+Fri, 09 Oct 2026 23:47:39 GMT
+
+https://www.cbr.com/the-exorcist-martyrs-official-trailer-mike-flanagan/
+
+Mike Flanagan brings a horrifying new story to the world of The Exorcist.
+---------
+
+# Fall 2026's Fantasy Wild Card Turns the Power Fantasy Into a Punchline
+
+Anime
+
+Fri, 09 Oct 2026 23:45:11 GMT
+
+https://www.cbr.com/fall-2026-power-fantasy-comedy-anime/
+
+Dismissing fall 2026's most unique fantasy anime might result in missing out on a refreshing comedy.
+---------
+
+# 5 Fantasy Books With Better Magic Systems Than Lord of the Rings
+
+Books, Fantasy
+
+Fri, 09 Oct 2026 23:30:11 GMT
+
+https://www.cbr.com/best-fantasy-books-better-magic-than-lord-of-the-rings-list/
+
+The Lord of the Rings shaped modern fantasy, but the genre has continued exploring magic through countless unique systems and traditions.
+---------
+
+# 8 Reasons It's Hard to Watch Neon Genesis Evangelion Today
+
+Anime, Neon Genesis Evangelion
+
+Fri, 09 Oct 2026 23:15:12 GMT
+
+https://www.cbr.com/neon-genesis-evangelion-hard-to-watch-today/
+
+Neon Genesis Evangelion is a beloved Mecha classic, but watching it today comes with a few substantial caveats.
+---------
+
+# Netflix's New 6-Part Monster Series Officially Divides Critics & Audiences After 81% RT
+
+TV, Below, Netflix, Rotten Tomatoes
+
+Fri, 09 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/below-netflix-rotten-tomatoes-score/
+
+Critics and audiences are in disagreement about Netflix's new creature-feature.
+---------
+
+# 28 Years Later, Sam Neill’s 2-Part Epic Still Has the Best Ending in Fantasy TV History
+
+TV, Merlin, Fantasy, NBC, Innovation
+
+Fri, 09 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/merlin-sam-neill-best-fantasy-tv-ending/
+
+The fantasy genre has given audiences plenty of classics, but Sam Neill's Arthurian epic gave them one of its best endings of all time.
+---------
+
+# Jurassic Park's Next Sequel Gets 'True Dinosaur Horror' Pitch From Mike Flanagan
+
+Movies, Jurassic Park, Mike Flanagan, Innovation
+
+Fri, 09 Oct 2026 22:59:22 GMT
+
+https://www.cbr.com/jurassic-parks-true-dinosaur-horror-mike-flanagan-pitch/
+
+The Jurassic Park saga still continues, but Mike Flanagan knows how to bring it back to horror.
+---------
+
+# 8 Greatest Horror Easter Eggs in 'Stranger Things,' Ranked
+
+TV, Stranger Things, Horror, Netflix
+
+Sat, 10 Oct 2026 00:02:11 GMT
+
+https://collider.com/stranger-things-horror-easter-eggs-ranked/
+
+The Netflix show Stranger Things is packed to brim with horror references, featuring nods to Beetlejuice, Hellraiser, and A Nightmare on Elm Street.
+---------
+
+# Matt Dinniman Officially Confirms Why ‘Dungeon Crawler Carl’ Hasn’t Cast Its Lead Yet [Exclusive]
+
+TV News, Dungeon Crawler Carl, Peacock, New York Comic Con, Seth MacFarlane
+
+Sat, 10 Oct 2026 00:00:11 GMT
+
+https://collider.com/dungeon-crawler-carl-live-action-casting-peacock-update-matt-dinniman/
+
+Matt Dinniman shared how far away Peacock's live-action Dungeon Crawler Carl adaptation is from announcing more casting after Jeff Hays.
+---------
+
+# Netflix's 'Jaws' Replacement Thriller Scores Scary Good Rotten Tomatoes Debut
+
+TV News, Below, Netflix, Jaws, Rotten Tomatoes
+
+Sat, 10 Oct 2026 00:00:11 GMT
+
+https://collider.com/netflix-below-rotten-tomatoes-score-is-it-good/
+
+Netflix's new Jaws and Widow's Bay replacement is officially winning over critics as the series debuts on the platform.
+---------
+
+# New ‘The Conjuring’ Spin-Off Officially Hits Netflix This Month
+
+Gaming News, The Conjuring, Netflix, The Conjuring Universe, The Conjuring: Last Rites
+
+Fri, 09 Oct 2026 23:45:12 GMT
+
+https://collider.com/the-conjuring-unspoken-netflix-release-date-october-2026/
+
+The Conjuring universe expands with The Conjuring: Unspoken, a new interactive horror release arriving on Netflix this October.
+---------
+
+# 3 Elite Series to Binge on Prime Video This Weekend (Oct 10-11)
+
+TV, Neagley, Carrie, Upload, Prime Video
+
+Fri, 09 Oct 2026 23:43:12 GMT
+
+https://collider.com/prime-video-shows-binge-october-10-2026/
+
+Carrie, Neagley, and Upload make up our list of the best series to stream on Prime Video the weekend of October 10.
+---------
+
+# Charlie Cox Officially Addresses Ending ‘Daredevil: Born Again’ With Season 3 [Exclusive]
+
+TV News, Daredevil: Born Again, Charlie Cox, Vincent D'Onofrio, NYCC
+
+Fri, 09 Oct 2026 23:30:11 GMT
+
+https://collider.com/daredevil-born-again-ending-season-3-charlie-cox-thoughts/
+
+Daredevil: Born Again star Charlie Cox explains his thoughts on the show ending with Season 3. Read on for more information.
+---------
+
+# Netflix's 'Widow's Bay' Replacement Is Officially Taking Over the World
+
+TV News, Josh Hartnett, Below, Widow's Bay, Netflix
+
+Fri, 09 Oct 2026 23:30:11 GMT
+
+https://collider.com/netflix-widows-bay-replacement-below-streaming-success-october-2026/
+
+Josh Hartnett's new Netflix thriller Below is drawing comparisons to Widow's Bay, with all six episodes streaming now.
+---------
+
+# The Best 'Hunger Games' Replacement Officially Returns With New Release
+
+Books and Comics News, The Divergent Series, Divergent, Sci-Fi, Books
+
+Fri, 09 Oct 2026 23:15:12 GMT
+
+https://collider.com/divergent-veronica-roth-sixth-faction-new-novel-2026/
+
+Veronica Roth returns to Divergent with The Sixth Faction, a new alternate-universe novel featuring Tris and Four.
+---------
+
+# Steven Spielberg's First Alien Thriller in 20 Years Officially Hits Streaming
+
+Movie News, Steven Spielberg, Sci-Fi, Close Encounters of The Third Kind, Disclosure Day
+
+Fri, 09 Oct 2026 23:01:11 GMT
+
+https://collider.com/steven-spielberg-disclosure-day-streaming-peacock-october-2026/
+
+Steven Spielberg's $241 million sci-fi thriller Disclosure Day has officially started streaming. Read on for more.
+---------
+
+# ‘Transformers,’ ‘G.I. Joe’ and ‘Turok’ Officially Return With New 2027 Comic Series
+
+Books and Comics News, Transformers, G.I. Joe, Robert Kirkman, comic books
+
+Fri, 09 Oct 2026 22:40:55 GMT
+
+https://collider.com/transformers-gi-joe-turok-new-comics-2027-skybound-visions/
+
+Skybound announces its new Visions line for 2027 with new Transformers, G.I. Joe, and Turok series releases. Get the details.
+---------
+
+# Clint Eastwood's 128-Minute Action Thriller Classic Resurfaces To Become a Streaming Hit 33 Years Later
+
+Movie News, Clint Eastwood, In the Line of Fire, Hot on Streaming, Action, Thriller
+
+Fri, 09 Oct 2026 23:30:15 GMT
+
+https://movieweb.com/in-the-line-of-fire-clint-eastwood-stream-sony-core-october-2026/
+
+Forget everything else, this was Clint Eastwood at his peak.
+---------
+
+# ‘Avatar: The Last Airbender’s New Aang Replacement Marks a Shocking Franchise First
+
+Features, Avatar: Seven Havens, Avatar: The Last Airbender, Fantasy
+
+Fri, 09 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/avatar-seven-havens-two-avatars/
+
+'Avatar: The Last Airbender's newest Aang replacement marks a shocking franchise first, and it's exactly what the IP needs going forward.
+---------
+
+# Amazon Officially Resurrects Long-Awaited Sci-Fi Action Reboot After Failed Attempt
+
+TV News, Stargate, Sci-Fi, Action, Amazon
+
+Fri, 09 Oct 2026 22:33:38 GMT
+
+https://movieweb.com/stargate-series-amazon-jac-schaeffer/
+
+Four months after canceling a planned revival of 'Stargate', Amazon MGM has hired Jac Schaeffer to serve as the new showrunner.
+---------
+
+# Netflix's Remake Of 91-Year-Old Western Masterpiece Hits Major Milestone Ahead of 2027 Comeback
+
+TV News, Little House on the Prairie, Western, Netflix
+
+Fri, 09 Oct 2026 22:19:15 GMT
+
+https://movieweb.com/netflix-little-house-on-the-prairie-season-2-new-cast/
+
+The hit series has reached a production milestone.
+---------
+
+# Mia Goth's Gothic Sci-Fi Netflix Masterpiece Sets New Release in Time for Halloween
+
+Movie News, Frankenstein, Guillermo del Toro, Netflix, Sci-Fi, Horror, Blu-ray
+
+Fri, 09 Oct 2026 22:00:15 GMT
+
+https://movieweb.com/frankenstein-guillermo-del-toro-4k-blu-ray-release/
+
+The Criterion Collection is releasing Guillermo del Toro's gothic masterpiece 'Frankenstein' on 4K Ultra HD Blu-ray ahead of Halloween.
+---------
+
+# 8 Greatest Sci-Fi TV Shows Where Every Episode Is a Masterpiece
+
+TV Lists, Star Wars, Severance, Cowboy Bebop, Sci-Fi
+
+Fri, 09 Oct 2026 22:00:15 GMT
+
+https://movieweb.com/sci-fi-tv-shows-perfect/
+
+These sci-fi TV shows tell a wide variety of stories and have no poor episodes.
+---------
+
+# Marvel's Near-Perfect Spider-Man Series Officially Confirms Streaming Return Date
+
+TV News, Your Friendly Neighborhood Spider-Man, Superhero, Disney+
+
+Fri, 09 Oct 2026 21:35:41 GMT
+
+https://movieweb.com/yourfriendly-neighborhood-spider-man-season-2-date-poster/
+
+'Your Friendly Neighborhood Spider-Man' Season 2 will debut on Disney+ on January 13, 2027, less than a month after 'Avengers: Doomsday' is released.
+---------
+
+# 8 Action-Packed Martial Arts Classics Recommended by Quentin Tarantino
+
+Movie Lists, Martial Arts, Action, Quentin Tarantino
+
+Fri, 09 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/quentin-tarantino-martial-arts-recommendations/
+
+Whether genre-defining or underrated, these action-packed martial arts classics come with Quentin Tarantino's stamp of approval.
+---------
+
+# Ben Affleck's New Netflix Movie Officially Compared To Action Thriller Masterpiece
+
+Exclusives, Ben Affleck, Kerry Washington, Animals, Thriller, Argo, Crime
+
+Fri, 09 Oct 2026 20:57:05 GMT
+
+https://movieweb.com/ben-affleck-netflix-movie-animals-argo-comparison/
+
+Ben Affleck and Kerry Washington's action thriller 'Animals' draws comparisons to Affleck's critically acclaimed 2012 film 'Argo.'
+---------
+
+# Goodbye Harlan Coben, Amazon's New 6-Episode Crime Thriller Is One of the Biggest Series in the World
+
+TV News, Prime Video, Thriller, Crime, Hot on Streaming, Red Queen
+
+Fri, 09 Oct 2026 20:30:15 GMT
+
+https://movieweb.com/red-queen-prime-video-stream-october-2026/
+
+Finally, Harlan Coben gets a strong competitor.
+---------
+
 # Helluva Boss's "Raunchiest" Season Yet Explained By Creator
 
 TV, Helluva Boss, Hazbin Hotel
