@@ -1,3 +1,432 @@
+# Scarlett Johansson's First Horror Performance In 13 Years Gets Glowing Early Review From Mike Flanagan
+
+Movies, The Exorcist: Martyrs, The Exorcist, Scarlett Johansson, Mike Flanagan, Horror, New York Comic Con
+
+Sat, 10 Oct 2026 20:53:35 GMT
+
+https://screenrant.com/scarlett-johansson-exorcist-martyrs-performance-horror-return-13-years-mike-flanagan-review/
+
+Exclusive: Scarlett Johansson is back in the horror genre 13 years later, and Mike Flanagan has a glowing review for her returning performance.
+---------
+
+# Lanterns Season 1 Ending Officially Gets Brutal Review From Prolific DC Writer
+
+TV, Lanterns
+
+Sat, 10 Oct 2026 20:52:54 GMT
+
+https://screenrant.com/lanterns-season-1-finale-grant-morrison-review/
+
+HBO's adaptation of the DC Comics franchise just received some brutal feedback from the author of one of the most popular runs of Green Lantern.
+---------
+
+# 6 Near-Perfect Adventure Movies That Deserve To Be As Big As Raiders Of The Lost Ark
+
+Movies, Raiders of the Lost Ark, The 13th Warrior, The Mask of Zorro, Big Trouble in Little China, National Treasure, The Mummy, Stardust
+
+Sat, 10 Oct 2026 20:45:17 GMT
+
+https://screenrant.com/near-perfect-adventure-movies-indiana-jones-raiders-of-the-lost-ark/
+
+Raiders of the Lost Ark is synonymous with the adventure genre. It's a timeless masterpiece, though other similar films deserve acclaim.
+---------
+
+# James Cameron's 2-Season Sci-Fi Series Is Better Than Any Terminator Movie From The Past 23 Years
+
+TV, Masked Recs
+
+Sat, 10 Oct 2026 20:31:18 GMT
+
+https://screenrant.com/dark-angel-james-cameron-better-than-terminator/
+
+James Cameron's gritty 2000s cyberpunk drama humanizes its enhanced supersoldier heroine, blending Terminator's atmosphere with relentless action.
+---------
+
+# 10 Most Timeless Film Noir Movies Ever Made
+
+Movies, Film Noir
+
+Sat, 10 Oct 2026 20:30:17 GMT
+
+https://screenrant.com/most-timeless-film-noir-movies/
+
+While many film noir movies may feel simply like a product of a bygone era, others deserve to be remembered as truly timeless classics.
+---------
+
+# Star Trek: Starfleet Academy Unveils Release Date, First Look Images & Guest Stars For Final Season
+
+TV, New York Comic Con, Star Trek, Star Trek: Starfleet Academy
+
+Sat, 10 Oct 2026 20:17:18 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-season-2-nycc-update/
+
+Star Trek: Starfleet Academy beams into New York Comic Con with a huge update about the second and final season premiering in 2027 on Paramount+.
+---------
+
+# DC Confirms Batman's Next Antagonist Is A Famous Villain Group As Beloved Series Returns
+
+DC Comics, Batman, New York Comic Con
+
+Sat, 10 Oct 2026 20:00:16 GMT
+
+https://screenrant.com/batman-wayne-family-adventures-court-of-owls/
+
+DC reveals that an unexpected group of villains will be the main threat to Bruce Wayne in the upcoming installment of a fan-favorite Batman franchise.
+---------
+
+# Game Of Thrones Night King Officially Returns October 2026
+
+Gaming, Game of Thrones, Game of Thrones: Legends
+
+Sat, 10 Oct 2026 20:00:16 GMT
+
+https://screenrant.com/game-of-thrones-legends-night-king-return-october-2026/
+
+Game of Thrones' Night King is an iconic villain, and he's about to return in a big way in an ongoing adaptation.
+---------
+
+# Robert Downey Jr. & Lucy Liu’s 5-Part Version Of Suits Deserves To Be Revisited
+
+Classic TV, Masked Recs
+
+Sat, 10 Oct 2026 19:45:17 GMT
+
+https://screenrant.com/ally-mcbeal-1990s-version-of-suits-needs-rewatching/
+
+Robert Downey Jr. and Lucy Liu were both part of Ally McBeal, a five-season legal drama from the '90s that was Suits before Suits was a thing.
+---------
+
+# Tom Hardy's Returning Crime Series Is Coming To Steal MobLand's Crown
+
+TV, Tom Hardy, MobLand, Taboo
+
+Sat, 10 Oct 2026 19:29:16 GMT
+
+https://screenrant.com/tom-hardy-taboo-series-steal-mobland-crown/
+
+Hardy’s star turn shifts from the contemporary brutality of MobLand to a brooding historical power play steeped in trade wars, blood, and betrayal.
+---------
+
+# Interview With the Vampire Spinoff Sets Early Release Date as It Unveils New Title
+
+TV, NYCC2026, New York Comic Con, Mayfair Witches
+
+Sat, 10 Oct 2026 20:56:19 GMT
+
+https://www.cbr.com/mayfair-witches-season-3-new-title-release-date/
+
+Taking inspiration from Interview With the Vampire's rebranding, the underrated spinoff unveiled a new title.
+---------
+
+# Star Trek's Newest Series Confirms Major Season 2 Casting Shakeup
+
+TV, Star Trek: Starfleet Academy, Star Trek, Paramount Plus, NYCC2026, New York Comic Con
+
+Sat, 10 Oct 2026 20:30:36 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-season2-cast-bill-nighy-rosemarie-dewitt/
+
+New faces are joining the Star Trek universe.
+---------
+
+# Marvel's New Spy Thriller Is Ready to Finally Replace Tony Stark
+
+TV, MCU, NYCC2026, New York Comic Con
+
+Sat, 10 Oct 2026 20:30:11 GMT
+
+https://www.cbr.com/mcu-zodiac-replace-iron-man/
+
+The MCU's mysterious new series, Zodiac, hinted at a strange successor to Iron Man.
+---------
+
+# Dragon Ball Super: Beerus Is Officially Adapting Toyotarou's Manga
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball
+
+Sat, 10 Oct 2026 20:15:11 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-adding-manga-scenes/
+
+Dragon Ball Super’s new anime remake is including multiple scenes that were previously manga-only, bringing Toyotarou’s manga back into the spotlight.
+---------
+
+# Star Trek Officially Confirms Next Paramount+ Series Return for March 2027
+
+TV, Star Trek: Starfleet Academy, NYCC2026
+
+Sat, 10 Oct 2026 20:14:20 GMT
+
+https://www.cbr.com/star-trek-starfleet-academy-season-2-release-date/
+
+The divisive Star Trek series continues on Paramount+ next year.
+---------
+
+# 8 Years After ABC Firing, Roseanne Barr Wraps Filming on New Sitcom with Randy Quaid
+
+TV, Roseanne / The Conners
+
+Sat, 10 Oct 2026 20:00:20 GMT
+
+https://www.cbr.com/roseanne-barr-new-sitcom-wraps-filming/
+
+Roseanne Barr plots her big TV comeback alongside Randy Quaid.
+---------
+
+# Interview With the Vampire's 17% RT Sequel Is a Free Streaming Smash Hit Ahead of New Adaptation
+
+Movies, Queen of the Damned, Interview with the Vampire
+
+Sat, 10 Oct 2026 20:00:11 GMT
+
+https://www.cbr.com/queen-of-the-damned-fantasy-tubi-success-october-2026/
+
+This sleek cult hit rises again.
+---------
+
+# DC Officially Traps Batman's Gotham City in Endless Daylight for Brand-New Series on October 19
+
+Anime, Batman, webtoon, NYCC2026, webtoons, New York Comic Con
+
+Sat, 10 Oct 2026 20:00:11 GMT
+
+https://www.cbr.com/gotham-by-daylight-dc-webtoon-first-look-release-date/
+
+A brand-new Batman horror series is about to makes its debut on a fan-favorite digital platform, and it is sure to be unlike anything before it.
+---------
+
+# 8 Essential Fantasy Movies To Watch If You're New To The Genre
+
+Movies, Fantasy, The Wizard of Oz, Pan's Labyrinth
+
+Sat, 10 Oct 2026 20:00:11 GMT
+
+https://www.cbr.com/fantasy-movies-for-newcomers-to-the-genre-list/
+
+From The Wizard of Oz to Pan's Labyrinth, these eight movies are the perfect fantasy starter pack.
+---------
+
+# Community Movie Gets Brutal Update From Joel McHale
+
+Movies, Community, NYCC2026, New York Comic Con
+
+Sat, 10 Oct 2026 19:22:17 GMT
+
+https://www.cbr.com/community-movie-update-joel-mchale-nycc/
+
+Community star Joel McHale (and fans in attendance at New York Comic Con) just got a fairly brutal update on the state of the long-awaited movie.
+---------
+
+# 8 Movie Trilogies Without a Single Flaw
+
+Movie, Back to the Future, The Dark Knight Trilogy, Toy Story, Star Wars
+
+Sat, 10 Oct 2026 20:53:11 GMT
+
+https://collider.com/movie-trilogies-without-a-single-flaw/
+
+From Back to the Future to Indiana Jones, these trilogies are simply perfect.
+---------
+
+# The 10 Coldest Lines in Movie History
+
+Movie, No Country for Old Men, The Social Network, Sunset Boulevard, Man on Fire
+
+Sat, 10 Oct 2026 20:30:12 GMT
+
+https://collider.com/coldest-lines-movie-history/
+
+Movies like Sunset Boulevard and The Social Network have some of the hardest, coldest lines in cinematic history, spoken by characters just as iconic.
+---------
+
+# Star Trek’s Cancelled Masterpiece Officially Returns for Season 2
+
+TV News, Star Trek: Starfleet Academy, Bill Nighy, Rosemarie DeWitt, Star Trek
+
+Sat, 10 Oct 2026 20:15:12 GMT
+
+https://collider.com/star-trek-starfleet-academy-season-2-release-date-march-2027-images/
+
+Star Trek: Starfleet Academy will return next year, and we've got a first look at the new season. Read on for more.
+---------
+
+# The 6 Best Science Fantasy Books Released Since 1990, Ranked
+
+Books and Comics, Science Fiction, Fantasy, Books, 1990s
+
+Sat, 10 Oct 2026 20:11:12 GMT
+
+https://collider.com/best-science-fantasy-books-since-1990-ranked/
+
+From The Fifth Season to Gideon the Ninth, these science fantasy novels blend magic, technology, and unforgettable worlds.
+---------
+
+# 6 Perfect Drama Shows That Have Aged Like Fine Wine
+
+TV, Drama, Breaking Bad, Succession, Lost
+
+Sat, 10 Oct 2026 20:08:12 GMT
+
+https://collider.com/drama-shows-aged-like-fine-wine/
+
+Time has truly been kind to drama shows like AMC's Breaking Bad, ABC's Lost, and HBO's Succession, with their reputation improving with age.
+---------
+
+# Paramount+’s 9-Season Sitcom Is One of the Biggest Shows on Streaming 21 Years Later
+
+TV Features, Everybody Loves Raymond, Ray Romano, Paramount Plus, CBS
+
+Sat, 10 Oct 2026 20:06:11 GMT
+
+https://collider.com/everybody-loves-raymond-paramount-plus-streaming-ray-romano-cbs/
+
+Everybody Loves Raymond continues to be a streaming hit on Paramount+ thanks to its relatable comedy and sympathetic characters.
+---------
+
+# New Marvel, DC, and ‘Power Rangers’ Series Officially Announced
+
+Books and Comics News, New York Comic Con, Batman, Mighty Morphin Power Rangers, Disney
+
+Sat, 10 Oct 2026 20:00:11 GMT
+
+https://collider.com/webtoon-dc-marvel-mighty-morphin-power-rangers-comics-images/
+
+WEBTOON shared a preview of its upcoming slate of original and partnership stories at NYCC, including team-ups with Marvel, DC, and Power Rangers.
+---------
+
+# Taylor Sheridan's Latest 'Yellowstone' Spin-Off Officially Becomes One of the Biggest Shows on Streaming
+
+TV News, Marshals, Yellowstone, Paramount Plus, Procedural
+
+Sat, 10 Oct 2026 20:00:11 GMT
+
+https://collider.com/marshals-paramount-plus-streaming-success-october-2026/
+
+Yellowstone's resilient spin-off is back on streaming charts as a new season kicks off. Get all the details here.
+---------
+
+# 8 Superhero Movies That Feel Like a Living Comic Book
+
+Movie, Batman & Robin, Superhero, Spider-Man: Across the Spider-Verse, Spider-Man: Brand New Day
+
+Sat, 10 Oct 2026 19:49:12 GMT
+
+https://collider.com/superhero-movies-feel-like-a-living-comic-book/
+
+Superhero movies like Spider-Man: Across the Spider-Verse, Hulk, and Spider-Man: Brand New Day are so immersive they feel like a living comic book.
+---------
+
+# The 6 Best Books Released Since 2005, Ranked
+
+Books and Comics, Books, Cormac McCarthy, Wolf Hall, Pachinko
+
+Sat, 10 Oct 2026 19:17:11 GMT
+
+https://collider.com/best-books-since-2005-ranked/
+
+From Demon Copperhead to Never Let Me Go, these six unmissable novels capture raw human survival and quiet heartbreak beautifully.
+---------
+
+# Netflix's New 8-Part Thriller is Officially The Second Most Ambitious Series Arriving Next Month
+
+TV News, Netflix, Thriller
+
+Sat, 10 Oct 2026 20:41:06 GMT
+
+https://movieweb.com/under-siege-netflix-release-date/
+
+From the producer of Narcos, Netflix’s next major Colombian swing is Under Siege.
+---------
+
+# Goodbye ‘Reacher,’ Prime Video’s Hit Crime Thriller With Double the Episodes Is Even Better
+
+Features, Bosch, Reacher, Thriller, Action
+
+Sat, 10 Oct 2026 20:30:16 GMT
+
+https://movieweb.com/bosch-prime-video-recommendation/
+
+Reacher pales in comparison to Prime Video's defining crime thriller series, which has double the episodes for viewers to binge.
+---------
+
+# Disney’s 'Harry Potter' Meets 'Wednesday' Smash Hit Is the Perfect Fantasy Thriller You Can Binge in a Weekend
+
+Features, Fantasy, Thriller, Coven Academy, Wednesday, Harry Potter, Disney+
+
+Sat, 10 Oct 2026 20:00:15 GMT
+
+https://movieweb.com/coven-academy-streaming-recommendation/
+
+Disney's new fantasy thriller series is the perfect combination of 'Wednesday' and 'Harry Potter' and tells a magical story.
+---------
+
+# Taylor Sheridan’s Most Popular Series Gets Stephen King Support After Major Awards Snub
+
+TV News, Landman, Stephen King, Taylor Sheridan, Western
+
+Sat, 10 Oct 2026 19:38:23 GMT
+
+https://movieweb.com/landman-stephen-king-on-emmy-snub/
+
+Why was 'Landman' ghosted at the Emmys?
+---------
+
+# The 10 Greatest Sci-Fi Movies of the 1980s, Ranked by How Well They Hold Up
+
+Movie Lists, Sci-Fi, 1980s
+
+Sat, 10 Oct 2026 19:30:15 GMT
+
+https://movieweb.com/80s-sci-fi-movies-hold-up/
+
+From cult favorites to blockbusters, these 1980s sci-fi movies still hold up decades later, and not just because of the nostalgia.
+---------
+
+# "John Wick Meets Scarface" In New 8-Part Action Thriller That's One of the Biggest Shows on Streaming
+
+TV News, Kill Jackie, AMC+, Hot on Streaming, Action
+
+Sat, 10 Oct 2026 19:00:15 GMT
+
+https://movieweb.com/kill-jackie-action-stream-amc-october-2026/
+
+This gender-swapped, John Wick-esque crime thriller is taking over on streaming.
+---------
+
+# 30 Years in the Making, Scarlett Johansson’s New Netflix Sci-Fi Action Film Hailed as "One of the Year’s Best"
+
+Movie News, Ray Gunn, Brad Bird, Scarlett Johansson, Sam Rockwell, Sci-Fi
+
+Sat, 10 Oct 2026 18:02:47 GMT
+
+https://movieweb.com/ray-gunn-rotten-tomatoes-score/
+
+The reviews for Brad Bird's long in-development passion project, 'Ray Gunn,' are in, and the critical reaction is largely positive.
+---------
+
+# Star Wars: 7 Canon Events That Officially Set Up Episode 10
+
+Movie Lists, Star Wars 10, Star Wars, Sci-Fi, Fantasy
+
+Sat, 10 Oct 2026 18:00:16 GMT
+
+https://movieweb.com/star-wars-events-after-episode-9/
+
+These significant events in the Star Wars timeline lay the foundation for Jon Watts' upcoming film.
+---------
+
+# Ridley Scott's 2-Part Prime Video Mystery Thriller Is a Perfect Weekend Binge-Watch
+
+Features, The Hot Zone, Thriller, Ridley Scott
+
+Sat, 10 Oct 2026 18:00:16 GMT
+
+https://movieweb.com/hot-zone-ridley-scott-streaming-recommendation/
+
+Released around the time of the COVID-19 pandemic, Ridley Scott's forgotten medical docudrama is worth a look in 2026
+---------
+
 # 10 Underrated DC Masterpieces Every Fan Should Read
 
 DC Comics, DC
