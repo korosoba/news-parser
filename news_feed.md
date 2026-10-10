@@ -1,3 +1,366 @@
+# The Walking Dead: Aftermath Officially Brings Back Rick Grimes And Daryl Dixon
+
+Gaming, The Walking Dead
+
+Sat, 10 Oct 2026 05:31:12 GMT
+
+https://screenrant.com/the-walking-dead-aftermath-season-1-characters-return/
+
+Experience iconic characters in The Walking Dead: Aftermath mobile game. Survive in a transformed world of danger.
+---------
+
+# Final Fantasy 9: Roses Of May Officially Releases This Month
+
+Gaming, Final Fantasy 9, Final Fantasy, PC, RPG
+
+Sat, 10 Oct 2026 05:15:15 GMT
+
+https://screenrant.com/final-fantasy-9-roses-of-may-october-2026-psa/
+
+A brand-new Final Fantasy 9 project titled Roses of May is officially releasing in October, and fans will want to check it out.
+---------
+
+# Netflix’s R-Rated Sci-Fi Series Masters The Art Of Switching Genres
+
+Classic TV, Masked Recs
+
+Sat, 10 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/love-death-robots-netflix-masters-genre-switching/
+
+While most shows play it safe and stick to the conventions of their respective genres, an R-rated sci-fi show on Netflix brilliantly switches genres.
+---------
+
+# It's Officially A New Era For Game Of Thrones
+
+Gaming, Game of Thrones, Game Of Thrones, Game of Thrones: Conquest, PC
+
+Sat, 10 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/game-of-thrones-conquest-9th-anniversary-update-changes/
+
+Game of Thrones is entering a brand-new era after nine years, with a massive update that celebrates the franchise properly.
+---------
+
+# Dungeon Crawler Carl: Mobs Of Mordecai Officially Releases Next Month
+
+Gaming, Dungeon Crawler Carl
+
+Sat, 10 Oct 2026 04:30:15 GMT
+
+https://screenrant.com/dungeon-crawler-carl-mobs-mordecai-november-2026-psa/
+
+Dungeon Crawler Carl seems to be going from strength to strength right now, and the latest release is an important expansion.
+---------
+
+# Marvel Officially Unveils Phoenix's Replacement
+
+Gaming, Marvel Tokon: Fighting Souls, Triple-A Games, PC
+
+Sat, 10 Oct 2026 04:15:16 GMT
+
+https://screenrant.com/marvel-tokon-fighting-souls-new-phoenix/
+
+We could be seeing Phoenix in multiple Marvel stories, but in one of them, the studio has found their replacement, and you can see them in action.
+---------
+
+# Star Trek Is Officially Introducing A Brand-New Crew On October 20 In Outposts Unknown
+
+Gaming, Star Trek, Triple-A Games
+
+Sat, 10 Oct 2026 04:02:17 GMT
+
+https://screenrant.com/star-trek-outposts-unknown-new-crew-october-2026/
+
+Star Trek has worked through many crews since its start decades ago, but this one is going to be something fresh and exciting.
+---------
+
+# It's Time To Say Goodbye To 1 Major Naruto Villain
+
+Anime, Naruto
+
+Sat, 10 Oct 2026 03:59:17 GMT
+
+https://screenrant.com/naruto-boruto-two-blue-vortex-hidari-sasuke-death/
+
+The Naruto franchise has set up the opportunity to kill off one more villain, with potentially catastrophic fallout likely to follow.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (October 10-11)
+
+Movies, Prime Video, Recommendation
+
+Sat, 10 Oct 2026 03:35:51 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-october-10/
+
+Prime Video's best movies to watch this weekend include a Jason Statham action thriller, a stylish horror, and an intense Keanu Reeves action flick.
+---------
+
+# 6 Reacher Books Prime Video's Season 6 Should Consider Adapting
+
+Streaming TV, Reacher
+
+Sat, 10 Oct 2026 03:30:17 GMT
+
+https://screenrant.com/reacher-season-6-book-based-on-prediction/
+
+Since Reacher season 6 will be major landmark for the Prime Video show, it must carefully choose the book it adapts from Lee Child’s original series.
+---------
+
+# 7 Underrated Mecha Anime That Are Considered Masterpieces
+
+Anime, mecha, RahXephon
+
+Sat, 10 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/underrated-mecha-anime-masterpieces/
+
+Mecha anime represent some of the medium's biggest hits, but series like Combat Mecha Xabungle and Overman King Gainer have flown under the radar.
+---------
+
+# Horror Movie Franchise Returns With 'Over-the-Top' Ninth Installment Dividing Critics
+
+Movies, V/H/S/Mixtape, V/H/S
+
+Sat, 10 Oct 2026 03:37:30 GMT
+
+https://www.cbr.com/vhs-mixtape-rotten-tomatoes-score/
+
+Some critics say it's the best of the franchise while others are calling it a low point.
+---------
+
+# How Murder, She Wrote Quietly Confirmed a Hidden Agatha Christie Connection
+
+TV, Mystery, Murder She Wrote, Marple
+
+Sat, 10 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/agatha-christie-murder-she-wrote-theory-confirmed/
+
+Agatha Christie's stories are defined by mystery, but a unique theory ties her works to another great mystery TV series.
+---------
+
+# 25 Funniest Calvin & Hobbes Comic Strips
+
+Comics, Calvin and Hobbes
+
+Sat, 10 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/funniest-calvin-hobbes-comic-strips/
+
+Highlighting Calvin's wild imagination and creator Bill Watterson's clever wit, the Calvin & Hobbes comic strips are loaded with hilarious stories.
+---------
+
+# 10 Sega Genesis RPGs That Are 10/10, No Notes
+
+Games, Lists, Video Games, Sega Genesis
+
+Sat, 10 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/sega-genesis-rpgs-flawless-start-to-finish/
+
+Games like Phantasy Star and Landstalker were the standout RPGs on the Sega Genesis.
+---------
+
+# Sailor Moon Meets Fullmetal Alchemist in New Action Game Coming to Steam Next Week
+
+Anime, Steam, Sailor Moon, Fullmetal Alchemist
+
+Sat, 10 Oct 2026 03:05:11 GMT
+
+https://www.cbr.com/bless-you-again-steam-demo-release-date/
+
+An upcoming roguelite game combines dark fantasy and magical-girl-style action, creating a thrilling experience reminiscent of Sailor Moon and FMA.
+---------
+
+# Masterpiece Action Anime to Watch if You Love Solo Leveling
+
+Anime, Solo Leveling, Bleach: Thousand Year Blood War, Jujutsu Kaisen
+
+Sat, 10 Oct 2026 02:45:11 GMT
+
+https://www.cbr.com/masterpiece-action-anime-if-you-love-solo-leveling/
+
+Solo Leveling set a high bar for modern action anime. These masterpieces deliver equally compelling fights, characters and adventures.
+---------
+
+# Mike Flanagan Names the Stephen King Movie That Should Never, Ever Be Remade
+
+Movies, The Shawshank Redemption
+
+Sat, 10 Oct 2026 02:34:49 GMT
+
+https://www.cbr.com/mike-flanagan-stephen-king-the-shawshank-redemption/
+
+Amid the release of his Carrie reboot, frequent Stephen King collaborator Mike Flanagan names the story that should never get another adaptation.
+---------
+
+# 10 Weakest Final Fantasy Party Members
+
+Games, Final Fantasy, Final Fantasy (1987), Video Games
+
+Sat, 10 Oct 2026 02:15:11 GMT
+
+https://www.cbr.com/weakest-final-fantasy-party-members/
+
+Not all Final Fantasy party members are super-powered anime heroes: a few of them are so weak they need to be carried by the rest of the party.
+---------
+
+# 8 Strongest Black Clover Magic Types, Ranked
+
+Anime, Black Clover
+
+Sat, 10 Oct 2026 02:00:22 GMT
+
+https://www.cbr.com/strongest-black-clover-magic-types-ranked/
+
+Out of Black Clover's numerous Magic Types, only a few stand out as the strongest.
+---------
+
+# 39 Years Later, HBO Max's Legendary War Movie Is Still One of the Best Ever Made
+
+Movie Features, Full Metal Jacket, Vincent D'Onofrio, War, Stanley Kubrick
+
+Sat, 10 Oct 2026 04:08:11 GMT
+
+https://collider.com/full-metal-jacket-war-movie-stanley-kubrick-hbo-max-streaming-october-2026/
+
+Stanley Kubrick's harrowing 1987 classic Full Metal Jacket created one of the most tragic characters in war movie history.
+---------
+
+# The 10 Most Cringeworthy Movies of All Time, Ranked
+
+Movie, The King of Comedy, Windy City Heat, Friendship, Shiva Baby
+
+Sat, 10 Oct 2026 03:09:12 GMT
+
+https://collider.com/most-cringeworthy-movies-all-time-ranked/
+
+Classic movies like The King of Comedy and Happiness rank alongside newer releases like Shiva Baby as some of the most cringeworthy of all time.
+---------
+
+# Disney+ Loaned Out One of Its Best Originals to Netflix and It's Already a Streaming Hit
+
+TV Features, Percy Jackson & the Olympians, Disney+, Netflix, Percy Jackson & The Olympians
+
+Sat, 10 Oct 2026 03:01:12 GMT
+
+https://collider.com/disney-plus-series-streaming-netflix-percy-jackson-limited-time-hit/
+
+While it has always been a Disney+ original, Percy Jackson and the Olympians is over at Netflix for a limited time.
+---------
+
+# Forget ‘True Detective,’ Netflix’s 6-Episode Thriller Is the Perfect Replacement Series
+
+TV Features, The Crystal Cuckoo, Netflix, True Detective, Thriller
+
+Sat, 10 Oct 2026 02:45:12 GMT
+
+https://collider.com/true-detective-replacement-series-netflix-crystal-cuckoo-thriller-mystery/
+
+Netflix’s The Crystal Cuckoo unfolds a chilling small-town mystery across 6 episodes, making it a compelling binge for True Detective fans.
+---------
+
+# Alan Ritchson’s Hit ‘Reacher’ Spin-Off Officially Takes Prime Video Crown
+
+TV News, Reacher, Neagley, Prime Video, Action
+
+Sat, 10 Oct 2026 02:00:22 GMT
+
+https://collider.com/neagley-reacher-spin-off-streaming-success-prime-video-october-2026/
+
+Prime Video's Reacher spin-off, Neagley, is putting up remarkable numbers on the Nielsen viewership chart. Find out more.
+---------
+
+# 'Fire Country' Season 5 Proves the CBS Series Needs To Get Back to Basics | Review
+
+TV Reviews, Fire Country, CBS, Max Thieriot
+
+Sat, 10 Oct 2026 02:00:22 GMT
+
+https://collider.com/fire-country-season-5-review-cbs/
+
+Fire Country's return for Season 5 only makes the flaws of the overall series more obvious, proving that the show needs a reset.
+---------
+
+# Disney+ Officially Scores Big With 2-Part Revival Taking Over Streaming
+
+TV Features, Scrubs, Disney+, Hulu, Series
+
+Sat, 10 Oct 2026 01:58:12 GMT
+
+https://collider.com/scrubs-revival-disney-plus-streaming-success/
+
+The Scrubs revival brings J.D., Turk, and Elliot back to Sacred Heart, proving that growing older gives this medical sitcom new life.
+---------
+
+# 10 Horror Films That Are Perfect From Start to Finish
+
+Movie, The Shining, Psycho, The Silence of the Lambs, Us
+
+Sat, 10 Oct 2026 01:41:12 GMT
+
+https://collider.com/horror-films-perfect-start-to-finish/
+
+Undisputed horror masterpieces like The Shining, Halloween, and The Silence of the Lambs are genuinely flawless from beginning to end.
+---------
+
+# ‘IT’ Star’s New Horror Movie Is Officially Critics’ Worst Nightmare
+
+Movie News, Other Mommy, Jessica Chastain, Horror, Rotten Tomatoes
+
+Sat, 10 Oct 2026 01:30:11 GMT
+
+https://collider.com/jessica-chastain-other-mommy-rotten-tomatoes-score-is-it-good/
+
+Jessica Chastain's Coraline replacement is being absolutely hammered by critics, scoring some of the worst reviews of 2026.
+---------
+
+# ‘Family Guy’s 2026 Halloween Special Officially Defeats ‘Avengers: Endgame’
+
+TV News, Seth MacFarlane, Disney+, Avengers: Endgame, Family Guy
+
+Sat, 10 Oct 2026 01:00:12 GMT
+
+https://collider.com/family-guy-halloween-special-overtakes-avengers-endgame-streaming-success-disney-plus-october-2026/
+
+A beloved animation creator's brand-new holiday special has officially claimed the top spot on streaming, even dethroning major Marvel blockbusters.
+---------
+
+# Both 'Social Network' Movies Completely Ignore the Most Important Part of Mark Zuckerberg's Life
+
+Features, The Social Reckoning, The Social Network, Mark Zuckerberg, Drama
+
+Sat, 10 Oct 2026 02:00:27 GMT
+
+https://movieweb.com/the-social-reckoning-zuckerberg-wife-missing/
+
+Both 'The Social Network' and 'The Social Reckoning' center around the tech billionaire's life, but one key figure is conspicuously absent from both.
+---------
+
+# 9 Biggest Questions After 'The Social Reckoning's Ending, Explained
+
+Features, The Social Reckoning, Aaron Sorkin, Drama
+
+Sat, 10 Oct 2026 00:30:48 GMT
+
+https://movieweb.com/the-social-reckoning-biggest-questions/
+
+'The Social Reckoning' recounts real-life events surrounding the dangers of Facebook that have been exposed, but it doesn't tell the whole story.
+---------
+
+# Fantasy Sequel to a Cult Classic Masterpiece Officially Leaves 2,100 Theaters After Box Office Disappointment
+
+Movie News, Practical Magic 2, Box Office Milestones, Nicole Kidman, Fantasy
+
+Sat, 10 Oct 2026 00:30:15 GMT
+
+https://movieweb.com/practical-magic-2-box-office-milestone-october-2026/
+
+Practical Magic 2 appears to be heading out of theaters as a likely financial miss for Warner Bros.
+---------
+
 # Prime Video's 8-Part Crime Thriller Adaptation Officially Sets Season 2 Release Window
 
 Streaming TV, Scarpetta
