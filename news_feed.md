@@ -1,3 +1,432 @@
+# 10 Underrated DC Masterpieces Every Fan Should Read
+
+DC Comics, DC
+
+Sat, 10 Oct 2026 17:30:59 GMT
+
+https://screenrant.com/best-underrated-dc-comics-read/
+
+These are the greatest comic DC build-ups you've probably never heard of.
+---------
+
+# Marvel Shares First Look At New Beast Design For X-Men's Reboot
+
+Marvel Comics, X-Men, New York Comic Con
+
+Sat, 10 Oct 2026 17:30:17 GMT
+
+https://screenrant.com/beast-new-design-reboot-marvel-xmen/
+
+Marvel's new X-Men reboot presents its bold Beast redesign, which transforms Hank McCoy into a very different kind of animalistic mutant.
+---------
+
+# TV's Best Sitcom Defies Odds And Secures Its Next 5 Years
+
+Network TV, Abbott Elementary
+
+Sat, 10 Oct 2026 17:30:17 GMT
+
+https://screenrant.com/abbott-elementary-season-6-defies-odds-secures-future/
+
+TV sitcoms are struggling, but ABC's excellent Abbott Elementary has defied the odds and secured an incredible potential five-year future.
+---------
+
+# Masters Of The Universe RPG Officially Announced
+
+Gaming, Roblox, Masters of the Universe, Live Service Games, PC
+
+Sat, 10 Oct 2026 17:14:09 GMT
+
+https://screenrant.com/masters-universe-battle-grayskull-rpg-announced/
+
+Masters of the Universe fans are eating well this year, and a new RPG will let them take sides in the fight to control Castle Grayskull.
+---------
+
+# Nicolas Cage Sharply Criticizes Amazon Contract After Spider-Noir Cancellation
+
+TV, Nicolas Cage, New York Comic Con
+
+Sat, 10 Oct 2026 17:04:59 GMT
+
+https://screenrant.com/nicolas-cage-amazon-ai-contract-spider-noir-cancellation-response/
+
+Nicolas Cage is not staying silent, as the beloved actor calls out Amazon over its contracts following the divisive cancellation of Spider-Noir.
+---------
+
+# True Detective Season 5 Casting Officially Addressed By Nicolas Cage
+
+TV, True Detective, New York Comic Con
+
+Sat, 10 Oct 2026 17:02:04 GMT
+
+https://screenrant.com/true-detective-season-5-nicolas-cage-casting-confirmed/
+
+Following several casting reports, a new revelation at NYCC may have just confirmed the first major star for True Detective season 5.
+---------
+
+# Exorcist Reboot Timeline Officially Confirmed By Mike Flanagan
+
+Movies, The Exorcist: Martyrs, The Exorcist, Horror, Mike Flanagan, Halloween 2026, New York Comic Con
+
+Sat, 10 Oct 2026 17:01:31 GMT
+
+https://screenrant.com/exorcist-martyrs-reboot-timeline-confirmed-mike-flanagan/
+
+Exclusive: Mike Flanagan confirms where in The Exorcist franchise timeline his new reboot, Martyrs, is set and how it will connect to the others.
+---------
+
+# Every Stephen King TV Series, Ranked
+
+Classic TV, Stephen King, Halloween 2026
+
+Sat, 10 Oct 2026 17:00:18 GMT
+
+https://screenrant.com/stephen-king-tv-show-adaptations-ranked/
+
+Stephen King has 22 TV adaptations of his novels, novellas, and short stories, and this is how every show ranks from worst to best.
+---------
+
+# Best Dystopian Books Of All Time
+
+Books, The Hunger Games
+
+Sat, 10 Oct 2026 17:00:18 GMT
+
+https://screenrant.com/best-dystopian-books-all-time/
+
+While there are hundreds of amazing dystopian novels from around the world to read, here are the ten greatest dysopian books of all time.
+---------
+
+# Star Wars Finally Releases Official KOTOR Legacy Killer
+
+Gaming, Star Wars: Knights of the Old Republic, Star Wars, Star Wars: Galactic Racer
+
+Sat, 10 Oct 2026 17:00:18 GMT
+
+https://screenrant.com/star-wars-galactic-racer-reviews-record/
+
+Star Wars: Knights of the Old Republic is unmatched in its excellence, but the latest Star Wars game has come closer than any other in over 20 years.
+---------
+
+# HBO’s 4-Season Instant Cyberpunk Classic Is as Close to Perfect as Sci-Fi Remakes Get
+
+TV, Westworld, HBO Max, Innovation
+
+Sat, 10 Oct 2026 17:30:11 GMT
+
+https://www.cbr.com/hbo-westworld-perfect-cyberpunk-sci-fi-classic-remake/
+
+Over four seasons, one of HBO's most revolutionary cyberpunk series remade a classic dystopian sci-fi story first conceived in the 1970s.
+---------
+
+# 5 Best TTRPGs That Let You Play As Villains
+
+Games, Tabletop, Dungeons and Dragons, Marvel, Star Wars
+
+Sat, 10 Oct 2026 17:16:11 GMT
+
+https://www.cbr.com/best-ttrpgs-let-you-play-as-villains/
+
+These amazing tabletop RPGs allow players to take on the role of the villains.
+---------
+
+# Every The Amazing Spider-Man #1000 Story, Ranked
+
+Comics, Spider-Man
+
+Sat, 10 Oct 2026 17:00:11 GMT
+
+https://www.cbr.com/every-the-amazing-spider-man-1000-story-ranked/
+
+The latest major milestone issue of Amazing Spider-Man has arrived, and every single story inside it has something different waiting for fans.
+---------
+
+# 10 Fall 2026 Movies You Cannot Miss
+
+Movies, The Hunger Games: Sunrise on the Reaping, Godzilla Minus Zero
+
+Sat, 10 Oct 2026 16:30:11 GMT
+
+https://www.cbr.com/best-upcoming-fall-2026-movies-list/
+
+From franchise sequels to unique originals, these are the upcoming movies not to miss this fall.
+---------
+
+# Nicolas Cage Confirms True Detective Season 5 After HBO Tease
+
+TV, True Detective, Nicolas Cage, NYCC2026, New York Comic Con
+
+Sat, 10 Oct 2026 16:27:41 GMT
+
+https://www.cbr.com/nicolas-cage-confirms-true-detective-season-5/
+
+After being teased as part of the cast, Nicolas Cage definitely wants to do more television.
+---------
+
+# Every Broly Form in Dragon Ball, Ranked From Weakest to Strongest
+
+Anime, Dragon Ball, Akira Toriyama
+
+Sat, 10 Oct 2026 16:15:11 GMT
+
+https://www.cbr.com/dragon-ball-every-broly-form-ranked-weakest-to-strongest/
+
+Dragon Ball's Broly is an absolute juggernaut and a force to be reckoned with, and his various transformations make him even more powerful.
+---------
+
+# Blumhouse Quietly Skips Five Nights at Freddy's 3 for 2027 Horror Lineup
+
+Movies, Five Nights at Freddy's, Five Nights at Freddy's 3, NYCC2026, New York Comic Con
+
+Sat, 10 Oct 2026 16:09:14 GMT
+
+https://www.cbr.com/blumhouse-five-nights-at-freddys-3-not-2027-horror-lineup/
+
+Blumhouse had a thrilling day at the New York Comic-Con.
+---------
+
+# Josh Hartnett's New Netflix Creature Feature Is Officially the No. 1 Show on Streaming
+
+TV, Below, Thriller, Netflix
+
+Sat, 10 Oct 2026 16:00:11 GMT
+
+https://www.cbr.com/below-netflix-creature-supernatural-thriller-success-october-2026/
+
+Netflix's latest supernatural thriller miniseries, Below, is the most-watched show in the world.
+---------
+
+# Marvel Unlimited Is Officially Shutting Down: What To Know About Your Current Subscription
+
+Comics, Marvel, NYCC2026, webtoon
+
+Sat, 10 Oct 2026 16:00:11 GMT
+
+https://www.cbr.com/marvel-unlimited-marvel-comics-app-transition/
+
+The launch of the next Marvel Comics app is just around the corner, and it means that Marvel Unlimited subscribers need to prepare for the end.
+---------
+
+# Russell Crowe’s 137-Minute War Epic Officially Remains a Global Streaming Smash
+
+Movie News, Master and Commander: The Far Side of the World, Apple TV, Russell Crowe, Paul Bettany
+
+Sat, 10 Oct 2026 17:30:11 GMT
+
+https://collider.com/russell-crowe-master-and-commander-far-side-of-the-world-streaming-success-apple-tv-october-2026/
+
+Russell Crowe's 137-minute war epic is officially on a historic run streaming on Apple TV. Find out more information here.
+---------
+
+# 10 Sci-Fi Movies With the Most Interesting Characters, Ranked
+
+Movie, Sci-Fi, Blade Runner 2049, Children of Men, District 9
+
+Sat, 10 Oct 2026 17:09:12 GMT
+
+https://collider.com/best-sci-fi-movies-interesting-characters/
+
+Great science fiction movies like Blade Runner 2049, Children of Men, and George Lucas's original Star Wars benefit from unforgettable characters.
+---------
+
+# 10 Greatest K-Drama TV Masterpieces of the 21st Century, Ranked
+
+TV, Drama, Squid Game, When Life Gives You Tangerines, Boys Over Flowers
+
+Sat, 10 Oct 2026 17:04:12 GMT
+
+https://collider.com/best-k-drama-shows-modern-masterpieces-ranked/
+
+These top K-drama shows shaped modern storytelling, showcasing timeless themes and unforgettable characters, from Squid Game to Goblin.
+---------
+
+# 'The Pitt' Producer's New Netflix Series Officially Sets Premiere Date
+
+TV News, The Pitt, John Wells, Netflix, Drama
+
+Sat, 10 Oct 2026 17:00:11 GMT
+
+https://collider.com/unaccustomed-earth-john-wells-netflix-december-17-premiere-date/
+
+The Pitt's producer John Wells' next Netflix drama has officially set a premiere date. Get all the details here.
+---------
+
+# 'Bob's Burgers' Officially Reveals First Look at Upcoming Holiday Special
+
+TV News, Bob's Burgers, New York Comic Con, Hulu, Loren Bouchard
+
+Sat, 10 Oct 2026 16:31:11 GMT
+
+https://collider.com/bobs-burgers-on-the-fort-day-of-christmas-short-first-look/
+
+The first look at the new Bob Burgers short On the Fort Day of Christmas takes a peek into the Belcher family home during the holidays.
+---------
+
+# John Cena’s 10/10 Legal Thriller Is Officially One of Apple TV’s Biggest Hits
+
+Movie News, John Cena, Coyote Vs. Acme, Animation, Apple TV
+
+Sat, 10 Oct 2026 16:31:11 GMT
+
+https://collider.com/john-cena-coyote-vs-acme-streaming-hit-apple-october-2026/
+
+John Cena's Coyote vs. Acme is making waves, with the long-delayed adventure earning a perfect 10/10 rating. Read on for more details.
+---------
+
+# The World's Most Beloved Detective Series Officially Announces New Release
+
+Books and Comics News, Murdoch Mysteries, comic books, New York Comic Con, CBC Gem
+
+Sat, 10 Oct 2026 16:21:17 GMT
+
+https://collider.com/murdoch-mysteries-comic-series-announced/
+
+After 20 Seasons on the air, Murdoch Mysteries has officially announced a new spin-off series. Read on for more.
+---------
+
+# 8 Adventure Games That Are Amazing From Start to Finish
+
+Gaming, Adventure, Video Game, Red Dead Redemption 2, Detroit: Become Human
+
+Sat, 10 Oct 2026 16:19:11 GMT
+
+https://collider.com/adventure-video-games-amazing/
+
+From Mixtape to Marvel’s Spider-Man, these eight incredible adventure games drop you straight into the action for non-stop thrill rides.
+---------
+
+# Crunchyroll's 5-Part Fantasy Anime Is Officially the New King of Streaming
+
+TV News, Black Clover, Crunchyroll
+
+Sat, 10 Oct 2026 16:05:18 GMT
+
+https://collider.com/crunchyroll-fantasy-black-clover-streaming-success-october-2026/
+
+Ahead of the series finale, Crunchyroll's 5-part fantasy epic is one of the most popular shows on all of streaming. Read on for more.
+---------
+
+# Alan Ritchson’s New Action Thriller Officially Comes Home This Week
+
+Movie News, Alan Ritchson, Runner, Owen Wilson, Action
+
+Sat, 10 Oct 2026 16:00:11 GMT
+
+https://collider.com/alan-ritchson-action-thriller-runner-streaming-pvod-october-2026/
+
+Alan Ritchson and Owen Wilson’s new action thriller Runner officially comes home this week. Read on for more.
+---------
+
+# Keira Knightley Is Locked & Loaded in Near-Perfect Netflix Action Thriller Set To Debut Next Month
+
+TV News, Keira Knightley, Netflix, Action, Thriller, Coming/Leaving Streaming, Black Doves
+
+Sat, 10 Oct 2026 17:00:16 GMT
+
+https://movieweb.com/black-doves-season-2-keira-knightley-netflix-november-2026/
+
+The series returns to streaming after a two-year wait.
+---------
+
+# Scarlett Johansson's Reboot of a '70s Thriller Masterpiece From Mike Flanagan Officially Sets Its Theatrical Release
+
+Movie News, The Exorcist: Martyrs, The Exorcist, Scarlett Johansson, Mike Flanagan, Horror
+
+Sat, 10 Oct 2026 16:42:06 GMT
+
+https://movieweb.com/the-exorcist-martyrs-trailer-scarlett-johansson/
+
+The first trailer for 'The Exorcist: Martyrs' hints at connections to both the original 1973 'The Exorcist' and 'The Exorcist III.'
+---------
+
+# Ben Affleck's New Netflix Action Thriller Officially Unites Critics and Audiences on Rotten Tomatoes
+
+Movie News, Animals, Thriller, Ben Affleck
+
+Sat, 10 Oct 2026 16:27:25 GMT
+
+https://movieweb.com/animals-ben-affleck-rotten-tomatoes-score/
+
+Audiences have reached a consensus on Ben Affleck's gritty drama, Animals.
+---------
+
+# Apple TV's New High Fantasy Series Already Beats Peak 'Game of Thrones' in One Major Way
+
+Features, Fantasy, Apple TV, Game Of Thrones, The Stormlight Archive, Brandon Sanderson
+
+Sat, 10 Oct 2026 16:00:15 GMT
+
+https://movieweb.com/stormlight-archive-better-magic-game-of-thrones/
+
+'Game of Thrones' is one of the most popular fantasy TV series, but Apple TV has an upcoming show that could be even better.
+---------
+
+# New James Bond Version Officially Confirmed From Iconic Marvel & DC Creator
+
+Movie News, Grant Morrison, James Bond, Action
+
+Sat, 10 Oct 2026 15:50:16 GMT
+
+https://movieweb.com/james-bond-comic-grant-morrison/
+
+Famed comic book writer Grant Morrison is officially bringing the 007 agent to life.
+---------
+
+# 'Street Fighter's Live-Action Movie Features Hand-Drawn '90s Anime Sequences
+
+Movie News, Street Fighter, Action
+
+Sat, 10 Oct 2026 15:45:16 GMT
+
+https://movieweb.com/street-fighter-movie-anime-flashback-scenes-director/
+
+'Street Fighter' is a homage to the sprawling franchise's best elements.
+---------
+
+# Goodbye Jason Bourne, Amazon's 134-Minute Action Thriller Remains One of the Biggest Movies in the World
+
+Movie News, Agent Zeta, Hot on Streaming, Action, Thriller
+
+Sat, 10 Oct 2026 15:30:15 GMT
+
+https://movieweb.com/agent-zeta-action-stream-prime-video-october-2026/
+
+You will never see the big twist coming.
+---------
+
+# The True Story Behind 'The Luckiest Man in America,' Explained
+
+Features, The Luckiest Man in America
+
+Sat, 10 Oct 2026 15:00:17 GMT
+
+https://movieweb.com/the-luckiest-man-in-america-true-story-explained/
+
+We know you're wondering where Michael Larson is now, so here's everything you need to know.
+---------
+
+# 9 Crime Thriller TV Shows That Stick the Landing With a Great Finale Like 'Breaking Bad'
+
+TV Lists, Breaking Bad, Crime, Thriller
+
+Sat, 10 Oct 2026 14:00:15 GMT
+
+https://movieweb.com/crime-thriller-shows-great-endings/
+
+'Breaking Bad,' the crime thriller TV series starring Bryan Cranston as Walter White, has a great ending, and so do these other shows in the genre.
+---------
+
+# Brad Pitt's 124-Minute Forgotten Hard Sci-Fi Thriller Officially Sets New Netflix Streaming Release
+
+Movie News, Ad Astra, Netflix, Hot on Streaming, Sci-Fi
+
+Sat, 10 Oct 2026 13:30:15 GMT
+
+https://movieweb.com/ad-astra-scifi-stream-netflix-october-2026/
+
+Not even Brad Pitt could save this movie.
+---------
+
 # 10 Perfect Horror Games You Can Play Completely Free This Halloween
 
 Gaming, Halloween 2026
