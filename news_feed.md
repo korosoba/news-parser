@@ -1,3 +1,443 @@
+# 15 Best Fruits Basket Quotes
+
+Anime, Fruits Basket
+
+Sun, 11 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/best-fruits-basket-quotes/
+
+Fruits Basket is not just an entertaining and romantic shojo manga series, it is also packed with profound insights into life, friendship, and love.
+---------
+
+# Star Wars Jedi 3 Release Date Leaks Ahead Of Official Reveal
+
+Gaming, Star Wars, Star Wars Jedi: Survivor, Star Wars Jedi: Fallen Order
+
+Sun, 11 Oct 2026 22:00:16 GMT
+
+https://screenrant.com/star-wars-jedi-3-release-window-leaks-2027/
+
+The two Star Wars Jedi games we have seen so far have been some of the better adaptations in recent memory, and a third is on the way soon.
+---------
+
+# Forget Frisco King, Michael Mann’s ‘Crime Story’ Beat Taylor Sheridan To It By 40 Years
+
+Classic TV, Crime Story, Frisco King, Tulsa King
+
+Sun, 11 Oct 2026 22:00:16 GMT
+
+https://screenrant.com/crime-story-michael-mann-did-gangster-moving-west-before-frisco-king-taylor-sheridan/
+
+Michael Mann's forgotten gangster series Crime Story laid the groundwork for Taylor Sheridan's Tulsa King and Frisco King, and it's still watchable.
+---------
+
+# First Batman Details In James Gunn's DC Universe Confirmed
+
+Movies, Clayface, Batman, DC Universe
+
+Sun, 11 Oct 2026 21:53:20 GMT
+
+https://screenrant.com/clayface-batman-gotham-details-dcu-james-watkins/
+
+New details on Batman in James Gunn's DC Universe franchise have finally been confirmed, as DC Studios' main superhero continuity expands this fall.
+---------
+
+# Sam Hanna's Cameos On Other NCIS Series After New York Spinoff Addressed By LL Cool J
+
+TV, NCIS: New York
+
+Sun, 11 Oct 2026 21:46:34 GMT
+
+https://screenrant.com/ncis-new-york-sam-hanna-franchise-cameos-ll-cool-j-response/
+
+LL Cool J discusses Sam Hanna's presence across the entire NCIS franchise after the premiere of his new spinoff series, NCIS: New York.
+---------
+
+# Marvel's Best Captain America Sequel Is Its 136-Episode Series With A Near-Perfect RT Score
+
+Classic TV, Masked Recs, Marvel Cinematic Universe
+
+Sun, 11 Oct 2026 21:45:16 GMT
+
+https://screenrant.com/agents-of-shield-best-captain-america-sequel-mcu-marvel/
+
+The Marvel Cinematic Universe's most intriguing Captain America sequel isn't a movie. It's Marvel's longest-running, most underappreciated show.
+---------
+
+# Michael Connelly's 6 Best Harry Bosch Quotes
+
+Books, Harry Bosch
+
+Sun, 11 Oct 2026 21:30:16 GMT
+
+https://screenrant.com/michael-connelly-best-harry-bosch-quotes/
+
+Michael Connelly's best Harry Bosch quotes from the long-running novel series reveal more about his complex character and intense moral code.
+---------
+
+# Tomb Raider Is Officially Getting A Massive Anniversary Collection
+
+Gaming, Tomb Raider
+
+Sun, 11 Oct 2026 21:17:50 GMT
+
+https://screenrant.com/tomb-raider-20-anniversary-switch-2-physical/
+
+Tomb Raider's latest definitive era is being celebrated once more, this time with a special edition release that fans won't want to miss out on.
+---------
+
+# All 7 Upcoming Matt Damon Movies
+
+New Movies, Matt Damon
+
+Sun, 11 Oct 2026 21:15:16 GMT
+
+https://screenrant.com/upcoming-matt-damon-movies/
+
+Matt Damon is set to star in and produce multiple upcoming movies, ranging from major new sci-fi films to iconic franchise returns in 2027 and beyond.
+---------
+
+# In 1 Month, Stephen King’s Hit Sci-Fi Thriller Officially Enters Uncharted Territory
+
+Streaming TV, Stephen King
+
+Sun, 11 Oct 2026 21:15:16 GMT
+
+https://screenrant.com/stephen-king-the-institute-season-2-uncharted-territory/
+
+Stephen King’s hit sci-fi thriller series is all set to return in just one month, and, as its story details reveal, it will enter uncharted territory.
+---------
+
+# Robin Williams' Controversial 1-Season CBS Sitcom Returns as a PVOD Hit
+
+TV, The Crazy Ones, Robin Williams, CBS, Apple TV
+
+Sun, 11 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/robin-williams-the-crazy-ones-pvod-success-october-2026/
+
+12 years after its cancellation, Robin Williams' controversial one-season CBS sitcom The Crazy Ones is rising up the PVOD charts.
+---------
+
+# The 8-Part Netflix Sci-Fi Horror Series Stephen King Called a 10/10 Masterpiece
+
+TV, The Boroughs, Stephen King, Netflix, Innovation
+
+Sun, 11 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/netflix-the-boroughs-sci-fi-horror-stephen-king-masterpiece/
+
+Stephen King has never been shy about expressing which movies and TV show he loves, even when they're not based on his work. And this one was a gem.
+---------
+
+# Hello Kitty, Sonic, and More Officially Confirm Darkest Eras Yet
+
+Comics, Hello Kitty, idw publishing, Sonic the Hedgehog
+
+Sun, 11 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/idw-goes-dark-2027-announced/
+
+Hello Kitty, Sonic the Hedgehog, and some of the biggest names in indie comics are all heading for a dark new era just in time for Halloween.
+---------
+
+# Dragon Ball Super: Beerus Episode 1 Review
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball
+
+Sun, 11 Oct 2026 21:45:11 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-episode-1-review/
+
+After just 1 episode, Dragon Ball Super: Beerus is already proving itself the definitive version of the DBZ sequel anime.
+---------
+
+# Prime Video's New No. 1 Hit Based on Bestselling Classic Has Critics & Audiences in Agreement
+
+TV, Carrie, Rotten Tomatoes
+
+Sun, 11 Oct 2026 21:22:21 GMT
+
+https://www.cbr.com/prime-video-carrie-critics-audiences-rotten-tomatoes/
+
+Prime Video has a brand-new hit, continuing a trend of successful adaptations.
+---------
+
+# The Walking Dead Confirms the End of an Era After 17 Years
+
+TV, The Walking Dead: Daryl Dixon, NYCC2026
+
+Sun, 11 Oct 2026 21:17:22 GMT
+
+https://www.cbr.com/the-walking-dead-daryl-dixon-season-4-release-february-2027/
+
+The Walking Dead Universe reaches the end of a major era.
+---------
+
+# 3 Greatest Pain Battles in Naruto, Ranked
+
+Anime, Naruto, Naruto: Shippuden
+
+Sun, 11 Oct 2026 21:15:11 GMT
+
+https://www.cbr.com/naruto-greatest-pain-battles-ranked/
+
+Pain's backstory isn't the only reason he became one of the greatest Naruto villains. Each battle served a purpose.
+---------
+
+# Ben Affleck's New Netflix Thriller Is Officially the Most-Watched Movie on Streaming
+
+Movies, Animals, Ben Affleck
+
+Sun, 11 Oct 2026 21:00:11 GMT
+
+https://www.cbr.com/ben-affleck-animals-thriller-netflix-success-october-2026/
+
+Ben Affleck's new directorial effort is a complete departure from the success of his 2023 biopic Air.
+---------
+
+# Skybound Unveils New Visions of the Future at New York Comic Con
+
+Comics, skybound, NYCC2026, turok, Transformers, GI Joe
+
+Sun, 11 Oct 2026 21:00:11 GMT
+
+https://www.cbr.com/skybound-visions-release-dates-confirmed/
+
+Skybound and Image Comics just gave attendees at New York Comic Con a glimpse at what the Visions of the Future hold for their favorite heroes.
+---------
+
+# Studio Ghibli's Sold-Out Princess Mononoke Military-Style Jacket Returns After 2 Years
+
+Anime, Studio Ghibli, Princess Mononoke, Clothing, merchandise
+
+Sun, 11 Oct 2026 21:00:11 GMT
+
+https://www.cbr.com/princess-mononoke-studio-ghibli-jacket-restock-2026/
+
+Studio Ghibli revives one of its most popular bomb jacket releases, which pays tribute to San and Moro from the iconic film, Princess Mononoke.
+---------
+
+# 10 Near-Perfect Horror Movies That Hooked Us in the First 5 Minutes
+
+Movie, Horror, Jaws, Halloween, Scream
+
+Sun, 11 Oct 2026 22:03:11 GMT
+
+https://collider.com/near-perfect-horror-movies-instantly-hooked/
+
+Midsommar, Black Christmas, It Follows, Halloween, Jaws, Scream, and more make up our list of horror movies that hooked us in the first five minutes.
+---------
+
+# Guy Ritchie’s ‘Peaky Blinders’ Rival Officially Remains a Streaming Smash After 100 Days
+
+TV News, Guy Ritchie, MobLand, Peaky Blinders, Paramount Plus
+
+Sun, 11 Oct 2026 22:00:11 GMT
+
+https://collider.com/guy-ritchie-mobland-streaming-hit-paramount-plus-october-2026/
+
+Guy Ritchie's MobLand, starring Tom Hardy and Pierce Brosnan, is still dominating Paramount+ after 100 days, proving its staying power.
+---------
+
+# The 10 Scariest Eldritch Horror Books, Ranked
+
+Movie, Books, At the Mountains of Madness, Horror, The Call of Cthulhu
+
+Sun, 11 Oct 2026 21:55:12 GMT
+
+https://collider.com/scariest-eldritch-horror-books-ranked/
+
+From the seminal The Call of Cthulhu to the equally foundational At the Mountains of Madness, these are the best and scariest eldritch horror books.
+---------
+
+# ‘The Rookie’ Season 9 Officially Sets Release Date Alongside New Spin-Off
+
+TV News, The Rookie, Nathan Fillion, ABC Studios, Hulu
+
+Sun, 11 Oct 2026 21:52:24 GMT
+
+https://collider.com/the-rookie-season-9-release-date-january-2027/
+
+Nathan Fillion's The Rookie Season 9 officially sets its January 2027 premiere date on ABC alongside new spin-off The Rookie: North.
+---------
+
+# Zack Snyder’s Bonkers 110-Minute Fantasy Epic Officially Enters Its Final Days on HBO Max
+
+Movie News, Sucker Punch, Zack Snyder, HBO Max, Fantasy
+
+Sun, 11 Oct 2026 21:30:11 GMT
+
+https://collider.com/zack-snyder-fantasy-flop-sucker-punch-leaving-hbo-max-november-2026/
+
+Sucker Punch, the only Zack Snyder movie that lost money for Warner Bros. is about to be removed from HBO Max. Find out more.
+---------
+
+# The 6 Best Sci-Fi Books Released Since 1990, Ranked
+
+Books and Comics, Sci-Fi, Books, 1990s, Andy Weir
+
+Sun, 11 Oct 2026 21:23:11 GMT
+
+https://collider.com/best-sci-fi-books-since-1990-ranked/
+
+From Project Hail Mary to Children of Time, these sci-fi masterpieces blend big ideas, unforgettable worlds, and emotion.
+---------
+
+# James Gunn’s Twisted 89-Minute Horror Experiment Is Officially Streaming Free
+
+Movie News, James Gunn, The Belko Experiment, Pluto TV, Superman
+
+Sun, 11 Oct 2026 21:15:11 GMT
+
+https://collider.com/james-gunn-horror-the-belko-experiment-streaming-free-pluto-tv-october-2026/
+
+James Gunn's thrilling workplace horror, The Belko Experiment, is now streaming for free on Pluto TV almost a decade after landing in theaters.
+---------
+
+# ‘Law & Order: SVU’s Greatest Episode Is Still Shocking 22 Years Later
+
+TV Features, Law & Order: Special Victims Unit, Law & Order, Procedural, NBC
+
+Sun, 11 Oct 2026 21:14:11 GMT
+
+https://collider.com/law-and-order-svu-season-6-kyle-maclachlan-conscience/
+
+Season 6, Episode 6 of Law and Order: SVU, which guest stars Kyle MacLachlan, delivers a shocking twist as it questions what is justifiable.
+---------
+
+# 10 Best American Rock Songs of All Time, Ranked
+
+Music Features, Music, Rock, Nirvana, Aerosmith, Jimi Hendrix
+
+Sun, 11 Oct 2026 21:10:11 GMT
+
+https://collider.com/best-american-rock-songs-all-time-ranked/
+
+"Hotel California" by The Eagles, "Johnny Be Goode" by Chuck Berry, and "Good Vibrations" by The Beach Boys are among the best American rock songs.
+---------
+
+# Guy Ritchie's Indiana Jones Replacement Is Officially One of Apple TV's Biggest Hits Ever
+
+Movie News, Fountain of Youth, Guy Ritchie, Apple TV, John Krasinski
+
+Sun, 11 Oct 2026 21:00:11 GMT
+
+https://collider.com/guy-ritchie-fountain-of-youth-streaming-success-apple-tv-275-days-october-2026/
+
+Guy Ritchie's $200 million straight-to-streaming misfire has officially been in the streaming top 10 for over 275 days now.
+---------
+
+# Leonardo DiCaprio & Tobey Maguire's 142-Minute Classic Is Taking Over Streaming 13 Years Later
+
+Movie News, The Great Gatsby, Leonardo DiCaprio, Tobey Maguire, Romance, Drama, HBO Max, Hot on Streaming
+
+Sun, 11 Oct 2026 22:00:14 GMT
+
+https://movieweb.com/the-great-gatsby-hbo-max-global-hit-october-2026/
+
+Baz Luhrmann’s The Great Gatsby has climbed into HBO Max’s global top 10 more than a decade after its divisive theatrical release.
+---------
+
+# 25 Years Later, Aragorn’s Bravest ‘Lord of the Rings’ Quote Is Still the Most Inspiring in Fantasy History
+
+Features, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, Fantasy
+
+Sun, 11 Oct 2026 22:00:14 GMT
+
+https://movieweb.com/lord-of-the-rings-aragorn-bravest-quote/
+
+Aragorn's bravest 'Lord of the Rings' quote is one of the most inspiring in fantasy history, defining his character and setting a blueprint.
+---------
+
+# 8 HBO Psychological Thrillers With No Bad Episodes
+
+TV Lists, Thriller, HBO Max
+
+Sun, 11 Oct 2026 21:30:14 GMT
+
+https://movieweb.com/hbo-psychological-thrillers-perfect/
+
+These psychological thrillers from HBO will give you plenty of trust issues, but there's not a bad episode throughout their entire runs.
+---------
+
+# Goodbye 'Yellowstone,' New 21-Part Neo-Western Thriller Is One of the Biggest Series on Streaming
+
+TV News, Sheriff Country, Paramount Plus, Hot on Streaming, Yellowstone
+
+Sun, 11 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/sheriff-country-stream-paramount-october-2026/
+
+Paramount+ just found its Taylor Sheridan replacement.
+---------
+
+# 94-Minute Action Thriller Reboot Continues to Break Box Office Records
+
+Movie News, Resident Evil, Horror, Box Office
+
+Sun, 11 Oct 2026 20:48:49 GMT
+
+https://movieweb.com/resident-evil-box-office-record/
+
+This is now the highest-grossing film in the 24-year-history of the franchise.
+---------
+
+# 8 Netflix Sci-Fi Thriller Masterpieces You Can Watch In One Weekend
+
+TV Lists, Sci-Fi, Netflix, Thriller
+
+Sun, 11 Oct 2026 20:45:15 GMT
+
+https://movieweb.com/netflix-sci-fi-thriller-shows-binge/
+
+Sometimes, a short, easy-to-binge sci-fi thriller is just the ticket, offering nail-biting entertainment without investing weeks into a lengthy series
+---------
+
+# Henry Cavill's 'Saving Private Ryan' Meets 'Mission: Impossible' WWII Action Thriller Can Finally Beat His Best Movie
+
+Features, Henry Cavill, Action, Thriller, Saving Private Ryan, Mission: Impossible
+
+Sun, 11 Oct 2026 20:30:15 GMT
+
+https://movieweb.com/henry-cavill-broadsword-movie/
+
+Henry Cavill is poised to reunite with Tom Cruise for a WWII action epic, and it could become the actor's most impressive project to date.
+---------
+
+# Essential 156-Episode Sci-Fi Classic Thriller Series Resurfaces on Streaming 62 Years Later
+
+TV News, The Twilight Zone, Sci-Fi, Thriller, Hot on Streaming
+
+Sun, 11 Oct 2026 20:00:14 GMT
+
+https://movieweb.com/the-twilight-zone-sci-fi-stream-apple-tv-vod-october-2026/
+
+Sci-fi TV would not be the same today if it weren't for this classic, industry-defining series.
+---------
+
+# 10 Near-Perfect Netflix Thriller Series That Hook You In the First Scene
+
+TV Lists, Netflix, Thriller
+
+Sun, 11 Oct 2026 20:00:14 GMT
+
+https://movieweb.com/netflix-thriller-series-hook-first-scene/
+
+Netflix has many exciting thriller shows, but some get things going a lot quicker than others, giving viewers reasons to invest immediately.
+---------
+
+# Robert Pattinson's New 109-Minute Thriller Is Already Heading to Digital Just Over a Month After Theaters
+
+Movie News, Primetime, Robert Pattinson, Thriller
+
+Sun, 11 Oct 2026 19:51:30 GMT
+
+https://movieweb.com/primetime-robert-pattinsons-digital-release-date/
+
+Everyone at home will soon be able to see how this looks.
+---------
+
 # Godzilla Minus Zero's IMAX Runtime Officially Confirms Nearly 55% Of Immersive Spectacle
 
 Movies, Godzilla Minus Zero, Godzilla Minus One, Godzilla
