@@ -1,3 +1,421 @@
+# Every Fallout 4 DLC, Ranked (& Which Ones Are Worth Buying)
+
+Gaming, Fallout 4, Fallout
+
+Sun, 11 Oct 2026 00:03:10 GMT
+
+https://screenrant.com/fallout-4-dlc-ranked-worth-buying/
+
+Fallout 4 has some great DLCs available offering a mixture of settlement building and questlines. But which ones are best and worth getting?
+---------
+
+# The World's Best-Selling Comic Series Isn't Just Popular, It's A Masterpiece
+
+Anime, One Piece
+
+Sun, 11 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/best-selling-comic-ever-manga-one-piece/
+
+The most successful comic franchise in the world has earned its place as a global phenomenon larger than Marvel and DC's most famous comics.
+---------
+
+# What Your Favorite Shonen Anime Should Be Based On Your Zodiac Sign
+
+Anime
+
+Sun, 11 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/which-anime-favorite-zodiac-sign/
+
+For viewers looking for a shonen series, their zodiac sign is the ideal tool for discovering an anime tailored specifically to them.
+---------
+
+# 10 Best Halloween Party Games To Play With Friends
+
+Gaming, Halloween 2026
+
+Sun, 11 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/best-halloween-party-games/
+
+This Halloween, gather the friends (online or in person) and play some of these spooky, horror-themed party games that are more fun in a group.
+---------
+
+# Prime Video’s Blade Runner 2099 Is Officially Seeking The “Cure For All Replicants”
+
+TV, Blade Runner 2099, Blade Runner, New York Comic Con
+
+Sat, 10 Oct 2026 23:45:16 GMT
+
+https://screenrant.com/blade-runner-2099-prime-video-trailer/
+
+A first look at the upcoming live-action series Blade Runner 2099 offers insight into the project, which stars Michelle Yeoh and Hunter Schafer.
+---------
+
+# What Happened To The Real Dusty Pace After Under The Bridge
+
+Classic TV, Under the Bridge
+
+Sat, 10 Oct 2026 23:30:17 GMT
+
+https://screenrant.com/what-happened-dusty-pace-after-under-the-bridge/
+
+Dusty Is one of the most sympathetic teens in Hulu's Under the Bride, leading to questions about what happened to her after the miniseries.
+---------
+
+# Hulu's Best Fall 2026 Release Announces New Series Coming In 2027
+
+Anime, Hulu, Masked Recs
+
+Sat, 10 Oct 2026 23:30:16 GMT
+
+https://screenrant.com/remarried-empress-anime-adaptation-hulu/
+
+One of Hulu's most anticipated Fall 2026 releases already has a new series coming in 2027, even before its release.
+---------
+
+# Pokémon Officially Unveils Incredible Gyarados Redesign
+
+Gaming, Pokemon, Triple-A Games
+
+Sat, 10 Oct 2026 23:30:16 GMT
+
+https://screenrant.com/pokemon-shiny-gyarados-design-bear-walker-skateboard/
+
+Gyarados is one of the most iconic Pokémon in the history of the series, and this new design is something special that fans will love.
+---------
+
+# Street Fighter's 2026 Movie Must Fix The Original's Ryu & Ken Mistake
+
+Movies, Street Fighter
+
+Sat, 10 Oct 2026 23:15:17 GMT
+
+https://screenrant.com/street-fighter-2026-movie-1994-ryu-ken-guile-mistake/
+
+Street Fighter 1994 is arguably worth watching as a 90s curiosity, but the upcoming 2026 movie may just correct its greatest fault.
+---------
+
+# Turok Is Back With The Epic New Series Fans Have Waited 29 Years For
+
+Comics, Turok: Dinosaur Hunter
+
+Sat, 10 Oct 2026 23:00:17 GMT
+
+https://screenrant.com/turok-returns-new-series-skybound/
+
+Turok's back!
+---------
+
+# Avatar Officially Changes the Franchise’s Rules With Korra’s Successor
+
+TV, Avatar: Seven Havens, Avatar: The Last Airbender, Paramount Plus
+
+Sun, 11 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/avatar-seven-havens-reveals-twin-avatars/
+
+The new Avatar changes the game in a world full of instability, but it could be for a dark reason.
+---------
+
+# The Greatest Cyberpunk Franchise of All Time Returns With First Sequel Trailer in 9 Years
+
+TV, Blade Runner 2099, Sci-Fi, Prime Video, NYCC2026, New York Comic Con
+
+Sat, 10 Oct 2026 23:46:44 GMT
+
+https://www.cbr.com/blade-runnner-2099-trailer/
+
+Blade Runner 2099 sends the cyberpunk series forward half a century.
+---------
+
+# Crystal Lake Creator Defends Friday the 13th Canon-Breaking Changes
+
+TV, Crystal Lake, NYCC2026
+
+Sat, 10 Oct 2026 23:45:26 GMT
+
+https://www.cbr.com/crystal-lake-friday-the-13th-changes-defended/
+
+Some creative liberties are taken with Crystal Lake, but creator Brad Caleb Kane says that's not unusual for the franchise.
+---------
+
+# Attack on Titan's Stole Its Hero From This Classic 2000s Manga
+
+Anime, Attack on Titan, Elfen Lied
+
+Sat, 10 Oct 2026 23:45:11 GMT
+
+https://www.cbr.com/attack-on-titan-eren-jaeger-classic-2000s-manga/
+
+A dark echo from 2000s Elfen Lied resurfaces in Attack on Titan, sharing persecution, lethal gifts, and final acts that define both legacies.
+---------
+
+# Black Clover Season, 2 Episode 2 Review
+
+Anime, Black Clover
+
+Sat, 10 Oct 2026 23:15:11 GMT
+
+https://www.cbr.com/black-clover-season-2-episode-2-review/
+
+The new season is beginning to take shape, and Black Clover Season 2, Episode 2 offers fresh reasons to keep watching.
+---------
+
+# Disney Is Changing Its Percy Jackson Episode Format in Season 3
+
+TV, NYCC2026, Percy Jackson & the Olympians
+
+Sat, 10 Oct 2026 23:14:57 GMT
+
+https://www.cbr.com/percy-jackson-and-the-olympians-season-3-episode-format/
+
+Disney+ makes a big change for Percy Jackson and the Olympians starting with Season 3.
+---------
+
+# Final Fantasy 7 Officially Returns in New Crossover Coming in 2027
+
+Games, Final Fantasy 7 Remake, Sonic the Hedgehog, sega
+
+Sat, 10 Oct 2026 23:05:11 GMT
+
+https://www.cbr.com/final-fantasy-7-officially-returns-new-crossover-coming-2027/
+
+Cloud and Sonic the Hedgehog are crossing over once more, as Sega has announced a Final Fantasy 7 Remake collaboration with Sonic Racing: CrossWorlds.
+---------
+
+# Netflix's Divisive True Crime Series Soars as the Most-Watch Show on Streaming
+
+TV, Monster: The Lizzie Borden Story
+
+Sat, 10 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/monster-the-lizzie-borden-story-nielsen-charts-september-2026/
+
+The latest season of Netflix's incredibly divisive true crime series is absolutely dominating the streaming competition by an incredibly wide margin.
+---------
+
+# Enemy Mine is Star Trek Meets Project Hail Mary
+
+Movies, Enemy Mine, Star Trek, Project Hail Mary
+
+Sat, 10 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/enemy-mine-combines-star-trek-project-hail-mary/
+
+This forgotten sci-fi cult classic from the 1980s deserves way more recognition now that a modern remake is on the horizon.
+---------
+
+# Naruto Officially Returns With Brand-New Story by Masashi Kishimoto
+
+Anime, Naruto, Naruto: Shippuden, NYCC2026
+
+Sat, 10 Oct 2026 22:35:39 GMT
+
+https://www.cbr.com/naruto-masashi-kishimoto-new-manga/
+
+A brand-new Naruto manga by creator Masashi Kishimoto leads a three-year roadmap of major announcements celebrating the franchise's 25th anniversary.
+---------
+
+# ‘Silo’s Author Officially Calls This 2-Part Apple TV Sci-Fi “The Best Show Airing Right Now”
+
+TV Features, Dark Matter, Apple TV, Sci-Fi, Thriller
+
+Sat, 10 Oct 2026 23:52:12 GMT
+
+https://collider.com/dark-matter-apple-tv-sci-fi-best-show-airing-silo-author-praise/
+
+Silo author Hugh Howey has officially lauded Apple TV's Dark Matter as the best sci-fi series "airing right now."
+---------
+
+# Guy Ritchie's 83% Rotten Tomatoes War Thriller Officially Finds a New Streaming Home
+
+Movie News, Guy Ritchie's The Covenant, Guy Ritchie, Jake Gyllenhaal, Prime Video
+
+Sat, 10 Oct 2026 23:45:11 GMT
+
+https://collider.com/guy-ritchie-the-covenant-prime-video-streaming-october-2026/
+
+Guy Ritchie's 83% Rotten Tomatoes war thriller The Covenant has officially found a new streaming home on Prime Video.
+---------
+
+# Sorry, but the Time for 'The West Wing' Reboot Has Officially Passed
+
+TV Features, The West Wing, Aaron Sorkin, Bradley Whitford, NBC
+
+Sat, 10 Oct 2026 23:36:11 GMT
+
+https://collider.com/west-wing-bradley-whitford-reboot-2026-timing-passed/
+
+Although Bradley Whitford has talked about a West Wing reboot, the show wouldn't resonate in today's political climate.
+---------
+
+# Shudder's Bloodiest Slasher Officially Comes Back for Seconds in 4 Months
+
+Movie News, In a Violent Nature, Shudder, New York Comic Con, Slasher
+
+Sat, 10 Oct 2026 23:30:11 GMT
+
+https://collider.com/in-a-violent-nature-part-2-release-date-february-2027/
+
+In a Violent Nature: Part 2 made a surprise appearance at Shudder's NYCC panel to reveal the slasher's official release date. Here's what we know.
+---------
+
+# '9-1-1’ Officially Returns This Week With Its Most Ambitious Season Yet
+
+TV News, 9-1-1, ABC, Procedural, Drama
+
+Sat, 10 Oct 2026 23:30:11 GMT
+
+https://collider.com/9-1-1-abc-season-10-october-premiere-date/
+
+As ABC's premiere week concludes, the network's beloved procedural is taking big swings this season. Get all the details here.
+---------
+
+# Quentin Tarantino Has “Little Respect” for the Director of This Noir Classic Officially Leaving HBO Max
+
+Movie News, The Maltese Falcon, Humphrey Bogart, Film Noir, HBO Max
+
+Sat, 10 Oct 2026 23:15:11 GMT
+
+https://collider.com/humphrey-bogart-noir-classic-maltese-falcon-leaving-hbo-max-november-2026/
+
+Quentin Tarantino isn't a fan of John Huston, whose masterpiece film noir is about to be removed from HBO Max. Find out when.
+---------
+
+# The 6 Most Suspenseful Thrillers Released Since 2020, Ranked
+
+Movie, Thriller, The Invisible Man, Fall, Missing
+
+Sat, 10 Oct 2026 22:51:11 GMT
+
+https://collider.com/most-suspenseful-thrillers-since-2020-ranked/
+
+From The Guilty to Fall, these grueling thrillers deliver relentless suspense and quietly turn ordinary things into pure obsession.
+---------
+
+# Tom Hanks' 169-Minute War Epic Officially Confirms New Streaming Departure Date
+
+Movie News, Saving Private Ryan, Steven Spielberg, Tom Hanks, Peacock
+
+Sat, 10 Oct 2026 22:46:11 GMT
+
+https://collider.com/steven-spielberg-ww2-movie-saving-private-ryan-leaving-peacock-november-2026/
+
+Steven Spielberg's Oscar-winning World War II classic, Saving Private Ryan, is about to be removed from Peacock. Find out more.
+---------
+
+# Jason Statham Goes Full James Bond in Guy Ritchie’s $48M Spy Caper Officially Taking Over Streaming
+
+Movie News, Operation Fortune: Ruse de Guerre, Jason Statham, Guy Ritchie, Quentin Tarantino
+
+Sat, 10 Oct 2026 22:15:12 GMT
+
+https://collider.com/jason-statham-operation-fortune-ruse-de-guerre-streaming-success-october-2026/
+
+Jason Statham's action thriller with shades of James Bond and Quentin Tarantino is taking over streaming charts in 2026.
+---------
+
+# 10 Years Later, Anya Taylor-Joy's 117-Minute Thriller Still Beats Any Movie She Ever Made
+
+Movie Features, Anya Taylor-Joy, M. Night Shyamalan, James McAvoy, Split
+
+Sat, 10 Oct 2026 22:05:13 GMT
+
+https://collider.com/anya-taylor-joy-split-best-horror-thriller/
+
+M. Night Shyamalan's surprising movie Split was a return to form as well as one of Anya Taylor-Joy's best movies.
+---------
+
+# Apple TV's New 126-Minute Action-Adventure Movie Is Officially One of the Biggest in the World
+
+Movie News, Apple TV, Matchbox, Action, John Cena
+
+Sat, 10 Oct 2026 23:52:35 GMT
+
+https://movieweb.com/matchbox-apple-tv-hit-october-2026/
+
+Apple TV’s latest global movie hit is Matchbox, with the John Cena-led toy adaptation now sitting at No. 1 worldwide on the service.
+---------
+
+# Josh Hartnett’s New 6-Part Netflix Mystery Thriller Is a Perfect Weekend Binge
+
+Features, Netflix, Thriller, Below, Josh Hartnett
+
+Sat, 10 Oct 2026 23:00:15 GMT
+
+https://movieweb.com/below-streaming-recommendation/
+
+Josh Hartnett, who has starred in TV shows such as 'Penny Dreadful' and movies such as 'Verity,' is back in a six-episode Netflix mystery thriller.
+---------
+
+# Goodbye Taylor Sheridan, Paramount+'s New Action Fantasy Is a Global Hit That's Taking Over Streaming
+
+TV News, Paramount Plus, Fantasy, Action, Avatar: Seven Havens, Streamer Comparisons
+
+Sat, 10 Oct 2026 22:43:04 GMT
+
+https://movieweb.com/avatar-seven-havens-paramount-plus-october-2026/
+
+Paramount+ may already have an answer to its post-Taylor Sheridan future, with Avatar: Seven Havens.
+---------
+
+# 'Marshals' Season 2's Plot Twist Confirms the Yellowstone Franchise's Biggest Problem
+
+Features, Marshals, Yellowstone, Western
+
+Sat, 10 Oct 2026 22:01:15 GMT
+
+https://movieweb.com/marshals-ruins-crossover-chance/
+
+Marshals' Season 2 premiere, "All Hat No Cattle," features a key plot twist that deepens a major problem in the Yellowstone franchise.
+---------
+
+# Nicolas Cage Announces Plan to Join HBO's Best Detective Thriller for Season 5
+
+TV News, Nicolas Cage, True Detective, Thriller, Drama
+
+Sat, 10 Oct 2026 21:21:26 GMT
+
+https://movieweb.com/true-detective-nicolas-cage-season-5/
+
+Nicolas Cage has publicly signaled that True Detective season 5 could become his next major television role.
+---------
+
+# Netflix's New 6-Part Sci-Fi Thriller Just Dethroned the Biggest Western on Streaming
+
+TV News, Below, Netflix, Streamer Comparisons, Sci-Fi
+
+Sat, 10 Oct 2026 21:01:15 GMT
+
+https://movieweb.com/below-scifi-stream-netflix-october-2026/
+
+There's a new killer mystery taking over on streaming.
+---------
+
+# Apple TV's Sci-Fi Thriller Based on a Book Harlan Coben Called "Masterful" Is Better Than Ever
+
+Features, Dark Matter, Harlan Coben, Sci-Fi, Thriller
+
+Sat, 10 Oct 2026 21:01:15 GMT
+
+https://movieweb.com/dark-matter-harlan-coben-endorsement/
+
+Great authors recognize great writing, and Harlan Coben was right on the money with this 2016 modern classic. Read on for more.
+---------
+
+# Mike Flanagan's 'Carrie' Tops the Best Twist He Ever Did at Netflix
+
+Features, Carrie, Prime Video, Netflix, Mike Flanagan, Stephen King
+
+Sat, 10 Oct 2026 21:01:15 GMT
+
+https://movieweb.com/carrie-mike-flanagan-best-twist/
+
+Mike Flanagan's Netflix thriller series have great twists, but his Prime Video adaptation of Stephen King's 'Carrie' has an even better reveal.
+---------
+
 # Scarlett Johansson's First Horror Performance In 13 Years Gets Glowing Early Review From Mike Flanagan
 
 Movies, The Exorcist: Martyrs, The Exorcist, Scarlett Johansson, Mike Flanagan, Horror, New York Comic Con
