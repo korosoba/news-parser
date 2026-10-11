@@ -1,3 +1,333 @@
+# Zelda: Ocarina Of Time Remake Officially Unveils Major Character Redesign
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Sun, 11 Oct 2026 06:00:16 GMT
+
+https://screenrant.com/zelda-ocarina-remake-character-design-changes/
+
+The Legend of Zelda: Ocarina of Time remake is making some changes, and one of those involves redesigning one of the game's major characters.
+---------
+
+# Battlestar Galactica Officially Switches Genres In Shattered Armistice
+
+Gaming, Battlestar Galactica
+
+Sun, 11 Oct 2026 05:30:16 GMT
+
+https://screenrant.com/battlestar-galactica-shattered-armistice-fan-project/
+
+Explore the fan-made Battlestar Galactica mod, Diaspora: Shattered Armistice, and download it for free now!
+---------
+
+# 6 X-Men Heroes Marvel Wants Fans To Forget
+
+Comics
+
+Sun, 11 Oct 2026 05:04:23 GMT
+
+https://screenrant.com/x-men-heroes-marvel-wants-fans-forget/
+
+While the X-Men are pop-culture royalty, Marvel’s expansive mutant lore features certain heroes the publisher would rather sweep under the rug.
+---------
+
+# Stephen King Meets Severance In Prime Video’s Hidden 8-Part Horror Gem
+
+Classic TV, Masked Recs
+
+Sun, 11 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/prime-video-the-consultant-stephen-king-meets-severance-hidden-horror/
+
+Prime Video is the streaming home of a hidden 8-episode horror gem that combines Stephen King’s terrors with Severance’s thrilling corporate satire.
+---------
+
+# Red Dead Redemption 2 Free Download Officially Available Until October 12
+
+Gaming, Red Dead Redemption 2
+
+Sun, 11 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/red-dead-redemption-2-free-download-october-2026/
+
+Join Halloween festivities in Red Dead Online with 4X rewards and special rewards. Discover spooky events and freebies!
+---------
+
+# Hollow Knight Meets Zelda In This Near-Perfect Free Steam Game
+
+Gaming, Hollow Knight, The Legend of Zelda
+
+Sun, 11 Oct 2026 04:30:17 GMT
+
+https://screenrant.com/hollow-knight-meets-zelda-deepest-sword-free-steam-game/
+
+Hollow Knight is one of the best games in the platforming genre full stop, but one release has a very similar overall approach.
+---------
+
+# Wheel Of Time: The Last Battle Officially Releases 2027
+
+Gaming, The Wheel of Time
+
+Sun, 11 Oct 2026 04:01:17 GMT
+
+https://screenrant.com/wheel-of-time-last-battle-2027-war-of-dragon/
+
+Discover the upcoming board game adaptation of The Wheel of Time set to release in 2027.
+---------
+
+# Dragon Ball’s Most Important Super Saiyan Has Never Been Goku
+
+Anime, Dragon Ball
+
+Sun, 11 Oct 2026 03:57:01 GMT
+
+https://screenrant.com/dragon-ball-most-important-super-saiyan-gohan-not-goku/
+
+Explore Gohan's impactful Super Saiyan 2 transformation in Dragon Ball, highlighting its significance beyond Goku's legacy.
+---------
+
+# Alexander Skarsgård's New Fantasy Movie Is Officially Getting A Rare Special Release For One Night Only
+
+Movies, Wicker
+
+Sun, 11 Oct 2026 03:49:55 GMT
+
+https://screenrant.com/alexander-skarsgard-wicker-movie-special-4dx-screening-release-date/
+
+Alexander Skarsgård's new fantasy movie has gone viral in recent months, and the studio is now fulfilling audience demand for one night only.
+---------
+
+# Why All Of Us Are Dead Season 2 Is Taking So Long
+
+Streaming TV, All Of Us Are Dead
+
+Sun, 11 Oct 2026 03:45:17 GMT
+
+https://screenrant.com/all-of-us-are-dead-season-2-when-comes-out-release-date-prediction/
+
+More than two years after All of Us Are Dead was renewed, the Netflix K-drama still doesn’t have a release date. But why is season 2 taking so long?
+---------
+
+# Classic Anime That Shaped Naruto
+
+Anime, Naruto, Dragon Ball, Yu Yu Hakusho
+
+Sun, 11 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/classic-anime-that-shaped-naruto/
+
+Naruto did not become a global hit in a vacuum. These classic anime helped shape its characters, themes, and storytelling.
+---------
+
+# Timothy Olyphant's Easy-to-Binge Horror Show Is the Best 3 Seasons in Netflix History
+
+TV, Netflix, Santa Clarita Diet, Horror
+
+Sun, 11 Oct 2026 03:30:12 GMT
+
+https://www.cbr.com/santa-clarita-diet-netflix-best-bingeable-show/
+
+One Netflix horror-comedy show is an addictive 3-season watch, and actors Timothy Olyphant and Drew Barrymore shine.
+---------
+
+# 10 Comic Strip Tropes & Trends That Aged Poorly, Ranked
+
+Comics, comic strips
+
+Sun, 11 Oct 2026 03:30:12 GMT
+
+https://www.cbr.com/comic-strip-tropes-trends-that-aged-poorly/
+
+Classic comic strips like Peanuts, Garfield, and The Far Side are built on various trends and clichés, but many tropes haven't stood the test of time.
+---------
+
+# 10 Best JRPGs With More Than 10 Playable Characters, Ranked
+
+Games, JRPG, Role Playing Game
+
+Sun, 11 Oct 2026 03:15:12 GMT
+
+https://www.cbr.com/best-jrpgs-with-big-parties-list/
+
+JRPGs like Fire Emblem: Three Houses are better because of their large cast of characters.
+---------
+
+# Berserk Reunites Guts and Griffith in Massive New Kentaro Miura Release
+
+Anime, Berserk, collectibles, merchandise
+
+Sun, 11 Oct 2026 03:00:11 GMT
+
+https://www.cbr.com/berserk-guts-griffith-legacy-art-kentarou-miura-prime-1-studio/
+
+Griffith and Guts from Berserk are reuniting in new pieces based on Kentaro Miura's artwork, depicting the two warriors at the height of their power.
+---------
+
+# 5 Underrated Star Wars Games That Are Perfect From Start to Finish
+
+Games, Star Wars, Video Games
+
+Sun, 11 Oct 2026 02:45:11 GMT
+
+https://www.cbr.com/underrated-star-wars-games-perfect-from-start-to-finish-list/
+
+Underrated Star Wars games like Vader Immortal deserve more credit than they get.
+---------
+
+# 10 Shonen Anime Series With No Bad Seasons, Ranked
+
+Anime, shonen anime, Innovation
+
+Sun, 11 Oct 2026 02:30:11 GMT
+
+https://www.cbr.com/shonen-anime-series-no-bad-seasons-ranked-list/
+
+Flawless shonen anime series like Dandadan and Jujutsu Kaisen feature back-to-back hit seasons with no weak spots for fans to enjoy.
+---------
+
+# Prime Video's New Action Spinoff Soars to 1.2B Minutes Viewed After Speedy Renewal
+
+TV, Neagley, Prime Video, Action
+
+Sun, 11 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/neagley-action-streaming-ratings-success-prime-video-october-2026/
+
+Prime Video's new action spinoff is a streaming sensation.
+---------
+
+# 10 Most Perfect PS3 Games of All Time, Ranked
+
+Games, Lists, Video Games, PlayStation (Original), The Last of Us
+
+Sun, 11 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/most-perfect-ps3-games-of-all-time-ranked/
+
+The Last of Us and Uncharted are great examples of how perfect PS3 games could be.
+---------
+
+# Marvel Is Abandoning the MCU's Original TV Format on Disney+ for Something Better
+
+TV, NYCC2026, Marvel Zombies, MCU, Innovation
+
+Sun, 11 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/disney-abandoning-original-mcu-tv-format-marvel-zombies-specials/
+
+A recent announcement from NYCC from Marvel signals a big change in how the studio and Disney approaches television, and it is just want fans want.
+---------
+
+# The Best Thriller Book From Every Year of the 2010s
+
+Books and Comics, Books, Gone Girl, Dark Matter, Big Little Lies
+
+Sun, 11 Oct 2026 03:39:11 GMT
+
+https://collider.com/best-thriller-book-every-year-2010s/
+
+From Gone Girl to Big Little Lies, Dark Matter to The Girl on the Train, these thrillers dominated the 2010s.
+---------
+
+# 8 Action Movies That Are Even Better on Rewatch
+
+Movie, Action, Die Hard, John Wick, The Dark Knight
+
+Sun, 11 Oct 2026 01:33:11 GMT
+
+https://collider.com/action-movies-better-rewatch/
+
+Mad Max: Fury Road, Die Hard, Top Gun: Maverick, John Wick, and more make up our list of action movies that are even better on rewatch.
+---------
+
+# 6 Essential Horror Books for Beginners
+
+Books and Comics, Horror, The Shining, The Haunting of Hill House
+
+Sun, 11 Oct 2026 01:03:11 GMT
+
+https://collider.com/essential-horror-books-beginners/
+
+For readers exploring the horror genre for the first time, books like The Shining and The Haunting of Hill House are a great place to start.
+---------
+
+# ‘SNL UK’ Is Officially Breaking One of ‘Saturday Night Live’s Oldest Rules
+
+TV Features, Saturday Night Live UK, Saturday Night Live, NBC, Peacock
+
+Sun, 11 Oct 2026 01:01:11 GMT
+
+https://collider.com/snl-uk-saturday-night-live-swearing-censorship/
+
+SNL UK’s freedom to swear can make sketches feel more real, but strong writing — not profanity — makes it funnier than Saturday Night Live.
+---------
+
+# 10 Greatest HBO Pilots That Are Perfect From Start to Finish
+
+TV, HBO, The Sopranos, Game Of Thrones, Sex and the City
+
+Sun, 11 Oct 2026 00:34:12 GMT
+
+https://collider.com/hbo-pilot-episodes-perfect-start-to-finish/
+
+The first episode creates an impression, and HBO shows like Game of Thrones, The Sopranos, and Sex and the City start off with perfect pilot episodes.
+---------
+
+# Titus Welliver's 'Heat' Replacement Crime Thriller Officially Escapes Streaming Next Month
+
+Movie News, Ben Affleck, The Town, Titus Welliver, HBO Max
+
+Sun, 11 Oct 2026 00:15:11 GMT
+
+https://collider.com/ben-affleck-titus-welliver-heat-replacement-the-town-leaving-hbo-max-november-2026/
+
+The critically acclaimed heist thriller The Town, directed by and starring Ben Affleck, is about to be removed from Netflix. Find out more.
+---------
+
+# Ridley Scott's Best Sci-Fi Series Officially Returns in New Trailer
+
+TV News, Blade Runner 2099, Ridley Scott, Prime Video, Michelle Yeoh
+
+Sun, 11 Oct 2026 00:07:10 GMT
+
+https://collider.com/ridley-scott-blade-runner-2099-new-trailer/
+
+Prime Video has released a brand-new trailer for Ridley Scott's sci-fi spin-off series, Blade Runner 2099. See it here.
+---------
+
+# Every Real Life Figure in 'The Social Reckoning' & Where They Are Now
+
+Features, The Social Reckoning, Mark Zuckerberg, Drama
+
+Sun, 11 Oct 2026 01:45:14 GMT
+
+https://movieweb.com/the-social-reckoning-real-figures/
+
+'The Social Reckoning' deals with the real-world controversy surrounding Facebook's algorithm changes, focusing on several key figures.
+---------
+
+# Apple TV's Remake of Brandon Sanderson's Fantasy Masterpiece Takes a Major Step Forward
+
+Movie News, Mistborn, Fantasy, Brandon Sanderson
+
+Sun, 11 Oct 2026 01:29:19 GMT
+
+https://movieweb.com/mistborn-movie-brandon-sanderson-update/
+
+Brandon Sanderson drops a promising update on his upcoming high fantasy adaptation.
+---------
+
+# David Fincher Masterpiece's Long-Awaited Follow-Up Loses To New 95-Minute Action Thriller Reboot at The Box Office
+
+Movie News, The Social Reckoning, Box Office Milestones, Resident Evil
+
+Sun, 11 Oct 2026 00:34:05 GMT
+
+https://movieweb.com/the-social-reckoning-box-office-milestone-october-2026/
+
+The Social Reckoning was outgrossed on Friday by Resident Evil, a horror reboot already in its fourth weekend.
+---------
+
 # Every Fallout 4 DLC, Ranked (& Which Ones Are Worth Buying)
 
 Gaming, Fallout 4, Fallout
