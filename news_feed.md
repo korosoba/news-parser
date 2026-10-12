@@ -1,3 +1,300 @@
+# Blade Runner: Replicant Rebellion Is The Perfect Set-Up To 2099
+
+Gaming, Blade Runner 2099, Blade Runner
+
+Mon, 12 Oct 2026 07:00:17 GMT
+
+https://screenrant.com/blade-runner-replicant-rebellion-before-2099-show/
+
+Immerse in the Blade Runner universe with the new RPG, leading to 2026's Blade Runner 2099. Discover your character's fate!
+---------
+
+# Fallout: Royal Flush Officially Sends Players Back To New Vegas
+
+Gaming, Fallout, Fallout: New Vegas
+
+Mon, 12 Oct 2026 06:00:15 GMT
+
+https://screenrant.com/fallout-rpg-royal-flush-new-vegas/
+
+New Vegas is one of the most popular locations in the Fallout lore, so it's little wonder in keeps cropping up in adaptations.
+---------
+
+# Stargate SG-1 Officially Returns January 2027 In New Collection
+
+Gaming, Stargate SG-1
+
+Mon, 12 Oct 2026 05:00:16 GMT
+
+https://screenrant.com/stargate-sg1-jackal-guard-helmet-release-date/
+
+Pre-order the detailed Stargate SG-1 Jackal Guard Helmet for $69.99, shipping January 2027.
+---------
+
+# Battlestar Galactica: Cerberus Officially Releases October 2026
+
+Gaming, Battlestar Galactica
+
+Mon, 12 Oct 2026 04:00:21 GMT
+
+https://screenrant.com/battlestar-galactica-cerberus-statue-2026-release-date/
+
+Battlestar Galactica is one of the best franchises in the history of sci-fi television, and there are still plenty of releases attached to the IP.
+---------
+
+# 8 Cartoon Network Anime That Got Cancelled Too Soon
+
+Anime, Cartoon Network
+
+Mon, 12 Oct 2026 03:58:46 GMT
+
+https://screenrant.com/cartoon-network-anime-cancelled-too-soon/
+
+Several Cartoon Network anime never got the ending they deserved, whether due to production issues, incomplete broadcasts, or countless other reasons.
+---------
+
+# 10 Biggest Takeaways Rewatching Indiana Jones And The Dial of Destiny
+
+Movies, Indiana Jones, Indiana Jones and the Dial of Destiny
+
+Mon, 12 Oct 2026 03:50:54 GMT
+
+https://screenrant.com/biggest-takeaways-rewatching-indiana-jones-and-the-dial-of-destiny/
+
+Following a recent streaming update for the Indiana Jones franchise, it feels like a good time to give Dial of Destiny a worthwhile rewatch.
+---------
+
+# Taylor Sheridan's Most Underrated Series, Now On Netflix, Is Peaking At The Ideal Time
+
+Streaming TV, Masked Recs
+
+Mon, 12 Oct 2026 03:45:17 GMT
+
+https://screenrant.com/mayor-of-kingstown-taylor-sheridan-peaking-right-time/
+
+One of Taylor Sheridan’s most underrated crime thrillers, which is now streaming on Netflix, has seemingly hit its narrative peak at the perfect time.
+---------
+
+# Marvel Is One Step Away From Making The Funniest X-Meme Meme Official Marvel Canon
+
+Comics, Marvel, X-Men
+
+Mon, 12 Oct 2026 03:45:17 GMT
+
+https://screenrant.com/x-men-cyclops-batman-mentor-meme-canon/
+
+Whether it's intentional or not, Marvel is indulging in one of the best memes it has to offer in its new horror-themed X-Men comic series.
+---------
+
+# Marvel Announces Avengers Spin-Off Series 'Immortal Soldiers'
+
+Comics, The Avengers, Marvel, New York Comic Con
+
+Mon, 12 Oct 2026 03:30:17 GMT
+
+https://screenrant.com/marvel-immortal-soldiers-avengers-armageddon/
+
+The Avengers spin-off Immortal Soldiers launches after the Armageddon event, and it's seemingly teasing the return of a Marvel heavy hitter.
+---------
+
+# Apple TV's 6-Part Mindhunter-Like Crime Series Will Introduce A Whole New Subgenre
+
+Streaming TV, Masked Recs
+
+Mon, 12 Oct 2026 03:30:17 GMT
+
+https://screenrant.com/dustfall-apple-tv-tropic-noir-genre/
+
+Apple TV will soon serve as the streaming home of a 6-episode Mindhunter-like crime thriller series that will seemingly introduce a whole new subgenre
+---------
+
+# New Legend of Zelda Release Delayed Until March 2027
+
+Games, The Legend of Zelda, Nintendo
+
+Mon, 12 Oct 2026 03:58:11 GMT
+
+https://www.cbr.com/zelda-totk-secrets-of-the-zonai-delay/
+
+The highly anticipated new Zelda release Secrets of the Zonai has been delayed.
+---------
+
+# Netflix Adds 'Absolutely Insane' Ultra-Violent R-Rated Horror Movie Based on a True Story
+
+Movies, Cocaine Bear
+
+Mon, 12 Oct 2026 03:57:25 GMT
+
+https://www.cbr.com/cocaine-bear-streaming-netflix-october-2026/
+
+What's even more insane than the movie's concept is that it's based on true events.
+---------
+
+# 7 Underrated Toonami Anime That Are Considered Masterpieces
+
+Anime
+
+Mon, 12 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/underrated-toonami-anime-considered-masterpieces/
+
+These anime may have aired on Toonami, but they never got the same attention as Dragon Ball Z or Sailor Moon.
+---------
+
+# 10 Funniest Role Reversals in Far Side Comics, Ranked
+
+Comics, The Far Side
+
+Mon, 12 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/funniest-role-reversals-in-far-side-comics-ranked/
+
+Gary Larson's pairing of artistic and comedic devices with known situations makes the funniest role reversals in The Far Side hilarious and memorable.
+---------
+
+# 39 Years Later, Picard's Best Star Trek Line Is Still the Greatest Quote in Sci-Fi History
+
+TV, Star Trek: The Next Generation, Sci-Fi, Paramount, Innovation
+
+Mon, 12 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/star-trek-tng-justice-picard-unbeatable-quote/
+
+In Star Trek: The Next Generation Season 1, Picard takes a firm stand on justice that conflicts with the Prime Directive.
+---------
+
+# Frieren: Beyond Journey's End Creator Celebrates the Anime Sleeper Hit of Fall 2026
+
+Anime, Frieren: Beyond Journey's End, Firefly Wedding, Crunchyroll
+
+Mon, 12 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/frieren-creator-firefly-wedding-anime-fall-2026/
+
+Frieren manga artist Tsukasa Abe pays tribute to Firefly Wedding, a daring romance anime revolving around a lovely maiden and her would-be assassin.
+---------
+
+# 10 Marvel Comics That Bombed But Became Cult Classics
+
+Comics, Marvel
+
+Mon, 12 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/marvel-comics-that-bombed-but-became-cult-classics/
+
+Although some Marvel Comic series bombed when they were first released, a few managed to have the last laugh in the end.
+---------
+
+# Scott Bakula's Star Trek: Enterprise Sequel Series Has Just Became Much More Possible
+
+TV, Star Trek: Enterprise
+
+Mon, 12 Oct 2026 03:29:14 GMT
+
+https://www.cbr.com/star-trek-enterprise-united-sequel-series-update/
+
+An update is revealed on the The Star Trek: Enterprise sequel series.
+---------
+
+# 5 Open-World RPGs Where Side Quests Feel Like Main Quests
+
+Games, open world, RPG
+
+Mon, 12 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/open-world-rpgs-side-quests-feel-like-main-quests/
+
+Open world games like Kingdom Come: Deliverance 2 shine because of their deep side quests.
+---------
+
+# R-Rated 'Medieval Edward Scissorhands' Fantasy Film Gets High Praise From Critics
+
+Movies, Wicker
+
+Mon, 12 Oct 2026 03:03:21 GMT
+
+https://www.cbr.com/wicker-rotten-tomatoes-score-reviews/
+
+The film is vulgar and unusual, but much more moving than filmgoers might expect.
+---------
+
+# 'Big Little Lies' Meets 'Sharp Objects' in Apple TV's Overlooked 7-Part Psychological Thriller
+
+TV Features, Disclaimer, Apple TV, Cate Blanchett, Thriller
+
+Mon, 12 Oct 2026 03:59:11 GMT
+
+https://collider.com/disclaimer-apple-tv-psychological-thriller-big-little-lies-meets-sharp-objects/
+
+Apple TV's psychological thriller series Disclaimer combines the best aspects of dramas like Big Little Lies and Sharp Objects.
+---------
+
+# 'Tracker' Breaks From Its Trusted Formula for the First Time Since Season 1 | Review
+
+TV Reviews, Justin Hartley, Tracker, Procedural, CBS
+
+Mon, 12 Oct 2026 02:00:21 GMT
+
+https://collider.com/tracker-season-4-episode-2-recap/
+
+Colter Shaw returns in Tracker Season 4, Episode 2, navigating a suspenseful hike in California.
+---------
+
+# 12 Years Later, ‘Avatar: The Last Airbender’ Continues the Franchise’s Greatest Injustice
+
+Features, Avatar: Seven Havens, Avatar: The Last Airbender, Fantasy, The Legend of Korra
+
+Mon, 12 Oct 2026 02:51:17 GMT
+
+https://movieweb.com/avatar-seven-havens-korra-worst-injustice/
+
+'Avatar: Seven Havens' continues the 'Avatar: The Last Airbender' franchise's worst habit, but there's likely a twist coming later on.
+---------
+
+# New Fantasy Adventure Film Hailed as One of the Decade's Best With a Record-Breaking RT Score
+
+Movie News, Wildwood, Fantasy, Animation
+
+Mon, 12 Oct 2026 02:27:18 GMT
+
+https://movieweb.com/wildwood-rotten-tomatoes-score/
+
+The studio that broke new ground in 3D stop-motion animation has outdone itself.
+---------
+
+# 'Tracker' Season 4's New Formula Just Fixed One of Its Biggest Problems
+
+Features, Thriller, Tracker, Paramount Plus, Action, Network TV
+
+Mon, 12 Oct 2026 02:05:15 GMT
+
+https://movieweb.com/tracker-season-4-setting-change/
+
+'Tracker' Season 4, the action thriller starring Justin Hartley as Colter Shaw, is airing on CBS and streaming on Paramount+.
+---------
+
+# 8 Forgotten Horror Movies That Deserve to be Rediscovered on Netflix
+
+Movie Lists, Horror, Netflix
+
+Mon, 12 Oct 2026 02:00:25 GMT
+
+https://movieweb.com/horror-movies-forgotten-netflix/
+
+From Mothman to vampires, Netflix has plenty of fantastic, underrated horror movies to check out in the lead-up to Halloween.
+---------
+
+# 10 Masterpiece Western Movies That Are Better Than 'Tombstone'
+
+Features, Western, Tombstone
+
+Mon, 12 Oct 2026 01:46:15 GMT
+
+https://movieweb.com/western-movies-better-tombstone/
+
+1993's 'Tombstone' is one of the most entertaining Western classics ever made, but the genre is loaded with masterpieces that go well beyond it.
+---------
+
 # This Ghost Of Yellowstone Past Is Haunting Marshals Season 2
 
 Network TV, Marshals, Yellowstone
