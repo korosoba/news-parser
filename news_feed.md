@@ -1,3 +1,443 @@
+# Paul Bettany VisionQuest Interview: Marvel, Ultron & Vision's Future
+
+Exclusive, Marvel Cinematic Universe, VisionQuest, Paul Bettany, WandaVision
+
+Mon, 12 Oct 2026 23:27:55 GMT
+
+https://screenrant.com/paul-bettany-visionquest-interview-vision-legacy/
+
+Paul Bettany and Terry Matalas discuss VisionQuest, James Spader's Ultron, Vision's MCU future, and their experiences with Marvel.
+---------
+
+# Zack Snyder’s “S---ty” Justice League Firing Gets Detailed New Reflection From Ben Affleck
+
+Movies, Justice League, Ben Affleck, Zack Snyder
+
+Mon, 12 Oct 2026 23:22:55 GMT
+
+https://screenrant.com/zack-snyder-justice-league-firing-new-details-ben-affleck/
+
+Nearly a decade after Justice League's release, Ben Affleck reflected on how poorly he thought director Zack Snyder's removal was handled.
+---------
+
+# Netflix's 32-Episode R-Rated Erotic Series Is Officially One Of 2026's Biggest Hits
+
+Streaming TV, Masked Recs
+
+Mon, 12 Oct 2026 23:21:18 GMT
+
+https://screenrant.com/bridgerton-season-4-netflix-biggest-streaming-hits-2026/
+
+Netflix's R-rated erotic series with 32 episodes is not slowing down, as it stands as one of the streamer's biggest TV shows released in 2026.
+---------
+
+# 5 Best New Paramount+ Series To Binge-Watch This Week (October 12–16, 2026)
+
+Streaming TV, Paramount Plus, What to Watch on Paramount+
+
+Mon, 12 Oct 2026 23:20:17 GMT
+
+https://screenrant.com/best-new-paramount-plus-shows-to-watch-week-october-12-2026/
+
+The 5 best Paramount+ series to binge this week, October 12–16, 2026, are Tulsa King, Lioness, MobLand, Avatar: Seven Havens and Dexter: Resurrection.
+---------
+
+# The 5 Greatest High Fantasy Books That You Haven't Read
+
+Books, Fantasy
+
+Mon, 12 Oct 2026 23:14:30 GMT
+
+https://screenrant.com/greatest-high-fantasy-books-not-read/
+
+We've all read J.R.R. Tolkien and George R.R. Martin. But high fantasy lovers surely won't have stumbled across these five epics sagas!
+---------
+
+# Halo: New Covenant Is The Halo 4 We Always Wanted
+
+Gaming, Halo, Halo 3, Halo 4, PC
+
+Mon, 12 Oct 2026 23:00:17 GMT
+
+https://screenrant.com/halo-new-covenant-halo-3-unofficial-sequel/
+
+The brand-new Halo: New Covenant offers an alternative option to Halo 4, and, frankly, it's the version we've always dreamed of.
+---------
+
+# Why Jeremy Strong Replacing Jesse Eisenberg As Mark Zuckerberg In The Social Reckoning Is So Difficult
+
+Movies, The Social Network, The Social Reckoning
+
+Mon, 12 Oct 2026 23:00:17 GMT
+
+https://screenrant.com/16-years-later-the-social-networks-mark-zuckerberg-replacement-has-an-impossible-job/
+
+Jeremy Strong faces an impossible task in The Social Reckoning, following Jesse Eisenberg's Oscar-nominated take on Mark Zuckerberg 16 years later.
+---------
+
+# Taylor Sheridan Has Officially Made 5 Of The Best Western Series In TV History, According To IMDb
+
+Streaming TV, Taylor Sheridan, Yellowstone, 1883, 1923, Landman, Dutton Ranch
+
+Mon, 12 Oct 2026 22:45:18 GMT
+
+https://screenrant.com/taylor-sheridan-5-best-western-tv-shows-all-time-imdb/
+
+Taylor Sheridan's years-long success streak continues as IMDb users name five of his shows among the 20 best Western TV shows of all time.
+---------
+
+# Marvel Secretly Set Up Its Next MCU TV Show 13 Years Ago
+
+Movies
+
+Mon, 12 Oct 2026 22:30:17 GMT
+
+https://screenrant.com/marvel-zodiac-agent-carter-setup/
+
+Marvel's next TV show is officially Zodiac, a mysterious spy drama. But, though viewers have forgotten it, Zodiac made its MCU debut 13 years ago...
+---------
+
+# 10 Greatest Far Side Comics Of All Time, Ranked by Screen Rant Readers
+
+Comics, The Far Side
+
+Mon, 12 Oct 2026 22:30:17 GMT
+
+https://screenrant.com/far-side-best-comic-all-time-vote-poll/
+
+Vote for Gary Larson's best of all time.
+---------
+
+# Netflix Is Adapting the Iconic 39-Year-Old Novel Every '90s Kid Remembers
+
+Movies, Netflix
+
+Mon, 12 Oct 2026 23:21:36 GMT
+
+https://www.cbr.com/netflix-hatchet-movie/
+
+Netflix is bringing another legendary novel to the screen.
+---------
+
+# Netflix's 2-Season Rick & Morty Replacement Returns as 1 of the Most-Watched Shows in the World
+
+TV, Netflix, Rick and Morty, Haunted Hotel
+
+Mon, 12 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/netflix-haunted-hotel-streaming-success-october-2026/
+
+Haunted Hotel is a hit on Netflix.
+---------
+
+# Netflix’s 15-Season Historical Drama Still Puts Modern Period Shows to Shame
+
+TV, Call the Midwife, Netflix, History
+
+Mon, 12 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/netflix-call-the-midwife-flawless-historical-drama/
+
+From the delivery room to the living room, this underrated series has become a cultural phenomenon, setting a high bar for other shows.
+---------
+
+# Why Stephen King's The Lawnmower Man is Legally Disowned
+
+Movies, Stephen King, The Lawnmower Man
+
+Mon, 12 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/stephen-king-the-lawnmower-man-disowned-movie-streaming-hit-2026/
+
+Adaptations based on Stephen King's work are either incredible or abysmal, but King legally disowned one movie that's currently booming on streaming.
+---------
+
+# 10 Green Lantern Villains That Need To Make A Comeback
+
+Comics, DC Comics, Green Lantern
+
+Mon, 12 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/green-lantern-villains-that-need-to-make-a-comeback/
+
+There's more to Green Lantern's rogues' gallery than the Sinestro Corps.
+---------
+
+# Mark Ruffalo Teases More Hulk & Spider-Man Scenes After Spider-Man: Brand New Day
+
+Movies, Marvel, Marvel Comics, MCU, Spider-Man: Brand New Day, Spider-Man, Hulk
+
+Mon, 12 Oct 2026 22:36:07 GMT
+
+https://www.cbr.com/mark-ruffalo-teases-more-hulk-spider-man-scenes-after-spider-man-brand-new-day/
+
+What the MCU star just said about Hulk and Spider-Man is all we needed to hear.
+---------
+
+# Gundam's Legendary Space Opera Rival Has Good News for Mecha Collectors
+
+Anime, Super Dimension Fortress Macross, Good Smile Company, Macross 7, merchandise, toys
+
+Mon, 12 Oct 2026 22:35:11 GMT
+
+https://www.cbr.com/macross-good-smile-company-new-partnership-announce/
+
+There is good news for fans of Mobile Suit Gundam's biggest competitor, and it means some truly stunning collectibles in the years to come.
+---------
+
+# 10 Biggest Decepticons of All Time, Ranked by Size
+
+Anime, Transformers
+
+Mon, 12 Oct 2026 22:15:12 GMT
+
+https://www.cbr.com/transformers-biggest-decepticons-ranked-by-size/
+
+The largest Decepticons ever built show how often size becomes the actual weapon instead of just the visual.
+---------
+
+# Stephen King's Near-Perfect Horror Classic Is Conquering Streaming 46 Years Later
+
+Movies, The Shining, Stephen King, Horror
+
+Mon, 12 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/stephen-king-the-shining-horror-hbo-success-october-2026/
+
+Stephen King's horror cult classic, The Shining, is rising on streaming ahead of Halloween.
+---------
+
+# Star Wars Actor Begged For a Different Death Scene But Was Denied
+
+TV, Star Wars: Rebels
+
+Mon, 12 Oct 2026 21:45:22 GMT
+
+https://www.cbr.com/star-wars-rebels-vanessa-marshall-kanan-jarrus/
+
+Star Wars is full of famous death scenes, but one beloved character begged for a different fate.
+---------
+
+# Florence Pugh’s Most Unhinged Horror Performance Is Officially Available for Free
+
+Movie News, Midsommar, Florence Pugh, East of Eden, Christopher Abbott
+
+Mon, 12 Oct 2026 23:30:11 GMT
+
+https://collider.com/florence-pugh-horror-cult-classic-midsommar-free-streaming-pluto-tv-october-2026/
+
+Before East of Eden, Florence Pugh delivered a sensational performance in this cult classic now streaming for free on Pluto TV.
+---------
+
+# Marvel Boss Officially Addresses the MCU’s Watch Everything Problem [Exclusive]
+
+TV News, Brad Winderbaum, VisionQuest, MCU, New York Comic Con
+
+Mon, 12 Oct 2026 23:15:12 GMT
+
+https://collider.com/marvel-mcu-disney-plus-shows-brad-winderbaum/
+
+Marvel Studios' Brad Winderbaum reveals how the MCU is changing its approach to connecting Disney+ shows and movies.
+---------
+
+# Mike Flanagan's 9 Most Evil TV Characters, Ranked
+
+TV, Mike Flanagan, Carrie, The Haunting of Hill House, Midnight Mass
+
+Mon, 12 Oct 2026 23:14:11 GMT
+
+https://collider.com/mike-flanagan-evil-tv-characters-ranked/
+
+From The Haunting of Hill House's Poppy Hill to Carrie's Adelaide, which of Mike Flanagan's TV characters is truly the most of evil of them all?
+---------
+
+# 10 Comics 'Spider-Man 5' Needs To Take Inspiration From
+
+Books and Comics, Comics, Spider-Man, Tom Holland
+
+Mon, 12 Oct 2026 23:08:11 GMT
+
+https://collider.com/spider-man-5-comics-inspiration-tom-holland/
+
+Tom Holland's upcoming fifth Spider-Man movie should take some inspiration from classic comics like Amazing Spider-Man Annual #1 and more.
+---------
+
+# Tom Cruise Officially Loses Paramount+ Crown to a Neo-Western With No Rotten Tomatoes Score
+
+Movie News, Top Gun: Maverick, Western, Paramount Plus, Lin Shaye
+
+Mon, 12 Oct 2026 23:00:12 GMT
+
+https://collider.com/last-stand-ellen-cole-neo-western-paramount-plus-streaming-success-october-2026/
+
+Tom Cruise's Top Gun: Maverick has lost the Paramount+ streaming crown to a neo-Western movie with no Rotten Tomatoes score. Find out more.
+---------
+
+# Taylor Sheridan's 'Yellowstone' Spin-Off Is Repeating One of Its Biggest Season 1 Mistakes
+
+TV Features, Taylor Sheridan, Marshals, Logan Marshall-Green, Luke Grimes
+
+Mon, 12 Oct 2026 22:52:12 GMT
+
+https://collider.com/marshals-season-2-episode-2-taylor-sheridan-cal-madison-miles/
+
+Marshals Season 2 sees Cal navigate trust issues with Maddie amid complications of secrets and romance, echoing the problems of Season 1.
+---------
+
+# ‘Carrie’s Biggest Change to Stephen King’s Novel Solves 1 Problem and Creates Another
+
+TV Features, Carrie, Prime Video, Stephen King, Mike Flanagan
+
+Mon, 12 Oct 2026 22:42:11 GMT
+
+https://collider.com/carrie-tv-show-2026-stephen-king-book-biggest-change-problem/
+
+The biggest change Mike Flanagan's Carrie makes to Stephen King's original novel sets up an even larger universe, but at what cost?
+---------
+
+# ‘SNL’ Just Exposed Its Most Troubling Double Standard With Shane Gillis' Episode
+
+TV Features, Shane Gillis, Saturday Night Live, Series, NBC
+
+Mon, 12 Oct 2026 22:39:59 GMT
+
+https://collider.com/snl-saturday-night-live-shane-gillis-monologue-misogyny-double-standard/
+
+Shane Gillis’s SNL episode exposed a double standard between accidental profanity and misogynistic comedy, prompting Dan Levy to speak out.
+---------
+
+# 3 Perfect Movies Officially Streaming on Prime Video This Week (Oct 12-16)
+
+Movie, Prime Video, Wuthering Heights, Now You See Me: Now You Don't, John Wick: Chapter 4
+
+Mon, 12 Oct 2026 22:34:12 GMT
+
+https://collider.com/best-movies-prime-video-october-12-2026/
+
+Now You See Me, Now You Don’t, Wuthering Heights, and John Wick: Chapter 4 make up our list of the best movies to stream on Prime Video this week.
+---------
+
+# ‘Dungeon Crawler Carl’ Creator Officially Confirms the End of an Era [Exclusive]
+
+Exclusives, Dungeon Crawler Carl, Fantasy, Sci-Fi, New York Comic Con
+
+Mon, 12 Oct 2026 22:30:12 GMT
+
+https://collider.com/dungeon-crawler-carl-book-9-10-update-matt-dinniman-most-difficult-thing/
+
+Matt Dinniman opened up about the challenges of penning the final chapter of Dungeon Crawler Carl and wrapping up every storyline in books 9 and 10.
+---------
+
+# 104-Minute Sequel to Essential Halloween Viewing Officially Leaves 2,895 Theaters After Box Office Disaster
+
+Movie News, Practical Magic 2, Nicole Kidman, Sandra Bullock, Fantasy
+
+Mon, 12 Oct 2026 23:30:15 GMT
+
+https://movieweb.com/practical-magic-2-digital-release-october-2026/
+
+Warner Bros. is moving Practical Magic 2 to VOD after a steep box office slowdown.
+---------
+
+# Prime Video's "Anti-James Bond" Action Thriller Is One of the Best 2026 Shows Everyone Is Sleeping On
+
+Features, Bait, Thriller, Action, James Bond
+
+Mon, 12 Oct 2026 23:30:15 GMT
+
+https://movieweb.com/bait-james-bond-streaming-recommendation/
+
+The underrated six-part comedy series brilliantly toys with James Bond's image, and it's a series that deserves more attention and episodes.
+---------
+
+# Leonardo DiCaprio’s Long-Awaited Action Thriller Sequel Gets Early Script Verdict From Ben Affleck
+
+Movie News, Leonardo DiCaprio, Ben Affleck, Heat 2, Heat
+
+Mon, 12 Oct 2026 23:22:28 GMT
+
+https://movieweb.com/heat-2-leonardo-dicaprio-ben-affleck-script-update/
+
+Oscar-winner Leonardo DiCaprio will add a new chapter to one of the most iconic movies of the '90s, as a new update teases where the script is.
+---------
+
+# Scarlett Johansson's New Cop Thriller Is a Secret Sequel to Cult Classic Thriller [Theory]
+
+Features, The Exorcist, The Exorcist III, Horror, Thriller, Scarlett Johansson, The Exorcist: Martyrs
+
+Mon, 12 Oct 2026 23:00:15 GMT
+
+https://movieweb.com/scarlett-johansson-exorcist-martyrs-sequel-theory/
+
+All the signs from Scarlett Johansson's new thriller point to her character having deep franchise connections.
+---------
+
+# Mark Wahlberg Finds Global Streaming Hit in 128-Minute Reboot of a Forgotten Jason Statham Action Thriller
+
+Movie News, Mark Wahlberg, Play Dirty, Action, Hot on Streaming, Thriller
+
+Mon, 12 Oct 2026 22:31:15 GMT
+
+https://movieweb.com/play-dirty-mark-wahlberg-stream-hbo-max-october-2026/
+
+Although a critical flop, this one deserved more attention.
+---------
+
+# 6 Clint Eastwood Western Movies Praised for Historical Accuracy by Experts
+
+Movie Lists, Clint Eastwood, Western
+
+Mon, 12 Oct 2026 22:00:15 GMT
+
+https://movieweb.com/clint-eastwood-western-movies-historically-accurate/
+
+Research shows that a few Clint Eastwood Westerns get some details right about history, proving there's more to them than getting justice.
+---------
+
+# RJ Mitte, Star of 'Breaking Bad,' Dies Aged 34
+
+TV News, Breaking Bad, RJ Mitte
+
+Mon, 12 Oct 2026 21:09:20 GMT
+
+https://movieweb.com/rj-mitte-breaking-bad-dies-34/
+
+RJ Mitte, best known for playing Walter White Jr. on Breaking Bad, has died at 34.
+---------
+
+# Daniel Craig's New Netflix Fantasy Epic Officially Unveils Stunning New Look Ahead of Major Debut
+
+Movie News, Narnia: The Magician's Nephew, Netflix, Fantasy
+
+Mon, 12 Oct 2026 21:04:18 GMT
+
+https://movieweb.com/narnia-the-magicians-nephew-netflix-poster/
+
+Netflix has released the first poster for its major fantasy event.
+---------
+
+# The Best Ancient Roman War Epic in 16 Years Is a 12-Part Netflix Action Thriller Sleeper Hit
+
+Features, Barbarians, War, Action, Thriller
+
+Mon, 12 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/barbarians-netflix-streaming-recommendation/
+
+The most brutal ancient-war series since 'Spartacus' is a must-see on Netflix, and it has a lot in common with the other series.
+---------
+
+# Paramount's Action-Packed 73-Episode Series Is Officially One of the Biggest Shows on Streaming
+
+TV News, Fire Country, Hot on Streaming, Max Thieriot, Action, Paramount Plus
+
+Mon, 12 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/fire-country-max-thieriot-streaming-paramount-plus-october-2026/
+
+Paramount has scored big with the return of one of their hottest TV shows, which has quickly become a streaming hit.
+---------
+
 # Teenage Mutant Ninja Turtles' Greatest Era Is Returning In 2027 With New Prequel
 
 Comics, Teenage Mutant Ninja Turtles
