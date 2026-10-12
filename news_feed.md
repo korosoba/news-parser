@@ -1,3 +1,399 @@
+# This Ghost Of Yellowstone Past Is Haunting Marshals Season 2
+
+Network TV, Marshals, Yellowstone
+
+Mon, 12 Oct 2026 01:15:18 GMT
+
+https://screenrant.com/john-dutton-yellowstone-haunting-marshals-season-2/
+
+Marshals season 2 grapples with the haunting legacy of Yellowstone's John Dutton, casting a difficult shadow over the newer spinoff series.
+---------
+
+# Dexter: Resurrection Season 2 Interview with Krysten Ritter at NYCC 2026
+
+Interviews, Dexter: Resurrection, Dexter: Resurrection - Season 2, Krysten Ritter, New York Comic Con
+
+Mon, 12 Oct 2026 01:12:52 GMT
+
+https://screenrant.com/video/dexter-resurrection-season-2-krysten-ritter-nycc-2026-interview/
+
+While at NYCC 2026, Dexter: Resurrection star Krysten Ritter discusses returning for season 2, and the freedom she got to make Lady Vengeance her own. She also reflects on how Jessica Jones changed her life.
+---------
+
+# All 9 Versions Of Wednesday Addams, Ranked
+
+Streaming TV, The Addams Family, Wednesday
+
+Mon, 12 Oct 2026 01:03:09 GMT
+
+https://screenrant.com/wednesday-addams-family-tv-show-movie-versions-ranking/
+
+The character of Wednesday Addams has come a long way over the years, and each actor has brought something special to the iconic Addams Family role.
+---------
+
+# Star Trek: New Horizons Makes The Borg Terrifying Again
+
+Gaming, Star Trek
+
+Mon, 12 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/star-trek-new-horizons-fan-rpg/
+
+Star Trek: New Horizons is a hugely impressive fan creation for one of the most underrated strategy games of all time.
+---------
+
+# Forget Fallout, Netflix’s Returning Post-Apocalyptic Thriller Is A Weirder Sci-Fi Adaptation
+
+Streaming TV, Masked Recs
+
+Mon, 12 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/fallout-netflix-eternaut-weird-post-apocalyptic-series/
+
+Prime Video’s take on the Fallout games is great, but a returning post-apocalyptic thriller on Netflix is an even more bizarre sci-fi adaptation.
+---------
+
+# Where Marvel's Avengers: Age Of Ultron Sequel Fits Into The MCU Timeline
+
+Superheroes, VisionQuest, Avengers: Age of Ultron, Marvel Cinematic Universe
+
+Mon, 12 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/visionquest-mcu-timeline-age-of-ultron-sequel-explained/
+
+Marvel Studios' next show is set to be the perfect sequel to Avengers: Age of Ultron, though plenty has happened in the MCU in the years since 2015.
+---------
+
+# 25 Horrormance Books To Take You From First Kiss To Final Kill
+
+Books, Horror, Romance, Halloween 2026
+
+Mon, 12 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/horrormance-book-recommendations/
+
+The horrormance genre features everything from monster horror to slashers, and these are 25 books in the genre to sink your teeth into.
+---------
+
+# 10 Marvel Characters With the Best-Looking Designs
+
+Comics, Marvel
+
+Mon, 12 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/marvel-characters-best-designs/
+
+Marvel puts extra effort into how its characters are perceived, and these characters are the very evidence of these efforts.
+---------
+
+# Legendary Star Trek Writer Explains In-Depth How He Changed The Klingons The Right Way
+
+TV, Star Trek, Star Trek: The Next Generation
+
+Mon, 12 Oct 2026 01:00:03 GMT
+
+https://screenrant.com/star-trek-the-next-generation-ronald-moore-explain-klingon-change/
+
+Ronald D. Moore explains step-by-step how he successfully reinvented the Klingons' culture and society in Star Trek: The Next Generation.
+---------
+
+# Fire Country Season 5 Is Leaving One Of Its Biggest Mistakes Behind
+
+Network TV, Fire Country
+
+Mon, 12 Oct 2026 00:45:16 GMT
+
+https://screenrant.com/fire-country-character-focused-stories-better/
+
+Fire Country season 5's premiere focused on a single disaster, which allowed for steadier drama and character development.
+---------
+
+# 10 Strongest Transformers Villains, Ranked by Power
+
+Anime, Transformers
+
+Mon, 12 Oct 2026 01:25:11 GMT
+
+https://www.cbr.com/most-powerful-transformers-villains-ranked-list/
+
+The jaw-dropping powers of Decepticons like Megatron and Shockwave overpower most heroic Autobots, leaving them in the dust.
+---------
+
+# 1 of 2026's Highest-Grossing Films Is Officially the Most-Watched Title on Streaming
+
+Movies, Toy Story 5, Disney+, Animation
+
+Mon, 12 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/toy-story-5-nielsen-streaming-ratings-disney-plus-october-2026/
+
+One of the year's biggest theatrical releases is now one of the year's biggest streaming releases.
+---------
+
+# Bandai Launches Brand-New Model Kit Series With 6 Unique Strike Gundam Designs
+
+Anime, Mobile Suit Gundam, Gundam SEED, merchandise
+
+Mon, 12 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/gundam-xmx-strike-gundam-blind-box-model-kits/
+
+Bandai is giving Mobile Suit Gundam and Gunpla fans a whole new way to celebrate their favorite franchise and hobby, and it looks incredible.
+---------
+
+# 10 Anime Series With No Bad Episodes, Ranked
+
+Anime
+
+Mon, 12 Oct 2026 00:45:11 GMT
+
+https://www.cbr.com/anime-series-no-bad-episodes-ranked-list/
+
+Anime like Frieren and Shoshimin feature consistent quality and no bad episodes, showcasing compelling storytelling and character depth.
+---------
+
+# 5 Open-World RPGs With Virtually Perfect Skill Trees
+
+Games, Kingdom Come: Deliverance, RPG, The Elder Scrolls V: Skyrim, Cyberpunk 2077
+
+Mon, 12 Oct 2026 00:30:11 GMT
+
+https://www.cbr.com/open-world-rpgs-perfect-skill-trees/
+
+These open-world RPGs feature perfect skill trees that allow players to create any character they want.
+---------
+
+# Crystal Lake Episode Titles Fix a Friday the 13th Franchise Problem
+
+TV, Crystal Lake
+
+Mon, 12 Oct 2026 00:16:49 GMT
+
+https://www.cbr.com/crystal-lake-episode-titles-peacock/
+
+Crystal Lake honors the original movies with its episode titles, with one key change.
+---------
+
+# 10 Hardest Inuyasha Episodes to Watch Today
+
+Anime, Inuyasha
+
+Mon, 12 Oct 2026 00:15:11 GMT
+
+https://www.cbr.com/inuyasha-hardest-episodes-to-watch-today/
+
+Many episodes of Inuyasha were never necessary to watch, and are unwatchable today.
+---------
+
+# Robert Downey Jr.'s Iron Man Salary For Each MCU Movie
+
+Movies, Marvel Cinematic Universe, Iron Man, Avengers: Doomsday
+
+Mon, 12 Oct 2026 00:00:12 GMT
+
+https://www.cbr.com/robert-downey-jr-salary-mcu-movies-list-ranked/
+
+Robert Downey Jr. played Iron Man for more than a decade in the MCU. Here's approximately how much he was paid per Marvel movie.
+---------
+
+# 5 Classic PS2 RPGs That Are Unplayable Today
+
+Games, RPG, PlayStation 2
+
+Mon, 12 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/classic-ps2-rpgs-unplayable-today-list/
+
+Some of the best PS2 RPGs, like Suikoden V, are unfortunately hard to play today.
+---------
+
+# NYCC Just Debuted Two New G.I. Joe Figures - Including a Brand-New Villain
+
+Comics, G.I. Joe, NYCC2026
+
+Mon, 12 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/nycc-g-i-joe-classified-night-series-flatline-figures-revealed/
+
+G.I. Joe fans just got their first look at a new villain and a new exclusive thanks to Hasbro and the ongoing reveals happening at New York Comic Con.
+---------
+
+# Forget ‘The Walking Dead,’ This Zombie Survival Nightmare Is Officially Taking Over
+
+Gaming News, The Walking Dead, zombies, Zombie, Video Game
+
+Mon, 12 Oct 2026 01:00:11 GMT
+
+https://collider.com/project-zomboid-steam-charts-october-2026/
+
+Project Zomboid is drawing more than 64,000 concurrent players on Steam ahead of Halloween, with a brutal challenge for Walking Dead fans.
+---------
+
+# 'Marshals' Is Still Haunted by the Ghost of 'Yellowstone's John Dutton | Review
+
+TV Reviews, Marshals, Luke Grimes, Logan Marshall-Green, CBS
+
+Mon, 12 Oct 2026 01:00:11 GMT
+
+https://collider.com/marshals-season-2-episode-2-recap/
+
+In "End of Watch," Kayce Dutton navigates family legacy and law enforcement dangers in Marshals Season 2.
+---------
+
+# The Funniest Gen Z Series on Disney+ Is Officially One of Its Most-Watched Shows
+
+TV News, Adults, Disney+, Comedy, FX
+
+Mon, 12 Oct 2026 00:30:11 GMT
+
+https://collider.com/adults-disney-plus-streaming-success-october-2026/
+
+Relatable adulting chaos and sharp humor make Disney+'s hit sitcom a streaming favorite. Get all the details here.
+---------
+
+# Netflix Officially Lands the Gothic Romance That Inspired ‘Wuthering Heights’
+
+Movie News, Emily, Netflix, Wuthering Heights, Emily Brontë
+
+Mon, 12 Oct 2026 00:00:11 GMT
+
+https://collider.com/netflix-emily-bronte-biopic-release-date-october-2026/
+
+Stream the acclaimed film about the life of the popular classic author Emily Brontë on Netflix this October. Find out when it arrives here.
+---------
+
+# Forget ‘Suits,’ HBO Max’s Twisty New Legal Thriller Is Officially a Global Hit
+
+TV News, War, HBO Max, HBO, Drama
+
+Sun, 11 Oct 2026 23:45:12 GMT
+
+https://collider.com/war-hbo-max-streaming-success-october-2026/
+
+HBO Max's new hit legal thriller combines rich people divorces with gluttonous lawyers and delivers fast paced drama. Get all the details here.
+---------
+
+# Tim Burton’s Gothic Fantasy Classic Officially Haunts HBO Max for Halloween
+
+Movie News, Corpse Bride, Tim Burton, Laika Studios, HBO Max
+
+Sun, 11 Oct 2026 23:30:11 GMT
+
+https://collider.com/tim-burton-corpse-bride-hbo-max-streaming-hit-october-2026/
+
+Tim Burton’s Corpse Bride ranks among HBO Max’s top five movies as Halloween favorites fill the streaming chart 21 years after its release.
+---------
+
+# 7 Most Perfect Superhero Shows of the Last 5 Years, Ranked
+
+TV, Superhero, Loki, Invincible, Peacemaker
+
+Sun, 11 Oct 2026 23:22:11 GMT
+
+https://collider.com/most-perfect-superhero-shows-last-5-years-ranked/
+
+HBO Max's Peacemaker, The CW's Superman & Lois, and Disney+'s Loki are among the best superhero shows of the last 5 years, but which is the greatest?
+---------
+
+# Apple TV's New 'Tulsa King' Meets 'Prison Break' Crime Thriller Sets Official Release Date
+
+TV News, The Wanted Man, George Kay, Apple TV, Thriller
+
+Sun, 11 Oct 2026 23:00:11 GMT
+
+https://collider.com/the-wanted-man-apple-tv-premeire-date-january-2027/
+
+Apple TV's new mob drama with prison break elements sets official premiere date. Get all the details here.
+---------
+
+# One of 2026’s Best War Movies Just Celebrated a Major Streaming Milestone
+
+Movie News, Pressure, Brendan Fraser, Andrew Scott, World War II
+
+Sun, 11 Oct 2026 22:45:11 GMT
+
+https://collider.com/ww2-movie-pressure-streaming-success-60-days-october-2026/
+
+The single best World War II movie of 2026 has been in the top 10 on streaming charts for over 60 days now, and it isn't slowing down.
+---------
+
+# A Classic Stephen King Adaptation That the Author Hated Is Officially a Halloween Hit on HBO Max
+
+Movie News, The Shining, HBO Max, Stephen King, Horror
+
+Sun, 11 Oct 2026 22:30:11 GMT
+
+https://collider.com/stephen-king-the-shining-streaming-hit-hbo-max-october-2026/
+
+Stephen King famously hated this Jack Nicholson horror classic, but 46 years later, it's officially dominating HBO Max for Halloween.
+---------
+
+# It's Only Been 10 Days, but Netflix's 7-Part Western Masterpiece Is the Best TV Series of 2026
+
+Features, East of Eden, Netflix, Western
+
+Mon, 12 Oct 2026 01:06:17 GMT
+
+https://movieweb.com/east-of-eden-streaming-recommendation/
+
+This isn't just the best Netflix series of the year; it's the best all around.
+---------
+
+# 31 Years Later, Hobbes's Wisest 'Calvin and Hobbes' Quote Remains Unbeaten
+
+Features, Calvin and Hobbes, Comedy, comics
+
+Mon, 12 Oct 2026 00:15:15 GMT
+
+https://movieweb.com/calvin-and-hobbes-wisest-quote-forever/
+
+Hobbes's wisest quote from 'Calvin and Hobbes' is officially timely again, and it encourages readers to put things into perspective.
+---------
+
+# Jessica Chastain's Panned Thriller Officially Crushes Tom Cruise's 128-Minute Epic Box Office Disaster
+
+Movie News, Other Mommy, Digger, Jessica Chastain, Tom Cruise, Horror, Box Office Milestones
+
+Mon, 12 Oct 2026 00:00:14 GMT
+
+https://movieweb.com/other-mommy-box-office-jessica-chastain-october-2026/
+
+Jessica Chastain’s critically battered horror movie Other Mommy opened to $27.5 million domestically.
+---------
+
+# 8 Near-Perfect Paramount+ TV Shows With No Bad Seasons
+
+TV Lists, Paramount Plus, Lioness, 1923
+
+Sun, 11 Oct 2026 23:30:15 GMT
+
+https://movieweb.com/paramount-tv-shows-perfect/
+
+These near-perfect Paramount+ shows with no bad seasons make a pretty compelling case for subscribing to the streaming service.
+---------
+
+# HBO Max's Near-Perfect 20-Episode Sci-Fi Fantasy Refuses to Leave the Top of Streaming
+
+TV News, HBO Max, Outlander: Blood of My Blood, Drama, Hot on Streaming
+
+Sun, 11 Oct 2026 23:00:15 GMT
+
+https://movieweb.com/outlander-blood-of-my-blood-hbo-max-hit-october-2026/
+
+More than a year after its debut, Outlander: Blood of My Blood is still charting on HBO Max worldwide.
+---------
+
+# Ridley Scott's 3-Part Horror Masterpiece Has One of the Best Seasons in TV History
+
+Features, The Terror, Horror
+
+Sun, 11 Oct 2026 22:30:15 GMT
+
+https://movieweb.com/the-terror-ridley-scott-best-tv-season/
+
+Supernatural folk horror has never been scarier than Ridley Scott's horror anthology, which still has one of the greatest TV seasons ever made.
+---------
+
 # 15 Best Fruits Basket Quotes
 
 Anime, Fruits Basket
