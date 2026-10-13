@@ -1,3 +1,443 @@
+# 7 Best X-Men Created In The 1990s
+
+Comics, X-Men
+
+Tue, 13 Oct 2026 23:17:17 GMT
+
+https://screenrant.com/best-xmen-created-1990s/
+
+The '90s most memorable X-Men.
+---------
+
+# Ridley Scott's Prometheus Is Getting A Stealth Sequel Next Month
+
+TV, Masked Recs
+
+Tue, 13 Oct 2026 23:15:19 GMT
+
+https://screenrant.com/prometheus-blade-runner-2099-stealth-sequel/
+
+Prime Video's next cyberpunk show widens Ridley Scott's dystopian tapestry with corporate betrayals and synthetic revolutions looming large.
+---------
+
+# It’s Officially The End Of An Era For Harrison Morgan In Dexter: Resurrection Season 2, Confirms Star
+
+TV, Dexter: Resurrection, Dexter, Dexter: Resurrection - Season 2
+
+Tue, 13 Oct 2026 23:07:22 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-harrison-new-version-jack-alcott/
+
+A Dexter: Resurrection star teases what fans should expect to see from Harrison Morgan in the upcoming second season, which premieres on October 30.
+---------
+
+# Blood Of Dawnwalker Free Download Officially Available For Millions Now
+
+Gaming, The Blood of Dawnwalker, RPG, PC
+
+Tue, 13 Oct 2026 23:00:17 GMT
+
+https://screenrant.com/blood-of-dawnwalker-free-download-millions-spotify/
+
+Millions of fans of The Blood of Dawnwalker can pick up this release for free with absolutely no catch.
+---------
+
+# River Interview with Jessica Rothe at NYCC 2026
+
+Interviews, River, Jessica Rothe, New York Comic Con
+
+Tue, 13 Oct 2026 22:59:38 GMT
+
+https://screenrant.com/video/river-horror-movie-jessica-rothe-nycc-2026-interview/
+
+While at NYCC, Jessica Rothe breaks down her eldest daughter character in River, the new horror-thriller that caught Jason Blum's eye.
+---------
+
+# Hannah Waddingham Breaks Silence On Prime Video Action Series Cancellation
+
+TV, Ride or Die, Ride or Die - Season 1
+
+Tue, 13 Oct 2026 22:47:06 GMT
+
+https://screenrant.com/ride-or-die-prime-video-cancellation-hannah-waddingham-response/
+
+Weeks after Prime Video canceled this acclaimed action series, Hannah Waddingham addresses the decision and the show's potential future.
+---------
+
+# New Judge Dredd Announcement Makes 2027 a Game Changer
+
+Comics, New York Comic Con, Judge Dredd
+
+Tue, 13 Oct 2026 22:43:08 GMT
+
+https://screenrant.com/judge-dredd-mcfarlane-toys-nycc-announcement/
+
+A major new announcement makes 2027 an even bigger deal.
+---------
+
+# How Mike Flanagan’s R-Rated DC Movie Script Was Changed Detailed By Director
+
+Movies, Clayface, Mike Flanagan, Batman, DC Universe
+
+Tue, 13 Oct 2026 22:39:55 GMT
+
+https://screenrant.com/clayface-mike-flanagan-dc-movie-script-change-james-watkins/
+
+EXCLUSIVE: Director James Watkins addresses how Mike Flanagan's DC Universe movie script was changed for the R-rated DC Studios horror film.
+---------
+
+# Sony's Record-Breaking Horror Thriller Officially Removed From Hundreds Of Theaters
+
+Movies, Resident Evil
+
+Tue, 13 Oct 2026 22:39:35 GMT
+
+https://screenrant.com/resident-evil-movie-theater-removal-details-record-breaking/
+
+Sony's new R-rated horror thriller has become a major box office hit, breaking records, but it has officially lost hundreds of theaters.
+---------
+
+# Hulk Leads His Own Avengers Roster For First Time In 63 Years, All Members and Powers
+
+Comics, Hulk, The Avengers
+
+Tue, 13 Oct 2026 22:30:16 GMT
+
+https://screenrant.com/hulk-lead-avengers-infernal-rage-roster-explained/
+
+Hulk's Infernal Avengers roster explained.
+---------
+
+# NCIS Explodes on Streaming After Replacing Leon Vance in Season 24
+
+TV, NCIS, CBS, Paramount Plus
+
+Tue, 13 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/ncis-procedural-paramount-plus-success-october-2026/
+
+After Michael Weatherly's return to NCIS in the Season 24 premiere, the CBS procedural is rising up the charts on Paramount+.
+---------
+
+# 17 Years Later, Nickelodeon’s Forgotten Fantasy Adventure Is Still a Perfect 2-Season Gem
+
+TV, Nickelodeon, Fantasy, Innovation
+
+Tue, 13 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/nickelodeon-huntik-secrets-seekers-hidden-fantasy-gem/
+
+This underrated animated series from 2009 set itself apart from competitors like Pokémon and Yu-Gi-Oh.
+---------
+
+# Clint Eastwood's Gran Torino Has the Coldest Movie Quote Ever
+
+Movies, Clint Eastwood, Gran Torino
+
+Tue, 13 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/clint-eastwood-gran-torino-coldest-movie-quote-action-history/
+
+Clint Eastwood's quote from 'Gran Torino' is memorable for more than one reason.
+---------
+
+# Hunter x Hunter Returns in January 2027 With First Official Look at Its Next Major Battle
+
+Anime, Hunter X Hunter
+
+Tue, 13 Oct 2026 22:35:11 GMT
+
+https://www.cbr.com/hunter-x-hunter-the-stage-4-first-trailer-release/
+
+Fans just got their first look at the next Hunter x Hunter adaptation, and it's only a few months away from its premiere.
+---------
+
+# Netflix Adds CBS' Underrated 8-Season Sitcom 6 Months After Series Finale
+
+TV, The Neighborhood, Crutch
+
+Tue, 13 Oct 2026 22:30:11 GMT
+
+https://www.cbr.com/netflix-the-neighborhood-sitcom-november-2026/
+
+One of the best CBS sitcoms of the last decade is officially making its way to a new streaming home after another failed spinoff.
+---------
+
+# Anime With Better Worldbuilding Than One Piece
+
+Anime, One Piece, Attack On Titan, Made in Abyss
+
+Tue, 13 Oct 2026 22:15:11 GMT
+
+https://www.cbr.com/anime-better-worldbuilding-than-one-piece/
+
+One Piece is famous for its expansive setting, but these anime make a compelling case for having even better worldbuilding.
+---------
+
+# Tracker & Marshals Are Losing to a 30-Year-Old Sitcom on Streaming Days After New Seasons Drop
+
+TV, Tracker, Marshals, Everybody Loves Raymond
+
+Tue, 13 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/tracker-marshals-dethroned-everybody-loves-raymond-paramount-plus-october-2026/
+
+Two of the top action dramas on streaming are losing out to one of the biggest sitcoms of a generation despite having brand-new episodes.
+---------
+
+# 10 Best '80s RPGs of All Time, Ranked
+
+Games, Role Playing Game, Video Games, Final Fantasy
+
+Tue, 13 Oct 2026 21:15:11 GMT
+
+https://www.cbr.com/best-80s-rpgs-of-all-time/
+
+The '80s had more great RPGs than just Final Fantasy and Dragon Quest.
+---------
+
+# 10 Best Comics of September 2026, Ranked
+
+Comics, DC Comics, Marvel, image comics
+
+Tue, 13 Oct 2026 21:00:11 GMT
+
+https://www.cbr.com/best-comics-september-2026-ranked-list/
+
+September gave readers some truly great comics, and these 10 stand out as the very best of the best.
+---------
+
+# Ben Affleck's Animals is The Town Meets House of Cards
+
+Movies, Animals
+
+Tue, 13 Oct 2026 21:00:11 GMT
+
+https://www.cbr.com/ben-affleck-animals-the-town-meets-house-of-cards/
+
+Ben Affleck is back with another Netflix thriller that combines The Town with House of Cards.
+---------
+
+# 'Clayface' Will Push the DCU to Its Limits With R-Rated Violence
+
+Exclusives, Clayface, Naomi Ackie, DCU, Tom Rhys Harries
+
+Tue, 13 Oct 2026 23:04:20 GMT
+
+https://collider.com/clayface-r-rated-violence-body-horror-tom-rhys-harries-naomi-ackie/
+
+Tom Rhys Harries and Naomi Ackie discuss the visceral practical effects with the body horror and disturbing violence in Clayface.
+---------
+
+# Forget Stephen King, Mike Flanagan Wants to Reboot 2 Steven Spielberg Classics
+
+Movie News, Mike Flanagan, Jaws, Jurassic Park, Steven Spielberg
+
+Tue, 13 Oct 2026 23:00:11 GMT
+
+https://collider.com/mike-flanagan-reboot-hopes-steven-spielberg-jaws-jurassic-park/
+
+Mike Flanagan shares plans to reboot two major franchises, aiming to enhance their flawed sequels with his unique horror vision.
+---------
+
+# 6 Movie Trilogies Where Every Film Is a Perfect Banger
+
+Movie, The Lord of the Rings, The Bourne Identity, Back to the Future, Before Sunrise
+
+Tue, 13 Oct 2026 22:21:11 GMT
+
+https://collider.com/movie-trilogies-perfect-bangers/
+
+Movie trilogies like Back to the Future and The Lord of the Rings feature three unique movies that are genuine, flawless bangers from start ot finish.
+---------
+
+# Keira Knightley's 'The Mummy' Replacement Is Officially a Streaming Hit
+
+Movie Features, Pirates of the Caribbean: The Curse of the Black Pearl, Johnny Depp, Keira Knightley, Orlando Bloom
+
+Tue, 13 Oct 2026 22:06:11 GMT
+
+https://collider.com/keira-knightley-pirates-of-the-caribbean-the-mummy-streaming-apple-tv-october-2026/
+
+2003's Pirates of the Caribbean: The Curse of the Black Pearl, a high seas adventure destined to delight fans of The Mummy, is charting on Apple TV.
+---------
+
+# The 6 Best Science Fantasy Books Released Since 2010, Ranked
+
+Books and Comics, Science Fiction, Fantasy, Books, Best of the 2010s
+
+Tue, 13 Oct 2026 21:55:11 GMT
+
+https://collider.com/best-science-fantasy-books-since-2010-ranked/
+
+From The Fifth Season to Gideon the Ninth, these science fantasy novels fuse magic, technology, and unforgettable ideas.
+---------
+
+# The 6 Best Shows Released Between 2020 and Now
+
+TV, Severance, The Bear, Shogun, Arcane
+
+Tue, 13 Oct 2026 21:51:12 GMT
+
+https://collider.com/best-tv-shows-since-2020/
+
+From Fallout to The Bear, these six modern television triumphs bypass tired formulas to deliver pure, unforgettable storytelling.
+---------
+
+# 8 Most Perfect Horror Miniseries of All Time, Ranked
+
+TV, Horror, TV Miniseries, The Haunting of Hill House, The Outsider
+
+Tue, 13 Oct 2026 21:45:11 GMT
+
+https://collider.com/most-perfect-horror-miniseries-all-time-ranked/
+
+Netflix's Midnight Mass, HBO's The Outsider, and ABC's IT are among the best horror miniseries ever made, but which show is the greatest of all time?
+---------
+
+# Only 4 Star Wars Movies Are Kind of Bad
+
+Movie, Star Wars, The Mandalorian and Grogu, Star Wars: Episode II - Attack of the Clones, Star Wars: Episode IX - The Rise of Skywalker
+
+Tue, 13 Oct 2026 21:42:11 GMT
+
+https://collider.com/worst-star-wars-movies/
+
+Most Star Wars movies are at least pretty good, but a select few, like The Mandalorian and Grogu and The Rise of Skywalker, are honestly quite bad.
+---------
+
+# The 10 Greatest Epic Sci-Fi Movies of the Last 100 Years, Ranked
+
+Movie, Science Fiction, 2001: A Space Odyssey, Star Wars: Episode V - The Empire Strikes Back, alien
+
+Tue, 13 Oct 2026 21:23:11 GMT
+
+https://collider.com/best-epic-sci-fi-movies-last-100-years-ranked/
+
+Awe-inspiring movie masterpieces like 2001: A Space Odyssey and Interstellar are among the greatest sci-fi epics released throughout the last century.
+---------
+
+# 5 Most Devastating ‘Dungeon Crawler Carl’ Moments, Ranked
+
+Books and Comics, Dungeon Crawler Carl, Peacock, Science Fiction, Fantasy
+
+Tue, 13 Oct 2026 21:10:11 GMT
+
+https://collider.com/dungeon-crawler-carl-most-devastating-moments-ranked/
+
+Dungeon Crawler Carl is full of emotionally charged moments. These are five of the stand-out scenes that tend to break readers' hearts.
+---------
+
+# Sylvester Stallone Officially Returning in Taylor Sheridan’s New Crime Thriller Spin-Off
+
+TV News, Sylvester Stallone, Frisco King, Crime, Drama, Comedy, Paramount Plus
+
+Tue, 13 Oct 2026 23:17:59 GMT
+
+https://movieweb.com/frisco-king-sylvester-stallone-return/
+
+Taylor Sheridan and Sylvester Stallone are reuniting in 2026 after working together for most of the last half-decade.
+---------
+
+# The "Greatest Stephen King Movie of All Time" Sets Historic New Release
+
+Movie News, The Shining, Stanley Kubrick, Stephen King, Horror, Thriller, Blu-ray
+
+Tue, 13 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/the-shining-complete-kubrick-4k-blu-ray/
+
+The Criterion Collection is preparing to release 'The Complete Kubrick,' a 30-disc 4K UHD & Blu-ray set that includes a rare cut of 'The Shining.'
+---------
+
+# 8 Masterpiece Stephen King Adaptations Better Than the Books They're Based On
+
+Movie Lists, Stephen King, Horror, Thriller
+
+Tue, 13 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/stephen-king-adaptations-better-books/
+
+On rare, brilliant occasions, a great TV show or movie can surpass its source material, and even Stephen King's work isn't immune to the effect.
+---------
+
+# Tom Hardy's 2-Season Crime Thriller Epic Is So Good, You'll Want To Catch Up Before the Next Episode
+
+Features, MobLand, Tom Hardy, Crime, Thriller, Action
+
+Tue, 13 Oct 2026 22:01:14 GMT
+
+https://movieweb.com/mobland-streaming-recommendation/
+
+Tom Hardy has starred in popular movies like 'RocknRolla' and 'Inception,' and his work on this crime thriller TV series is also impressive.
+---------
+
+# 'SNL's New Host Makes History With the Biggest Disruption Since Andy Samberg
+
+TV News, Saturday Night Live, Comedy
+
+Tue, 13 Oct 2026 21:54:59 GMT
+
+https://movieweb.com/saturday-night-live-druski-guest-host/
+
+'Saturday Night Live' marks another milestone with its upcoming celebrity host.
+---------
+
+# Michael Fassbender's New 160-Minute Sci-Fi Action Thriller Officially Arrives on Digital Streaming
+
+Movie News, Hope, Sci-Fi, Action, Michael Fassbender
+
+Tue, 13 Oct 2026 21:48:26 GMT
+
+https://movieweb.com/hope-digital-release/
+
+The ambitious Sci-Fi movie is now available to stream at home.
+---------
+
+# 10 Years Later, HBO Is Officially Reviving One of Its Most Iconic Shows of All Time
+
+TV News, Girls, Lena Dunham, Comedy
+
+Tue, 13 Oct 2026 21:09:19 GMT
+
+https://movieweb.com/girls-lena-dunham-hbo-revival/
+
+Lena Dunham's 'Girls' is making a comeback on screens.
+---------
+
+# Netflix’s Sci-Fi Thriller Masterpiece Has One of the Best Seasons in TV History
+
+Features, Stranger Things, Sci-Fi, Thriller, Netflix
+
+Tue, 13 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/stranger-things-season-1-perfect/
+
+Netflix has a wide variety of popular TV shows, and this sci-fi thriller series has one particularly memorable season.
+---------
+
+# The Bloodiest & Horniest TV Series in History Is Officially One of the Biggest Shows on Streaming
+
+TV News, Rome, Hot on Streaming, Action
+
+Tue, 13 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/rome-stream-apple-store-october-2026/
+
+Forget 'Spartacus'; this is the raunchy, historical action series you should be watching.
+---------
+
+# Wait... If 'Tombstone' Is a Historical Western, How Is Wyatt Earp Literally in the Movie?
+
+Features
+
+Tue, 13 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/tombstone-cast-wyatt-earp/
+
+How Wyatt Earp, the real historical figure, factors into the making of the Western film Tombstone.
+---------
+
 # It's Officially The End Of An Era For Ted Lasso On Apple TV
 
 TV, Ted Lasso
