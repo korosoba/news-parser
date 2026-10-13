@@ -1,3 +1,366 @@
+# Star Wars: Legacy Of Skywalker Officially Releases 2027
+
+Gaming, Star Wars, Star Wars: Unlimited, PC
+
+Tue, 13 Oct 2026 04:30:17 GMT
+
+https://screenrant.com/star-wars-legacy-of-skywalker-2027-release-date/
+
+The brand-new Star Wars project, Legacy of Skywalker, is close to launch, with it officially releasing in 2027.
+---------
+
+# Stargate: Destiny Officially Arrives November 2026
+
+Gaming, Stargate, Stargate SG-1
+
+Tue, 13 Oct 2026 04:00:23 GMT
+
+https://screenrant.com/stargate-destiny-collectors-item-arrives-november-2026/
+
+Stargate remains one of the most iconic franchises in sci-fi, and a new release celebrates one of its coolest ships.
+---------
+
+# DC Reveals Hal Jordan And John Stewart's Official Green Lantern Replacement For New Justice League Series
+
+Comics, DC Comics
+
+Tue, 13 Oct 2026 03:59:18 GMT
+
+https://screenrant.com/dc-justice-league-hal-jordan-green-lantern-replacement/
+
+The most iconic DC superhero team out there is rebuilding, with this universe's Green Lantern being a perfectly fitting cofounder.
+---------
+
+# I'm Convinced Avengers: Doomsday Is Already Setting Up A Cancelled Multiverse Saga Plot
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Tue, 13 Oct 2026 03:39:15 GMT
+
+https://screenrant.com/avengers-doomsday-setting-up-cancelled-multiverse-saga-plot-multiple-variants/
+
+Following Doctor Doom's most recent MCU appearance before Avengers: Doomsday, I think the MCU is preparing to revive a cancelled Multiverse Saga plot.
+---------
+
+# The X-Men's Big Reboot Officially Teases Marvel's Horrific New Wolverine
+
+Comics, X-Men, Marvel
+
+Tue, 13 Oct 2026 03:30:52 GMT
+
+https://screenrant.com/xmen-reboot-midnight-teases-wolverine/
+
+Wolverine’s adamantium claws and healing factor could be the key to keeping humanity safe from their newest and most dangerous threat.
+---------
+
+# 10 Underrated X-Men Heroes Who Are Ridiculously Powerful
+
+Comics, Marvel, X-Men
+
+Tue, 13 Oct 2026 03:00:18 GMT
+
+https://screenrant.com/x-men-heroes-overpowered-underrated/
+
+Marvel Comics' X-Men are full of mutants who could challenge gods, but these are the ones who are powerful and somehow forgotten.
+---------
+
+# DC Officially Confirms The One Thing Lex Luthor Fears More Than Superman
+
+Comics, DC, Lex Luthor
+
+Tue, 13 Oct 2026 02:30:17 GMT
+
+https://screenrant.com/lex-luthor-new-fear-not-superman/
+
+Though Lex Luthor hates and fears Superman immensely, it's been revealed in Action Comics what trumps even the Man of Steel in the character's mind.
+---------
+
+# Kishimoto Has Already Confirmed Where On The Naruto Timeline His New Manga Is Set
+
+Anime, Naruto
+
+Tue, 13 Oct 2026 02:00:32 GMT
+
+https://screenrant.com/naruto-new-kishimoto-manga-shadow-rising-timeline/
+
+The big Naruto return fans could only dream of sets up the most mysterious chunk of its heroes timeline to date.
+---------
+
+# Avengers: Doomsday's Missing Hero Predicts Marvel Team Will Lose Against Dr. Doom
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Tue, 13 Oct 2026 02:00:27 GMT
+
+https://screenrant.com/avengers-doomsday-jeremy-renner-hawkeye-return-comments/
+
+One of the major missing heroes from Avengers: Doomsday addresses if they will be back while predicting that the team will be defeated by Doctor Doom.
+---------
+
+# CBS Is Derailing Bode's Fire Country Story (AGAIN)
+
+Network TV, Fire Country
+
+Tue, 13 Oct 2026 02:00:27 GMT
+
+https://screenrant.com/fire-country-season-5-cj-bode-story-derail/
+
+Fire Country season 5's newest character may affect Bode's relationships and character growth in a detrimental way.
+---------
+
+# 5 Open-World RPGs That Let You Mutate Your Character
+
+Games, Video Games, open world
+
+Tue, 13 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/open-world-rpgs-with-mutatable-character/
+
+These 5 games let players mutate their characters to create unique character builds with cosmetic and special mutation abilities.
+---------
+
+# You Haven't Seen the True Godfather Trilogy if You Skipped This 10-Episode Miniseries
+
+TV, The Godfather, The Offer, Crime
+
+Tue, 13 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/the-offer-must-watch-godfather-trilogy-fans/
+
+There's more to the story than just Michael Corleone, and fans need to see this mini-series that completes The Godfather Trilogy.
+---------
+
+# Ex-SNL Star Among Celebs Calling Out Shane Gillis for Controversial SNL Monologue Joke
+
+TV, Saturday Night Live
+
+Tue, 13 Oct 2026 03:12:51 GMT
+
+https://www.cbr.com/shane-gillis-saturday-night-live-monologue-controversy/
+
+Shane Gillis dropped an F-bomb on Saturday Night Live, but that wasn't the most controversial thing he said on the show.
+---------
+
+# Spy x Family Soars Into Major U.S. Top 10 With New Release
+
+Anime, Spy X Family, The New York Times
+
+Tue, 13 Oct 2026 03:05:12 GMT
+
+https://www.cbr.com/spy-x-family-volume-16-new-york-times-bestseller-october-2026/
+
+Tatsuya Endo's hit action-comedy manga, Spy x Family, joins the official New York Times bestseller ranking alongside Batman, The Owl House and more.
+---------
+
+# 10 Greatest Anime Villain Deaths of All Time, Ranked
+
+Anime, Naruto: Shippuden, Hunter x Hunter, anime villains
+
+Tue, 13 Oct 2026 02:45:12 GMT
+
+https://www.cbr.com/greatest-anime-villain-deaths-all-time/
+
+A masterfully crafted demise turns terrifying foes into unforgettable legends while leaving a lasting mark on viewers long after the credits roll.
+---------
+
+# Bryan Cranston Joins Breaking Bad Co-Stars in Remembering RJ Mitte: 'I'll Miss You, Son'
+
+TV, Breaking Bad
+
+Tue, 13 Oct 2026 02:35:21 GMT
+
+https://www.cbr.com/breaking-bad-rj-mitte-remembered/
+
+Those who knew Breaking Bad star RJ Mitte are left heartbroken by the news of his death.
+---------
+
+# Dragon's Dogma 2: Dark Arisen Continues Capcom's Hot Streak
+
+Games, Video Games, Dragon's Dogma 2
+
+Tue, 13 Oct 2026 02:30:11 GMT
+
+https://www.cbr.com/dragons-dogma-2-dark-arisen-review/
+
+After two and a half years, Dragon's Dogma 2 is back with new content that takes players on a new journey that's fun to explore.
+---------
+
+# 10 Best Optimus Prime Designs in Transformers, Ranked
+
+Anime, Transformers, optimus prime
+
+Tue, 13 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/transformers-best-optimus-prime-designs-ranked-list/
+
+Optimus Prime is the most popular Autobot in Transformers, and he's had no shortage of amazing designs.
+---------
+
+# Ben Affleck's Waiting for Kevin Feige to Call About Daredevil Return in MCU's Multiverse
+
+Movies, Daredevil
+
+Tue, 13 Oct 2026 01:52:47 GMT
+
+https://www.cbr.com/ben-affleck-daredevil-kevin-feige/
+
+Ben Affleck says he's all but finished with superhero movies but would make an exception for Daredevil's return.
+---------
+
+# 10 Forgotten NES Games That Have Aged Like Fine Wine
+
+Games, Nintendo, retro games
+
+Tue, 13 Oct 2026 01:45:11 GMT
+
+https://www.cbr.com/forgotten-nes-games-aged-like-fine-wine-list/
+
+The NES was home to classic games like Super Mario Bros. 3 and The Legend of Zelda, but many more games in its library have been forgotten.
+---------
+
+# 7 Netflix Fantasy Shows With No Bad Seasons, Ranked
+
+TV, Netflix, Fantasy, Wednesday, Arcane
+
+Tue, 13 Oct 2026 04:18:11 GMT
+
+https://collider.com/netflix-fantasy-shows-no-bad-seasons-ranked/
+
+From the animated masterpiece Arcane to the Gothic coming-of-age series Wednesday, these Netflix fantasy shows don't have a single bad season.
+---------
+
+# Forget 'Lanterns,' Aaron Pierre's Relentless Thriller Is Officially a Netflix Super Hit
+
+TV Features, Lanterns, Rebel Ridge, Aaron Pierre, Netflix
+
+Tue, 13 Oct 2026 03:55:12 GMT
+
+https://collider.com/netflix-rebel-ridge-aaron-pierre-lanterns-streaming-success/
+
+If you love Aaron Pierre's performance in Lanterns, you have Rebel Ridge to thank as it catapulted him to stardom.
+---------
+
+# 5 Essential Thriller Books for Beginners
+
+Books and Comics, Thriller, Gone Girl, Shutter Island, The Da Vinci Code
+
+Tue, 13 Oct 2026 03:55:12 GMT
+
+https://collider.com/essential-thriller-books-beginners/
+
+For readers exploring the thriller genre for the first time, books like Gone Girl, Shutter Island, and The Da Vinci Code are a great place to start.
+---------
+
+# Forget 'Jaws,' Steven Spielberg's Stellar Detective Thriller Is a Masterpiece From Start to Finish
+
+Movie Features, Catch Me If You Can, Tom Hanks, Leonardo DiCaprio, Steven Spielberg
+
+Tue, 13 Oct 2026 03:51:11 GMT
+
+https://collider.com/steven-spielberg-catch-me-if-you-can-masterpiece-forget-jaws/
+
+Catch Me If You Can stands out among Steven Spielberg's greatest films ever made.
+---------
+
+# ’Buffy the Vampire Slayer's 3 Scariest Halloween Episodes, Ranked
+
+TV, Buffy The Vampire Slayer, Halloween, Sarah Michelle Gellar, Horror
+
+Tue, 13 Oct 2026 03:23:12 GMT
+
+https://collider.com/buffy-the-vampire-slayer-halloween-episodes-ranked/
+
+Buffy the Vampire Slayer has many iconic episodes, but the Halloween specials are perfect for the spooky season. Out of the three, one is the best.
+---------
+
+# 'High Potential's Best 6-Minute Scene Proves the ABC Procedural Is Worth the Binge
+
+TV Features, High Potential, Kaitlin Olson, ABC, Procedural
+
+Tue, 13 Oct 2026 03:16:12 GMT
+
+https://collider.com/high-potential-season-2-episode-12-worth-the-binge/
+
+This brief High Potential reveals why the ABC procedural continues to captivate viewers and keeps them coming back for more.
+---------
+
+# 6 Best Fantasy Movies Released Between 2010 and Now
+
+Movie, Fantasy, Mad Max: Fury Road, Harry Potter and the Deathly Hallows - Part 2, Everything Everywhere All at Once
+
+Tue, 13 Oct 2026 03:11:12 GMT
+
+https://collider.com/best-fantasy-movies-since-2010/
+
+From The Green Knight to Everything Everywhere All at Once, these six modern fantasy triumphs bypass tired formulas for pure emotion.
+---------
+
+# Taylor Sheridan’s No. 1 ‘Yellowstone’ Replacement Officially Surges on Streaming
+
+TV News, Dutton Ranch, Taylor Sheridan, Paramount+ with Showtime, Yellowstone
+
+Tue, 13 Oct 2026 02:00:21 GMT
+
+https://collider.com/dutton-ranch-paramount-plus-streaming-success-october-2026/
+
+The perfect follow-up to Taylor Sheridan's Yellowstone is becoming popular on streaming. Get all the details here.
+---------
+
+# Netflix Officially Announces the Return of Its Superior 'Rick and Morty' Replacement
+
+TV News, Solar Opposites, Netflix, Rick and Morty
+
+Tue, 13 Oct 2026 01:30:12 GMT
+
+https://collider.com/rick-and-morty-replacement-solar-opposites-season-6-netflix-release-date-october-2026/
+
+Netflix has officially added the final season of the superior Rick and Morty replacement series, scheduled to arrive next week. Here's all to know.
+---------
+
+# 3 Elite Series to Binge on Prime Video This Week (Oct 12-16)
+
+TV, Prime Video, Dead Ringers, The Rig, Ride or Die
+
+Tue, 13 Oct 2026 01:12:11 GMT
+
+https://collider.com/prime-video-shows-binge-october-12-2026/
+
+Dead Ringers, The Rig, and Ride or Die make up our list of the best shows to binge on Prime Video the week of October 12.
+---------
+
+# 8 Classic Fantasy Movies That Are Now Unwatchable
+
+Movie Lists, Fantasy, Willow, Krull, Labyrinth, song of the south
+
+Tue, 13 Oct 2026 02:01:15 GMT
+
+https://movieweb.com/classic-fantasy-movies-unwatchable/
+
+These fantasy movies have all achieved classic status, but looking at them through a modern lens, it's difficult to understand why.
+---------
+
+# The 10 Greatest Opening Scenes in Movie History
+
+Movie Lists, Scream, Raiders of the Lost Ark, Once Upon a Time in the West, Touch of Evil, Jaws, Boogie Nights, Cliffhanger, The Wild Bunch, Watchmen
+
+Tue, 13 Oct 2026 01:00:16 GMT
+
+https://movieweb.com/movies-greatest-opening-scenes/
+
+Each of these titles uses unique filmmaking techniques, dialogue, and action to deliver an unforgettable opening — one that keeps viewers watching.
+---------
+
+# "Mad Max Meets Dune" in 10-Part Sci-Fi Thriller Officially Finding Redemption on Streaming
+
+TV News, Extinct, Prime Video, Hot on Streaming, Sci-Fi, Action, Dune, Mad Max: Fury Road
+
+Tue, 13 Oct 2026 01:00:16 GMT
+
+https://movieweb.com/extinct-scifi-prime-stream-october-2026/
+
+One of the most underrated sci-fi shows of the past decade is now a major streaming hit.
+---------
+
 # Paul Bettany VisionQuest Interview: Marvel, Ultron & Vision's Future
 
 Exclusive, Marvel Cinematic Universe, VisionQuest, Paul Bettany, WandaVision
