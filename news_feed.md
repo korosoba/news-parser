@@ -1,3 +1,443 @@
+# It's Officially The End Of An Era For Ted Lasso On Apple TV
+
+TV, Ted Lasso
+
+Tue, 13 Oct 2026 19:23:52 GMT
+
+https://screenrant.com/ted-lasso-end-era-apple-tv-amazon-streaming-drop-october-2026/
+
+Apple TV's Ted Lasso has met the end of a successful era, as the sports comedy series that returned for season 4 has now taken a hit on streaming.
+---------
+
+# How Tulsa King Season 4's Showrunner Change Convinced Key Star To Return
+
+TV, Tulsa King, Tulsa King - Season 4, Frank Grillo
+
+Tue, 13 Oct 2026 19:17:30 GMT
+
+https://screenrant.com/tulsa-king-season-4-showrunner-change-frank-grillo-return-convinced/
+
+EXCLUSIVE: Tulsa King is returning for season 4, but one cast member almost didn’t return. Now he’s opening up about what happened behind-the-scenes.
+---------
+
+# HBO Officially Reviving Cult 6-Season Comedy Series 9 Years Later
+
+TV, Girls, HBO
+
+Tue, 13 Oct 2026 19:10:33 GMT
+
+https://screenrant.com/girls-season-7-revival-hbo-lena-dunham-return-cast-confirmed/
+
+One of the biggest HBO dramas is officially making a return nearly a decade after its series finale, as the popular series is getting a revival.
+---------
+
+# The Lord Of The Rings: Hope & Despair Officially Announced
+
+Gaming, The Lord of the Rings, PC
+
+Tue, 13 Oct 2026 19:00:18 GMT
+
+https://screenrant.com/lord-of-the-rings-hope-despair-expansion/
+
+The latest Lord of the Rings project, titled Hope & Despair, is one that fans will want to check out as soon as it launches.
+---------
+
+# Robert Downey Jr. & Mark Wahlberg’s Adaptation Of Hit Crime Franchise Is Officially Resurrected As A Streaming Hit
+
+Movies, Play Dirty, Mark Wahlberg, Robert Downey Jr., HBO Max
+
+Tue, 13 Oct 2026 18:31:15 GMT
+
+https://screenrant.com/robert-downey-jr-mark-wahlberg-play-dirty-movie-hbo-max-global-streaming-success-october-2026/
+
+The divisive heist thriller movie from Robert Downey Jr. and Mark Wahlberg finds new life on HBO Max, more than a year after its streaming debut.
+---------
+
+# CIA Throws Away Colin's Best Story With The Most Unsatisfying Ending
+
+Network TV, CIA
+
+Tue, 13 Oct 2026 18:30:16 GMT
+
+https://screenrant.com/cia-season-2-collin-toni-best-story-end-unsatisfying/
+
+If this Colin storyline is over, then it was a waste of a good set-up and what could have been some excellent plot points in this new CIA season.
+---------
+
+# Netflix's The Pitt Replacement Is Officially Here & It's Already A Streaming Hit
+
+Streaming TV, Masked Recs
+
+Tue, 13 Oct 2026 18:22:43 GMT
+
+https://screenrant.com/doctor-x-mafia-in-white-netflix-medical-k-drama-streaming-success-october-2026/
+
+Netflix's new The Pitt replacement series is a hospital thriller, and it has already become a global streaming sensation with a major star.
+---------
+
+# It’s Officially The Start Of A New Era For Tom Selleck’s Blue Bloods Franchise
+
+TV, Boston Blue, Blue Bloods
+
+Tue, 13 Oct 2026 18:07:17 GMT
+
+https://screenrant.com/blue-bloods-franchise-new-era-boston-blue-paramount-plus-streaming-success-october-2026/
+
+It is officially the beginning of a new era for Tom Selleck's Blue Bloods franchise, almost two years after the original series came to an end.
+---------
+
+# Aslan & The White Witch's Gritty Narnia Origins Officially Unveiled By Netflix In Epic New Fantasy Adaptation
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, Netflix
+
+Tue, 13 Oct 2026 18:00:50 GMT
+
+https://screenrant.com/netflix-narnia-the-magicians-nephew-trailer/
+
+Netflix has officially released the first trailer for Greta Gerwig's The Magician's Nephew, unveiling Aslan, the White Witch & Narnia's origins.
+---------
+
+# All 11 Reacher Allies In Seasons 1-4, Ranked Worst To Best
+
+Streaming TV, Reacher
+
+Tue, 13 Oct 2026 18:00:17 GMT
+
+https://screenrant.com/reacher-tv-show-allies-ranked/
+
+Throughout the first four seasons, Reacher has crossed paths with countless valuable allies, but some left a far bigger impression than others.
+---------
+
+# The 8th Best TV Show of All Time Is Dominating Digital 19 Years Later
+
+TV, The Sopranos, HBO Max, Drama, Innovation
+
+Tue, 13 Oct 2026 19:00:12 GMT
+
+https://www.cbr.com/the-sopranos-hbo-apple-tv-store-streaming-success-october-2026/
+
+This crime drama is topping the Apple TV store charts.
+---------
+
+# Apple TV’s 10-Episode Sci-Fi Hit With 95% on RT Is the Perfect Anti-Firefly
+
+TV, Murderbot, Sci-Fi, Innovation, Apple TV
+
+Tue, 13 Oct 2026 19:00:12 GMT
+
+https://www.cbr.com/apple-tv-murderbot-perfect-anti-firefly/
+
+Apple TV has a modern sci-fi classic at the opposite end of the science fiction spectrum from the beloved cult classic Firefly.
+---------
+
+# Netflix Sets First-Ever Release for 4-Season Horror Hit Next Week (With 1 Major Twist)
+
+TV, From
+
+Tue, 13 Oct 2026 18:52:42 GMT
+
+https://www.cbr.com/netflix-from-seasons-1-3-october-2026/
+
+One of the best horror shows of all time is getting ready to enter more homes soon.
+---------
+
+# America's Most-Banned Manga Officially Ranked in Major New 2026 Report
+
+Anime, Manga, Attack on Titan, Attack On Titan
+
+Tue, 13 Oct 2026 18:35:11 GMT
+
+https://www.cbr.com/america-most-banned-manga-ranking-2026/
+
+Attack on Titan, Tokyo Ghoul and Dragon Ball Z are among the popular manga facing U.S. school bans as restrictions reach a record high.
+---------
+
+# Peacock's Friday the 13th Prequel Series Scores a Major Franchise First on Rotten Tomatoes
+
+TV, Crystal Lake, Friday The 13th
+
+Tue, 13 Oct 2026 18:28:51 GMT
+
+https://www.cbr.com/crystal-lake-rotten-tomatoes-score/
+
+Peacock makes Friday the 13th franchise history with the return of Jason and Pamela Voorhees.
+---------
+
+# Street Fighter Director Explains Why New Movie Places Strong Focus On Ryu and Ken
+
+CBR Exclusives, Street Fighter, street fighter, capcom
+
+Tue, 13 Oct 2026 18:21:50 GMT
+
+https://www.cbr.com/street-fighter-director-explains-why-new-movie-places-focus-on-ryu-ken/
+
+This explains what audiences are truly in for when Street Fighter hits theaters with a Hadouken this Fall.
+---------
+
+# 4 Strongest Cursed Techniques in Jujutsu Kaisen, Ranked
+
+Anime, Jujutsu Kaisen
+
+Tue, 13 Oct 2026 18:15:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-strongest-cursed-techniques-ranked/
+
+Jujutsu Kaisen features many deadly cursed techniques, but these four stand above the rest with their immense power and combat potential.
+---------
+
+# NARNIA THE MAGICIAN’S NEPHEW   Official Trailer
+
+Movies, Narnia: The Magician's Nephew
+
+Tue, 13 Oct 2026 18:04:58 GMT
+
+https://www.cbr.com/video/greta-gerwigs-narnia-the-magicians-nephew-trailer/
+
+Netflix unveilled the official trailer for Greta Gerwig's Narnia: The Magician's Nephew
+---------
+
+# 10 Classic Thrillers That Are Unwatchable Today
+
+Movies, Thriller
+
+Tue, 13 Oct 2026 18:01:11 GMT
+
+https://www.cbr.com/most-unwatchable-classic-thrillers-list/
+
+The thriller genre may be responsible for some of cinema’s greatest stories, but it has its share of outdated classics that are unwatchable today.
+---------
+
+# Netflix Finally Unveils Daniel Craig's Historic Fantasy Reboot Event
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, Fantasy
+
+Tue, 13 Oct 2026 18:00:53 GMT
+
+https://www.cbr.com/netflix-narnia-the-magicians-nephew-trailer/
+
+Greta Gerwig reimagines C. S. Lewis' The Chronicles of Narnia for Netflix.
+---------
+
+# Robert Pattinson's A24 Thriller Is Officially Being Pulled From Over 600 Theaters
+
+Movie News, Primetime, Robert Pattinson, A24, Skyler Gisondo
+
+Tue, 13 Oct 2026 19:21:08 GMT
+
+https://collider.com/robert-pattinson-a24-thriller-removed-from-600-theaters/
+
+Robert Pattinson's acclaimed yet divisive new thriller, Primetime, is officially being pulled from hundreds of theaters. Read on for more.
+---------
+
+# HBO Officially Revives 'Girls' With Lena Dunham Returning
+
+TV News, Girls, Adam Driver, HBO Max, Lena Dunham
+
+Tue, 13 Oct 2026 19:17:21 GMT
+
+https://collider.com/hbo-girls-season-7-revival-original-cast-returning/
+
+HBO is officially reviving Girls for a seventh season with almost the entire cast, minus Adam Driver, returning. Read on for more.
+---------
+
+# ‘Evil Dead’s Most Underrated Chapter Is This 99% Rotten Tomatoes Horror Masterpiece
+
+TV Features, The Evil Dead, Sam Raimi, Bruce Campbell, Ash vs Evil Dead
+
+Tue, 13 Oct 2026 18:39:11 GMT
+
+https://collider.com/ash-vs-evil-dead-best-chapter-bruce-campbell/
+
+Ash vs. Evil Dead is a return to form for the franchise, which pulled back from its campy roots in favor of more gore.
+---------
+
+# ‘NCIS: Origins’ Crossover Officially Reunites 2 Fan-Favorite Stars
+
+TV News, NCIS: Origins, Michael Weatherly, Mark Harmon, NCIS
+
+Tue, 13 Oct 2026 18:39:00 GMT
+
+https://collider.com/ncis-origins-crossover-mark-harmon-michael-weatherly-reunion/
+
+Mark Harmon and Michael Weatherly are officially reuniting for an NCIS: Origins crossover. Read on for more.
+---------
+
+# Kill Jackie: 7 Assassins Sold Catherine Zeta-Jones on the Role | Set Stories
+
+TV, Kill Jackie
+
+Tue, 13 Oct 2026 18:15:12 GMT
+
+https://collider.com/video/kill-jackie-7-assassins-sold-catherine-zeta-jones-on-the-role-set-stories/
+
+Catherine Zeta-Jones reveals why bringing her Welsh heritage to Prime Video's Kill Jackie made the role of Jackie Price especially personal, from performing in her natural accent to an emotional homecoming while filming in Wales.
+---------
+
+# Alan Ritchson’s New ‘Reacher’ Replacement Officially Removed From 2,500 Theaters
+
+Movie News, Alan Ritchson, Owen Wilson, Box Office, Runner
+
+Tue, 13 Oct 2026 18:06:25 GMT
+
+https://collider.com/runner-alan-ritchson-action-movie-removed-from-2500-theaters/
+
+Alan Ritchson's new action movie, Runner, is ready to debut on digital platforms after losing more than 2,000 theaters. Find out more.
+---------
+
+# ‘Narnia’ Officially Returns With First ‘The Magician’s Nephew’ Trailer
+
+Movie News, Narnia: The Magician's Nephew, Greta Gerwig, Daniel Craig, Emma Mackey
+
+Tue, 13 Oct 2026 18:01:08 GMT
+
+https://collider.com/narnia-the-magicians-nephew-trailer-netflix-greta-gerwig/
+
+Watch the first Narnia: The Magician’s Nephew trailer as Greta Gerwig brings C.S. Lewis’ origin story to the screen for the first time.
+---------
+
+# 14 Years Later, Netflix's Emotional 5-Part Thriller Remains a Perfect Weekend Binge
+
+Movie Features, The Hunger Games, Jennifer Lawrence, Josh Hutcherson, The Hunger Games: Sunrise on the Reaping
+
+Tue, 13 Oct 2026 17:59:25 GMT
+
+https://collider.com/the-hunger-games-perfect-thriller-series/
+
+The Hunger Games trilogy still stands the test of time as one of the best socially aware thrillers in recent memory.
+---------
+
+# Christopher Nolan’s ‘The Odyssey’ Officially Sets New Box Office Record 3 Months After Release
+
+Movie News, The Odyssey, Box Office, Christopher Nolan, Matt Damon
+
+Tue, 13 Oct 2026 17:58:37 GMT
+
+https://collider.com/the-odyssey-biggest-international-box-office-korea-101-million/
+
+Christopher Nolan's The Odyssey is still breaking records at the box office 3 months after its initial release.
+---------
+
+# 6 Genuinely Perfect HBO Miniseries, Ranked
+
+TV, HBO, Miniseries, Angels in America, Band of Brothers
+
+Tue, 13 Oct 2026 17:58:11 GMT
+
+https://collider.com/perfect-hbo-miniseries/
+
+From Band of Brothers to Angels in America, these HBO miniseries are divine.
+---------
+
+# Prime Video's Near-Perfect Raunchy Favorite Officially Becomes a 150-Day Streaming Smash Hit
+
+TV News, Off Campus, Hot on Streaming, Romance, Prime Video
+
+Tue, 13 Oct 2026 19:00:17 GMT
+
+https://movieweb.com/off-campus-streaming-hit-150-days-prime-video-october-2026/
+
+After a strong start on Prime Video earlier in the year, Amazon's R-rated smash shows no signs of slowing down anytime soon.
+---------
+
+# Major Free Streaming Platform With 2.1 Billion Members Confirms US 2026 Release
+
+TV News, Streaming, Coming/Leaving Streaming
+
+Tue, 13 Oct 2026 18:55:32 GMT
+
+https://movieweb.com/rakuten-tv-us-2026-streaming-release/
+
+Free ad-supported streaming is about to get a major addition in the US.
+---------
+
+# First 'Narnia' Trailer Unleashes Daniel Craig's Eccentric Magician in New Netflix Fantasy Epic
+
+Movie News, The Chronicles of Narnia, Narnia: The Magician's Nephew, Fantasy, Greta Gerwig, Daniel Craig
+
+Tue, 13 Oct 2026 18:31:05 GMT
+
+https://movieweb.com/narnia-magicians-nephew-netflix-trailer/
+
+The Netflix fantasy epic from Greta Gerwwig has officially been unveiled in the stunning first trailer.
+---------
+
+# Taylor Sheridan's Sleeper Hit Western Beats 'Yellowstone' At Its Own Game
+
+Features, The Madison, Taylor Sheridan, Western
+
+Tue, 13 Oct 2026 18:30:14 GMT
+
+https://movieweb.com/the-madison-yellowstone-comparison/
+
+Taylor Sheridan's hit Western TV franchise 'Yellowstone' is one of his most popular, but he has another entry in the genre that is even better.
+---------
+
+# New J.K. Rowling Series Officially Announced Ahead of 'Harry Potter' Reboot
+
+TV News, J.K. Rowling, Harry Potter, Documentary
+
+Tue, 13 Oct 2026 18:19:06 GMT
+
+https://movieweb.com/harry-potter-jk-rowling-bbc-docuseries/
+
+One of the biggest names in literature is getting a docuseries.
+---------
+
+# The Longest Running Soap Operas of All Time
+
+TV Lists, Days of Our Lives
+
+Tue, 13 Oct 2026 18:00:15 GMT
+
+https://movieweb.com/longest-running-soap-operas/
+
+These long-running soap operas have outlasted cast changes, cancellations, and the competition.
+---------
+
+# Fox Releases Explosive Trailer for Reboot of Hit '90s TV Staple Led by Arrowverse Star
+
+TV News, Baywatch, Stephen Amell, Drama, Action, Adventure, Crime
+
+Tue, 13 Oct 2026 16:36:03 GMT
+
+https://movieweb.com/baywatch-reboot-trailer/
+
+The leading star from the Arrowverse will add to the legacy of a hit drama/adventure series that first became popular three decades ago.
+---------
+
+# 10 Ancient Rome Movies Praised for Historical Accuracy by Experts
+
+Movie Lists, History
+
+Tue, 13 Oct 2026 16:30:14 GMT
+
+https://movieweb.com/ancient-rome-movies-historically-accurate/
+
+Some Ancient Rome movies bear more accurate elements than others, according to experts. These 10 won't let history buffs down.
+---------
+
+# The "Second-Greatest TV Show of All Time" Resurfaces To Become the Biggest Series on Streaming
+
+TV News, The Sopranos, Crime, Hot on Streaming
+
+Tue, 13 Oct 2026 16:00:14 GMT
+
+https://movieweb.com/the-sopranos-apple-tv-stream-october-2026/
+
+19 years have passed since its finale aired, but audiences keep coming back to this quintessential TV classic.
+---------
+
+# 'Hellboy' Star Selma Blair Charged With Second-Degree Assault Following In-Flight Incident
+
+Movie News, Selma Blair, Cruel Intentions, Hellboy
+
+Tue, 13 Oct 2026 15:54:09 GMT
+
+https://movieweb.com/selma-blair-charged-for-assault/
+
+'Cruel Intentions' star Selma Blair charged with second-degree assault.
+---------
+
 # Mike Flanagan Officially Does The Impossible With One Stephen King Villain
 
 Streaming TV, Carrie
