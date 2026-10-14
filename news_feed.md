@@ -1,3 +1,333 @@
+# Judge Dredd Announces Huge 50th Anniversary Release For February 2027
+
+Books, Judge Dredd, 2000 AD
+
+Wed, 14 Oct 2026 06:30:16 GMT
+
+https://screenrant.com/judge-dredd-fifty-year-anniversary-celebration-2027/
+
+Judge Dredd officially turns 50 years old next year, and the franchise is kicking things off with a massive anniversary celebration in February.
+---------
+
+# Dragon Ball Z Officially Unveils New Form For Goku
+
+Gaming, Dragon Ball, Live Service Games
+
+Wed, 14 Oct 2026 06:00:16 GMT
+
+https://screenrant.com/dragon-ball-z-squadra-new-ss-son-goku-form/
+
+There's nothing that Goku loves more than powering up and changing his hair, so this new release is far from a surprise for long-time fans.
+---------
+
+# DC's Clayface First Reactions Are Officially In For R-Rated Batman Movie
+
+Movies, Clayface, Batman, DC Universe
+
+Wed, 14 Oct 2026 05:42:20 GMT
+
+https://screenrant.com/clayface-dc-movie-first-reactions/
+
+Reactions are officially in for DC Studios' R-rated Batman horror movie, Clayface, starring Tom Rhys Harries as the famous shape-shifting villain.
+---------
+
+# Foundation December 2026 Return Officially Confirmed
+
+Gaming, Foundation, foundation trilogy, Isaac Asimov, PC, Sci-Fi
+
+Wed, 14 Oct 2026 05:30:15 GMT
+
+https://screenrant.com/foundation-december-2026-galactic-frontier-plans-confirmed/
+
+Foundation is making an official return in December 2026 with several long-awaited changes that fans have been waiting on for a while.
+---------
+
+# Amazon Desevers Credit For Saving 1 Action Hero After 2 Miscast Movies
+
+Streaming TV, Masked Recs
+
+Wed, 14 Oct 2026 05:00:17 GMT
+
+https://screenrant.com/prime-video-saved-reacher-tom-cruise-miscast/
+
+An iconic action hero was nearly ruined by a miscast in a movie adaptation, but Prime Video saved the day by featuring the right actor for the role.
+---------
+
+# Star Trek: The Next Generation Sequel Officially Confirmed With Fan-Favorite Character
+
+Gaming, Star Trek: The Next Generation, Star Trek, Star trek, PC
+
+Wed, 14 Oct 2026 05:00:17 GMT
+
+https://screenrant.com/star-trek-next-generation-sequel-shadow-frontier-horror/
+
+Star Trek: The Next Generation is getting an official sequel with a returning fan-favorite character, arriving in 2027.
+---------
+
+# A Knight Of The Seven Kingdoms Will Officially Switch Genres In Winter 2026 Return
+
+Gaming, A Knight Of The Seven Kingdoms
+
+Wed, 14 Oct 2026 04:30:16 GMT
+
+https://screenrant.com/knight-of-seven-kingdoms-genre-change-winter-2026/
+
+Discover the upcoming trading card game for A Knight of the Seven Kingdoms set to release in Winter 2026.
+---------
+
+# The Boys Officially Recast Homelander And Nobody Noticed
+
+Gaming, The Boys
+
+Wed, 14 Oct 2026 04:00:21 GMT
+
+https://screenrant.com/the-boys-homelander-recast-trigger-warning-reception/
+
+The Boys has officially concluded its bloody and brutal run on Prime Video, and we already have a new Homelander.
+---------
+
+# 5 Horror Comics That Are Straight-Up Nightmare Fuel
+
+Comics, Horror, Halloween
+
+Wed, 14 Oct 2026 03:21:16 GMT
+
+https://screenrant.com/best-horror-comics/
+
+From body horror to bloodthirsty vampires and terrifying cosmic mysteries, these 5 comics deliver some of the most unsettling experiences in comics.
+---------
+
+# The MCU Confirms Vibranium's Weakness Against A Major X-Men Weapon
+
+Streaming TV, Marvel Cinematic Universe
+
+Wed, 14 Oct 2026 03:01:21 GMT
+
+https://screenrant.com/visionquest-vibranium-damage-from-adamantium-bullets/
+
+The MCU has finally proven that vibranium's time as the world's most powerful resource has finally come to an end just as a new saga is about to begin
+---------
+
+# 7 Hunter x Hunter Characters Stronger Than Ging
+
+Anime, Hunter X Hunter
+
+Wed, 14 Oct 2026 03:46:11 GMT
+
+https://www.cbr.com/hunter-x-hunter-characters-stronger-than-ging/
+
+Ging Freecss is one of the strongest Nen masters in Hunter x Hunter, but there are still characters more powerful than him.
+---------
+
+# Cristin Milioti's 'Twisted, Bloody' R-Rated Horror Film Is Now Available to Watch at Home
+
+Movies, Buddy
+
+Wed, 14 Oct 2026 03:34:51 GMT
+
+https://www.cbr.com/buddy-horror-movie-digital-release/
+
+The film largely went under the radar in theaters in the shadow of Obsession and Backrooms.
+---------
+
+# This Agatha Christie-Inspired Murder, She Wrote Episode Remains TV’s Best Whodunit
+
+TV, Murder, She Wrote, Mystery
+
+Wed, 14 Oct 2026 03:30:12 GMT
+
+https://www.cbr.com/murder-she-wrote-agatha-christie-homage-episode-murder-takes-the-bus/
+
+One of the most acclaimed episodes of Murder, She Wrote was inspired by the legendary mystery author Agatha Christie.
+---------
+
+# 10 Far Side Comics That Are Perfect For Mystery Fans
+
+Comics, The Far Side
+
+Wed, 14 Oct 2026 03:30:12 GMT
+
+https://www.cbr.com/far-side-comics-that-are-perfect-for-mystery-fans/
+
+Mystery fans looking for new sources of entertainment might be surprised to find an abundance of noteworthy material in The Far Side.
+---------
+
+# 10 Long NES Games That Take Forever to Complete
+
+Games, Nintendo, retro games
+
+Wed, 14 Oct 2026 03:15:12 GMT
+
+https://www.cbr.com/long-nes-games-take-forever-to-complete-list/
+
+NES games were usually shorter, but games like the original Legend of Zelda kept players busy for a long time.
+---------
+
+# Masako Nozawa Officially Responds to Goku's Power Creep in New Dragon Ball Super: Beerus Interview
+
+Anime, Dragon Ball, Dragon Ball Super: Beerus, voice actors
+
+Wed, 14 Oct 2026 03:01:21 GMT
+
+https://www.cbr.com/dragon-ball-goku-power-creep-masako-nozawa-interview/
+
+Legendary Dragon Ball VA Masako Nozawa talks about Goku's ever-increasing power level in a new interview for the release of Dragon Ball Super: Beerus.
+---------
+
+# 5 Decepticons Stronger Than Megatron
+
+Anime, Transformers
+
+Wed, 14 Oct 2026 03:00:11 GMT
+
+https://www.cbr.com/transformers-decepticons-stronger-than-megatron-list/
+
+Megatron is the leader of the Decepticons, but that doesn't mean he's the strongest Transformer.
+---------
+
+# 10 Best High-Fantasy JRPGs, Ranked
+
+Games, JRPG, Fantasy
+
+Wed, 14 Oct 2026 02:45:11 GMT
+
+https://www.cbr.com/best-high-fantasy-jrpgs-ranked-list/
+
+Games like Fire Emblem: Three Houses perfectly capture the high fantasy setting and pair it with JRPG mechanics.
+---------
+
+# The 7 Most Perfect Action Anime of the Last 10 Years, Ranked
+
+Anime, Jujutsu Kaisen, Cyberpunk: Edgerunners
+
+Wed, 14 Oct 2026 02:30:11 GMT
+
+https://www.cbr.com/most-perfect-action-anime-last-decade-ranked/
+
+The past 10 years have produced plenty of great action anime, but these seven come remarkably close to perfection from beginning to end.
+---------
+
+# Hannah Waddingham Breaks Silence on Amazon Canceling Ride or Die After 1 Season
+
+TV, Ride or Die
+
+Wed, 14 Oct 2026 02:03:40 GMT
+
+https://www.cbr.com/ride-or-die-cancellation-hannah-waddingham/
+
+The praise for the series was nearly universal, but it won't return for a second season at Prime Video.
+---------
+
+# 'Slow Horses' Star Reacts to Episode 5's Most Harrowing Moment: "You're in a Horror Film"
+
+Exclusives, Slow Horses, Kyle Soller, Apple TV, Thriller
+
+Wed, 14 Oct 2026 07:00:11 GMT
+
+https://collider.com/slow-horses-season-6-episode-5-jim-death-kyle-soller/
+
+Slow Horses star Kyle Soller discusses Season 6's latest episode and filming that unforgivably cold stunt sequence with Jack Lowden and Olivia Cooke.
+---------
+
+# 7 Near-Perfect Netflix Miniseries That Hooked Us in the First 5 Minutes
+
+Netflix, TV Miniseries, When They See Us, Adolescence
+
+Wed, 14 Oct 2026 04:27:12 GMT
+
+https://collider.com/netflix-miniseries-instantly-hooked/
+
+When They See Us, Ripley, Baby Reindeer, Bodies, Fall of the House of Usher, and more make up our list of Netflix miniseries that instantly hooked us.
+---------
+
+# Forget 'The Odyssey,' Matt Damon's 10/10 Crime Thriller Is Perfect From Start to Finish
+
+Movie Features, The Departed, Martin Scorsese, Matt Damon, Leonardo DiCaprio
+
+Wed, 14 Oct 2026 04:04:11 GMT
+
+https://collider.com/matt-damon-crime-thriller-the-departed-streaming-hbo-max-october-2026/
+
+Martin Scorsese's 2006 Oscar winner The Departed brought out a different kind of performance from Matt Damon, placing it among his finest work.
+---------
+
+# Kevin Costner's Performance in This Paramount+ Crime Thriller Is So Good, It Demands a Rewatch
+
+Movie Features, Kevin Costner, Molly's Game, Jessica Chastain, Aaron Sorkin
+
+Wed, 14 Oct 2026 03:51:11 GMT
+
+https://collider.com/kevin-costner-mollys-game-crime-thriller-streaming-paramount-plus-october-2026/
+
+Kevin Costner's greatest performance may be his brief but powerful role as Jessica Chastain's father in the crime thriller Molly's Game.
+---------
+
+# 10 Essential 'Supernatural' Episodes, Ranked
+
+TV, Supernatural, Jared Padalecki, Jensen Ackles
+
+Wed, 14 Oct 2026 03:37:11 GMT
+
+https://collider.com/supernatural-episodes-essential-ranked/
+
+"All Hell Breaks Loose," "Swan Song," and "Lazarus Rising" are all among the best, most essential episodes of Supernatural.
+---------
+
+# The 10 Most Controversial Books of All Time, Ranked
+
+Books and Comics, American Psycho, It, Lolita, A Clockwork Orange
+
+Wed, 14 Oct 2026 03:26:12 GMT
+
+https://collider.com/most-controversial-books-all-time-ranked/
+
+The most controversial books of all time include iconic and frequently debated classics like A Clockwork Orange, Lolita, and American Psycho.
+---------
+
+# 'Severance' Star’s Spooky 'Shining' Replacement Is Officially Hulu’s #1 Hit
+
+Movie News, Adam Scott, Hokum, Hulu, Horror
+
+Wed, 14 Oct 2026 03:01:21 GMT
+
+https://collider.com/hokum-adam-scott-shining-replacement-streaming-success-hulu-october-2026/
+
+Adam Scott's critically acclaimed haunted house movie, Hokum, is finding an audience after its streaming debut on Hulu. Find out more.
+---------
+
+# Paul Bettany Teases How That Shocking ‘VisionQuest’ Premiere Death Changes Everything
+
+Exclusives, VisionQuest, Paul Bettany, Marvel, Disney+
+
+Wed, 14 Oct 2026 03:01:21 GMT
+
+https://collider.com/visionquest-premiere-episode-2-paul-bettany-disney-plus/
+
+Paul Bettany discusses that shocking VisionQuest premiere death, Episode 2's emotional Vision and Tommy reunion, and the Paladin fight scene.
+---------
+
+# Brad Pitt’s ‘Days of Thunder’ Replacement Is Officially the King of Apple TV
+
+Movie News, Brad Pitt, Apple TV, F1, Streaming
+
+Wed, 14 Oct 2026 02:30:11 GMT
+
+https://collider.com/brad-pitt-f1-apple-tv-streaming-hit-300-days-october-2026/
+
+Brad Pitt's record-breaking Apple TV hit continues to outpace the competition with a colossal new milestone.
+---------
+
+# ‘Other Mommy’s 7 Biggest Story Differences That Change the Book
+
+Movie Lists, Other Mommy, Horror
+
+Wed, 14 Oct 2026 02:03:43 GMT
+
+https://movieweb.com/other-mommy-book-changes/
+
+'Other Mommy' brings Josh Malerman's 'Incidents Around the House' to the screen, but it makes notable changes to the source material.
+---------
+
 # The 15 Best SpongeBob SquarePants Halloween Episodes, Ranked
 
 Classic TV, SpongeBob SquarePants
