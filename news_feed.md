@@ -1,3 +1,432 @@
+# 7 Near-Perfect Netflix Shows That Actually Have An Ending
+
+Classic TV, Netflix
+
+Wed, 14 Oct 2026 21:45:17 GMT
+
+https://screenrant.com/netflix-shows-that-have-a-good-ending/
+
+Netflix is notorious for canceling its TV shows too early, but these seven sereis are not just excellent; they each offer satisfying endings too.
+---------
+
+# Former Mr. Sinister Actor Addresses Adam Driver's X-Men Role & Marvel Future
+
+Movies, X-Men, Adam Driver, Jon Hamm
+
+Wed, 14 Oct 2026 21:45:13 GMT
+
+https://screenrant.com/xmen-mcu-movie-mr-sinister-adam-driver-role-jon-hamm-future-response/
+
+Exclusive: The actor who was lined up to play Mister Sinister in Fox's X-Men franchise has shared his thoughts on Adam Driver playing the role.
+---------
+
+# Rocky Is Returning In 2 Months With New Release For 50th Anniversary
+
+Movies, Rocky
+
+Wed, 14 Oct 2026 21:43:28 GMT
+
+https://screenrant.com/rocky-anniversary-movie-4k-edition/
+
+Sylvester Stallone's Rocky Balboa is returning to the ring in two months with a new release celebrating the franchise's 50th anniversary.
+---------
+
+# Beloved Neo-Western Cowboy Movie Officially Returns With New Release In 2 Months
+
+Movies, Urban Cowboy
+
+Wed, 14 Oct 2026 21:32:18 GMT
+
+https://screenrant.com/urban-cowboy-movie-new-release-4k/
+
+With Westerns seeing a resurgence thanks to Taylor Sheridan, a 1980s cowboy film is coming back at the perfect time with a new release.
+---------
+
+# James Gunn Recommends 12 Horror Movies Ahead Of R-Rated Batman Film
+
+Movies, Clayface
+
+Wed, 14 Oct 2026 21:30:57 GMT
+
+https://screenrant.com/james-gunn-body-horror-movie-clayface-recommendations/
+
+James Gunn reveals which 12 classic horror movies he thinks audiences should watch ahead of the release of DC Studios' upcoming Batman film.
+---------
+
+# Everything Fans Know About Masashi Kishimoto's New Naruto Sequel Manga Explained
+
+Anime, Naruto
+
+Wed, 14 Oct 2026 21:30:17 GMT
+
+https://screenrant.com/naruto-shadow-rising-masashi-kishimoto-new-manga-explained/
+
+The creator of Naruto is working on an entirely new sequel manga that is teasing the exploration of the franchise's biggest blank spot.
+---------
+
+# Fjord Interview with Sebastian Stan & Cristian Mungiu
+
+Interviews, Fjord, Sebastian Stan
+
+Wed, 14 Oct 2026 21:27:36 GMT
+
+https://screenrant.com/video/fjord-2026-movie-sebastian-stan-cristian-mungiu-interview/
+
+Fjord star Sebastian Stan and director Cristian Mungiu explain why the alleged abuse at the center of their new drama does not appear onscreen.
+---------
+
+# 9 Near-Perfect Sci-Fi Shows On Hulu
+
+Streaming TV, Hulu, Sci-Fi
+
+Wed, 14 Oct 2026 21:15:16 GMT
+
+https://screenrant.com/near-perfect-sci-fi-shows-on-hulu/
+
+Hulu has an impressive range of sci-fi TV shows, from the reinvention of major film franchises to animated sitcoms to speculative auteur experiments.
+---------
+
+# Your X-Men Hero Based On Your Zodiac Sign
+
+Comics, X-Men, Marvel
+
+Wed, 14 Oct 2026 21:12:16 GMT
+
+https://screenrant.com/xmen-hero-zodiac-sign/
+
+Each Zodiac sign deserves the perfect X-Men hero to represent them, and this article is here to give it to every comic book and horoscope fan.
+---------
+
+# DC Crowns New Ultimate Green Lantern, Replacing Hal Jordan
+
+Comics, Green Lantern
+
+Wed, 14 Oct 2026 21:00:16 GMT
+
+https://screenrant.com/green-lantern-emerald-empress-leader/
+
+Come back Hal
+---------
+
+# Spider-Noir Officially Confirmed To Return Despite Canceled Prime Video Series
+
+Comics, Marvel, Marvel Comics, MCU, Spider-Man, Spider-Noir, Spider-Verse
+
+Wed, 14 Oct 2026 21:27:04 GMT
+
+https://www.cbr.com/spider-noir-confirmed-to-return-despite-canceled-prime-video-series/
+
+This is the great news fans of Spider-Noir needed to hear after Amazon nixed the Prime series.
+---------
+
+# 10 Most Unplayable Game Boy Advance Games, Ranked
+
+Games, Nintendo, Mega Man, The Legend of Zelda
+
+Wed, 14 Oct 2026 21:15:11 GMT
+
+https://www.cbr.com/most-unplayable-game-boy-advance-games-ranked/
+
+Gamers might have fond memories of the Game Boy Advance, but these games are completely unplayable today.
+---------
+
+# Jessica Chastain's Mama is a Better Horror Movie than Other Mommy
+
+Movies, Other Mommy
+
+Wed, 14 Oct 2026 21:00:11 GMT
+
+https://www.cbr.com/jessica-chastain-horror-movie-mama-better-than-other-mommy/
+
+The star has actually made a movie about a supernatural entity that is dangerously obsessed with children before, and that can't be a coincidence.
+---------
+
+# Logan Director’s DC Horror Movie Gets Update Following Paramount-Warner Bros. Merger
+
+Movies, Swamp Thing (DCU), DCU, Horror
+
+Wed, 14 Oct 2026 20:44:50 GMT
+
+https://www.cbr.com/swamp-thing-dcu-horror-movie-update/
+
+Following the Paramount-WB merger, Logan director James Mangold's upcoming DCU horror movie gets an overdue update from DC Studios.
+---------
+
+# '90s Zombie Cult Classic That Predated Resident Evil by 4 Years Finally Comes to Steam
+
+Anime, Steam, Resident Evil
+
+Wed, 14 Oct 2026 20:35:01 GMT
+
+https://www.cbr.com/dead-of-the-brain-steam-release-date/
+
+One of the most underrated survival horror games of all time is heading to Steam for the very first time, and fans couldn't be happier.
+---------
+
+# After 25 Years, The Mummy 4 Finally Reunites Brendan Fraser & Rachel Weisz in New Look
+
+Movies, The Mummy 4, The Mummy, Adventure
+
+Wed, 14 Oct 2026 20:34:39 GMT
+
+https://www.cbr.com/the-mummy-4-brendan-fraser-rachel-weisz-photo/
+
+The Mummy's daring duo finally reunited after 25 years.
+---------
+
+# 7 Strongest Constructicons in Transformers, Ranked by Power
+
+Anime, Transformers, mecha
+
+Wed, 14 Oct 2026 20:15:12 GMT
+
+https://www.cbr.com/transformers-strongest-constructicons-ranked/
+
+Transformers' Constructicons may look like six giant construction vehicles, but calling them a simple work crew would be a serious mistake.
+---------
+
+# Batman: Shadow of the Bat Officially Begins Batman's New Rebooted Era
+
+Comics, Batman
+
+Wed, 14 Oct 2026 20:00:12 GMT
+
+https://www.cbr.com/batmans-shadow-of-the-bat-deniz-camp-javier-rodriguez/
+
+A new take on Batman from the makers of Absolute Martian Manhunter.
+---------
+
+# 8 Movies To Watch If You Love Blade Runner
+
+Movies, Blade Runner
+
+Wed, 14 Oct 2026 20:00:12 GMT
+
+https://www.cbr.com/movies-to-watch-if-you-love-blade-runner-list/
+
+If Blade Runner left you wanting more, these eight sci-fi movies are worth your time
+---------
+
+# Yellowjackets Is Pulling the Plug on Its Original Story in the Final Season
+
+TV, Yellowjackets, Showtime, Paramount Plus
+
+Wed, 14 Oct 2026 19:36:37 GMT
+
+https://www.cbr.com/yellowjackets-season-4-trailer/
+
+The Yellowjackets' formula is changing in Season 4.
+---------
+
+# It Was Officially the End of an Era for 'Star Trek: Deep Space Nine' After This Episode
+
+TV Features, Star Trek: Deep Space Nine, Star Trek, Paramount+ with Showtime
+
+Wed, 14 Oct 2026 21:27:12 GMT
+
+https://collider.com/star-trek-deep-space-nine-call-to-arms-episode-meaning/
+
+The "Call to Arms" episode of Star Trek: Deep Space Nine reshaped the show's narrative with epic battles and complex character arcs.
+---------
+
+# The 10 Greatest Final Lines in Sci-Fi Books, Ranked
+
+Books and Comics, Books, Cloud Atlas, Science Fiction, Dune
+
+Wed, 14 Oct 2026 20:54:11 GMT
+
+https://collider.com/best-final-lines-sci-fi-books-ranked/
+
+In the history of sci-fi, books like Cloud Atlas and The War of the Worlds have the best, most thoughtful final lines that range from poetic to bleak.
+---------
+
+# 'Lanterns' Season 2 Fate Officially Revealed [Exclusive]
+
+TV News, Lanterns, Peter Safran, DCU, DC
+
+Wed, 14 Oct 2026 20:38:15 GMT
+
+https://collider.com/lanterns-season-2-renewal-potential/
+
+Peter Safran tells Collider when fans can expect Lanterns Season 2 news and explains what will determine whether the HBO series returns.
+---------
+
+# Taylor Sheridan Meets 'Ex Machina' in New Trailer for Netflix's Sci-Fi Western
+
+TV News, Netflix, Brian Tyree Henry, Taylor Sheridan, Western
+
+Wed, 14 Oct 2026 20:32:06 GMT
+
+https://collider.com/netflix-sci-fi-bass-x-machina-trailer/
+
+After starring in a Taylor Sheridan show, Bass Reeves gets a sci-fi makeover in a new trailer for Bass x Machina. See it here!
+---------
+
+# Netflix Officially Says Goodbye to Christopher Nolan’s Favorite Fast and Furious Movie
+
+Movie News, Fast and Furious, The Fast and the Furious: Tokyo Drift, Christopher Nolan, Netflix
+
+Wed, 14 Oct 2026 20:31:44 GMT
+
+https://collider.com/christopher-nolan-fast-and-furious-tokyo-drift-leaving-netflix-october-2026/
+
+Christopher Nolan’s guilty pleasure, Fast and Furious: Tokyo Drift, is officially leaving Netflix soon. Read on for more details.
+---------
+
+# Steven Spielberg and Tom Cruise’s Sci-Fi Streaming Hit Is Officially Leaving HBO Max
+
+Movie News, War of The Worlds, Steven Spielberg, Sci-Fi, Tom Cruise
+
+Wed, 14 Oct 2026 20:28:55 GMT
+
+https://collider.com/steven-spielberg-tom-cruise-war-of-the-worlds-leaving-hbo-max-october-2026/
+
+Steven Spielberg's $603 million sci-fi blockbuster War of the Worlds, starring Tom Cruise, is officially leaving HBO Max.
+---------
+
+# 6 Best Miniseries Released Between 1990 and Now
+
+TV, TV Miniseries, Band of Brothers, Chernobyl, Angels in America
+
+Wed, 14 Oct 2026 20:28:12 GMT
+
+https://collider.com/best-miniseries-since-1990/
+
+From When They See Us to Angels in America, these six heavy masterclasses deserve far more than a casual binge.
+---------
+
+# The Perfect ‘Star Trek: The Original Series’ Cast if It Were Made in 2026
+
+TV, Star Trek: The Original Series, Star Trek, Science Fiction, Taron Egerton
+
+Wed, 14 Oct 2026 20:28:12 GMT
+
+https://collider.com/star-trek-the-original-series-cast-made-today-2026/
+
+From Taron Egerton as Captain Kirk to Kodi Smit-McPhee as Spock, here's who we would cast in Star Trek: The Original Series if it were made today.
+---------
+
+# Jason Statham’s 10/10 Crime Thriller Officially Escapes Streaming
+
+Movie News, Jason Statham, Tom Cruise, Collateral, Michael Mann
+
+Wed, 14 Oct 2026 20:27:39 GMT
+
+https://collider.com/jason-statham-tom-cruise-collateral-leaving-peacock-october-2026/
+
+Tom Cruise and Jason Statham's acclaimed crime thriller Collateral is officially leaving Peacock in the United States.
+---------
+
+# ‘Game of Thrones’ Officially Meets ‘Gladiator’ in the Forgotten Epic Leaving Streaming
+
+Movie News, Pompeii, Gladiator, Titanic, Kit Harington
+
+Wed, 14 Oct 2026 20:25:24 GMT
+
+https://collider.com/kit-harington-pompeii-leaving-netflix-october-2026/
+
+Kit Harington's $117 million disaster epic Pompeii is officially leaving Netflix in the United States.
+---------
+
+# New 'Alien' Movie Gets Official Status Update Ahead of Ridley Scott's Long-Awaited Sequel
+
+Movie News, Alien, Alien: Romulus, Ridley Scott, Sci-Fi, Horror
+
+Wed, 14 Oct 2026 21:26:22 GMT
+
+https://movieweb.com/alien-sequel-script-brian-duffield/
+
+'Whalefall' director Brian Duffield revealed he briefly worked on a script for a new 'Alien' film but will not direct or write the next entry.
+---------
+
+# Forget 'The Rip,' Ben Affleck's New 108-Minute Crime Thriller Remains Netflix's No. 1 Movie in the World
+
+Movie News, Animals, Ben Affleck, Netflix, Crime, Thriller, Hot on Streaming
+
+Wed, 14 Oct 2026 21:00:15 GMT
+
+https://movieweb.com/animals-ben-affleck-thriller-stream-netflix-october-2026/
+
+In just two days, the political thriller was seen almost 24 million times around the world.
+---------
+
+# James Gunn's Most Hated DCU Character Officially Addresses His War With Peacemaker
+
+Exclusives, Peacemaker, Frank Grillo, Superhero, Action, DCU, Drama, Comedy
+
+Wed, 14 Oct 2026 20:53:23 GMT
+
+https://movieweb.com/peacemaker-frank-grillo-peacemaker-beef/
+
+Frank Grillo finally opened up about his most notable on-screen conflict in 'Peacemaker' as one of the DCU's most hated characters.
+---------
+
+# "Batman Meets The Beekeeper" in New Action Thriller Trailer Promising One of the Year's Most Explosive Movies
+
+Movie News, Ghost Soldier, Action
+
+Wed, 14 Oct 2026 20:20:18 GMT
+
+https://movieweb.com/ghost-soldier-jim-caviezel-trailer/
+
+The new action movie trailer features explosive action and a thrilling premise.
+---------
+
+# Walton Goggins's 7-Part Thriller Masterpiece Has One of the Best Seasons in TV History
+
+Features, Walton Goggins, The Shield, Crime, Thriller
+
+Wed, 14 Oct 2026 20:00:15 GMT
+
+https://movieweb.com/the-shield-best-tv-season/
+
+Walton Goggins has a long list of crime roles, but his thriller with one of the best TV seasons ever made is still worth revisiting.
+---------
+
+# New James Bond Officially Revealed in Prequel Project Ahead of Amazon Reboot
+
+Movie News, James Bond, james bond, Thriller
+
+Wed, 14 Oct 2026 19:22:37 GMT
+
+https://movieweb.com/young-bond-silverfin-isaac-rouse/
+
+The new project ;Young Bond: Silverfin' explores the iconic spy in a brand new way.
+---------
+
+# 10 Years Ago, the Most Anticipated Plot Twist in 'Game of Thrones' History Became the Franchise's Death Sentence
+
+Features, Game Of Thrones, Fantasy, Game of Thrones
+
+Wed, 14 Oct 2026 19:00:15 GMT
+
+https://movieweb.com/game-of-thrones-jon-snow-targaryen-twist/
+
+This was the beginning of the end for 'Game of Thrones', but no one knew it yet.
+---------
+
+# Jason Statham's 105-Minute Remake of '70s Action Thriller Is Officially Being Wiped From Streaming
+
+Movie News, Death Race, Jason Statham, Coming/Leaving Streaming, Action, Thriller
+
+Wed, 14 Oct 2026 19:00:15 GMT
+
+https://movieweb.com/death-race-jason-statham-leaving-streaming-starz-october-2026/
+
+With news that the U.S. government will livestream an execution for the first time, Statham's violent action thriller feels more timely than ever.
+---------
+
+# 'Rocky' Officially Sets New Release in 2 Months for 50th Anniversary
+
+Movie News, Rocky, Drama, Sylvester Stallone
+
+Wed, 14 Oct 2026 18:54:33 GMT
+
+https://movieweb.com/rocky-50th-anniversary-4k/
+
+The iconic 'Rocky' training montage will look sharp in 4K UHD.
+---------
+
 # Wolverine's New Costume Officially Debuts, And It's Love Or Hate
 
 Marvel Comics, Wolverine
