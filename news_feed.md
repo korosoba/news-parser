@@ -1,3 +1,443 @@
+# Wolverine's New Costume Officially Debuts, And It's Love Or Hate
+
+Marvel Comics, Wolverine
+
+Wed, 14 Oct 2026 18:04:47 GMT
+
+https://screenrant.com/wolverine-new-costume-redesign-paradise/
+
+Wolverine's new costume features a unique twist on his classic uniform's design, which may prove divisive to fans of Logan's traditional look.
+---------
+
+# Today's Wordle Hints & Answer - October 14, 2026 (Puzzle #1943)
+
+Gaming, Wordle, Mobile
+
+Wed, 14 Oct 2026 18:03:46 GMT
+
+https://screenrant.com/todays-wordle-hints-answer-october-14-2026-puzzle-1943/
+
+The Wordle for today is one of the hardest in recent memory, with multiple tricks that will make even veteran players struggle for the answer.
+---------
+
+# Star Wars' Next Series Is Officially Continuing The Clone Wars' Most Important Story
+
+Streaming TV, Star Wars
+
+Wed, 14 Oct 2026 18:00:17 GMT
+
+https://screenrant.com/star-wars-ahsoka-clone-wars-mortis-gods-story-continue/
+
+Star Wars: The Clone Wars featured many important stories, but the most important of all is still vital to one of the franchise's upcoming TV shows.
+---------
+
+# How World of Warcraft: Forever Plans To Operate Forever: "It's Never Too Late To Start"
+
+Gaming, World of Warcraft: Forever, Triple-A Games
+
+Wed, 14 Oct 2026 18:00:17 GMT
+
+https://screenrant.com/world-of-warcraft-forever-interview-fomo-concerns-and-legacy/
+
+While World of Warcraft: Forever sounds fantastic on paper, we spoke to producer Clay Stone to get the rundown on how Blizzard will keep it going.
+---------
+
+# Avatar: Seven Havens Interview with Cast & Creators at NYCC 2026
+
+Videos, Avatar: Seven Havens, New York Comic Con, Avatar: The Last Airbender
+
+Wed, 14 Oct 2026 17:43:37 GMT
+
+https://screenrant.com/video/avatar-seven-havens-cast-creators-nycc-2026-interview/
+
+While at NYCC, the cast and creators of Avatar: Seven Havens introduce the new generation of characters and lay out the multi-season plan for the show.
+---------
+
+# DC Drops Clayface Special 9 Days Before Tom Rhys Harries’ Movie, Where To Find It
+
+DC Comics, Clayface
+
+Wed, 14 Oct 2026 17:39:18 GMT
+
+https://screenrant.com/clayface-special-edition-details/
+
+If nine days feels too long to wait for DC's Clayface movie, a new special featuring the iconic Batman villain just dropped today for $1.
+---------
+
+# Peacock's 'Slow Horses But Better' Spy Series Is Returning At The Perfect Time
+
+Streaming TV, Slow Horses
+
+Wed, 14 Oct 2026 17:30:17 GMT
+
+https://screenrant.com/day-of-the-jackal-better-slow-horses-return-perfect-time/
+
+A rivalry that could redefine TV spy drama? An assassin's cold precision and a relentless spy's pursuit collide turn to a tense cat and mouse chase.
+---------
+
+# Better Call Saul: What In Liebe Deine Jungs Means In English
+
+Classic TV, Better Call Saul
+
+Wed, 14 Oct 2026 17:30:17 GMT
+
+https://screenrant.com/better-call-saul-liebe-deine-jungs-ruler-english-translation/
+
+Better Call Saul features a glass tribute to Werner Ziegler, inscribed with the German "In Liebe Deine Jungs." What does this translate to in English?
+---------
+
+# Pamela Voorhees Channels Jason In Friday The 13th Crystal Lake Spinoff
+
+Movies, Halloween 2026, Crystal Lake, Friday The 13th, Horror
+
+Wed, 14 Oct 2026 17:29:24 GMT
+
+https://screenrant.com/crystal-lake-spinoff-friday-the-13th-image-linda-cardellini-pamela-voorhees/
+
+EXCLUSIVE: Pamela Voorhees (Linda Cardellini) shows where her son Jason got some of his tricks in the Friday the 13th prequel series Crystal Lake.
+---------
+
+# Iron Man Officially Debuts New 'Aura Armor' Suit For First Time
+
+Comics, Iron Man
+
+Wed, 14 Oct 2026 17:22:39 GMT
+
+https://screenrant.com/iron-man-aura-armor-new-redesign/
+
+Tony Stark's latest red-and-black Iron Man suit is called "Aura Armor" and here is everything we kniow about the new technology and its powers.
+---------
+
+# Avatar: Seven Havens Will Have a ‘Big’ Last Airbender Type of Finale, Reveals Creator
+
+TV, Avatar: Seven Havens, Avatar: The Last Airbender, Paramount Plus
+
+Wed, 14 Oct 2026 18:03:20 GMT
+
+https://www.cbr.com/avatar-seven-havens-big-last-airbender-scale-finale-michael-dantedimartino-interview/
+
+Michael Dante DiMartino also reveals how a shelved Korra project helped shape Seven Havens' biggest mystery.
+---------
+
+# James Bond Reveals First Look at New 007 Actor Ahead of Reboot (But It's Not For the Movie)
+
+Books, James Bond, Thriller
+
+Wed, 14 Oct 2026 18:03:11 GMT
+
+https://www.cbr.com/james-bond-new-actor-recast-young-bond-silverfin-audiobook/
+
+The next James Bond has officially been cast--and his first appearance is coming sooner than expected.
+---------
+
+# Toy Story 5 Is Losing to a 33-Year-Old Cult Classic on Streaming
+
+Movies, Toy Story 5, Hocus Pocus, Disney+
+
+Wed, 14 Oct 2026 18:00:11 GMT
+
+https://www.cbr.com/hocus-pocus-beating-toy-story-5-streaming-disney-plus/
+
+Pixar's Toy Story 5 is no match for the cult classics that are currently taking over Disney+.
+---------
+
+# After Exploring Marvel's Midnight Universe, My Favorite Terrifying Title So Far Is Not The One I Expected
+
+Comics, Marvel, Spider-Man, Fantastic Four, X-Men, Horror
+
+Wed, 14 Oct 2026 18:00:11 GMT
+
+https://www.cbr.com/marvel-midnight-surprise-favorite-fantastic-four-not-spider-man/
+
+The horror genre continues to surprise with Marvel Midnight.
+---------
+
+# Black Clover Season 2, Episode 3 Release Date & Time
+
+Anime, Black Clover
+
+Wed, 14 Oct 2026 18:00:04 GMT
+
+https://www.cbr.com/black-clover-season-2-episode-3-release-date-time/
+
+Asta's journey continues in Black Clover Season 2, Episode 3. See the episode's release schedule, and find out when it will be available to stream.
+---------
+
+# Taylor Sheridan's Sons of Anarchy Return Status for New Spinoff Confirmed by Original Star
+
+TV, Sons of Anarchy
+
+Wed, 14 Oct 2026 17:43:30 GMT
+
+https://www.cbr.com/legends-taylor-sheridan-sons-of-anarchy-return-status/
+
+Sons of Anarchy star Ron Perlman reveals if Taylor Sheridan will be part of the upcoming franchise expansion.
+---------
+
+# Scarlett Johansson's Exorcist Is The Best Serial Killer Movie Since Se7en
+
+Movies, The Exorcist: Martyrs
+
+Wed, 14 Oct 2026 17:31:11 GMT
+
+https://www.cbr.com/the-exorcist-martyrs-best-serial-killer-movie-since-se7en/
+
+Mike Flanagan's The Exorcist: Martyrs is a terrifying supernatural serial killer thriller that may finally top David Fincher's 1995 masterpiece.
+---------
+
+# Belmont’s Curse Is Officially One of the Best Castlevania Games of All Time
+
+Games, Castlevania, metroidvania, Video Games, Reviews
+
+Wed, 14 Oct 2026 17:31:11 GMT
+
+https://www.cbr.com/castlevania-belmonts-curse-review/
+
+Castlevania: Belmont's Curse is a return to form: the metroidvania formula, incredible boss fights and a gorgeous art style, makes it a must-play.
+---------
+
+# Boruto Finally Brings Back Naruto and Hinata in Two Blue Vortex Chapter 38
+
+Anime, Naruto, Boruto: Two Blue Vortex, Boruto: Naruto Next Generations
+
+Wed, 14 Oct 2026 17:30:56 GMT
+
+https://www.cbr.com/boruto-two-blue-vortex-chapter-38-naruto-hinata-return/
+
+Chapter 38 of Boruto: Two Blue Vortex finally brings Naruto and Hinata back into the spotlight.
+---------
+
+# Sydney Sweeney's Steamy $220M R-Rated Comedy Is 1 of Netflix's Biggest Movies in the World
+
+Movies, Anyone But You, Comedy, Netflix
+
+Wed, 14 Oct 2026 17:00:11 GMT
+
+https://www.cbr.com/sydney-sweeney-anyone-but-you-rom-com-netflix-success-october-2026/
+
+Sydney Sweeney's retelling of a Shakespeare classic, Anyone but You, is one of the most-watched movies on streaming.
+---------
+
+# Walton Goggins Officially Trades ‘Fallout’ for ‘Miami Vice’ in New Crime Thriller Images
+
+Movie News, Miami Vice, Walton Goggins, Joseph Kosinski, Michael B. Jordan
+
+Wed, 14 Oct 2026 18:00:19 GMT
+
+https://collider.com/walton-goggins-miami-vice-85-set-images/
+
+Fallout star Walton Goggins can be seen on the set of Miami Vice '85 for the first time after the film began shooting.
+---------
+
+# Matt Damon's 5-Part Spy Thriller Officially Takes Over Netflix
+
+Movie News, Jason Bourne, Matt Damon, The Night Agent, Netflix
+
+Wed, 14 Oct 2026 17:58:54 GMT
+
+https://collider.com/matt-damon-jason-bourne-franchise-streaming-success-netflix-october-2026/
+
+Move over, The Night Agent. Netflix has a new five-part action franchise starring Matt Damon that's officially taking over streaming charts.
+---------
+
+# HBO’s Brutal Stephen King Series Won’t Return in 2026
+
+TV News, It: Welcome to Derry, Stephen King, HBO, Stranger Things
+
+Wed, 14 Oct 2026 17:56:47 GMT
+
+https://collider.com/stephen-king-it-welcome-to-derry-season-2-release-window-2027/
+
+Stephen King's dark horror series with shades of Stranger Things is officially returning for Season 2, just not in 2026.
+---------
+
+# HBO’s ‘Lincoln Lawyer’ Replacement Is Officially Taking Over the World
+
+TV News, War, HBO Max, The Lincoln Lawyer, Dominic Cooper
+
+Wed, 14 Oct 2026 17:55:19 GMT
+
+https://collider.com/hbo-the-lincoln-lawyer-replacement-war-streaming-success-october-2026/
+
+HBO's official answer to The Lincoln Lawyer is quietly becoming one of the most-watched shows of 2026.
+---------
+
+# ‘GTA 6’ PC Release Officially Rumored for 2027
+
+Gaming News, Grand Theft Auto 6, Rockstar Games, PC, Steam
+
+Wed, 14 Oct 2026 17:47:08 GMT
+
+https://collider.com/gta-6-pc-release-window-2027/
+
+Grand Theft Auto 6 could release on PC in early 2027, according to a new report, shortening the wait after its November console launch.
+---------
+
+# 6 Most Perfect Psychological Thrillers Released Since 2010, Ranked
+
+Movie, Psychological Thriller, Burning, Gone Girl, The Handmaiden
+
+Wed, 14 Oct 2026 17:41:11 GMT
+
+https://collider.com/most-perfect-psychological-thrillers-since-2010-ranked/
+
+Obsession, Gone Girl, and Burning are all among the best, most perfect psychological thriller movies released since the year 2010.
+---------
+
+# Greta Gerwig's New Fantasy Franchise Officially Begins a New Era at Netflix
+
+Movie News, Narnia: The Magician's Nephew, The Chronicles of Narnia, Greta Gerwig, Netflix
+
+Wed, 14 Oct 2026 17:40:58 GMT
+
+https://collider.com/narnia-the-magicians-nephew-trailer-behind-the-scenes-greta-gerwig-imax-netflix/
+
+Go behind the scenes of the first trailer for Greta Gerwig’s Narnia: The Magician’s Nephew, starring Daniel Craig, Emma Mackey, and Carey Mulligan.
+---------
+
+# 'Joker' Meets 'The Substance' in DC's "Freakishly Awesome" Batman Spin-Off
+
+Movie News, Clayface, DCU, DC, Horror
+
+Wed, 14 Oct 2026 17:32:53 GMT
+
+https://collider.com/dc-batman-spin-off-clayface-first-reactions/
+
+DC's Clayface is being described as "Joker meets The Substance" and "freakishly awesome" in glowing first reactions.
+---------
+
+# ‘Ghosts’ Creators’ New Sitcom Officially Loses Its Newest Vampire in Episode 2 Sneak Peek [Exclusive]
+
+Exclusives, Eternally Yours, CBS, Sitcom, Rose Abdoo
+
+Wed, 14 Oct 2026 17:00:12 GMT
+
+https://collider.com/eternally-yours-season-1-episode-2-baby-vampire-sneak-peek/
+
+Watch an exclusive Eternally Yours Episode 2 sneak peek as Jesse loses track of Max while the new vampire’s transformation takes hold.
+---------
+
+# 6 Stephen King Books That Are Perfect From Cover to Cover
+
+Books and Comics, Misery, The Shining, Salem's Lot, Pet Sematary
+
+Wed, 14 Oct 2026 16:34:11 GMT
+
+https://collider.com/6-stephen-king-books-that-are-perfect-from-cover-to-cover/
+
+Misery, Pet Sematary, and The Stand are all among Stephen King's very best, genuinely perfect books.
+---------
+
+# Jim Carrey's Long-Awaited Sequel Officially Confirms Major Costume Change 26 Years in the Making
+
+Movie News, How The Grinch Stole Christmas, Jim Carrey, Comedy, Christmas
+
+Wed, 14 Oct 2026 18:02:34 GMT
+
+https://movieweb.com/grinch-2-jim-carrey-motion-capture/
+
+A sequel nearly three decades in the making will feature Jim Carrey's character in a different way.
+---------
+
+# 8 Near-Perfect 2020s War Movies Better Than ‘Saving Private Ryan’
+
+Movie Lists, Saving Private Ryan, War
+
+Wed, 14 Oct 2026 18:00:15 GMT
+
+https://movieweb.com/war-movies-saving-private-ryan-comparison/
+
+'Saving Private Ryan' is a timeless classic directed by Steven Spielberg and starring Tom Hanks, but these 2020s war movies are better.
+---------
+
+# New Survival Thriller Hailed as One of the Best of the Year in First Reviews
+
+Movie News, Whalefall, Thriller, Drama
+
+Wed, 14 Oct 2026 17:10:29 GMT
+
+https://movieweb.com/whalefall-reviews/
+
+Early reviews are coming in for 20th Century's new survival thriller, and the outlook is already looking quite good for its release.
+---------
+
+# Netflix Release Puts a Timely Twist on 34-Year-Old Kevin Costner Thriller Classic
+
+Movie News, Guarding Stars, Jared Padalecki, Leighton Meester, Netflix, Comedy
+
+Wed, 14 Oct 2026 17:10:09 GMT
+
+https://movieweb.com/guarding-stars-first-look/
+
+The fresh Netflix release 'Guarding Stars' featuring Leighton Meester and Jared Padalecki comes just in time for the holidays.
+---------
+
+# New 95-Minute Action Thriller Reboot Officially Beats the "2nd Best Movie Ever Made" at the Box Office
+
+Movie News, Resident Evil, Box Office Milestones, The Godfather, Action, Horror, Thriller
+
+Wed, 14 Oct 2026 17:00:15 GMT
+
+https://movieweb.com/resident-evil-godfather-box-office-october-2026/
+
+After breaking franchise records, the anticipated reboot has now outpaced a critically acclaimed gangster classic.
+---------
+
+# DC Studios Officially Confirms Fate of Long-Awaited DCU Movie 3 Years Later
+
+Movie News, Swamp Thing (DCU), DCU, Horror, Superhero
+
+Wed, 14 Oct 2026 16:05:29 GMT
+
+https://movieweb.com/swamp-thing-script-status/
+
+Three years since it was announced, DC Studios co-president Peter Safran confirms James Mangold is still working on the script for 'Swamp Thing.'
+---------
+
+# Channing Tatum's New Near-Perfect Crime Thriller Set To Be One of 2026's Best in First Trailer
+
+Movie News, Crime, Thriller, Josephine, Channing Tatum
+
+Wed, 14 Oct 2026 16:02:57 GMT
+
+https://movieweb.com/josephine-trailer/
+
+MCU and '21 Jump Street' star Channing Tatum will lead one of the darkest stories of his career in a creepy new 2026 crime thriller.
+---------
+
+# Netflix's Realistic 91-Minute Action Thriller Refuses to Back Down on Streaming
+
+Movie News, Facing El Chapo, Netflix, Hot on Streaming, Action, Thriller
+
+Wed, 14 Oct 2026 16:01:15 GMT
+
+https://movieweb.com/facing-el-chapo-action-tudum-stream-netflix-october-2026/
+
+Netflix's true crime action thriller is now one of 2026's biggest movies on streaming.
+---------
+
+# 'Whalefall' Beats Other 'Jaws' Knockoffs In An Epic Ocean Survival Thriller | Review
+
+Movie Reviews, Whalefall
+
+Wed, 14 Oct 2026 16:01:15 GMT
+
+https://movieweb.com/whalefall-movie-review/
+
+Brian Duffield delivers an experiential horror that excels beyond the plethora of Jaws-derivative "scary ocean" flicks.
+---------
+
+# 'Yellowstone' Is Great, but Another Gritty 6-Part Western on Paramount+ Is Even Better
+
+Features, Longmire, Yellowstone, Western, Action, Thriller
+
+Wed, 14 Oct 2026 16:01:15 GMT
+
+https://movieweb.com/longmire-yellowstone-comparison/
+
+After the third season on A&amp;E, Netflix saved a popular neo-Western series that's even better than 'Yellowstone' (and is now streaming on Paramount+).
+---------
+
 # Resident Evil Legend Leon Kennedy Officially Returns October 16
 
 Gaming, Resident Evil, Triple-A Games, Resident Evil 2
