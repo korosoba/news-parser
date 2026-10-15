@@ -1,3 +1,432 @@
+# 10 Classic Thriller Movies That Are Too Disturbing To Watch Twice, Including Prisoners
+
+Movies, Thriller
+
+Thu, 15 Oct 2026 21:50:18 GMT
+
+https://screenrant.com/classic-thriller-movies-too-disturbing-watch-twice/
+
+Some thrillers are so brutal, bleak, and psychologically devastating that watching them twice is unbearable. These classics left scars on audiences.
+---------
+
+# Tom Cruise's New Movie Is Being Removed From Thousands Of Theaters After Bombing
+
+Movies, Digger
+
+Thu, 15 Oct 2026 21:47:29 GMT
+
+https://screenrant.com/tom-cruise-digger-movie-theater-remove-box-office/
+
+Tom Cruise’s newest film has already suffered a major defeat at the box office, and another tidal wave of bad news is coming this weekend.
+---------
+
+# Dexter: Resurrection Season 2 Is Officially Getting A 'New Dexter'
+
+TV, Dexter, Dexter: Resurrection
+
+Thu, 15 Oct 2026 21:30:17 GMT
+
+https://screenrant.com/dexter-resurrection-season-2-harrison-like-father/
+
+In Dexter: Resurrection season 2, a tense moral tug pulls one star between empathy and calculated violence as they adopt Dexter’s bad habits.
+---------
+
+# 3 Best New HBO Max Series To Binge-Watch This Weekend (October 16–18, 2026)
+
+Streaming TV, HBO Max, What to Watch on Max
+
+Thu, 15 Oct 2026 21:30:17 GMT
+
+https://screenrant.com/best-new-hbo-max-shows-to-binge-weekend-october-16-2026/
+
+The top 3 new HBO Max series to binge-watch this weekend, October 16–18, 2026, are Last Week Tonight with John Oliver, Lanterns, and The Gilded Age.
+---------
+
+# We're Officially 3 Months Away From Jason Statham's Action Thriller Franchise's Return
+
+New Movies, Jason Statham, The Beekeeper 2
+
+Thu, 15 Oct 2026 21:20:18 GMT
+
+https://screenrant.com/jason-statham-the-beekeeper-franchise-return-2027-better/
+
+Jason Statham is officially returning to one of his best action thriller franchises in three months, and the R-rated sequel looks better than ever.
+---------
+
+# HBO Max's 'Star Wars Meets Game Of Thrones' Sci-Fi Series Is The Perfect Binge
+
+Streaming TV, Masked Recs
+
+Thu, 15 Oct 2026 21:10:08 GMT
+
+https://screenrant.com/dune-prophecy-hbo-max-sci-fi-series-binge-before-dune-3/
+
+HBO Max's sci-fi series with another season on the way is a space opera that unites Star Wars and Game of Thrones, and it is the perfect binge.
+---------
+
+# Fourth Wing Series Finds Its Violet Sorrengail & Xaden Riorson
+
+TV, Fourth Wing
+
+Thu, 15 Oct 2026 21:07:04 GMT
+
+https://screenrant.com/fourth-wing-series-xaden-violet-emilio-sakraya-esther-mcgregor/
+
+Fourth Wing is coming soon, and Prime Video is bringing the beloved bestselling romantasy novels to life with Violet and Xaden arriving on screen.
+---------
+
+# NCIS Ignores Gibbs' Best Relationship For Mark Harmon's Homecoming
+
+Network TV, NCIS: Origins, NCIS
+
+Thu, 15 Oct 2026 21:01:18 GMT
+
+https://screenrant.com/ncis-origins-season-3-episode-2-gibbs-return-abby-ignore/
+
+NCIS: Origins season 3, episode 2 saw Gibbs returning to the NCIS offices and recalling the past, but in doing so, one vital person was left out.
+---------
+
+# New Pokémon Release Officially Confirms The Best Pikachu Clone Of All
+
+Gaming, Pokemon, Nintendo, Nintendo Switch 2
+
+Thu, 15 Oct 2026 21:01:18 GMT
+
+https://screenrant.com/pokemon-beats-mimikyu-best-pikachu-clone/
+
+A brand-new Pokémon release puts the very best version of the iconic 'mon, Pikachu, front and centre, officially confirming which is best of all.
+---------
+
+# Whalefall Ending Explained
+
+Movies, Whalefall
+
+Thu, 15 Oct 2026 21:01:18 GMT
+
+https://screenrant.com/whalefall-ending-explained/
+
+Whalefall follows one man’s desperate fight to escape a giant whale, forcing him to confront his grief and complicated relationship with his father.
+---------
+
+# God of War's Kratos Returns in $1,899 New Release Coming May 2027
+
+Games, God of War
+
+Thu, 15 Oct 2026 21:40:13 GMT
+
+https://www.cbr.com/god-of-war-kratos-new-release-may-2027-preorder-now/
+
+God of War's main character, Kratos, is officially returning next year in a new premium release.
+---------
+
+# Amanda Seyfried’s Netflix Anti-Cinderella Movie Gets First Trailer
+
+Movies, Steps, Netflix, animated
+
+Thu, 15 Oct 2026 21:37:27 GMT
+
+https://www.cbr.com/steps-trailer-netflix-cinderella-movie/
+
+A reimagined Cinderella tale is coming to Netflix.
+---------
+
+# Fourth Wing Live-Action Series Casts Its Xadan and Violet
+
+TV, Fourth Wing
+
+Thu, 15 Oct 2026 21:16:28 GMT
+
+https://www.cbr.com/prime-video-fourth-wing-casts-xadan-violet/
+
+Prime Video's Fourth Wing series has officially cast the live-action versions of Xadan and Violet.
+---------
+
+# D&D Breaks Away From Fantasy For A Sci-Fi Horror Adventure
+
+Games, Dungeons and Dragons, Tabletop, D&D
+
+Thu, 15 Oct 2026 21:15:13 GMT
+
+https://www.cbr.com/dnd-breaks-from-fantasy-sci-fi-horror-adventure/
+
+Dungeons & Dragons is venturing into horror/sci-fi with the Project Lamordia adventures on D&amp;D Beyond, giving the Domains of Dread an SCP twist.
+---------
+
+# Taylor Sheridan’s Yellowstone Spinoff Crowned King of TV With 8.2 Million Viewers
+
+TV, Marshals, Yellowstone, CBS
+
+Thu, 15 Oct 2026 21:15:09 GMT
+
+https://www.cbr.com/marshals-season-2-premiere-viewership/
+
+Yellowstone sequel series Marshals delivered big with its Season 2 premiere on CBS, pulling in a massive 8.2 million viewers.
+---------
+
+# Pokémon Returns With New Holiday Collection Available Now
+
+Games, Pokemon
+
+Thu, 15 Oct 2026 20:57:12 GMT
+
+https://www.cbr.com/pokemon-holiday-collection-winter-night-sky/
+
+This year's holiday season hasn't quite started yet, but Pokémon Center is already rolling out its official holiday merchandise line for 2026.
+---------
+
+# Marvel Exec Reveals Why Disney+ Canceled Daredevil: Born Again After Season 3
+
+TV, Daredevil: Born Again, Disney+, Marvel Cinematic Universe
+
+Thu, 15 Oct 2026 20:45:00 GMT
+
+https://www.cbr.com/why-disney-plus-canceled-daredevil-born-again/
+
+There's more to Daredevil's second cancelation than Marvel fans may realize.
+---------
+
+# Dragon Ball Super: Beerus Episode 2 Release Date & Time
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball
+
+Thu, 15 Oct 2026 20:35:12 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-episode-2-release-date-time/
+
+Goku’s infamously poorly animated fight with Beerus is finally getting the major makeover it needed in Dragon Ball Super: Beerus Episode 2.
+---------
+
+# Studio Ghibli Returns Limited-Edition Howl's Moving Castle Loungewear to Official Store for a Cozy Fall 2026
+
+Anime, Howl's Moving Castle, Studio Ghibli, merchandise, Clothing
+
+Thu, 15 Oct 2026 20:35:12 GMT
+
+https://www.cbr.com/studio-ghibli-howls-moving-castle-cardigan-re-release-fall-2026/
+
+The cardigan inspired by Howl’s cape is back in the official Ghibli store ahead of the Fall season.
+---------
+
+# All 5 Hunger Games Movies Get First-Ever Free Streaming Takeover Ahead of New Prequel
+
+Movies, The Hunger Games
+
+Thu, 15 Oct 2026 20:24:43 GMT
+
+https://www.cbr.com/hunger-games-movies-streaming-free-fandango-october-2026/
+
+Binge all five movies for free ahead of the release of the sixth installment.
+---------
+
+# 7 Biggest Book Changes in Prime Video's 'Carrie,' Ranked
+
+TV, Carrie, Mike Flanagan, Prime Video, Stephen King
+
+Thu, 15 Oct 2026 21:52:13 GMT
+
+https://collider.com/carrie-prime-video-book-changes-ranked/
+
+From the modern update to new characters with powers, Mike Flanagan's adaptation of Carrie on Prime Video goes where Stephen King's book does not.
+---------
+
+# The 7 Best New Horror Movies of October 2026
+
+Movie, Clayface, Other Mommy, Crawlers, The Cycle
+
+Thu, 15 Oct 2026 21:45:13 GMT
+
+https://collider.com/best-new-horror-movies-to-watch-this-october/
+
+The 7 best new horror movies of October 2026.
+---------
+
+# All 5 Zombie Movies of 2026, Ranked
+
+Movie, Horror, Resident Evil, Cold Storage, 28 Years Later: The Bone Temple
+
+Thu, 15 Oct 2026 21:19:13 GMT
+
+https://collider.com/zombie-movies-2026-ranked/
+
+From Resident Evil to Cold Storage, 2026 has given us five zombie movies, all of which range from solid to genuinely great, but which is the best one?
+---------
+
+# Prime Video's 'Fourth Wing' Series Reportedly Casts Violet and Xaden
+
+Books and Comics News, The Wheel of Time, Fourth Wing, Fantasy, Prime Video
+
+Thu, 15 Oct 2026 21:15:54 GMT
+
+https://collider.com/prime-video-fourth-wing-series-cast-violet-xaden-esther-mcgregor-emilio-sakraya/
+
+Prime Video's Fourth Wing series has reportedly found its Violet and Xaden for the Michael B. Jordan-produced fantasy adaptation.
+---------
+
+# 6 Best Detective Movies Released Since 2020, Ranked
+
+Movie, Mystery, Decision to Leave, Glass Onion: A Knives Out Mystery, The Batman
+
+Thu, 15 Oct 2026 21:09:13 GMT
+
+https://collider.com/best-detective-movies-since-2020-ranked/
+
+From Enola Holmes to The Batman, these six exceptional modern detective movies deliver cinema's most addictive twists.
+---------
+
+# 10 Comedy Movies That Are Fun the Whole Way Through
+
+Movie, Comedy, Best in Show, Blazing Saddles, Airplane!
+
+Thu, 15 Oct 2026 20:57:13 GMT
+
+https://collider.com/comedy-movies-fun-throughout/
+
+It takes a really special comedy to be consistently fun throughout, with movies like Best in Show, Playtime, and Airplane among the best examples.
+---------
+
+# ‘Law & Order’ Officially Reaches the End of an Era Tonight in New Sneak Peek [Exclusive]
+
+TV News, Law and Order, Reid Scott, NBC, Peacock
+
+Thu, 15 Oct 2026 20:15:13 GMT
+
+https://collider.com/law-and-order-season-26-episode-2-sneak-peek-into-the-mystic/
+
+Reid Scott will depart Law and Order with tonight's all-new episode. Watch an exclusive sneak peek now.
+---------
+
+# 16 Years Later, This 'Lost' Release Still Adds Another Layer to the Sci-Fi Series
+
+TV Features, Lost, Television, Easter Eggs, J.J. Abrams
+
+Thu, 15 Oct 2026 20:07:13 GMT
+
+https://collider.com/lost-dvd-release-easter-eggs/
+
+'Lost' is known for its secrets and hidden layers, but the series' DVD releases took that to another level.
+---------
+
+# Brendan Fraser's 'The Mummy 4' Officially Set for 2027 Release
+
+Movie News, The Mummy 4, Radio Silence, Brendan Fraser, Rachel Weisz
+
+Thu, 15 Oct 2026 20:00:50 GMT
+
+https://collider.com/brendan-fraser-the-mummy-4-title-book-of-the-dead-release-date-october-2027/
+
+Brendan Fraser's The Mummy 4 is exactly 1 year away from hitting theaters, and the fantasy movie now has an official title.
+---------
+
+# 8 Psychological Thriller Miniseries That Are Perfect From Beginning to End
+
+TV, TV Miniseries, Psychological Thriller, Baby Reindeer, Ripley
+
+Thu, 15 Oct 2026 19:52:13 GMT
+
+https://collider.com/psychological-thriller-miniseries-perfect-beginning-to-end/
+
+Sharp Objects, The Innocent, Baby Reindeer, Ripley, The Undoing, and more make up our list of perfect psychological thriller miniseries.
+---------
+
+# Netflix's Newest Movie Officially Hailed as "Bonkers" in Glowing First Reviews
+
+Movie News, Netflix, Comedy
+
+Thu, 15 Oct 2026 21:14:50 GMT
+
+https://movieweb.com/the-storm-reviews-netflix/
+
+Buckle up for a wild ride as Netflix's 'The Storm' appears to live up to its premise, delivering the most "bonkers" release on the platform in 2026.
+---------
+
+# Will Smith's Solid 101-Minute Action Thriller Shoots Onto Free Streaming Ahead of Long-Awaited Sequel
+
+Movie News, I Am Legend, I Am Legend 2, Will Smith, Action, Thriller, Sci-Fi, Tubi, Coming/Leaving Streaming
+
+Thu, 15 Oct 2026 21:00:16 GMT
+
+https://movieweb.com/i-am-legend-stream-tubi-october-2026/
+
+The sci-fi thriller boasts one of Will Smith's best performances.
+---------
+
+# Netflix’s Steamy Thriller Was So Good, It Shows Book Adaptations How It’s Done
+
+Features, The Hunting Wives, Thriller, Netflix
+
+Thu, 15 Oct 2026 21:00:16 GMT
+
+https://movieweb.com/the-hunting-wives-book-adaptation/
+
+Netflix's steamy thriller TV series is an impressive adaptation of a novel, and others should follow the same structure.
+---------
+
+# 'The Mummy 4' Official Title Confirmed as It Brings Action Adventure Franchise Full Circle
+
+Movie News, The Mummy 4, The Mummy, Brendan Fraser, Rachel Weisz, Action, Adventure, Horror, Fantasy
+
+Thu, 15 Oct 2026 20:53:44 GMT
+
+https://movieweb.com/the-mummy-book-of-the-dead-title-confirmed/
+
+Brendan Fraser's fourth 'The Mummy' movie had its official title revealed, ramping up anticipation for its release in a year.
+---------
+
+# Tim Burton Sets Sights on New Post-WWII Movie With Bestselling Sci-Fi Novelist
+
+Movie News, Tim Burton, War, Sci-Fi
+
+Thu, 15 Oct 2026 20:08:44 GMT
+
+https://movieweb.com/tim-burton-kazuo-ishiguro-war-film/
+
+Tim Burton and 'Klara and the Sun' author Kazuo Ishiguro are developing an original film set in Japan after World War II.
+---------
+
+# Sydney Sweeney's Steamy R-Rated Thriller Sequel Hits Major Milestone as New Cast Is Confirmed
+
+Movie News, Sydney Sweeney, The Housemaid, Thriller, Paul Feig
+
+Thu, 15 Oct 2026 20:05:28 GMT
+
+https://movieweb.com/the-housemaids-secret-filming/
+
+Sydney Sweeney's 'The Housemaid' thriller series continues in the 2027 sequel.
+---------
+
+# 'Blade Runner' Gets a (Very) R-Rated Spin in 99-Minute Sci-Fi Thriller That's Finding Redemption on Streaming
+
+Movie News, SOULM8TE, Hulu, Hot on Streaming, Sci-Fi, Thriller, Blade Runner
+
+Thu, 15 Oct 2026 20:00:17 GMT
+
+https://movieweb.com/soulm8te-rrated-scifi-stream-hulu-october-2026/
+
+2026's most twisted erotic thriller is now on streaming.
+---------
+
+# Netflix Reimagines a Disney Classic in New Star-Studded Fantasy Movie Trailer
+
+Movie News, Steps, Netflix, Fantasy, Animation, Ali Wong, Stephanie Hsu, Amanda Seyfried
+
+Thu, 15 Oct 2026 19:45:30 GMT
+
+https://movieweb.com/steps-trailer-netflix/
+
+A new trailer for a Netflix animated film highlights a wild spin on a well-known Disney fairytale.
+---------
+
+# 'Street Fighter' Rotten Tomatoes Score Officially Revealed
+
+Movie News, Street Fighter, video games, Action
+
+Thu, 15 Oct 2026 19:12:20 GMT
+
+https://movieweb.com/street-fighter-rotten-tomatoes-score/
+
+The reviews from critics have begun to pour in online.
+---------
+
 # 10 Books Where The Villain Is Actually The Best Character
 
 Books, Thriller, Mystery
