@@ -1,3 +1,388 @@
+# November 20 Is Officially The Biggest Day For Fantasy Book Fans In 18 Years
+
+Streaming TV, Fantasy
+
+Thu, 15 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/percy-jackson-and-the-olympians-season-3-hunger-games-november-20/
+
+Fantasy book fans have been eating well recently, and November 20, 2026, will only continue that trend by delivering a first-in-two-decades event.
+---------
+
+# 3 Reasons You Need To Watch 1994's Street Fighter Before The 2026 Reboot
+
+Movies, Street Fighter
+
+Thu, 15 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/street-fighter-reasons-to-watch-original-before-reboot/
+
+Critics were not kind to the original live-action Street Fighter movie, but it remains a 90s curiosity and a worthwhile watch before the reboot.
+---------
+
+# 5 Best Backrooms Video Games You Can Play Right Now
+
+Gaming, Backrooms, The Backrooms
+
+Thu, 15 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/best-backrooms-video-games-you-can-play-right-now/
+
+Explore the best Backrooms games, from creepy solo adventures to co-op horror experiences filled with puzzles, terrifying entities, and mystery.
+---------
+
+# Paramount+ Deserves Credit For Releasing The Perfect Mix Of James Bond And Jason Bourne
+
+Streaming TV, Masked Recs
+
+Wed, 14 Oct 2026 23:43:19 GMT
+
+https://screenrant.com/the-agency-paramount-plus-james-bond-jason-bourne-mix/
+
+Paramount+'s hit spy thriller series is the perfect mix of James Bond and Jason Bourne, and the hit show deserves credit for that key move.
+---------
+
+# Black Clover Season 2, Episode 3 Release Date & Time
+
+Anime, Black Clover
+
+Wed, 14 Oct 2026 23:31:17 GMT
+
+https://screenrant.com/black-clover-season-2-episode-3-release-date-time/
+
+Following some stiff animation in the previous episode, an upcoming captain clash gives the raid a chance to bounce back.
+---------
+
+# Forget Squid Game, Netflix Is Officially Entering A New K-Drama Era
+
+Streaming TV, Netflix, K-Drama
+
+Wed, 14 Oct 2026 23:31:17 GMT
+
+https://screenrant.com/netflix-k-dramas-streaming-success-october-2026/
+
+Half a decade after the monumental start of Squid Game, Netflix's K-drama content continues to shape the streaming service's decade-defining rollout.
+---------
+
+# Josh Brolin Admits He Had Serious Doubts About Whalefall's Extreme Concept
+
+Movies, Whalefall
+
+Wed, 14 Oct 2026 23:16:46 GMT
+
+https://screenrant.com/whalefall-josh-brolin-doubts/
+
+Josh Brolin reveals that he initially had some concerns about whether Whalefall could work as a big screen adaptation due to its concept.
+---------
+
+# Tracker Officially Changes Russell's Comeback Role For Season 4
+
+Network TV, Tracker
+
+Wed, 14 Oct 2026 23:15:18 GMT
+
+https://screenrant.com/tracker-season-4-jensen-ackles-russell-shaw-comeback-role-change/
+
+Russell's comeback story in Tracker season 4 has finally been revealed, and it includes puzzling developments compared to what was previously shared.
+---------
+
+# 7 Flawless Far Side Comics About Alien Invasions
+
+Comics, The Far Side
+
+Wed, 14 Oct 2026 23:02:16 GMT
+
+https://screenrant.com/far-side-funniest-alien-invasion-cartoons-gary-larson/
+
+The Far Side explores the funny side of space invaders.
+---------
+
+# Pokémon Officially Unveils Adorable Pikachu Redesign
+
+Gaming, Pokemon Pokopia, Nintendo Switch 2
+
+Wed, 14 Oct 2026 23:00:17 GMT
+
+https://screenrant.com/pokemon-peakychu-concept-art-redesign-pikachu/
+
+Pokémon has officially unveiled a new look at one of the best Pikachu redesigns we've ever seen.
+---------
+
+# What Are Mutts in The Hunger Games
+
+Movies, The Hunger Games
+
+Thu, 15 Oct 2026 00:00:12 GMT
+
+https://www.cbr.com/hunger-games-mutts-explained/
+
+The Hunger Games are absolutely brutal, but the mutts that terrorize the franchise just make everything more disturbing.
+---------
+
+# Michael C. Hall 5-Season Drama With No Weak Seasons Series Resurfaces on PVOD Ahead of Dexter Return
+
+TV, Six Feet Under, HBO Max, Dexter
+
+Thu, 15 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/six-feet-under-drama-hbo-streaming-success-october-2026/
+
+Before Michael C. Hall became Dexter Morgan, he was in a hit HBO series.
+---------
+
+# 10 Best Charlie Brown Comics About His Pencil-Pal
+
+Comics, Peanuts
+
+Thu, 15 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/best-charlie-brown-comics-about-his-pencil-pal/
+
+Charlie Brown has always loved his Pencil-Pal, but most of the Peanuts comic strips involving his Pencil-Pal rarely tend to end well for him.
+---------
+
+# Star Trek & Doctor Who Crossover Gets Official Update as Both Franchises Face Reboots
+
+TV, Star Trek, Doctor Who / Whoniverse
+
+Wed, 14 Oct 2026 23:45:46 GMT
+
+https://www.cbr.com/star-trek-doctor-who-crossover-russell-t-davies/
+
+The Star Trek and Doctor Who crossover has already come very close to happening.
+---------
+
+# 22 Years After Frasier, Kelsey Grammer Returns to NBC for New Medical Series
+
+TV, Frasier
+
+Wed, 14 Oct 2026 23:08:35 GMT
+
+https://www.cbr.com/kelsey-grammer-medical-drama-pops/
+
+More than two decades after the end of Frasier, Kelsey Grammer is returning to NBC.
+---------
+
+# 5 Autobots Stronger Than Megatron
+
+Anime, Transformers, Innovation
+
+Wed, 14 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/autobots-stronger-than-megatron-ranked-list/
+
+Megatron is one of the most powerful Decepticons, but the strongest Autobots of all time have him beat.
+---------
+
+# The 97% Timothy Olyphant American Masterpiece That Revived Gunslingers for the 21st Century
+
+TV, Justified, FX, Western
+
+Wed, 14 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/justified-timothy-olyphant-modern-gunslinger/
+
+Two decades into the age of prestige television, a resurrected Western saga proves that the cowboy archetype still has untamed territory to explore.
+---------
+
+# HBO’s 4-Season Crime Masterpiece Surges on PVOD Ahead of Nicolas Cage Debut
+
+TV, True Detective, hbo, Crime
+
+Wed, 14 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/true-detective-crime-pvod-apple-tv-store-success-october-2026/
+
+One of HBO's biggest and most beloved series is once again a hit on streaming.
+---------
+
+# Forget The Godfather, Francis Ford Coppola's The Conversation Is Perfect From Start to Finish
+
+Movies, The Conversation, The Godfather, Drama
+
+Wed, 14 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/coppola-the-conversation-even-better-than-the-godfather/
+
+2 years after The Godfather, Francis Ford Coppola made a mystery thriller masterpiece even better than his legendary mobster flick.
+---------
+
+# CBS's New Matlock Replacement Show Is Instantly 1 of America's Most-Popular Series
+
+TV, Matlock, Cupertino, CBS, Paramount Plus
+
+Wed, 14 Oct 2026 22:56:47 GMT
+
+https://www.cbr.com/cupertino-legal-drama-cbs-justwatch-most-popular-october-2026/
+
+Just days after its premiere, CBS' new Matlock replacement show, Cupertino, is one of the most popular shows in the United States.
+---------
+
+# 8 Sci-Fi Movies Without Any Flaws, Ranked
+
+Movie, Sci-Fi, 2001: A Space Odyssey, Blade Runner, Terminator 2: Judgment Day
+
+Thu, 15 Oct 2026 00:11:12 GMT
+
+https://collider.com/sci-fi-movies-without-any-flaws/
+
+From Ex Machina to Terminator 2, these eight flawless sci-fi giants will contaminate how you view everyday life.
+---------
+
+# 6 Essential Classic Sci-Fi Books You Must Read at Least Once
+
+Books and Comics, Sci-Fi, Science Fiction, Frankenstein, Dune
+
+Thu, 15 Oct 2026 00:06:11 GMT
+
+https://collider.com/essential-classic-sci-fi-books-read-at-least-once/
+
+From the Gothic masterpiece Frankenstein to George Orwell's dystopian 1984, these classic sci-fi books are essential and are worth reading once.
+---------
+
+# Apple TV's Most Ambitious Sci-Fi Event Officially Premieres in 100 Days
+
+TV News, Apple TV, Sci-Fi, Neuromancer, Streaming
+
+Thu, 15 Oct 2026 00:00:11 GMT
+
+https://collider.com/apple-tv-sci-fi-neuromancer-release-date-january-2027/
+
+Apple TV's most ambitious sci-fi adaptation yet officially arrives in just 100 days. Read on for more details.
+---------
+
+# Marvel TV Boss Finally Addresses the Future of the MCU’s Best Horror Franchise
+
+Movie News, Werewolf by Night, Michael Giacchino, Disney+, Brad Winderbaum
+
+Wed, 14 Oct 2026 23:30:12 GMT
+
+https://collider.com/marvel-werewolf-by-night-2-sequel-update-brad-winderbaum/
+
+Marvel TV boss Brad Winderbaum has given an update on a sequel to the MCU's best horror story.
+---------
+
+# 'Chicago P.D. Officially Brings Back Jesse Lee Soffer for Another Major Season 14 Exit
+
+TV Features, Chicago P.D., One Chicago, Jesse Lee Soffer, NBC
+
+Wed, 14 Oct 2026 23:24:12 GMT
+
+https://collider.com/chicago-pd-season-14-jesse-lee-soffer-laroyce-hawkins-exit/
+
+Jesse Lee Soffer returns to direct "Don't Blink" for Laroyce Hawkins' Kevin Atwater exit from Chicago P.D.
+---------
+
+# 7 Reasons Why 'Infinity War' is the Best Avengers Movie
+
+Movie, Avengers: Infinity War, MCU, Marvel, Superhero
+
+Wed, 14 Oct 2026 23:21:12 GMT
+
+https://collider.com/avengers-infinity-why-its-the-best/
+
+Avengers: Infinity War stands out as one of the highest highs of the entire MCU thanks to strong character work and highly consequential stakes.
+---------
+
+# 'Doctor Who' Showrunner Officially Confirms Cancelled Plans for Sci-Fi Spin-Off
+
+TV News, Russell T. Davies, The War Between the Land and the Sea, Doctor Who, Science Fiction
+
+Wed, 14 Oct 2026 23:00:12 GMT
+
+https://collider.com/doctor-who-spin-off-the-war-between-land-and-sea-cnacelled-sequel-russell-t-davies/
+
+Doctor Who showrunner Russell T. Davies reveals his scrapped plans for The War Between the Land and the Sea's follow-up.
+---------
+
+# 'Hazbin Hotel' Will Officially Reveal the Truth Behind One of Its Biggest Mysteries [Exclusive]
+
+Exclusives, Hazbin Hotel, Vivienne Medrano, Prime Video, FanX
+
+Wed, 14 Oct 2026 23:00:12 GMT
+
+https://collider.com/hazbin-hotel-roo-eyes-vivienne-medrano-explained/
+
+Hazbin Hotel creator Vivienne Medrano reveals Roo’s connection to the show’s mysterious eyes and teases a character fans won’t expect.
+---------
+
+# All 5 'Hunger Games' Movies Are Officially Leaving Netflix
+
+Movie News, The Hunger Games, The Hunger Games: Catching Fire, The Hunger Games: Mockingjay, Part 1
+
+Wed, 14 Oct 2026 22:57:53 GMT
+
+https://collider.com/hunger-games-franchise-leaving-netflix-october-2026/
+
+Ahead of Sunrise on the Reaping, all 5 Hunger Games movies are officially leaving Netflix. Read on for more details.
+---------
+
+# ‘Fallout’ Studio’s 10/10 Fantasy Epic Is Officially Taking Over the World
+
+Gaming News, The Elder Scrolls V: Skyrim, Video Game, Bethesda
+
+Wed, 14 Oct 2026 22:47:12 GMT
+
+https://collider.com/skyrim-special-edition-success-steam-october-2026/
+
+Skyrim Special Edition is drawing over 36,000 concurrent players on Steam as Bethesda’s original RPG approaches its fifteenth anniversary.
+---------
+
+# 9 Masterpiece Thriller Movies That Hook You in the First 10 Minutes
+
+Movie Lists, Thriller, Mystery, Crime
+
+Thu, 15 Oct 2026 00:00:15 GMT
+
+https://movieweb.com/psychological-thriller-movies-opening-hooks/
+
+I hope you like sitting on the edge of your seat, because these intense thriller movies will have you planted there within 10 minutes.
+---------
+
+# 25 Years Later, Frodo's Greatest 'Lord of the Rings' Quote Is Still the Most Important in Franchise History
+
+Features, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, Fantasy
+
+Wed, 14 Oct 2026 23:32:05 GMT
+
+https://movieweb.com/lord-of-the-rings-frodo-best-quote/
+
+Frodo's greatest 'Lord of the Rings' quote is uttered during a moment of despair, but it's one of the most important to the franchise.
+---------
+
+# "Taylor Sheridan Meets Fargo" in New 100-Minute Action Thriller Officially Releasing Next Month
+
+Movie News, The Deputy, William H. Macy, Action, Thriller, Blu-ray
+
+Wed, 14 Oct 2026 23:00:15 GMT
+
+https://movieweb.com/the-deputy-blu-ray-release/
+
+Matt Sukka's action thriller feature debut 'The Deputy' is officially coming to Blu-ray and DVD in November, courtesy of Well Go USA Entertainment.
+---------
+
+# Brad Pitt's New Near-Perfect Thriller Takes Box Office Crown From Essential Modern Action Masterpiece
+
+Movie News, Heart of the Beast, Box Office Milestones, John Wick, Action, Thriller, Drama, Brad Pitt
+
+Wed, 14 Oct 2026 22:00:15 GMT
+
+https://movieweb.com/heart-of-the-beast-john-wick-box-office-october-2026/
+
+Brad Pitt's survival drama officially beats the iconic, R-rated action classic at the box office.
+---------
+
+# Forget ‘Lioness,’ Apple TV’s Hit Spy Thriller Masterpiece Should Be Next On Your Watch List
+
+Features, Slow Horses, Thriller, Lioness
+
+Wed, 14 Oct 2026 22:00:15 GMT
+
+https://movieweb.com/slow-horses-lioness-comparison/
+
+'Lioness,' the Paramount series by Taylor Sheridan, just wrapped up Season 3, and Apple TV's spy thriller series is the perfect recommendation.
+---------
+
 # 7 Near-Perfect Netflix Shows That Actually Have An Ending
 
 Classic TV, Netflix
