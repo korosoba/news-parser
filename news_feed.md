@@ -1,3 +1,410 @@
+# James McAvoy Pitched A Star Trek Show To Play Young Patrick Stewart Again
+
+TV, Star Trek, James McAvoy, Patrick Stewart
+
+Thu, 15 Oct 2026 23:53:16 GMT
+
+https://screenrant.com/star-trek-james-mcavoy-patrick-stewart-pitch/
+
+James McAvoy played the younger Professor X in the X-Men franchise, but he also pitched his plan to play Patrick Stewart's iconic Star Trek hero.
+---------
+
+# Marvel Replaces Robert Downey Jr.'s Iron Man In New Disney+ Series
+
+Streaming TV, Iron Man, Marvel Cinematic Universe, Your Friendly Neighborhood Spider-Man
+
+Thu, 15 Oct 2026 23:30:18 GMT
+
+https://screenrant.com/your-friendly-neighborhood-spider-man-replaces-iron-man/
+
+Marvel Studios has replaced Robert Downey Jr.'s Iron Man's role in a key hero's life in this exciting Disney+ series, and it comes with a dark twist.
+---------
+
+# Crystal Lake: Linda Cardellini’s New 8-Part Horror Prequel Is The Perfect Halloween Binge
+
+Streaming TV, Masked Recs
+
+Thu, 15 Oct 2026 23:20:18 GMT
+
+https://screenrant.com/crystal-lake-friday-the-13th-prequel-perfect-halloween-show-watch/
+
+Linda Cardellini stars in A24's Friday the 13th prequel series Crystal Lake, a new 8-part horror on Peacock and the perfect Halloween weekend binge.
+---------
+
+# Dragon Ball Super: Beerus Episode 2 Release Date & Time
+
+Anime, Dragon Ball Super, Dragon Ball Super: Beerus, Dragon Ball
+
+Thu, 15 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/dragon-ball-super-beerus-episode-2-release-date-time/
+
+Dragon Ball Super is finally giving its most infamous and heavily criticized battle a massive visual overhaul this weekend.
+---------
+
+# PlayStation Plus Officially Adds One Of The Best-Looking Open-World Games Ever Made
+
+Gaming, PlayStation Plus, PlayStation, Horizon Forbidden West
+
+Thu, 15 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/playstation-plus-best-looking-open-world-game-october-2026/
+
+One of the best-looking open-world games of all time has been added to PS Plus, giving subscribers the opportunity to finally experience it.
+---------
+
+# 15 Best Movies About Addiction & Recovery
+
+Movies, Requiem for a Dream
+
+Thu, 15 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/best-movies-about-addiction-recovery/
+
+The harrowing reality of addiction makes for exceptional human stories, from horrors to dramas, and these classic movies are the absolute best.
+---------
+
+# Prime Video's New Supernatural Thriller Adaptation Casts A Walking Dead Legend
+
+TV, Lauren Cohan, Prime Video
+
+Thu, 15 Oct 2026 22:44:53 GMT
+
+https://screenrant.com/stillwater-prime-video-series-lauren-cohan-cast/
+
+Prime Video's new supernatural thriller adaptation has cast three new roles, offering more insight into a mind-bending series where nobody dies.
+---------
+
+# Street Fighter Has A Post-Credits Scene And It's A Must-Watch For Fans Of The Games
+
+Movies, Street Fighter
+
+Thu, 15 Oct 2026 22:31:17 GMT
+
+https://screenrant.com/street-fighter-post-credits-reveal-explained/
+
+Street Fighter has a post-credit scene that could reveal an iconic fighter and series mainstay set to return if we get a sequel in the future.
+---------
+
+# Taylor Sheridan's Most Evil Dutton Villain Lived 32 Years Before Kevin Costner’s Antihero
+
+TV, Yellowstone, 1923
+
+Thu, 15 Oct 2026 22:31:17 GMT
+
+https://screenrant.com/yellowstone-1923-thomas-whitfield-most-evil-villain/
+
+John Dutton's had many enemies in Yellowstone, but they pale in comparison to the big bad his ancestors, Jacob, Cara, and Spencer. faced in 1923.
+---------
+
+# Marvel Is Threatening The Worst Avengers Romance Of All Time, Bar None
+
+Comics, The Avengers
+
+Thu, 15 Oct 2026 22:31:17 GMT
+
+https://screenrant.com/avengers-daredevil-captain-marvel-romance/
+
+Let us know what you think.
+---------
+
+# Matt Reeves Breaks Silence After Stepping Away from The Batman 2
+
+Movies, The Batman Part II
+
+Thu, 15 Oct 2026 23:54:35 GMT
+
+https://www.cbr.com/matt-reeves-breaks-silence-after-stepping-away-from-the-batman-2/
+
+Returning The Batman Part 2 writer-director Matt Reeves opens up about stepping back from the film promising he hasn't left for good.
+---------
+
+# 7 Classic Cartoon Network Anime That Deserve a Modern Reboot
+
+Anime, Cartoon Network
+
+Thu, 15 Oct 2026 23:15:13 GMT
+
+https://www.cbr.com/classic-cartoon-network-anime-deserve-modern-reboot/
+
+Cartoon Network was home to many forgotten anime, some of which absolutely deserve modern reboots.
+---------
+
+# Dune Returns 1 Month Early With New Event Ahead of Part Three
+
+Movies, Dune: Part Three, Sci-Fi
+
+Thu, 15 Oct 2026 23:13:33 GMT
+
+https://www.cbr.com/dune-the-experience-event/
+
+The experience begins next month in Los Angeles.
+---------
+
+# Game of Thrones' Daenerys Returns in War for Westeros in 2027
+
+Games, Game Of Thrones
+
+Thu, 15 Oct 2026 23:00:13 GMT
+
+https://www.cbr.com/game-of-thrones-daenerys-returns-in-war-for-westeros-in-2027/
+
+The Mother of Dragons, Daenerys Targaryen, is set for a return to the Game of Thrones franchise in just a few months.
+---------
+
+# Russell Crowe's 100-Minute Netflix Thriller Is Running Out of Gas on Streaming
+
+Movies, Unabomber, Netflix
+
+Thu, 15 Oct 2026 23:00:13 GMT
+
+https://www.cbr.com/unabomber-thriller-netflix-streaming-chart-update-october-2026/
+
+Russell Crowe's crime thriller about an infamous domestic terrorist is no longer the top movie on Netflix.
+---------
+
+# Parks & Rec Hid the Best Joke in Sitcom History in Plain Sight & It's Impossible to Beat
+
+TV, Parks and Recreation, Sitcoms, NBC
+
+Thu, 15 Oct 2026 23:00:13 GMT
+
+https://www.cbr.com/parks-and-rec-best-joke-jerry-name-changes/
+
+Parks and Rec proved time and again that it was more than just a workplace comedy, with evolving running gags and character development.
+---------
+
+# Dune: Part Three Abandons Paul Atreides' Original Story, Denis Villeneuve Confirms
+
+Movies, Dune: Part Three, Sci-Fi
+
+Thu, 15 Oct 2026 22:53:41 GMT
+
+https://www.cbr.com/dune-part-three-abandons-paul-atreides-hero-story/
+
+Writer-director Denis Villeneuve explains why Paul Atreides' story takes such a drastic turn in Dune: Part Three.
+---------
+
+# Dragon Ball Officially Changes How Gogeta's Strongest Transformation Works
+
+Anime, Dragon Ball, Dragon Ball Super, namco bandai
+
+Thu, 15 Oct 2026 22:35:13 GMT
+
+https://www.cbr.com/dragon-ball-xenoverse-3-gogeta-transformation-move-change/
+
+Goleta reached new heights of power with Super Saiyan Blue in Dragon Ball Super: Broly, and that form is now getting another upgrade in Xenoverse 3.
+---------
+
+# Dune: Part Three Is Changing the Franchise's Formula for Its Final Movie
+
+Movies, Dune, Dune: Part Two, Dune: Part Three, Dune 2, Sci-Fi, Fantasy
+
+Thu, 15 Oct 2026 22:33:55 GMT
+
+https://www.cbr.com/dune-part-three-changing-the-franchises-formula-for-final-movie/
+
+It's official: the Dune finale will be 'very different' from what most people are expecting.
+---------
+
+# The Batman 2 Lands New Director After Matt Reeves Steps Away
+
+Movies, The Batman Part II
+
+Thu, 15 Oct 2026 22:32:35 GMT
+
+https://www.cbr.com/the-batman-2-new-director-steven-soderbergh-matt-reeves/
+
+Acclaimed filmmaker Steven Soderbergh has officially stepped in to help complete The Batman Part II in the last weeks of production.
+---------
+
+# Netflix’s ‘Widow’s Bay’ Replacement Officially Takes Over the World
+
+TV News, Below, Netflix, Steven Spielberg, Josh Hartnett
+
+Thu, 15 Oct 2026 23:45:13 GMT
+
+https://collider.com/josh-hartnett-below-netflix-thriller-streaming-success-october-2026/
+
+Netflix's 6-part supernatural thriller series, Below, has emerged as an instant hit for the streamer. Find out more.
+---------
+
+# Ben Affleck’s Critically-Panned Political Thriller Is a Massive Netflix Hit
+
+Movie News, Animals, Ben Affleck, Netflix, Thriller
+
+Thu, 15 Oct 2026 23:30:13 GMT
+
+https://collider.com/ben-affleck-netflix-thriller-animals-streaming-success-october-2026/
+
+Ben Affleck's new movie as a director didn't receive positive reviews, but it's certainly an instant hit on Netflix. Find out more.
+---------
+
+# 6 Best Comic Book Movies Released Since 2020, Ranked
+
+Movie, Superhero, Comic Book, The Batman, Zack Snyder's Justice League
+
+Thu, 15 Oct 2026 23:21:13 GMT
+
+https://collider.com/best-comic-book-movies-released-since-2020/
+
+The Batman, Zack Snyder's Justice League, and Black Panther: Wakanda Forever are all among the best comic book movies released since 2020.
+---------
+
+# Disney+’s ‘Harry Potter’ Replacement Officially Crowned the King of Netflix
+
+TV News, Netflix, Percy Jackson & the Olympians, Percy Jackson & The Olympians, Disney+
+
+Thu, 15 Oct 2026 23:16:13 GMT
+
+https://collider.com/percy-jackson-and-the-olympians-streaming-success-netflix-october-2026/
+
+Percy Jackson and the Olympians is officially taking over Disney+'s biggest rival following its debut on Netflix.
+---------
+
+# 10 Funniest Animated TV Series That Aren't 'The Simpsons' or 'South Park'
+
+TV, Animation, The Simpsons, South Park, BoJack Horseman
+
+Thu, 15 Oct 2026 23:13:13 GMT
+
+https://collider.com/funniest-animated-series-like-the-simpsons-south-park/
+
+From Bob's Burgers to BoJack Horseman, these are some of the most hilarious animated TV series.
+---------
+
+# ‘Spy X Family’ Officially Passes Major Milestone Ahead of Season 4
+
+TV News, Spy x Family, Manga, Anime, Crunchyroll
+
+Thu, 15 Oct 2026 23:00:14 GMT
+
+https://collider.com/spy-x-family-new-york-times-bestseller-list/
+
+Spy x Family has reached a new milestone on the New York Times Best Sellers list as fans await news of the anime's fourth season.
+---------
+
+# Forget 'Widow's Bay,' Netflix’s 6-Episode Horror Series Is the Perfect Replacement
+
+TV Features, Below, Horror, Netflix, Josh Hartnett
+
+Thu, 15 Oct 2026 22:58:13 GMT
+
+https://collider.com/below-netflix-horror-perfect-widows-bay-replacement/
+
+If you adored the thrills of Midnight Mass and the setting of Widow's Bay, Netflix's new 6-episode horror series is the perfect binge.
+---------
+
+# Marvel’s New Sci-Fi Series Is Officially the MCU's Best Show Since ‘Loki’
+
+TV News, VisionQuest, Marvel Studios, Paul Bettany, Terry Matalas
+
+Thu, 15 Oct 2026 22:45:13 GMT
+
+https://collider.com/marvel-sci-fi-visionquest-rotten-tomatoes-score-is-it-good/
+
+Marvel Studios' epic conclusion to its WandaVision trilogy has arrived, and the critics have spoken.
+---------
+
+# Spider-Man Officially Crowned the King of Prime Video
+
+Movie News, Spider-Man: Brand New Day, Tom Hollander, Destin Daniel Cretton, MCU
+
+Thu, 15 Oct 2026 22:30:13 GMT
+
+https://collider.com/spider-man-brand-new-day-streaming-success-prime-video-october-2026/
+
+Spider-Man: Brand New Day is officially a #1 streaming hit after becoming the third highest-grossing movie of all time.
+---------
+
+# DC's 'The Batman' Sequel Officially Replaces Matt Reeves
+
+Movie News, The Batman Part II, Robert Pattinson, Matt Reeves, Steven Soderbergh
+
+Thu, 15 Oct 2026 22:30:07 GMT
+
+https://collider.com/the-batman-part-2-matt-reeves-exit-steven-soderbergh-replacement/
+
+Matt Reeves will no longer be directing The Batman: Part 2, with Steven Soderbergh stepping in to take his place. Read on for more.
+---------
+
+# 'Whalefall' Director Explains Why Austin Abrams Couldn't Do All His Own Stunts
+
+Exclusives, Thriller, Drama, Whalefall
+
+Thu, 15 Oct 2026 23:15:20 GMT
+
+https://movieweb.com/whalefall-stunts-explained/
+
+Austin Abrams filmed most of his 'Whalefall' scenes inside an anatomically accurate whale stomach.
+---------
+
+# When 'Whalefall' Will Be Released on Streaming
+
+Features, Whalefall, Action, Thriller, Horror
+
+Thu, 15 Oct 2026 23:01:17 GMT
+
+https://movieweb.com/whalefall-streaming-release/
+
+'Whalefall' is one of the better 'Jaws' knockoffs to emerge, but when will it be available for audiences to watch at home on VOD and streaming?
+---------
+
+# After 25 Years, Christopher Nolan's 113-Minute Crime Thriller Masterpiece Sets New Release
+
+Movie News, Memento, Christopher Nolan, Guy Pearce, Carrie-Anne Moss, Crime, Thriller, Blu-ray
+
+Thu, 15 Oct 2026 23:01:17 GMT
+
+https://movieweb.com/memento-christopher-nolan-4k-blu-ray-release/
+
+Christopher Nolan's crime thriller masterpiece 'Memento' is officially makings its 4K Ultra HD Blu-ray debut, courtesy of Umbrella Entertainment.
+---------
+
+# 'The Batman 2' Continuing Production Without Matt Reeves as New Director Is Confirmed
+
+Movie News, The Batman Part II, Matt Reeves, Action, Adventure, Superhero, Crime, Mystery, Drama
+
+Thu, 15 Oct 2026 22:54:09 GMT
+
+https://movieweb.com/the-batman-2-steven-sonderbergh/
+
+Skydance will push forward on production for 'The Batman 2' without Matt Reeves, bringing in another big name to help lead the way on filming.
+---------
+
+# Forget 'Game of Thrones,' Prime Video's Epic New Fantasy Adaptation Moves Forward With Official Cast
+
+TV News, Fourth Wing, Fantasy, Romance, Prime Video
+
+Thu, 15 Oct 2026 22:26:52 GMT
+
+https://movieweb.com/fourth-wing-xaden-violet-cast/
+
+Esther McGregor and Emilio Sakraya have landed the lead roles in 'Fourth Wing' as Violet Sorrengail and Xaden Riorson, respectively.
+---------
+
+# Disney’s New Essential 8-Part Sci-Fi Action Series Officially Hailed as One of the Year’s Best
+
+TV News, VisionQuest, Disney, Disney+, Superhero, Action, Sci-Fi, Mystery, Adventure
+
+Thu, 15 Oct 2026 22:03:26 GMT
+
+https://movieweb.com/visionquest-disney-first-reactions/
+
+Disney is back with a thrilling new streaming series, which is already becoming one of the best-reviewed projects of the year.
+---------
+
+# The Greatest Star Trek Villain Nobody Remembers Appeared in Just 2 Episodes 27 Years Ago
+
+Features, Star Trek: Voyager, Star Trek, Sci-Fi
+
+Thu, 15 Oct 2026 22:00:16 GMT
+
+https://movieweb.com/star-trek-captain-ransom-great-villain/
+
+'Voyager' proves that even though a Star Trek villain can be forgotten, it doesn't mean they aren't deeply compelling. Read on for more.
+---------
+
 # 10 Classic Thriller Movies That Are Too Disturbing To Watch Twice, Including Prisoners
 
 Movies, Thriller
