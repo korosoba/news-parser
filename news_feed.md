@@ -1,3 +1,366 @@
+# Battlestar Galactica: Prometheus Set Officially Releases October 2026
+
+Gaming, Battlestar Galactica, Triple-A Games
+
+Thu, 15 Oct 2026 04:15:16 GMT
+
+https://screenrant.com/battlestar-galactica-prometheus-replica-october-2026/
+
+If you're a fan of Battlestar Galactica, you'll want to check out Battlestar Galactica: Prometheus, which is coming out very soon.
+---------
+
+# Marvel's New Disney+ Show Has Already Made TV History
+
+TV, Marvel Cinematic Universe
+
+Thu, 15 Oct 2026 04:04:29 GMT
+
+https://screenrant.com/visionquest-james-spader-ultron-first-tv-role-since-blacklist/
+
+The MCU's latest series streaming on Disney+ has only just begun, and it's already making television history when it comes to one major actor.
+---------
+
+# Castlevania: Belmont's Curse - How To Beat Joan (Boss Guide)
+
+Gaming, Castlevania: Belmont's Curse, Castlevania, Triple-A Games, PC
+
+Thu, 15 Oct 2026 04:00:22 GMT
+
+https://screenrant.com/castlevania-belmonts-curse-joan-boss-guide-rewards/
+
+You won't get too much of a break after beating The Fallen in Castlevania: Belmont's Curse, as Joan arrives shortly after to cause more problems.
+---------
+
+# Castlevania: Belmont's Curse - How To Beat The Fallen (Boss Guide)
+
+Gaming, Castlevania: Belmont's Curse, Castlevania, Triple-A Games, PC
+
+Thu, 15 Oct 2026 04:00:22 GMT
+
+https://screenrant.com/castlevania-belmonts-curse-the-fallen-boss-guide-rewards/
+
+The first boss of Castlevania: Belmont's Curse is a big test for players, but there's a good method to avoiding all of his devastating attacks.
+---------
+
+# Founding Member Of DC's Strongest Team Confirms Incredible Use For Their Powers
+
+Comics, DC Comics
+
+Thu, 15 Oct 2026 03:59:17 GMT
+
+https://screenrant.com/dc-strongest-team-legion-lightning-lad-cycle-powers/
+
+Lightning Lad unveils a shockingly great way to get around town with a clever use of his powers.
+---------
+
+# What Is Doomsday? Avengers 5 Title & Story Clues Explained
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe
+
+Thu, 15 Oct 2026 03:54:28 GMT
+
+https://screenrant.com/what-is-doomsday-avengers-5-title-story-explained/
+
+The title of Avengers 5 was confirmed as Avengers: Doomsday at SDCC 2024, begging the question of whether the title holds any deeper meaning.
+---------
+
+# Netflix's Ambitious Sci-Fi Adaptation Is Changing Formats After One Season
+
+Streaming TV, Masked Recs
+
+Thu, 15 Oct 2026 03:30:17 GMT
+
+https://screenrant.com/3-body-problem-netflix-reduced-episodes/
+
+One of Netflix’s most ambitious sci-fi adaptations is set to return soon with another season, and, this time around, it’ll surprisingly change formats
+---------
+
+# Al Pacino Tried To “Kill” Big Bang Theory Creator’s Hit Netflix Show
+
+TV, The Kominsky Method
+
+Thu, 15 Oct 2026 03:21:33 GMT
+
+https://screenrant.com/the-kominsky-method-al-pacino-kill-chuck-lorre-explained/
+
+Before The Big Bang Theory creator's Netflix show became an acclaimed and award-winning hit, he explains that Al Pacino tried to "kill" it.
+---------
+
+# Red Dead Redemption Meets The Legend Of Zelda In Open-World Game You Can Play Free Now
+
+Gaming, Red Dead Redemption, The Legend of Zelda, Steam, PC
+
+Thu, 15 Oct 2026 03:00:18 GMT
+
+https://screenrant.com/red-dead-redemption-meets-legend-of-zelda-free-steam-demo/
+
+Two open-world legends collide in this impressive open-world title that's like Red Dead Redemption meets Breath of the Wild.
+---------
+
+# Every Main Justice League Member’s Official Lantern Color In DC Lore
+
+Comics, Justice League, DC Comics, Green Lantern
+
+Thu, 15 Oct 2026 02:53:33 GMT
+
+https://screenrant.com/every-main-justice-league-heroes-lantern-color/
+
+The emotional spectrum touches every corner of the DC Universe, and some of Earth’s finest heroes have been assigned official colors across comic lore
+---------
+
+# Demon Slayer Gets an Exciting Prime Video Update
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Prime Video
+
+Thu, 15 Oct 2026 03:59:11 GMT
+
+https://www.cbr.com/demon-slayer-prime-video-every-anime-episode-streaming-release/
+
+It's a great day to be a Demon Slayer anime fan.
+---------
+
+# 10 Classic PS3 Games That Are Unplayable Today
+
+Games, PlayStation (Original), retro games
+
+Thu, 15 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/classic-ps3-games-aged-badly-ranked-list/
+
+PS3 games like LittleBigPlanet and Heavy Rain have aged like milk.
+---------
+
+# The Walking Dead's Chandler Riggs Kills It as Major Resident Evil Hero in New Adaptation
+
+TV, Resident Evil, The Walking Dead
+
+Thu, 15 Oct 2026 03:32:00 GMT
+
+https://www.cbr.com/resident-evil-biohazard-chandler-riggs/
+
+Chandler Riggs steps into another major zombie horror franchise with his latest performance, and Resident Evil fans are loving it.
+---------
+
+# South Park's Most Offensive Episode Is Still Legendary 25 Years Later
+
+TV, South Park, Paramount, Comedy
+
+Thu, 15 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/south-park-most-offensive-episode-it-hits-the-fan/
+
+In 2001, South Park took on the fight against television censors and FCC rules in an episode that remains legendary today.
+---------
+
+# 10 Hilarious Far Side Comics About The First Wheel
+
+Comics, The Far Side
+
+Thu, 15 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/hilarious-far-side-comics-about-the-first-wheel/
+
+The Far Side comics about the first wheel are light-hearted and easily accessible to readers of all ages, making them fun experiences worth sharing.
+---------
+
+# 20 Years Ago, Steam's Greatest Mod Changed Gaming Forever
+
+Games, Steam, Video Games, Half-Life
+
+Thu, 15 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/garrys-mod-gmod-steam-valve-sandbox-creative-retrospective/
+
+One of Steam's finest games started out as a Half-Life 2 mod.
+---------
+
+# 10 Anime Series Where the Villain Wins
+
+Anime, Innovation
+
+Thu, 15 Oct 2026 03:00:12 GMT
+
+https://www.cbr.com/anime-series-where-the-villain-wins-list/
+
+Anime like Berserk smash expectations by letting the villains win.
+---------
+
+# Walton Goggins' 2018 Video Game Reboot Is 1 of Netflix's Most-Streamed Movies in the World
+
+Movies, Tomb Raider, Netflix
+
+Thu, 15 Oct 2026 03:00:12 GMT
+
+https://www.cbr.com/tomb-raider-adventure-netflix-success-october-2026/
+
+Walton Goggins other live-action video game adaptation is officially one of the most-watched films in the world on the biggest streaming platform.
+---------
+
+# 18 Years Later, Pain's Best Naruto Quote Is Still One of the Greatest Villain Lines in Anime History
+
+Anime, Naruto, Naruto: Shippuden, anime villains
+
+Thu, 15 Oct 2026 02:45:11 GMT
+
+https://www.cbr.com/naruto-pain-quote-greatest-villain-line-anime-history/
+
+Pain is easily one of the best villains in anime, and one powerful quote shows exactly why he's the greatest of all time.
+---------
+
+# Five Nights at Freddy's Star Josh Hutcherson Confirmed for Lead Role in DC Studios Series
+
+TV, Mister Miracle
+
+Thu, 15 Oct 2026 02:31:40 GMT
+
+https://www.cbr.com/mister-miracle-josh-hutcherson-mackenzie-davis/
+
+This marks Josh Hutcherson's first role in a comic book adaptation.
+---------
+
+# The Film Quentin Tarantino Called "One of My Favorite Thrillers" Is Now Streaming
+
+Movie Features, Lucio Fulci, Quentin Tarantino, Horror, The Beyond
+
+Thu, 15 Oct 2026 04:08:11 GMT
+
+https://collider.com/quentin-tarantino-favorite-thriller-the-psychic-streaming-free-tubi-october-2026/
+
+Lucio Fulci's Italian horror classic The Psychic is among Quentin Tarantino's favorite thrillers, and it's streaming free on Tubi.
+---------
+
+# Jason Statham's Remake of a Burt Reynolds Action Thriller Surpassed the Original in Every Way
+
+Movie Features, Wild Card, Jason Statham, Burt Reynolds, William Goldman
+
+Thu, 15 Oct 2026 04:00:26 GMT
+
+https://collider.com/wild-card-jason-statham-remake-burt-reynolds-streaming/
+
+Burt Reynolds' Heat and Jason Statham's Wild Card both adapt William Goldman's novel, but Wild Card is superior with its A-list cast and epic action.
+---------
+
+# ‘Game of Thrones’ Made 2 Mistakes It Could Never Undo
+
+TV Features, Game Of Thrones, A Song of Ice and Fire, HBO, George R.R. Martin
+
+Thu, 15 Oct 2026 03:39:12 GMT
+
+https://collider.com/game-of-thrones-biggest-mistakes-sansa-dorne-plot/
+
+Game of Thrones abbreviated its own story, particularly Sansa Stark's arc and the Dorne plot line in Season 5. Both pushed the show off course.
+---------
+
+# 77 Years Later, the Most Chilling Final Line in Sci-Fi History Is Still Powerful
+
+Books and Comics, Books, Science Fiction, 1984, George Orwell
+
+Thu, 15 Oct 2026 03:03:11 GMT
+
+https://collider.com/1984-george-orwell-sci-fi-book-final-line-powerful/
+
+77 years after its 1949 release, the last line in George Orwell's seminal masterpiece, Nineteen Eighty-Four, is still brutally bleak and powerful.
+---------
+
+# 7 Most Perfect K-Dramas of the Last 20 Years, Ranked
+
+TV, South Korea, Squid Game, When Life Gives You Tangerines, Mr. Sunshine
+
+Thu, 15 Oct 2026 03:01:12 GMT
+
+https://collider.com/most-perfect-k-dramas-last-20-years-ranked/
+
+Squid Game, Princess Hours, and When Life Gives You Tangerines are among the best K-dramas of the last 20 years, but which series is the greatest?
+---------
+
+# ‘Dungeon Masters’ Officially Kills Off a ‘World of Warcraft’ Hero [Exclusive]
+
+Gaming News, Dungeons & Dragons, Dungeons and Dragons, World of Warcraft, Neil Newbon
+
+Thu, 15 Oct 2026 02:45:12 GMT
+
+https://collider.com/dungeon-masters-mistik-death-christian-navarro-behind-the-scenes/
+
+Christian Navarro discusses that shocking death in Dungeon Masters Episode 5 and what he hopes the character leaves behind.
+---------
+
+# The 10 Greatest 7-Episode Miniseries, Ranked
+
+TV, TV Miniseries, The Queen's Gambit, Mare of Easttown, Baby Reindeer
+
+Thu, 15 Oct 2026 02:22:11 GMT
+
+https://collider.com/miniseries-7-episodes-greatest-ranked/
+
+From Netflix's The Queen's Gambit to HBO's Mare of Easttown, these are the best and most riveting miniseries with seven episodes.
+---------
+
+# Steven Spielberg's New Sci-Fi Thriller Officially Invades 2 Streaming Services
+
+Movie News, Steven Spielberg, Disclosure Day, Emily Blunt, Josh O'Connor
+
+Thu, 15 Oct 2026 01:30:11 GMT
+
+https://collider.com/steven-spielberg-sci-fi-disclosure-day-streaming-success-prime-video-apple-tv-october-2026/
+
+Steven Spielberg's sci-fi alien invasion film, Disclosure Day, is officially taking over 2 different streaming platforms.
+---------
+
+# Forget 'Nobody Wants This,' Hulu’s Underrated Romance Series Is Back With Season 2
+
+TV Features, Nobody Wants This, Hulu, Romance, Benefits With Friends
+
+Thu, 15 Oct 2026 01:21:12 GMT
+
+https://collider.com/nobody-wants-this-replacement-series-hulu-benefits-with-friends/
+
+In 2024, Disney+ Brazil released Benefits With Friends, an emotional romance series that just released a long-awaited Season 2.
+---------
+
+# 2026’s ‘Coraline’ Replacement Is Officially Invading Homes
+
+Movie News, Other Mommy, Horror, Blu-ray, Jessica Chastain
+
+Thu, 15 Oct 2026 01:00:11 GMT
+
+https://collider.com/other-mommy-4k-blu-ray-pre-order/
+
+2026's surprise horror hit, Other Mommy, is officially coming home after a strong box office run and damning reviews.
+---------
+
+# 8 Near-Perfect Prime Video Miniseries With 8 Episodes or Less
+
+TV Lists, Prime Video, TV Miniseries
+
+Thu, 15 Oct 2026 02:00:26 GMT
+
+https://movieweb.com/prime-miniseries-8-episodes-less/
+
+Prime Video has several impressive TV miniseries that have eight episodes or less and are perfect for a one-night or weekend binge.
+---------
+
+# Netflix Lands New Global Streaming Hit With Disney's Near-Perfect Fantasy Adventure Adaptation
+
+TV News, Percy Jackson & the Olympians, Hot on Streaming, Fantasy, Adventure, Netflix
+
+Thu, 15 Oct 2026 01:00:16 GMT
+
+https://movieweb.com/percy-jackson-and-the-olympians-streaming-hit-netflix-october-2026/
+
+The perfect 'Harry Potter' replacement has officially landed on Netflix, and it's already a streaming smash ahead of Season 3.
+---------
+
+# 'Scrubs' Officially Answers a 17-Year-Old JD Question
+
+Features, Scrubs, Comedy
+
+Thu, 15 Oct 2026 01:00:16 GMT
+
+https://movieweb.com/scrubs-revival-janitor-name-forgotten/
+
+'Scrubs' Season 8 ended in 2009, creating a compelling question in the finale. It's now been answered. Read on for more.
+---------
+
 # November 20 Is Officially The Biggest Day For Fantasy Book Fans In 18 Years
 
 Streaming TV, Fantasy
