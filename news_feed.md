@@ -1,3 +1,443 @@
+# 10 Books Where The Villain Is Actually The Best Character
+
+Books, Thriller, Mystery
+
+Thu, 15 Oct 2026 18:46:07 GMT
+
+https://screenrant.com/best-books-villain-true-main-character/
+
+These novels let villains dominate scenes with wit, control, and cruel pleasures that linger long after the last page.
+---------
+
+# Recasting Scrubs If It Started In 2026: All 8 Main Roles
+
+Classic TV, Scrubs
+
+Thu, 15 Oct 2026 18:45:17 GMT
+
+https://screenrant.com/scrubs-recasting-2026-actors/
+
+Scrubs needs actors who can do big, broad comedy, but also sell the more dramatic, grounded moments. Here's the talent who could do it in 2026.
+---------
+
+# Taylor Sheridan Officially Finds The Next Hit Crime Thriller To Rival Reacher & MobLand
+
+TV, Taylor Sheridan, MobLand, Reacher
+
+Thu, 15 Oct 2026 18:33:17 GMT
+
+https://screenrant.com/taylor-sheridan-frisco-king-crime-thriller-compete-reacher-mobland/
+
+Taylor Sheridan’s upcoming spinoff promises swagger, dark humor, and high stakes, but can Samuel L. Jackson's series to outdo Reacher and MobLand?
+---------
+
+# The Diplomat Season 4 Ending Explained: Hal's Next Move & What It Means For Season 5
+
+Streaming TV, The Diplomat
+
+Thu, 15 Oct 2026 18:31:54 GMT
+
+https://screenrant.com/the-diplomat-season-4-ending-explained/
+
+The Diplomat season 4 leaves off with another Hal Wyler twist, setting up big changes in the dynamics for the Netflix series' next installment.
+---------
+
+# Bob Odenkirk's 92-Minute John Wick Replacement Action Hit Is Leaving Streaming Soon
+
+Movies, Masked Recs
+
+Thu, 15 Oct 2026 18:30:18 GMT
+
+https://screenrant.com/bob-odenkirk-nobody-movie-leaving-streaming-peacock-november-2026/
+
+Five years ago, a wildly entertaining action comedy turned Bob Odenkirk into a John Wick-style action hero, and that movie is leaving streaming soon.
+---------
+
+# 8 Fantasy Books About Secret Societies
+
+Books, Fantasy
+
+Thu, 15 Oct 2026 18:30:18 GMT
+
+https://screenrant.com/fantasy-books-with-secret-societies/
+
+Secret societies fit right into the fabric of a fantasy book, and these novels use the mystery and atmospheric tension of the societies brilliantly.
+---------
+
+# Tim Burton Sets New Post-WWII Movie With Bestselling Sci-Fi Author
+
+Movies, Tim Burton
+
+Thu, 15 Oct 2026 18:26:53 GMT
+
+https://screenrant.com/tim-burton-kazuo-ishiguro-post-wwii-movie/
+
+Tim Burton sets a new post-World War II movie with a bestselling sci-fi author – an unexpected yet ideal match that is sure to attract A-listers.
+---------
+
+# Supernatural’s New Dean Winchester Series Is The End Of The Jensen Ackles Era
+
+Comics, Supernatural, Dean Winchester
+
+Thu, 15 Oct 2026 18:26:03 GMT
+
+https://screenrant.com/supernatural-dean-winchester-series/
+
+Six years after Supernatural ended, a new Dean Winchester series pushes the franchise forward, but its latest chapter leaves Jensen Ackles behind.
+---------
+
+# Marvel Announces The Phoenix's Return For Explosive New Jean Grey X-Men Series
+
+Marvel Comics, jean grey, X-Men, Marvel
+
+Thu, 15 Oct 2026 18:23:59 GMT
+
+https://screenrant.com/jean-grey-phoenix-new-xmen-series-marvel/
+
+Jean Grey's upcoming series will officially mark the first canon appearance of her Dark Phoenix form in years, making her a threat to the X-Men.
+---------
+
+# 21 Years Later, South Park Season 29 Brought Back The Best Gag From Its Funniest Episode
+
+TV, South Park
+
+Thu, 15 Oct 2026 18:15:19 GMT
+
+https://screenrant.com/south-park-season-29-episode-3-judd-crandall-marjorine/
+
+Ike's looksmaxxing and Sephora becoming the Backrooms resulted in South Park season 29 bringing back the show's funniest Stephen King spoof.
+---------
+
+# Avatar: Seven Havens: What Makes Pavi & Nisha Unique
+
+TV, Avatar: Seven Havens
+
+Thu, 15 Oct 2026 18:30:13 GMT
+
+https://www.cbr.com/video/avatar-seven-havens-what-makes-pavi-nisha-unique/
+
+Avatar: Seven Havens is expanding the franchise's world with new heroes, diverse identities, and a story designed to connect with audiences of all ages. Co-executive producer Sehaj Sethi and voice actors Saheli Khan (Pavi) and Aishu Devan (Nisha) reveal how the upcoming animated series celebrates individuality without allowing representation to define its characters entirely.
+---------
+
+# 5 Strongest Witches In Fantasy Book History, Ranked
+
+Books, books, Fantasy, The Witcher
+
+Thu, 15 Oct 2026 18:30:13 GMT
+
+https://www.cbr.com/most-powerful-witches-fantasy-book-history-list/
+
+Fantasy books have no shortage of powerful witches, both good and evil, but these five witches are the strongest women of them all.
+---------
+
+# Denis Villeneuve Confirms He's Tired of Dune as James Bond Takes Over
+
+Movies, Dune: Part Three, Denis Villeneuve
+
+Thu, 15 Oct 2026 18:26:30 GMT
+
+https://www.cbr.com/dune-part-three-denis-villeneuve-tired-james-bond-replacement/
+
+Dune: Part Three director Denis Villeneuve explains why he's grown tired of the sci-fi franchise and is ready to move on to Amazon's Bond reboot.
+---------
+
+# Tim Burton Sets Wednesday Replacement Ahead of Netflix Show's Final Season
+
+Movies, tim burton, Wednesday, Klara and the Sun
+
+Thu, 15 Oct 2026 18:23:39 GMT
+
+https://www.cbr.com/tim-burton-wednesday-replacement-kazuo-ishiguro-project/
+
+Tim Burton is already moving on from Netflix's Wednesday.
+---------
+
+# 10 Greatest Shonen Endings in Anime History, Ranked
+
+Anime, Jojo's Bizarre Adventure, Fullmetal Alchemist, Attack on Titan
+
+Thu, 15 Oct 2026 18:15:13 GMT
+
+https://www.cbr.com/greatest-shonen-anime-endings-ranked/
+
+These ten shōnen anime endings could not possibly be improved and will never be forgotten by fans, even years later.
+---------
+
+# Lauren Cohan Joins Prime Video Series Amid The Walking Dead: Dead City's Uncertain Fate
+
+TV, The Walking Dead: Dead City
+
+Thu, 15 Oct 2026 18:04:12 GMT
+
+https://www.cbr.com/lauren-cohan-prime-video-stillwater/
+
+Lauren Cohan might be moving on from The Walking Dead.
+---------
+
+# Avatar: Seven Havens Creator Say There’s a ‘Dark’ Reason for the Protagonists’ Young Age
+
+CBR Exclusives, Avatar: Seven Havens, Avatar: The Last Airbender, Paramount Plus
+
+Thu, 15 Oct 2026 18:02:50 GMT
+
+https://www.cbr.com/avatar-seven-havens-pavi-nisha-young-age-reason/
+
+Being nine-years-old in a post-cataclysmic world is already hard. Imagine being the Avatar, too.
+---------
+
+# 64 Years Later, Uncle Ben's Tragic Spider-Man Death Gets A Horrifying Remake
+
+Comics, Spider-Man
+
+Thu, 15 Oct 2026 18:00:13 GMT
+
+https://www.cbr.com/midnight-spider-man-uncle-ben-death-remake/
+
+After more than six decades, Spider-Man fans just saw Uncle Ben's death play out all over again, and in a more horrifying way than ever before.
+---------
+
+# Spartacus & Vikings Creatives Unite for 10-Part Aladdin & Sinbad Fantasy Epic
+
+TV, Arabian Nights, Spartacus, Vikings
+
+Thu, 15 Oct 2026 17:51:16 GMT
+
+https://www.cbr.com/arabian-nights-tv-series-spartacus-creator/
+
+An Arabian Nights series from the creators of some of TV's greatest epics is on the way.
+---------
+
+# Sanrio Is Betting Big on Kuromi to Become Its No. 2 Character After Hello Kitty in North America
+
+Anime, Hello Kitty, sanrio
+
+Thu, 15 Oct 2026 17:35:13 GMT
+
+https://www.cbr.com/sanrio-hello-kitty-kuromi-north-america-next-popular-character/
+
+Sanrio has official plans to make Kuromi the second-most popular character in North America, and the brand is already on its way to doing just that.
+---------
+
+# Clean Hands: Zach Braff Had the Real Cop Watching Him | Set Stories
+
+Movie, Clean Hands
+
+Thu, 15 Oct 2026 18:15:13 GMT
+
+https://collider.com/video/clean-hands-zach-braff-had-the-real-cop-watching-him-set-stories/
+
+Zach Braff and Esther McGregor reveal how the real people behind Clean Hands helped bring its emotional story to life, from intimate conversations with the family to unexpected moments of humor on set.
+---------
+
+# ‘Game of Thrones’ Star Officially Leads New Holiday Movie in First Trailer [Exclusive]
+
+Movie News, John Bradley, Celia Imrie, Jim Broadbent, Richard E. Grant
+
+Thu, 15 Oct 2026 18:00:14 GMT
+
+https://collider.com/merry-christmas-aubrey-flint-trailer/
+
+John Bradley has to save a retirement home from closing in the trailer for Merry Christmas Aubrey Flint. Watch it now.
+---------
+
+# Lauren Cohen Officially Leaves 'The Walking Dead' Behind for Prime Video's New Horror Series
+
+TV News, Stillwater, Prime Video, The Walking Dead, Lauren Cohan
+
+Thu, 15 Oct 2026 17:35:33 GMT
+
+https://collider.com/prime-video-horror-stillwater-cast-the-walking-dead-star-lauren-cohan/
+
+The Walking Dead icon Lauren Cohan is officially leaving the zombie franchise behind for a new horror series at Prime Video. Read on for more.
+---------
+
+# 'Sense & Sensibility' Steals 'Pride & Prejudice's Crown as a Masterpiece Austen Adaptation | Review
+
+Movie Reviews, Jane Austen, Sense and Sensibility, Daisy Edgar-Jones, Esme Creed-Miles
+
+Thu, 15 Oct 2026 17:28:52 GMT
+
+https://collider.com/sense-and-sensibility-2026-georgia-oakley-review/
+
+Georgia Oakley's new adaptation of Jane Austen's Sense & Sensibility brings a fantastic modern touch to the tale of the Dashwood sisters.
+---------
+
+# Josh Brolin Jokes He’s “Super Angry” About ‘Dune 3’: “I Believed I Was the Lead”
+
+Exclusives, Whalefall, Josh Brolin, Dune: Part Three, Austin Abrams
+
+Thu, 15 Oct 2026 17:19:35 GMT
+
+https://collider.com/josh-brolin-dune-part-3-comments-whalefall-daniel-kraus/
+
+Josh Brolin talks Whalefall, Dune: Part 3, and what he's working on next in an exclusive interview with Collider.
+---------
+
+# 8 Near-Perfect Dark Fantasy Movies No One Ever Talks About
+
+Movie, Fantasy, The Green Knight, The Last Unicorn, Neverending Story
+
+Thu, 15 Oct 2026 17:18:13 GMT
+
+https://collider.com/near-perfect-dark-fantasy-movies-no-one-talks-about/
+
+The Dark Crystal, The Last Unicorn, The Green Knight, Sleepy Hollow, and more make up our list of the best dark fantasy movies no one talks about.
+---------
+
+# 'Street Fighter' Officially KO'd by Critics in Rotten Tomatoes Debut
+
+Movie News, Street Fighter, Rotten Tomatoes, Action
+
+Thu, 15 Oct 2026 17:15:02 GMT
+
+https://collider.com/street-fighter-rotten-tomatoes-score-is-it-good/
+
+Street Fighter is officially here, but does the new video game adaptation live up to the hype? Find out here.
+---------
+
+# The 6 Best Video Games Released Since 2020, Ranked
+
+Gaming, Video Game, Baldur's Gate 3, Elden Ring, The Legend of Zelda
+
+Thu, 15 Oct 2026 17:08:13 GMT
+
+https://collider.com/best-video-games-since-2020-ranked/
+
+From Clair Obscur: Expedition 33 to Elden Ring, these six flawless modern video games skip the checklists for absolute obsession.
+---------
+
+# 'GTA 6' Finally Goes Gold in Official Launch Trailer
+
+Gaming News, Grand Theft Auto 6, Grand Theft Auto 5, Rockstar Games, Video Game
+
+Thu, 15 Oct 2026 16:49:37 GMT
+
+https://collider.com/gta-6-launch-trailer/
+
+GTA 6 is just one month away, and to celebrate the occasion, Rockstar has debuted the official launch trailer. See it here!
+---------
+
+# Dakota Johnson Plays Marilyn Monroe in a New Film You Probably Haven't Heard About
+
+Movie, Maggie Gyllenhaal, Marilyn Monroe, Dakota Johnson, Ellen Burstyn
+
+Thu, 15 Oct 2026 16:25:13 GMT
+
+https://collider.com/marilyn-monroe-maggie-gyllenhaal-dakota-johnson-ellen-burstyn-genesis-flesh-impact/
+
+Maggie Gyllenhaal's new Marilyn Monroe short film, Flesh Impact, was commissioned by luxury car brand Genesis, signaling a new path for the industry.
+---------
+
+# Disney Meets One of the Greatest Modern Anime Series in New Animated Movie
+
+Exclusives, Hexed, Chainsaw Man, Fantasy, Disney, Anime
+
+Thu, 15 Oct 2026 18:41:13 GMT
+
+https://movieweb.com/disney-hexed-movie-anime-chainsaw-man-inspiration/
+
+The creative team behind 'Hexed' took inspiration from one of the best modern action anime, 'Chainsaw Man.'
+---------
+
+# 37 Years Later, James Cameron's 139-Minute "Banned" Sci-Fi Thriller Becomes a Free Streaming Hit
+
+Movie News, The Abyss, James Cameron, Hot on Streaming, Sci-Fi
+
+Thu, 15 Oct 2026 18:30:16 GMT
+
+https://movieweb.com/the-abyss-james-cameron-sci-fi-stream-tubi-october-2026/
+
+Before venturing to Pandora, Cameron explored the world of aliens much closer to home.
+---------
+
+# 7 Masterpiece Action Movies Better Than 'John Wick'
+
+Movie Lists, Action, John Wick
+
+Thu, 15 Oct 2026 18:00:18 GMT
+
+https://movieweb.com/action-movies-better-john-wick/
+
+'John Wick' redefined what action movies could be, but that doesn't mean there aren't better entries in the genre.
+---------
+
+# Every John Wayne Western from the 1950s, Ranked
+
+Movie Lists, John Wayne, Western
+
+Thu, 15 Oct 2026 17:00:16 GMT
+
+https://movieweb.com/john-wayne-western-movies-1950s/
+
+John Wayne made five westerns in the 1950s, three of which were directed by John Ford, and some prove more masterful than others.
+---------
+
+# Taylor Sheridan's Best Crime Thriller Officially Crowns a New King in Knockout First Trailer
+
+TV News, Frisco King, Samuel L. Jackson, Tulsa King, Crime, Taylor Sheridan
+
+Thu, 15 Oct 2026 16:49:54 GMT
+
+https://movieweb.com/frisco-king-trailer/
+
+The best Taylor Sheridan crime franchise has returned with an all-new series featuring a legendary Hollywood icon in Samuel L. Jackson.
+---------
+
+# Zendaya Officially Leads A24's Mysterious New Sci-Fi Film From 'Ex Machina' Director
+
+Movie News, Zendaya Coleman, Alex Garland, A24, Sci-Fi
+
+Thu, 15 Oct 2026 16:34:26 GMT
+
+https://movieweb.com/zendaya-alex-garland-sci-fi-film/
+
+After starring in this year's box office hits 'The Odyssey' and 'Spider-Man: Brand New Day,' Zendaya has lined up her next major project.
+---------
+
+# Sony's "Greatest" Action-War Epic Unleashes Explosive New Trailer Ahead of November Release
+
+Movie News, Ramayana, Action, Fantasy
+
+Thu, 15 Oct 2026 16:32:05 GMT
+
+https://movieweb.com/ramayana-rise-of-a-legend-trailer-sony-release/
+
+A new trailer for Ramayana: Rise of a Legend leans hard into the scale, spectacle, and mythic weight of one of history’s most enduring stories.
+---------
+
+# Prime Video's No.1 Series With 1 Billion Views Releases Trailer for Most Intense Season Yet
+
+TV News, The Chosen, Drama, Prime Video
+
+Thu, 15 Oct 2026 16:20:44 GMT
+
+https://movieweb.com/the-chosen-season-6-trailer/
+
+One of Prime Video's biggest shows ever is back for its sixth season, which should deliver the most intense story yet.
+---------
+
+# Kevin Bacon's 106-Minute Remake of '80s Vigilante Action Thriller Officially Lands on Free Streaming
+
+Movie News, Death Sentence, Coming/Leaving Streaming, Kevin Bacon, Action, Thriller
+
+Thu, 15 Oct 2026 16:00:16 GMT
+
+https://movieweb.com/death-sentence-kevin-bacon-streaming-free-tubi-october-2026/
+
+Kevin Bacon teamed up with the creator of 'Saw' to deliver one of the most violent movies in history, and it's now free to stream.
+---------
+
+# 'Street Fighter' is a Non-Stop Martial Arts Reboot That Forgets Its Own Tournament | Review
+
+Movie Reviews, Street Fighter, Martial Arts, Action, Adventure, Noah Centineo, Andrew Koji, Curtis Jackson, Eric Andre, Jason Momoa
+
+Thu, 15 Oct 2026 16:00:16 GMT
+
+https://movieweb.com/street-fighter-review/
+
+Kitao Sakurai’s Street Fighter nails the roster and the combat, then moves too fast to let any of it land.
+---------
+
 # 10 James Bond Movies That Broke The Franchise's Biggest Rules, Including No Time To Die
 
 Movies, James Bond, No Time to Die, Daniel Craig
