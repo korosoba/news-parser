@@ -1,3 +1,410 @@
+# Friday The 13th: Every Unmasked Jason Voorhees (In Chronological Order)
+
+Lists, Jason Voorhees, Friday The 13th
+
+Fri, 16 Oct 2026 22:30:21 GMT
+
+https://screenrant.com/friday-the-13th-jason-voorhees-unmasked-face/
+
+Friday the 13th's Jason Voorhees has a mean streak, but fans should be thankful the horror icon hides his frightful façade behind a hockey mask.
+---------
+
+# Steven Spielberg & Stanley Kubrick's 10/10 Sci-Fi Remake Of Pinocchio Is Officially Back On Streaming
+
+Movies, Masked Recs, A.I. Artificial Intelligence
+
+Fri, 16 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/steven-spielberg-stanley-kubrick-ai-artificial-intelligence-streaming-peacock-october-2026/
+
+Steven Spielberg and Stanley Kubrick’s sci-fi fairy tale is back on streaming, and its haunting vision of technology feels more relevant than ever.
+---------
+
+# All 13 Character POVs In Threshing Day, Ranked From Worst To Best
+
+Books, Fourth Wing (2023), The Empyrean Series
+
+Fri, 16 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/character-povs-threshing-day-ranked-worst-to-best/
+
+Threshing Day is an essential read for fans of the Empyrean series, and here is all thirteen perspectives from the newest Fourth Wing book ranked.
+---------
+
+# Avatar: Seven Havens Brings Back One Of Aang's Most OP Bending Powers
+
+Streaming TV, Avatar: Seven Havens, Avatar: The Last Airbender
+
+Fri, 16 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/avatar-seven-havens-pavi-nisha-energybending-aang-power/
+
+Avatar: Seven Havens' story becomes even more mysterious as Avatars Pavi and Nisha use one of Aang's and Korra's most powerful bending abilities.
+---------
+
+# Marvel's Strongest Superteam Of All Time, According to Screen Rant Readers
+
+Comics, Marvel
+
+Fri, 16 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/avengers-x-men-marvels-strongest-team-vote-poll/
+
+Screen Rant readers decide Marvel's strongest superteam.
+---------
+
+# Hunger Games Director Sets New Bestselling Dystopian Sci-Fi Adaptation
+
+Movies, red rising, Francis Lawrence
+
+Fri, 16 Oct 2026 22:22:31 GMT
+
+https://screenrant.com/red-rising-movie-adaptation-hunger-games-francis-lawrence-development/
+
+After directing most of the Hunger Games movies, director Francis Lawrence will now helm another film adaptation based on a dystopian sci-fi novel.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (October 17-18)
+
+Movies, Prime Video, Recommendation
+
+Fri, 16 Oct 2026 22:17:50 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-october-17/
+
+Prime Video's best movies this weekend are a Sci-Fi cyberpunk masterpiece, a Kristen Stewart horror, and Lanterns star Aaron Pierre's new global hit.
+---------
+
+# Josh Brolin Calls Out Prime Video For Cancelling 15-Part Twin Peaks Meets Yellowstone Mystery Series
+
+TV, Outer Range
+
+Fri, 16 Oct 2026 22:15:36 GMT
+
+https://screenrant.com/outer-range-twin-peaks-meets-yellowstone-prime-video-cancelled-josh-brolin-criticism/
+
+Josh Brolin strongly disagrees with Prime Video's decision to cancel one of its most popular shows that seamlessly merges sci-fi and Westerns.
+---------
+
+# Jenna Ortega & Taika Waititi's New Bestselling Sci-Fi Adaptation Debuts To Rotten Tomatoes Record
+
+Movies, Klara and the Sun, Jenna Ortega, Taika Waititi
+
+Fri, 16 Oct 2026 22:10:45 GMT
+
+https://screenrant.com/jenna-ortega-klara-and-the-sun-movie-rotten-tomatoes-score-taika-waititi-record/
+
+Jenna Ortega and Taika Waititi team up for a new adaptation of a bestselling sci-fi novel, which debuts to a shocking Rotten Tomatoes record.
+---------
+
+# A New Era For Pokémon TCG Pocket Is About To Begin
+
+Gaming, Pokemon Trading Card Game Pocket, Live Service Games, Pokemon
+
+Fri, 16 Oct 2026 22:00:56 GMT
+
+https://screenrant.com/pokemon-tcg-pocket-2026-changes-upgrades/
+
+Pokémon Trading Card Game Pocket is making a lot of changes in the coming month, and long-time fans should be happy about a lot of them.
+---------
+
+# Narnia Confirms 7 New Books Coming Ahead of Netflix's Movie Reboot
+
+Books, The Chronicles of Narnia, Narnia: The Magician's Nephew, Fantasy
+
+Fri, 16 Oct 2026 22:40:14 GMT
+
+https://www.cbr.com/chronicles-of-narnia-seven-new-books-re-release-fantasy-netflix/
+
+Ahead of Greta Gerwig's new film adaptation, the Chronicles of Narnia is returning with seven new books.
+---------
+
+# Transformers' G1 Optimus Prime Gets an Ultra-Clean New Cartoon Redesign
+
+Anime, Transformers, toys, merchandise, optimus prime
+
+Fri, 16 Oct 2026 22:35:14 GMT
+
+https://www.cbr.com/transformers-g1-optimus-prime-orion-praetor-frontier-workshop-first-reveal/
+
+Transformers fans just got their first look at what might be the sleekest (unofficial) Generation One Optimus Prime figure to date.
+---------
+
+# 10 Strongest Anime Armor of All Time, Ranked
+
+Anime, Innovation
+
+Fri, 16 Oct 2026 22:30:14 GMT
+
+https://www.cbr.com/anime-strongest-armor-ranked-list/
+
+Anime like Code Geass have some of the strongest armor in anime history.
+---------
+
+# 5 Harry Potter Characters More Powerful Than Voldemort, Ranked
+
+Movies, Harry Potter
+
+Fri, 16 Oct 2026 22:30:14 GMT
+
+https://www.cbr.com/harry-potter-characters-better-than-voldemort-list/
+
+Voldemort is the scariest enemy in the Harry Potter franchise, but there are other wizards who are even more powerful and dangerous.
+---------
+
+# Anya Taylor-Joy & Chris Evans’ 100-Minute Netflix Adventure Debuts With Divisive RT Score
+
+Movies, Sacrifice, Netflix, Adventure
+
+Fri, 16 Oct 2026 22:19:59 GMT
+
+https://www.cbr.com/sacrifice-rt-score-netflix-movie/
+
+Netflix's new star-studded adventure isn't getting
+---------
+
+# 5 Hardest Open-World Survival Games
+
+Games, Don't Starve, Video Games
+
+Fri, 16 Oct 2026 22:15:14 GMT
+
+https://www.cbr.com/hardest-open-world-survival-games/
+
+Parasitic infections and dwindling nutrition turn simple jungle treks into meticulous survival tests in these difficult open-world games.
+---------
+
+# Whalefall: Austin Abrams Destroyed the Whale Stomach Set
+
+Movies, Whalefall
+
+Fri, 16 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/video/whalefall-austin-abrams-destroyed-the-whale-stomach-set/
+
+The whale stomach in Whalefall was a practical effects nightmare, and Austin Abrams and director Brian Duffield have the stories to prove it. The actor and filmmaker break down the surprisingly fragile set, the constant repairs needed during filming, and why Duffield wants audiences to see the movie without its visual effects cleanup.
+---------
+
+# 7 Current Comic Books Better Than Absolute Batman
+
+Comics, Absolute Batman, Batman, DC Comics
+
+Fri, 16 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/current-comic-books-better-than-absolute-batman-list/
+
+Absolute Batman is a generational phenomenon, but these 7 current comics are somehow even better.
+---------
+
+# 10 Movies To Watch If You Can't Wait for Henry Cavill's Highlander Reboot
+
+Movies, Highlander, Fantasy, Dungeons & Dragons: Honor Among Thieves
+
+Fri, 16 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/best-movies-to-watch-if-cant-wait-for-highlander-reboot-list/
+
+As the world awaits Henry Cavill becoming Connor MacLeod, there are some perfect dark and urban fantasy movies to watch first.
+---------
+
+# Red Rising Movie Officially in the Works at Paramount With Veteran Sci-Fi Director
+
+Movies, Sci-Fi, paramount pictures, The Hunger Games
+
+Fri, 16 Oct 2026 21:33:56 GMT
+
+https://www.cbr.com/red-rising-movie-director-francis-lawrence/
+
+Paramount is putting the hit YA sci-fi book into development as a movie with the perfect director attached.
+---------
+
+# 10 Westerns for the Taylor Sheridan Fan
+
+Movie, Sicario, No Country for Old Men, Hell or High Water, Wind River
+
+Fri, 16 Oct 2026 22:48:14 GMT
+
+https://collider.com/westerns-for-the-taylor-sheridan-fan/
+
+10 Westerns and neo westerns that capture everything that makes Taylor Sheridan's genre work so unforgettable.
+---------
+
+# ‘Sherlock’ Star Officially Joins Apple TV’s 2-Part ‘Slow Horses’ Replacement
+
+TV News, Apple TV, Down Cemetery Road, Slow Horses, Sherlock
+
+Fri, 16 Oct 2026 22:45:14 GMT
+
+https://collider.com/apple-tv-down-cemetery-road-season-2-cast-sherlock-star-amanda-abbington/
+
+Apple TV's best Slow Horses replacement has officially added a Sherlock star for Season 2.
+---------
+
+# '9-1-1: Nashville' Officially Finds Its Footing With Ryan Phillippe in Season 2 | Review
+
+TV Reviews, 9-1-1: Nashville, 9-1-1, ABC, Procedural
+
+Fri, 16 Oct 2026 22:42:20 GMT
+
+https://collider.com/9-1-1-nashville-season-2-premiere-review/
+
+9-1-1: Nashville's thrilling Season 2 opener finally shows that the series is finding its footing with Ryan Phillippe also joining the cast.
+---------
+
+# 'The White Lotus' Season 4 Officially Gets First Look From HBO
+
+TV News, HBO, The White Lotus, Mike White, Carrie Coon
+
+Fri, 16 Oct 2026 22:30:14 GMT
+
+https://collider.com/hbo-the-white-lotus-season-4-first-look-images/
+
+A first look at HBO's The White Lotus has officially been revealed. Check out the new images here!
+---------
+
+# 7 Best Vampire Movies Since 2016, Ranked
+
+Movie, Vampire, Sinners, Nosferatu, Abigail
+
+Fri, 16 Oct 2026 22:19:14 GMT
+
+https://collider.com/best-vampire-movies-since-2016-ranked/
+
+Nosferatu, Abigail, and The Last Voyage of the Demeter are all among the best vampire movies released since 2016, but which one is the greatest?
+---------
+
+# Henry Cavill’s ‘Highlander’ Scottish Accent Is Officially "Bang On," Says Co-Star [Exclusive]
+
+Exclusives, Karen Gillan, Zoe Chao, Highlander, Henry Cavill
+
+Fri, 16 Oct 2026 22:14:33 GMT
+
+https://collider.com/henry-cavill-highlander-scottish-accent-karen-gillan/
+
+Karen Gillan praises Henry Cavill’s “bang on” Scottish accent in Highlander and says he even corrected Gaelic pronunciation on set.
+---------
+
+# The 25 Best Actors of All Time, Ranked
+
+Movie, Daniel Day-Lewis, Robert De Niro, Marlon Brando, Meryl Streep
+
+Fri, 16 Oct 2026 21:59:14 GMT
+
+https://collider.com/best-actors-all-time-ranked/
+
+It's not easy to select the best actors of all time, but legends like Daniel Day-Lewis, Meryl Streep, and Denzel Washington are surely up there.
+---------
+
+# New Movies From ‘Reacher’ and ‘Lanterns’ Stars Officially Hit Prime Video This Weekend
+
+Movie, Masterplan, Love of Your Life, Scream 7, Prime Video
+
+Fri, 16 Oct 2026 21:48:14 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-october-17-2026/
+
+Love of Your Life, Masterplan, and Scream 7 make up our list of the best movies streaming on Prime Video the weekend of October 17.
+---------
+
+# ‘Fallout’s Success Makes This Sci-Fi Franchise Impossible To Ignore
+
+TV Features, Fallout, Prime Video, Doom, Sci-Fi
+
+Fri, 16 Oct 2026 21:42:14 GMT
+
+https://collider.com/fallout-success-doom-video-game-tv-adaptation/
+
+DOOM deserves the Fallout treatment with a live-action TV series that explores its expanded lore and avoids the mistakes of its two movie adaptations.
+---------
+
+# Paramount Officially Announces New Sci-Fi 'Hunger Games' Replacement
+
+Movie News, Paramount, The Hunger Games, Francis Lawrence, The Long Walk
+
+Fri, 16 Oct 2026 21:37:34 GMT
+
+https://collider.com/hunger-games-director-francis-lawrence-red-rising-movie/
+
+Hunger Games franchise and The Long Walk director Francis Lawrence has officially found his next sci-fi adaptation. Read on for more.
+---------
+
+# Netflix's Smash-Hit Thriller Officially Returns With Perfect Rotten Tomatoes Debut
+
+TV News, The Diplomat, Thriller, Netflix
+
+Fri, 16 Oct 2026 22:36:05 GMT
+
+https://movieweb.com/the-diplomat-season-4-rotten-tomatoes/
+
+One of Netflix's biggest shows just earned its highest Rotten Tomatoes score yet.
+---------
+
+# Netflix’s Near-Perfect New Mystery Thriller is One of the Biggest Shows of 2026
+
+Features, Below, Netflix, Thriller, Josh Hartnett
+
+Fri, 16 Oct 2026 22:00:17 GMT
+
+https://movieweb.com/below-streaming-success/
+
+Netflix's recently released mystery thriller TV series has high viewership and is one of the most exciting releases of 2026.
+---------
+
+# James Gunn Confirms Major 'Man of Tomorrow' Milestone 9 Months Ahead of Release
+
+Movie News, Superman, Man of Tomorrow, James Gunn, David Corenswet, Nicholas Hoult, DCU
+
+Fri, 16 Oct 2026 21:39:28 GMT
+
+https://movieweb.com/man-of-tomorrow-directors-cut-screening/
+
+The director provided an exciting update on the highly anticipated 'Superman' follow-up.
+---------
+
+# 7 Biggest Questions After 'Whalefall's Shocking Ending, Explained
+
+Features, Whalefall, Thriller
+
+Fri, 16 Oct 2026 21:15:53 GMT
+
+https://movieweb.com/whalefall-biggest-questions/
+
+Brian Duffield's survival thriller 'Whalefall' pushes the limits of claustrophobic tension, but the ending leaves a few questions unanswered.
+---------
+
+# Denzel Washington & Chiwetel Ejiofor's 129-Minute Crime Thriller Officially Lands New Streaming Home
+
+Movie News, Inside Man, Coming/Leaving Streaming, Denzel Washington, Chiwetel Ejiofor, Crime, Thriller
+
+Fri, 16 Oct 2026 21:01:18 GMT
+
+https://movieweb.com/inside-man-washington-ejiofor-streaming-starz-october-2026/
+
+Not everything is as it seems in Washington and Ejifor's top-notch thriller, which was directed by none other than Spike Lee.
+---------
+
+# 'True Detective' Season 5 Officially Confirms Nicolas Cage & Oscar-Nominated Actor in Lead Roles
+
+TV News, True Detective, Crime, HBO Max, Nicolas Cage, Antonio Banderas
+
+Fri, 16 Oct 2026 20:55:04 GMT
+
+https://movieweb.com/true-detective-season-5-antonio-banderas/
+
+Another high-caliber actor has joined the project.
+---------
+
+# Netflix's Near-Perfect Sci-Fi Action Series Gets a Paramount Movie With a Major Creative Shift
+
+Movie News, Cyberpunk: Edgerunners, Sci-Fi, Netflix, Paramount Plus
+
+Fri, 16 Oct 2026 20:20:49 GMT
+
+https://movieweb.com/cyberpunk-movie-paramount-update/
+
+CD Projekt Red says its new Cyberpunk movie will not adapt the story of Cyberpunk 2077, instead opting for a new story set in Night City.
+---------
+
 # Josh Brolin Explains Lanterns Exit After DCU Show’s Record-Breaking Success
 
 TV, Lanterns
