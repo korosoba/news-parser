@@ -1,3 +1,399 @@
+# After 2 Years, The 2020s' Biggest Horror Icon Is Back For A Bold New Era
+
+Comics, BOOM! Studios, Something is Killing the Children
+
+Fri, 16 Oct 2026 03:30:20 GMT
+
+https://screenrant.com/something-killing-the-children-best-horror-new-era/
+
+Erica Slaughter is primed to return as a monster hunter in Something Is Killing the Children, but what does that mean for the Order of St. George?
+---------
+
+# Why Reacher & Neagley Never Get Together
+
+Streaming TV, Reacher, Neagley
+
+Fri, 16 Oct 2026 03:00:20 GMT
+
+https://screenrant.com/do-reacher-and-neagley-love-each-other-get-together/
+
+Amazon's Reacher may not explicitly mention whether Reacher and Neagley are in love but some details in the show reveal what they think of each other.
+---------
+
+# After 88 Years, DC Retcons Superman's Iconic Origin
+
+Comics, Superman
+
+Fri, 16 Oct 2026 03:00:19 GMT
+
+https://screenrant.com/superman-origin-change-powers-strong/
+
+Superman's upbringing is a familiar tale to most people worldwide, but this particular addition  noticeably upstages his old origin story.
+---------
+
+# 3 Turn-Based SNES RPGs Still Worth Playing In 2026
+
+Gaming, SNES, RPG, Triple-A Games
+
+Fri, 16 Oct 2026 03:00:19 GMT
+
+https://screenrant.com/snes-turn-based-rpgs-still-worth-playing/
+
+The Super Nintendo Entertainment System was a great system for RPGs, and it's best games are just as fun to play several decades later.
+---------
+
+# Who The Real Mary Simms Was & Why She Was So Important After Lincoln's Assassination
+
+Classic TV, Manhunt
+
+Fri, 16 Oct 2026 02:45:18 GMT
+
+https://screenrant.com/manhunt-mary-simms-real-person-inspiration-history/
+
+One of Manhunt’s most important characters is Mary Simms, a formerly enslaved woman who crosses paths with John Wilkes Booth during his escape.
+---------
+
+# 10 Biggest Takeaways Rewatching Every Indiana Jones Movie
+
+Movies, Indiana Jones, Raiders of the Lost Ark, Indiana Jones and the Temple of Doom, Indiana Jones and the Last Crusade, Indiana Jones and the Kingdom of the Crystal Skull, Indiana Jones and the Dial of Destiny
+
+Fri, 16 Oct 2026 02:45:16 GMT
+
+https://screenrant.com/10-biggest-takeaways-rewatching-every-indiana-jones-movie/
+
+The Indiana Jones franchise is one of the greatest movies franchise of all time (and is well worth rewatching after a recent streaming update).
+---------
+
+# NCIS's Major DiNozzo Change Invites A Dark Future For MCRT
+
+Network TV, NCIS
+
+Fri, 16 Oct 2026 02:30:18 GMT
+
+https://screenrant.com/ncis-season-24-dinozzo-director-role-change-tragedy-invite/
+
+Tony DiNozzo's new role within the NCIS office may impact the MCRT's dynamics and introduce unforeseen challenges.
+---------
+
+# 8 Classic Marvel Superheroes Even Mega-Fans Didn't Realize Have Been Vampires
+
+Comics, Marvel
+
+Fri, 16 Oct 2026 02:30:18 GMT
+
+https://screenrant.com/classic-marvel-heroes-become-vampires/
+
+Discover 8 Marvel superheroes who transformed into vampires in unexpected storylines and alternate realities.
+---------
+
+# Crystal Lake Timeline, Friday The 13th Lore Changes & How The Ending Sets Up Season 2
+
+Streaming TV, Crystal Lake, Halloween 2026, Friday The 13th
+
+Fri, 16 Oct 2026 02:00:28 GMT
+
+https://screenrant.com/crystal-lake-friday-the-13th-timeline-lore-changes-ending-explained/
+
+Peacock's Crystal Lake revives the original Friday the 13th killer, reshaping the lore and timeline in a propulsive show that could easily continue.
+---------
+
+# Dungeons & Dragons Officially Switches Genres In Brand-New Expansion
+
+Tabletop, Dungeons and Dragons, tabletop games
+
+Fri, 16 Oct 2026 02:00:28 GMT
+
+https://screenrant.com/dungeons-dragons-project-lamordia-free-download-survival-horror/
+
+A new release for Dungeons and Dragons has just arrived, and it includes an entirely free download for anyone who’s interested, no strings attached.
+---------
+
+# 5 Isekai Anime Where the Hero Isn't Human, Ranked
+
+Anime, That Time I Got Reincarnated as a Slime, So I'm a Spider, So What?, Isekai
+
+Fri, 16 Oct 2026 03:45:14 GMT
+
+https://www.cbr.com/isekai-anime-hero-not-human-ranked/
+
+These isekai anime turn the usual reincarnation formula upside down by giving their heroes bodies that are anything but human.
+---------
+
+# Mark Harmon's Original Gibbs Replacement Returns to NCIS After 6 Years
+
+TV, NCIS: Origins, NCIS, CBS
+
+Fri, 16 Oct 2026 03:35:35 GMT
+
+https://www.cbr.com/ncis-origins-season-3-episode-2-sean-harmon-fbi-character/
+
+Mark Harmon's original NCIS replacement for Gibbs has returned to the franchise in NCIS: Origins Season 3, Episode 2, "My Own Worst Enemy."
+---------
+
+# New Ocarina of Time Trailer Shows Big Upgrade to Zelda's Best Boss
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Fri, 16 Oct 2026 03:32:14 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-switch-2-remake-trailer-dark-link/
+
+Dark Link is easily one of the most memorable bosses in Zelda history, and he looks better than ever in Ocarina of Time’s Switch 2 remake.
+---------
+
+# HBO's Harry Potter Reboot Can Fix 2 Forgotten Storylines Missing From the Movies
+
+TV, Harry Potter, HBO Max, Fantasy, Innovation
+
+Fri, 16 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/hbo-harry-potter-reboot-proper-dean-thomas-storyline/
+
+The Harry Potter books feature great moments that the movies cut, and one such character could get his chance in the upcoming reboot.
+---------
+
+# The 10 Funniest Far Side Comics Featuring Doctors
+
+Comics, The Far Side
+
+Fri, 16 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/funniest-far-side-comics-featuring-doctors/
+
+Gary Larson's The Far Side is known for its strange and hilarious spin on everyday life, including going to the doctor's office.
+---------
+
+# 10 RPGs With the Best Character Progression, Ranked
+
+Games, RPG, Fallout, Final Fantasy
+
+Fri, 16 Oct 2026 03:15:14 GMT
+
+https://www.cbr.com/rpgs-best-character-progression-ranked/
+
+RPGs have approached character progression in many different ways, offering players exciting new methods to build their adventuring party.
+---------
+
+# Gundam's New 2027 Mecha Debuts Bandai's Most Advanced Gunpla Technology Yet
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam RG XARX-ZERO, merchandise, toys, bandai
+
+Fri, 16 Oct 2026 03:05:13 GMT
+
+https://www.cbr.com/gundam-zero-high-grade-gunpla-release-details/
+
+Bandai has officially unveiled the next High Grade Gunpla model kit for 2027, and it debuts the most cutting-edge tech that fans have seen to date.
+---------
+
+# 10 Funniest Peanuts Comic Strips Starring Adults
+
+Comics, Peanuts
+
+Fri, 16 Oct 2026 03:00:47 GMT
+
+https://www.cbr.com/funniest-peanuts-comic-strips-starring-adults/
+
+While always remaining off-panel, the mysterious adults of the Peanuts comics have become the focus of many hilarious moments for the strip.
+---------
+
+# 5 Anime Series Where a Hero Becomes the Final Villain
+
+Anime, Innovation
+
+Fri, 16 Oct 2026 03:00:14 GMT
+
+https://www.cbr.com/anime-hero-becomes-final-villain-list/
+
+In anime like Code Geass, the hero eventually does down a dark path and becomes a villain.
+---------
+
+# Sega Officially Pulls New Game Days After Release Following Intense Backlash
+
+Games, sega
+
+Fri, 16 Oct 2026 02:47:36 GMT
+
+https://www.cbr.com/sega-removes-total-war-shogun-2-complete-edition/
+
+Sega admits that the game shouldn't have been sold.
+---------
+
+# 6 Months After Its Debut, ‘Beetle Bailey’ Made the Change That Saved the Military Comic
+
+Books and Comics, Beetle Bailey, Peanuts, Garfield and Friends, Popeye and Friends
+
+Fri, 16 Oct 2026 03:22:15 GMT
+
+https://collider.com/beetle-bailey-major-change-military-comic-success/
+
+When Mort Walker first started Beetle Bailey, he had a very different vision for the title character.
+---------
+
+# The 10 Greatest Fantasy Movies Based on Books, Ranked
+
+Movie, Fantasy, The Lord of the Rings: The Fellowship of the Ring, Harry Potter and the Sorcerer's Stone, The Wizard of Oz
+
+Fri, 16 Oct 2026 02:23:13 GMT
+
+https://collider.com/best-fantasy-movies-based-on-books-ranked/
+
+Fantasy cinema is often at its best when based on books, as proven by such masterpieces as The Lord of the Rings, The Wizard of Oz, and Harry Potter.
+---------
+
+# Russell Crowe’s New Crime Thriller Officially Loses Top Spot to Ben Affleck
+
+Movie News, Russell Crowe, Unabomber, Netflix, Mindhunter
+
+Fri, 16 Oct 2026 02:00:24 GMT
+
+https://collider.com/unabomber-russell-crowe-mindhunter-replacement-streaming-drop-netflix-october-2026/
+
+Russell Crowe's critically panned new Netflix movie has plummeted on the streamer's viewership charts after two solid weeks. Find out more.
+---------
+
+# 'Interstellar' Star's New 'Coraline' Replacement Is Officially Halloween's Horror of Choice
+
+Movie News, Other Mommy, Jessica Chastain, Horror, Box Office
+
+Fri, 16 Oct 2026 01:45:13 GMT
+
+https://collider.com/jessia-chastain-other-mommy-global-box-office-50-million/
+
+Despite abysmal reviews, Jessica Chastain's new Coraline replacement is one of the biggest horror hits of October.
+---------
+
+# Apple TV's Twisty Crime Thriller Is Officially Switching Main Characters in Season 2
+
+TV Features, Imperfect Women, Apple TV, Kerry Washington, Elisabeth Moss
+
+Fri, 16 Oct 2026 01:36:13 GMT
+
+https://collider.com/imperfect-women-season-2-apple-tv-thriller-character-switch/
+
+Apple TV's Imperfect Women is set to return for Season 2 with only one original character, forcing the thriller series to invent fresh twists.
+---------
+
+# ‘Euphoria’ Creator Officially Leaves HBO After 7 Years
+
+TV News, Euphoria, Sam Levinson, Amazon, MGM
+
+Fri, 16 Oct 2026 01:30:13 GMT
+
+https://collider.com/euphoria-creator-sam-levinson-amazon-mgm-studios-deal/
+
+Euphoria creator Sam Levinson is officially leaving HBO for Amazon MGM Studios with a new partnership.
+---------
+
+# The Spy Series That Inspired 'Reacher' Officially Reveals Full Season 2 Cast
+
+TV News, The Day of the Jackal, Lee Child, Reacher
+
+Fri, 16 Oct 2026 01:15:13 GMT
+
+https://collider.com/day-of-the-jackal-season-2-full-cast-confirmed/
+
+The Day of the Jackal Season 2 cast list has been officially unveiled ahead of its 2027 premiere. Here's all to know.
+---------
+
+# '9-1-1' Signals the Beginning of a Brand New Era With Its Season 10 Premiere | Review
+
+TV Reviews, 9-1-1, ABC, Procedural, Angela Bassett
+
+Fri, 16 Oct 2026 01:02:14 GMT
+
+https://collider.com/9-1-1-season-10-premiere-review-volcano-disaster/
+
+9-1-1's Season 10 premiere delivers major changes and features intense emergencies and big developments for fan-favorite characters.
+---------
+
+# Taylor Sheridan’s 5-Part Crime Thriller Officially Recruits New Fans on Netflix
+
+TV News, Netflix, Mayor of Kingstown, Taylor Sheridan, Jeremy Renner
+
+Fri, 16 Oct 2026 01:00:14 GMT
+
+https://collider.com/taylor-sheridan-mayor-of-kingstown-streaming-success-netfflix-october-2026/
+
+Taylor Sheridan's crime thriller series Mayor of Kingstown has emerged as a Netflix hit ahead of its fifth and final season. Find out more.
+---------
+
+# Netflix's New Western Hit Officially Doubles Viewership in Under 2 Weeks
+
+TV News, Netflix, East of Eden, Florence Pugh, Western
+
+Fri, 16 Oct 2026 00:45:13 GMT
+
+https://collider.com/florence-pugh-western-east-of-eden-streaming-success-netflix-october-2026/
+
+Netflix's epic new East of Eden adaptation, starring Florence Pugh, has doubled its viewership in its second week of release. Find out more.
+---------
+
+# 15 Biggest Questions After 'Street Fighter's Twist Ending, Explained
+
+Movie Lists, Street Fighter, Action, video games
+
+Fri, 16 Oct 2026 03:02:54 GMT
+
+https://movieweb.com/street-fighter-biggest-questions/
+
+A brand new 'Street Fighter' movie is here to deliver unparalleled action, and we've got answers to all your burning video game questions.
+---------
+
+# Jon Bernthal's 92-Day-Old Near-Perfect Action Epic Is Now Beating an Expensive New 128-Minute Flop
+
+Movie News, Jon Bernthal, The Odyssey, Tom Cruise, Digger, Action, Box Office Milestones
+
+Fri, 16 Oct 2026 02:30:06 GMT
+
+https://movieweb.com/the-odyssey-and-digger-box-office-october-2026/
+
+Ninety-two days into release, Christopher Nolan’s The Odyssey is still pulling stronger box office numbers than Tom Cruise’s costly new flop Digger.
+---------
+
+# 16 Years Later, Leonardo DiCaprio's Mystery Thriller Still Has the Most Haunting Final Line in Movie History
+
+Features, Shutter Island, Thriller, Leonardo DiCaprio
+
+Fri, 16 Oct 2026 01:40:32 GMT
+
+https://movieweb.com/shutter-island-haunting-final-line/
+
+'Shutter Island' has a gutting ending, just like the book, but its ambiguity leaves viewers to chew on the meaning of a chilling final line.
+---------
+
+# 55 Years Later, a Once-Banned Thriller Masterpiece Officially Wins Over Critics With Near-Perfect RT Score
+
+Movie News, The Devils, Thriller, Rotten Tomatoes
+
+Fri, 16 Oct 2026 01:35:52 GMT
+
+https://movieweb.com/the-devils-ken-russell-new-release/
+
+The new 4K restoration of The Devils is giving American audiences their first legal chance to see Ken Russell’s complete vision on the big screen.
+---------
+
+# 46 Years Later, 'Friday the 13th's Opening Kill Has Been Completely Retconned
+
+Features, Crystal Lake, Friday the 13th, Friday The 13th, Horror
+
+Fri, 16 Oct 2026 00:00:17 GMT
+
+https://movieweb.com/crystal-lake-friday-13th-opening-retcon/
+
+'Friday the 13th' opens with an iconic opening scene that leans into slasher conventions, but prequel series 'Crystal Lake' completely retcons it.
+---------
+
+# Tom Cruise's 128-Minute Epic Leaves 2,535 Theaters as One of the Year's Biggest Box Office Flops
+
+Movie News, Digger, Tom Cruise, Drama
+
+Thu, 15 Oct 2026 23:58:48 GMT
+
+https://movieweb.com/digger-box-office-october-2026/
+
+After opening to Cruise's lowest leading-man debut since 2007, Digger is now exiting theaters at a pace rare even among high-profile flops.
+---------
+
 # James McAvoy Pitched A Star Trek Show To Play Young Patrick Stewart Again
 
 TV, Star Trek, James McAvoy, Patrick Stewart
