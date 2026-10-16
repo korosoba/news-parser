@@ -1,3 +1,421 @@
+# Josh Brolin Explains Lanterns Exit After DCU Show’s Record-Breaking Success
+
+TV, Lanterns
+
+Fri, 16 Oct 2026 20:16:00 GMT
+
+https://screenrant.com/lanterns-hbo-dcu-record-breaking-josh-brolin-exit-explained/
+
+Josh Brolin reveals what could have potentially turned him off to the idea of accepting the role of Hal Jordan in the hit HBO show, Lanterns.
+---------
+
+# Percy Jackson Is Back With New Official Disney Release Out Now
+
+Comics, Percy Jackson & The Olympians
+
+Fri, 16 Oct 2026 20:12:40 GMT
+
+https://screenrant.com/percy-jackson-new-graphic-novel-release/
+
+Percy Jackson's first three arcs are available to enjoy in a different format to Rick Riordan's books and Disney+'s live-action series.
+---------
+
+# Netflix's New Harlan Coben-Like Crime Thriller Series Is An Instant Streaming Sensation
+
+TV, Masked Recs
+
+Fri, 16 Oct 2026 20:11:22 GMT
+
+https://screenrant.com/the-trap-harlan-coben-replacement-netflix-streaming-success-october-2026/
+
+Netflix's new crime thriller series is perfect for Harlan Coben fans after I Will Find You, and it has instantly become a global sensation.
+---------
+
+# HBO’s Harry Potter Remake Gets Major Filming Update For Chamber Of Secrets Season
+
+TV, Harry Potter
+
+Fri, 16 Oct 2026 20:11:01 GMT
+
+https://screenrant.com/harry-potter-season-2-chamber-of-secrets-filming-update-rafe-spall/
+
+Rafe Spall, who will be portraying Ron Weasley's father, Arthur, shared a major filming update for Harry Potter season 2, with a key scene recreated.
+---------
+
+# Every Fight In Street Fighter 2026, Ranked
+
+Movies, Street Fighter
+
+Fri, 16 Oct 2026 20:00:19 GMT
+
+https://screenrant.com/street-fighter-2026-all-fights-ranked/
+
+As Street Fighter is such a famous fighting game series, it makes sense that the fights are the best part of the movie, and here's how they rank.
+---------
+
+# 3 Best New Netflix Series To Binge-Watch This Weekend (October 16–18, 2026)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 16 Oct 2026 20:00:19 GMT
+
+https://screenrant.com/best-new-netflix-shows-to-binge-weekend-october-16-2026/
+
+The best new shows to binge-watch on Netflix this weekend, October 16–18, 2026: The Diplomat season 4, Below, and The Trap.
+---------
+
+# Castlevania: Belmont's Curse - How To Beat Carmilla (Boss Guide)
+
+Gaming, Castlevania: Belmont's Curse, Castlevania, Triple-A Games, PC
+
+Fri, 16 Oct 2026 19:51:36 GMT
+
+https://screenrant.com/castlevania-belmonts-curse-carmilla-boss-guide-rewards/
+
+Carmilla is one of the most dramatic bosses in Castlevania: Belmont's Curse, and Rose has to deal with a limitation on how many hits she can take.
+---------
+
+# Brandon Sanderson Is Using Wheel of Time's Cancellation As The Blueprint For Mistborn
+
+Books, Mistborn, The Wheel of Time
+
+Fri, 16 Oct 2026 19:43:20 GMT
+
+https://screenrant.com/brandon-sanderson-wheel-of-time-mistborn-comments-creative-control/
+
+The celebrated author is learning from previous production errors when it comes to adapting his own work for the screen.
+---------
+
+# True Detective Season 5 Officially Casts Nicolas Cage's First Co-Star
+
+TV, True Detective
+
+Fri, 16 Oct 2026 19:35:37 GMT
+
+https://screenrant.com/antonio-banderas-true-detective-season-5-casting/
+
+HBO's return to crime has added Hollywood royalty, as the star-studded five-part anthology series adds a major Hollywood star for its fifth season.
+---------
+
+# Red Dead Redemption 2: The Hollow Man Is Available Now
+
+Gaming, Red Dead Redemption 2, Triple-A Games, PC
+
+Fri, 16 Oct 2026 19:30:20 GMT
+
+https://screenrant.com/red-dead-redemption-2-hollow-man-horror-mod/
+
+Although there has been some horror crossover in Red Dead Redemption in the past, now fans can enjoy a horror-themed encounter in the sequel.
+---------
+
+# 5 Best Partnered Content Resources on D&D Beyond
+
+Games, Dungeons and Dragons
+
+Fri, 16 Oct 2026 20:15:15 GMT
+
+https://www.cbr.com/best-dnd-beyond-partnered-content/
+
+It's time to go in a new direction with classic D&amp;D content, and the partnered content on D&amp;D Beyond takes the game to a whole new level.
+---------
+
+# Jensen Ackles’ Rules of Prey Perfect Titus Welliver’s Bosch Replacement
+
+TV, Rules of Prey, Bosch, MGM+
+
+Fri, 16 Oct 2026 20:15:09 GMT
+
+https://www.cbr.com/jensen-ackles-rules-of-prey-bosch-comparison/
+
+Jensen Ackles' upcoming crime thriller, Rules of Prey, based on a bestselling book series, already sounds like Amazon's new Bosch.
+---------
+
+# NCIS Officially Reveals First Look at Gibbs and Tony’s Reunion
+
+TV, NCIS: Origins, NCIS
+
+Fri, 16 Oct 2026 20:01:47 GMT
+
+https://www.cbr.com/ncis-origins-gibbs-tony-reunion-first-look/
+
+Mark Harmon's Leroy Jethro Gibbs and Michael Weatherly's Tony DiNozzo finally have an on-screen reunion.
+---------
+
+# Sylvester Stallone’s Taylor Sheridan Crime Drama Returns to Streaming Top 10 Ahead of Spinoff
+
+TV, Tulsa King, Paramount Plus, sylvester stallone
+
+Fri, 16 Oct 2026 20:00:14 GMT
+
+https://www.cbr.com/tulsa-king-crime-drama-paramount-plus-success-october-2026/
+
+With a new spinoff about to debut and a fourth season now streaming, Sylvester Stallone's crime drama series is charting again on Paramount+.
+---------
+
+# Firefly’s Most Overlooked Episode Quietly Changed TV Sci-Fi Forever With 44 Perfect Minutes
+
+TV, Firefly, Sci-Fi, fox
+
+Fri, 16 Oct 2026 20:00:14 GMT
+
+https://www.cbr.com/firefly-objects-in-space-changed-sci-fi-tv/
+
+Firefly is a cult-classic sci-fi show with a beloved story that forever changed TV and perfected a particular type of episode.
+---------
+
+# It's Officially The Beginning of a New Era for Dungeons & Dragons
+
+Comics, Dungeons & Dragons, Dungeons and Dragons
+
+Fri, 16 Oct 2026 20:00:14 GMT
+
+https://www.cbr.com/dungeons-and-dragons-dark-sun-1-release-date-confirmed/
+
+Dark Horse Comics is bringing back one of the most underrated settings in Dungeons & Dragons history for a brand-new apocalyptic adventure.
+---------
+
+# 10 Overlooked Sci-Fi Movies of the Last 20 Years That Should Be Considered Masterpieces
+
+Movies, Sci-Fi
+
+Fri, 16 Oct 2026 20:00:14 GMT
+
+https://www.cbr.com/overlooked-perfect-sci-fi-movies-last-20-years-list/
+
+These sci-fi movies, released over two decades, may have been forgotten by the mainstream, but they deserve to be considered masterpieces.
+---------
+
+# 10 Movies to Watch if You Love The Predator
+
+Movies, Predator, Sci-Fi, Arnold Schwarzenegger, Innovation
+
+Fri, 16 Oct 2026 19:45:54 GMT
+
+https://www.cbr.com/best-movies-to-watch-for-predator-fans-list/
+
+Predator lovers will find that there are surprising similarities with these hits.
+---------
+
+# Pokémon Turns Up the Heat for Gen 1 Fans With Exclusive New Charizard Design
+
+Anime, Pokemon, merchandise, Razer
+
+Fri, 16 Oct 2026 19:20:15 GMT
+
+https://www.cbr.com/pokemon-razer-blackshark-charizard-edition-target-exclusive/
+
+Classic Pokémon fans get a brand-new exclusive Charizard design that might just be the year's next must-have gaming accessory.
+---------
+
+# Anime Series That Ended at the Perfect Time
+
+Anime, Attack On Titan, Cowboy Bebop, Innovation
+
+Fri, 16 Oct 2026 19:15:14 GMT
+
+https://www.cbr.com/anime-series-ended-at-perfect-time/
+
+These anime series kept their storytelling sharp without stretching their ideas beyond their limits.
+---------
+
+# Hulu’s Overlooked 1-Season Romance Is the Perfect Weekend Binge
+
+TV Features, Conversations with Friends, Normal People, Series, Hulu
+
+Fri, 16 Oct 2026 20:08:15 GMT
+
+https://collider.com/conversations-with-friends-sally-rooney-romance-hulu-series/
+
+Sally Rooney’s Conversations with Friends explores messy relationships, forbidden romance, and emotional vulnerability in this overlooked drama.
+---------
+
+# Josh Brolin Officially Teases James Bond Writer's "Incredible" Script for Taylor Sheridan Follow-Up
+
+Movie News, Sicario, Taylor Sheridan, Josh Brolin, Emily Blunt
+
+Fri, 16 Oct 2026 20:01:25 GMT
+
+https://collider.com/sicario-3-script-update-josh-brolin/
+
+Josh Brolin has officially confirmed Sicario 3 starts shooting next year while praising James Bond writer Steven Knight's script.
+---------
+
+# ‘FBI’ Officially Brings OA’s Undercover Mission Into Its Endgame [Exclusive]
+
+Exclusives, FBI, CBS, Missy Peregrym, Zeeko Zaki
+
+Fri, 16 Oct 2026 20:00:14 GMT
+
+https://collider.com/fbi-season-9-episode-3-sneak-peek-zeeko-zaki-missy-peregrym/
+
+A new sneak peek at FBI Season 9, Episode 3 finds the New York field office listening in on OA's bug to catch Anna Vorpe.
+---------
+
+# Nicolas Cage's 'True Detective' Season 5 Officially Recruits an Indiana Jones Star
+
+TV News, Nicolas Cage, Antonio Banderas, True Detective, HBO
+
+Fri, 16 Oct 2026 19:57:17 GMT
+
+https://collider.com/hbo-nicolas-cage-true-detective-season-5-cast-antonio-banderas/
+
+Nicolas Cage's True Detective Season 5 has officially added legendary actor Antonio Banderas to the cast. Read on for more.
+---------
+
+# 3 Best Thrillers To Watch on Netflix This Weekend (October 17-18)
+
+Movie, Thriller, Dead Man's Wire, Netflix, The Whisper Man
+
+Fri, 16 Oct 2026 19:29:14 GMT
+
+https://collider.com/best-netflix-thriller-movies-watch-this-weekend-october-17/
+
+If you're looking for a good thriller to watch this weekend, Netflix has the strongest library, including gems like The Prestige and The Whisper Man.
+---------
+
+# Quentin Tarantino Officially Returns to Theaters in 2 Weeks
+
+Movie News, Once Upon a Time in Hollywood, Quentin Tarantino, The Further Mis-Adventures of Cliff Booth, IMAX
+
+Fri, 16 Oct 2026 19:15:45 GMT
+
+https://collider.com/quentin-tarantino-once-upon-a-time-in-hollywood-imax/
+
+Quentin Tarantino's modern masterpiece, Once Upon a Time in Hollywood, is officially returning to theaters ahead of Netflix's sequel.
+---------
+
+# The 10 Worst Pokémon Games of All Time, Ranked
+
+TV, Pokémon, Video Game, Anime, Pikachu
+
+Fri, 16 Oct 2026 19:08:14 GMT
+
+https://collider.com/worst-pokemon-games-all-time-ranked/
+
+The Pokémon franchise has had its fair share of bad games, including disappointing releases like Pokémon Channel and Pokémon Dash.
+---------
+
+# New 'The Pitt' Replacement Series Is Officially Free to Stream
+
+TV News, YouTube, The Pitt, Noah Wyle, HBO Max
+
+Fri, 16 Oct 2026 18:50:23 GMT
+
+https://collider.com/the-pitt-replacement-f-ward-free-streaming-youtube/
+
+One of The Pitt's best rivals is officially streaming for free on YouTube ahead of the HBO hit's third season. Read on for more.
+---------
+
+# Street Fighter: Cody Rhodes' Daughter Was Born During Filming | Set Stories
+
+Movie, Street Fighter
+
+Fri, 16 Oct 2026 18:45:15 GMT
+
+https://collider.com/video/street-fighter-cody-rhodes-daughter-was-born-during-filming-set-stories/
+
+The cast of Street Fighter (2026) shares unforgettable behind-the-scenes stories, from an emotional moment during a massive fight scene to the incredible costumes and practical sets that brought the iconic video game characters to life.
+---------
+
+# Anne Hathaway’s New Thriller Officially Removed From 500 Theaters
+
+Movie News, Anne Hathaway, Dakota Johnson, Verity, Box Office
+
+Fri, 16 Oct 2026 18:20:15 GMT
+
+https://collider.com/anne-hathaway-colleen-hoover-adaptation-verity-loses-500-theaters/
+
+Anne Hathaway and Dakota Johnson's Verity just lost 500 theaters as it enters its third week of release. Find out more.
+---------
+
+# Original 'NCIS' Icons Officially Reunite in First Look Images 10 Years in the Making
+
+TV News, NCIS: Origins, Michael Weatherly, Crime, Drama, Action
+
+Fri, 16 Oct 2026 20:16:02 GMT
+
+https://movieweb.com/ncis-origins-season-3-reunion/
+
+Two of the biggest names in 'NCIS' history will enjoy a special reunion in a franchise spin-off coming to the small screen soon.
+---------
+
+# 27 Years Later, Scully's Greatest 'X-Files' Quote Is Still the Most Intelligent in Sci-Fi History
+
+Features, Great Line, The X-Files, Sci-Fi
+
+Fri, 16 Oct 2026 20:00:18 GMT
+
+https://movieweb.com/the-x-files-scully-wise-quote/
+
+Gillian Anderson's 'The X-Files' character, Dana Scully, says many smart quotes throughout the sci-fi TV show's run, but this one is the best.
+---------
+
+# Jenna Ortega's New Dystopian Sci-Fi Movie From Taika Waititi Lands Jaw-Dropping Rotten Tomatoes Score
+
+Movie News, Klara and the Sun, Jenna Ortega, Taika Waititi, Rotten Tomatoes, Comedy, Sci-Fi
+
+Fri, 16 Oct 2026 19:19:32 GMT
+
+https://movieweb.com/klara-and-the-sun-rotten-tomatoes-score/
+
+Taika Waititi's newest sci-fi movie is getting surprising reactions from critics.
+---------
+
+# Taylor Sheridan's 'Yellowstone' Action Thriller Spin-Off Is No. 1 on Streaming as Favorite Character Returns
+
+TV News, Taylor Sheridan, Marshals, Hot on Streaming, Action, Thriller, Paramount Plus
+
+Fri, 16 Oct 2026 19:01:17 GMT
+
+https://movieweb.com/marshals-taylor-sheridan-stream-october-2026/
+
+The second season of the action thriller series has officially conquered streaming.
+---------
+
+# 16 Biggest Video Game References & Easter Eggs in 'Street Fighter's 2026 Reboot
+
+Movie Lists, Street Fighter, Action, video games, Easter Eggs
+
+Fri, 16 Oct 2026 18:24:32 GMT
+
+https://movieweb.com/street-fighter-2026-easter-eggs/
+
+Did you catch all the lovingly placed video game Easter eggs and classic franchise references in the new 'Street Fighter' movie?
+---------
+
+# 'Whalefall' Ending's Deeper Meaning Explained by Josh Brolin
+
+Exclusives, Whalefall, Josh Brolin, Drama, Thriller
+
+Fri, 16 Oct 2026 18:17:30 GMT
+
+https://movieweb.com/whalefall-movie-ending-explained-josh-brolin/
+
+Josh Brolin reveals what audiences can take away from 'Whalefall's cathartic ending.
+---------
+
+# Netflix's 4-Part Sci-Fi Horror Masterpiece Is So Good, You'll Spend the Whole Weekend Watching It
+
+Features, Love, Death & Robots, Netflix, Sci-Fi, Horror
+
+Fri, 16 Oct 2026 18:00:18 GMT
+
+https://movieweb.com/love-death-robots-streaming-recommendation/
+
+An underrated anthology series on Netflix doesn't get the attention or praise that it deserves. Give it your focus this weekend. Read on for more.
+---------
+
+# Apple TV's New Tom Hiddleston Adventure Film Debuts on Streaming After Near-Perfect Reviews
+
+Movie News, Tenzing, Tom Hiddleston, Adventure, Drama, Biography, Apple TV
+
+Fri, 16 Oct 2026 17:55:16 GMT
+
+https://movieweb.com/tenzing-apple-tv-now-streaming/
+
+Before returning to the MCU in 'Avengers: Doomsday,' Tom Hiddleston will embody an exciting historical figure in a new biography on Apple TV.
+---------
+
 # NCIS Is Starting Sam Hanna’s New York Spinoff The Wrong Way
 
 Network TV, NCIS: New York
