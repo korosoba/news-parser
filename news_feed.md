@@ -1,3 +1,432 @@
+# NCIS Is Starting Sam Hanna’s New York Spinoff The Wrong Way
+
+Network TV, NCIS: New York
+
+Fri, 16 Oct 2026 17:45:18 GMT
+
+https://screenrant.com/ncis-new-york-sam-hanna-wrong-start/
+
+NCIS: New York threatens to destroy its own chance of success with its Sam Hanna-focused start, but there's one quick way to fix everything.
+---------
+
+# Metal Gear Solid Publisher Gives Official Update On AI
+
+Gaming, Konami, Metal Gear Solid, Triple-A Games, PC
+
+Fri, 16 Oct 2026 17:37:21 GMT
+
+https://screenrant.com/metal-gear-solid-publisher-konami-ai/
+
+Konami addressed the use of AI in game development in its latest financial report, and the studio seems confident about its own creative future.
+---------
+
+# South Park Season 29 Justifies A Major Main Character Change
+
+TV, South Park
+
+Fri, 16 Oct 2026 17:28:20 GMT
+
+https://screenrant.com/south-park-season-29-randy-main-character-justified/
+
+Looksmaxxing chaos and a trip to Sephora’s Backrooms sees one iconic South Park character aura farm, reclaim their catchphrase, and redeem their role.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (October 17-18)
+
+Movies, Disney+, Recommendation
+
+Fri, 16 Oct 2026 17:21:18 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-october-17/
+
+The best movies to watch on Disney+ this weekend are an Alan Ritchson dystopian Sci-Fi, a team-up superhero event, and a dark fantasy classic.
+---------
+
+# Mike Flanagan's Next Horror Project Can Only Be This Cult Classic
+
+Books, Mike Flanagan
+
+Fri, 16 Oct 2026 17:19:46 GMT
+
+https://screenrant.com/mike-flanagan-the-king-in-yellow/
+
+Mike Flanagan has made a name for himself adapting literature, and this one classic anthology makes perfect sense as his next project.
+---------
+
+# The Boys Franchise Is Returning To Prime Video And Immediately Replacing Hughie & Starlight
+
+Streaming TV, The Boys
+
+Fri, 16 Oct 2026 17:15:19 GMT
+
+https://screenrant.com/the-boys-vought-rising-soldier-boy-stormfront-main-characters/
+
+The Boys franchise will be back in 2027 with its next spinoff, Vought Rising, and it'll revolve around the love story of Soldier Boy and Stormfront.
+---------
+
+# Teenage Mutant Ninja Turtles Unveils Official Crocs Collaboration For Adults and Kids
+
+Comics, Teenage Mutant Ninja Turtles
+
+Fri, 16 Oct 2026 17:14:22 GMT
+
+https://screenrant.com/teeange-mutant-ninja-turtles-crocs/
+
+TMNT just unveiled epic Crocs featuring the Turtles and Shredder, and the best part is that they're available for adults and kids!
+---------
+
+# Netflix's Newest Movie Is An "Epic" Piece Of Filmmaking In Positive First Reviews
+
+Movies, Netflix
+
+Fri, 16 Oct 2026 17:14:14 GMT
+
+https://screenrant.com/the-storm-movie-reviews-netflix/
+
+Netflix’s newest movie has earned positive first reviews, with critics praising its "epic" story and comedy.
+---------
+
+# Harlan Coben’s CBS Crime Series Returns With 34% Rise In Viewership
+
+TV, Harlan Coben's Final Twist
+
+Fri, 16 Oct 2026 17:10:23 GMT
+
+https://screenrant.com/harlan-coben-final-twist-season-2-cbs-viewership-increase/
+
+Author Harlan Coben has had several of his books successfully adapted for the small screen. Now his CBS series is experiencing a ratings surge.
+---------
+
+# Apple TV Just Declared War on Roku With Its Biggest Streaming Upgrade Yet
+
+TV, Apple TV, Roku, Streaming
+
+Fri, 16 Oct 2026 17:40:31 GMT
+
+https://www.cbr.com/apple-tv-4k-streaming-upgrade-roku-competition/
+
+Apple TV's new hardware aims to dethrone Roku.
+---------
+
+# Popular Anime and TV Streaming Site Gets Domain Back, Officially Responds to Piracy Crackdown
+
+Anime, piracy
+
+Fri, 16 Oct 2026 17:35:14 GMT
+
+https://www.cbr.com/series-ly-domain-back-online-after-suspension-response/
+
+Days after an international registry suspended its domain, a major Spanish piracy site is back online, albeit with a major change.
+---------
+
+# Star Trek Showrunner Confirms Patrick Stewart’s Role in Legacy Sequel
+
+TV, Star Trek, Sci-Fi, Paramount Plus
+
+Fri, 16 Oct 2026 17:34:36 GMT
+
+https://www.cbr.com/star-trek-legacy-patrick-stewart-picard-return-role/
+
+Patrick Stewart's return to Star Trek is already set up.
+---------
+
+# The Apothecary Diaries Season 3 Takes Its Time Setting Up Its Next Big Mystery
+
+Anime, The Apothecary Diaries, Reviews, Innovation
+
+Fri, 16 Oct 2026 17:28:37 GMT
+
+https://www.cbr.com/the-apothecary-diaries-season-3-episode-3-review-spoilers/
+
+Fans expecting The Apothecary Diaries to get straight to the action in Season 3 hasn't been paying attention the anime's formula.
+---------
+
+# 10 Strongest Inuyasha Demons Ranked By Power
+
+Anime, Inuyasha, Innovation
+
+Fri, 16 Oct 2026 17:15:14 GMT
+
+https://www.cbr.com/strongest-inuyasha-demons-ranked-by-power/
+
+Being a demon in Inuyasha doesn't automatically make a character powerful, but some of the series' strongest demons are unforgettable.
+---------
+
+# John Turturro Reveals Why Tatiana Maslany Is One of the Greats
+
+Movies, The Only Living Pickpocket in New York
+
+Fri, 16 Oct 2026 17:00:15 GMT
+
+https://www.cbr.com/video/john-turturro-reveals-why-tatiana-maslany-is-one-of-the-greats/
+
+John Turturro has nothing but praise for Tatiana Maslany in The Only Living Pickpocket in New York, comparing her talent to some of Hollywood's greatest actresses. The two stars discuss their emotionally charged scene together, revealing why they chose not to rehearse and how their first collaboration helped transform the film.
+---------
+
+# Stephen King Is Quietly Changing The Shining's Rules After 49 Years
+
+TV, Stephen King, Carrie, It: Welcome to Derry, Innovation
+
+Fri, 16 Oct 2026 17:00:15 GMT
+
+https://www.cbr.com/stephen-king-carrie-it-welcome-to-derry-the-shining-rule-changes/
+
+Stephen King's supernatural universe is getting bigger as recent TV adaptations reveal new connections to one of his most famous psychic abilities.
+---------
+
+# Two Classic PC Games Will Officially Disappear October 23 After 95% Discount
+
+Games, Steam
+
+Fri, 16 Oct 2026 16:55:29 GMT
+
+https://www.cbr.com/pc-games-leaving-steam-discount-leisure-suit-larry/
+
+Two games from a classic point-and-click adventure series are being removed from Steam in one week, but are going on steep discount until then.
+---------
+
+# 5 Fall 2026 Anime That Could Be Masterpieces After Just a Few Episodes
+
+Anime
+
+Fri, 16 Oct 2026 16:16:14 GMT
+
+https://www.cbr.com/fall-2026-anime-masterpiece-first-episodes/
+
+Just a few weeks into the Fall 2026 anime season, some of the best debuts have already cemented themselves as masterpieces.
+---------
+
+# The Only Living Pickpocket in New York: Getting NYC Right
+
+Movies, The Only Living Pickpocket in New York
+
+Fri, 16 Oct 2026 16:00:14 GMT
+
+https://www.cbr.com/video/the-only-living-pickpocket-in-new-york-getting-nyc-right/
+
+The Only Living Pickpocket in New York writer-director Noah Segan opens up about the creative friendships, personal connections, and emotional storytelling behind his 2026 film.
+---------
+
+# Prime Video Officially Confirms New Series From 'The Vampire Diaries' Creator
+
+TV News, Prime Video, Julie Plec, Sports, Drama
+
+Fri, 16 Oct 2026 17:42:15 GMT
+
+https://collider.com/the-vampire-diaries-creator-prime-video-tennis-series-rally/
+
+Prime Video has officially confirmed a new tennis series is in the works from The Vampire Diaries creator Julie Plec.
+---------
+
+# Prime Video’s Sci-Fi Series With Over 100M Views Officially Returns in 2027
+
+TV News, Fallout, Prime Video, Walton Goggins, Ella Purnell
+
+Fri, 16 Oct 2026 17:40:15 GMT
+
+https://collider.com/fallout-season-3-release-window-2027/
+
+Prime Video's sci-fi series that has racked up over 100 million views in its first two seasons officially returns in 2027.
+---------
+
+# BritBox’s Forgotten 4-Part Sci-Fi Thriller With Patrick Stewart Is the Perfect Weekend Binge
+
+TV Features, Britbox, Eleventh Hour, Patrick Stewart, Sci-Fi
+
+Fri, 16 Oct 2026 17:28:14 GMT
+
+https://collider.com/britbox-sci-fi-thriller-eleventh-hour-patrick-stewart/
+
+In 2006, ITV released Eleventh Hour, a one-season sci-fi series led by Patrick Stewart.
+---------
+
+# 10 Bob Dylan Songs That Never Hit No. 1 but Became Classic Rock Masterpieces
+
+Music Features, Bob Dylan, Music, Rock, Pat Garrett & Billy the Kid
+
+Fri, 16 Oct 2026 17:21:14 GMT
+
+https://collider.com/bob-dylan-classic-rock-masterpiece-songs-not-number-1-hits/
+
+Bob Dylan never needed a No. 1 hit to be legendary, as shown by classic rock songs like "Hurricane," "Like a Rolling Stone," and "Forever Young."
+---------
+
+# Alan Ritchson’s New Action Movie Smashes Competition in Digital Debut
+
+Movie News, Alan Ritchson, Runner, Action, Owen Wilson
+
+Fri, 16 Oct 2026 17:20:14 GMT
+
+https://collider.com/runner-alan-ritchson-streaming-success-october-2026/
+
+Alan Ritchson's new action movie Runner has been released on the PVOD market, where it's showing encouraging early signs. Find out more.
+---------
+
+# Forget ‘Tulsa King,’ This 16-Episode Crime Series Is the Perfect Replacement
+
+TV Features, Charlie Cox, Tulsa King, Kin, Crime
+
+Fri, 16 Oct 2026 17:13:14 GMT
+
+https://collider.com/tulsa-king-replacement-series-kin-charlie-cox-returning-season-3/
+
+Charlie Cox’s 16-episode crime series Kin is a gripping Tulsa King replacement, with family betrayals and criminal loyalties driving its story.
+---------
+
+# Taylor Sheridan’s Hit Series Is Officially Not Returning in 2026
+
+TV News, Landman, Taylor Sheridan, Ali Larter, Billy Bob Thornton
+
+Fri, 16 Oct 2026 17:00:15 GMT
+
+https://collider.com/landman-season-3-not-releasing-2026/
+
+Taylor Sheridan's Landman will not return before the end of this year, meaning 2026 will be the first year since 2023 to not feature a new season.
+---------
+
+# David Fincher’s Serial Killer Thriller Officially Becomes One of Streaming’s Biggest Movies
+
+Movie News, Mindhunter, David Fincher, Zodiac, HBO Max
+
+Fri, 16 Oct 2026 17:00:15 GMT
+
+https://collider.com/zodiac-hbo-max-streaming-success-october-2026/
+
+David Fincher's 2007 masterpiece, Zodiac, is having a revival on HBO Max ahead of his new movie, The Further Mis-Adventures of Cliff Booth.
+---------
+
+# 'You Can See Everything' Review: The Year's Most Original Movie Will Make You Question Reality
+
+Movie Reviews, You Can See Everything, Documentary, A24, Nathan Fielder
+
+Fri, 16 Oct 2026 16:47:17 GMT
+
+https://collider.com/you-can-see-everything-review-nathan-fielder/
+
+Nathan Fielder and Lance Oppenheim's documentary You Can See Everything is a wildly inventive study of disgraced tech founder Elizabeth Holmes.
+---------
+
+# Robert Pattinson’s Franchise-Launching Hit Officially Surges on Netflix
+
+Movie News, Twilight, Robert Pattinson, Kristen Stewart, Netflix
+
+Fri, 16 Oct 2026 16:40:15 GMT
+
+https://collider.com/twilight-netflix-top-10-october-2026/
+
+Twilight, starring Kristen Stewart and Robert Pattinson, has entered Netflix’s Top 10 as the $412 million vampire hit prepares to leave the platform
+---------
+
+# Mike Flanagan's Epic Fantasy Western Officially Avoiding the Biggest Mistake With Stephen King Adaptations
+
+TV News, The Dark Tower, Mike Flanagan, Stephen King, Fantasy, Science Fiction, Western, Horror
+
+Fri, 16 Oct 2026 17:26:42 GMT
+
+https://movieweb.com/dark-tower-mike-flanagan-book-order/
+
+Mike Flanagan says his take on Stephen King's magnum opus will be faithful to the source, compared to the previous adaptation.
+---------
+
+# A24's New "Genre-Defying" 174-Minute Movie Officially the Highest Rated of the Year
+
+Movie News, You Can See Everything, Nathan Fielder, A24, Documentary
+
+Fri, 16 Oct 2026 17:06:33 GMT
+
+https://movieweb.com/you-can-see-everything-highest-rated-2026/
+
+Nathan Fielder and Lance Oppenheim's documentary about Elizabeth Holmes, 'You Can See Everything,' has a 100% rating on Rotten Tomatoes.
+---------
+
+# The Godfather' Is a Near-Perfect Film, but It Suffers From One Huge Flaw
+
+Features, The Godfather, Crime
+
+Fri, 16 Oct 2026 17:01:17 GMT
+
+https://movieweb.com/godfather-biggest-flaw/
+
+Why 'The Godfather,' despite its reputation, still has one notable weakness.
+---------
+
+# Sylvester Stallone's Dwight Manfredi Faces a Strong Female Rival in His Hit Crime Thriller
+
+Exclusives, Tulsa King, Sylvester Stallone, Gretchen Mol, Vincent Piazza, Paramount Plus, Crime, Thriller
+
+Fri, 16 Oct 2026 16:42:33 GMT
+
+https://movieweb.com/tulsa-king-season-4-villain/
+
+Sylvester Stallone faces a formidable rival in the next chapter of Taylor Sheridan's Paramount+ series.
+---------
+
+# In Just 1 Day, New 8-Part Prequel to Classic '80s Franchise Is Already a Streaming Smash Hit
+
+TV News, Crystal Lake, Hot on Streaming, Friday The 13th, Horror, Peacock
+
+Fri, 16 Oct 2026 16:00:18 GMT
+
+https://movieweb.com/crystal-lake-streaming-peacock-october-2026/
+
+The new series might not be for everyone, but it's a welcome revival of an iconic franchise that's been dormant for years.
+---------
+
+# Ridley Scott’s 13-Part Legal Thriller Masterpiece Beats Any Sci-Fi He Ever Made
+
+Features, the good fight, The Good Wife, Ridley Scott, Thriller
+
+Fri, 16 Oct 2026 16:00:18 GMT
+
+https://movieweb.com/good-wife-good-fight-perfect/
+
+Ridley Scott is known for his science-fiction movies like 'Alien,' but his legal thriller TV franchise is just as impressive.
+---------
+
+# Robert Pattinson Is an Inhuman Killer in $1 Billion Sci-Fi Franchise’s New Movie Set for December Release
+
+Movie News, Sci-Fi, Dune: Part Three, Robert Pattinson
+
+Fri, 16 Oct 2026 15:59:22 GMT
+
+https://movieweb.com/dune-part-three-robert-pattinson-look/
+
+Robert Pattinson wanted his Dune: Part Three villain Scytale to look even more alien, but Denis Villeneuve reportedly had a very different idea.
+---------
+
+# Henry Cavill's "John Wick Meets The Witcher" Action Thriller Will "Blow You Away"
+
+Movie News, Henry Cavill
+
+Fri, 16 Oct 2026 15:58:06 GMT
+
+https://movieweb.com/highlander-henry-cavill-accent/
+
+Henry Cavill is on his way back to the big screen for a new action thriller that should have viewers on the edge of their seats.
+---------
+
+# 25 Years Later, Near-Perfect Sequel To Beloved Sci-Fi Action Series Officially Sets Streaming Release
+
+Movie News, Action, Sci-Fi, Martial Arts, History, Streaming
+
+Fri, 16 Oct 2026 15:21:35 GMT
+
+https://movieweb.com/back-to-the-past-digital-streaming-release/
+
+The long-awaited follow-up has been hailed as the perfect blend of sci-fi, history, and martial arts.
+---------
+
+# Clint Eastwood’s 132-Minute Action Thriller Still Beats Any Western He Ever Made
+
+Features, Million Dollar Baby, Thriller, Action, Clint Eastwood
+
+Fri, 16 Oct 2026 15:01:19 GMT
+
+https://movieweb.com/million-dollar-baby-recommendation/
+
+Clint Eastwood's Western movies are great, including 'Unforgiven' and the 'Dollars' trilogy, but this film deserves just as much praise.
+---------
+
 # 10 Best Girls Episodes To Rewatch Before HBO's Revival
 
 Classic TV, Girls
