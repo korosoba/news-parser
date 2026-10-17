@@ -1,3 +1,355 @@
+# Stargate: Atlantis Officially Returns October 2026 In New Collection
+
+Gaming, Stargate
+
+Sat, 17 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/stargate-atlantis-october-2026-return/
+
+Get the limited-edition Zero Point Module replica from Stargate Atlantis today!
+---------
+
+# Project Zomboid Meets Resident Evil In This Open-World Horror RPG
+
+Gaming, Project Zomboid, Resident Evil, RPG, Steam, PC
+
+Sat, 17 Oct 2026 04:45:18 GMT
+
+https://screenrant.com/project-zomboid-meets-resident-evil-dead-frontier-free-game/
+
+Fans of both Project Zomboid and Resident Evil should check out this open-world horror RPG that borrows the best elements from both games.
+---------
+
+# Game of Thrones Will Officially Bring Back Daenerys in 2027's War For Westeros
+
+Gaming, Game Of Thrones
+
+Sat, 17 Oct 2026 04:30:18 GMT
+
+https://screenrant.com/game-of-thrones-daenerys-return/
+
+Discover Daenerys's return in Game of Thrones: War for Westeros, releasing in 2027!
+---------
+
+# Skyrim Meets Valheim In Free Open-World Steam RPG
+
+Gaming, Steam
+
+Sat, 17 Oct 2026 04:15:18 GMT
+
+https://screenrant.com/skyrim-meets-valheim-free-open-world-steam-rpg/
+
+If Skyrim and Valheim got together, you'd be looking at a game an awful lot like this brand-new fantasy RPG - it could be worth your time!
+---------
+
+# Henry Cavill And Mark Hamill Officially Star In Epic New Sci-Fi Thriller
+
+Gaming, Henry Cavill, Mark Hamill, Sci-Fi, PC
+
+Sat, 17 Oct 2026 04:00:23 GMT
+
+https://screenrant.com/henry-cavill-mark-hamill-sci-fi-thriller-squadron-42/
+
+Both Henry Cavill and Mark Hamill are starring in a truly star-studded sci-fi thriller that is set to be an epic event.
+---------
+
+# Naruto's Big Manga Return Includes Kishimoto's Most Adorable Redesign Since Baby Kurama
+
+Anime, Naruto, Naruto: Shadow Rising
+
+Sat, 17 Oct 2026 03:59:18 GMT
+
+https://screenrant.com/naruto-new-manga-baby-sarada-kishimoto-redesign/
+
+The return of Naruto for more manga means Masashi Kishimoto is ready to roll out the latest glimpses of beloved character from unseen eras.
+---------
+
+# Stephen King’s Carrie Meets Euphoria In Netflix’s New R-Rated Coming-Of-Age Drama
+
+Streaming TV, Masked Recs
+
+Sat, 17 Oct 2026 03:44:37 GMT
+
+https://screenrant.com/netflix-stephen-king-carrie-meets-euphoria-the-body/
+
+An upcoming horror thriller series on Netflix seems to be the perfect visual and thematic combination of Stephen King’s Carrie and HBO’s Euphoria.
+---------
+
+# It's Time To Admit That Goku's Greatest Strength Is Also His Greatest Flaw
+
+Anime, Dragon Ball, Goku
+
+Sat, 17 Oct 2026 03:30:18 GMT
+
+https://screenrant.com/goku-greatest-strength-weakness-dragon-ball/
+
+Explore how Goku's relentless quest for strength hinders his character growth in Dragon Ball.
+---------
+
+# 3 Best Horror Movies To Watch On Shudder This Weekend (October 17-18)
+
+Movies, Shudder, Recommendation
+
+Sat, 17 Oct 2026 03:24:00 GMT
+
+https://screenrant.com/best-shudder-movies-watch-weekend-october-17/
+
+The best horror movies on Shudder this weekend are a new post-apocalyptic thriller, a new franchise entry, and a classic from a major horror universe.
+---------
+
+# Danny & Baez's Major Blue Bloods Franchise Twist Explained By Donnie Wahlberg
+
+TV, Boston Blue, Blue Bloods
+
+Sat, 17 Oct 2026 03:00:18 GMT
+
+https://screenrant.com/blue-bloods-season-2-episode-2-danny-baez-twist-donnie-wahlberg-interview/
+
+EXCLUSIVE: Donnie Wahlberg opened up about Boston Blue's latest twist regarding Danny's relationship with Baez and her adopted daughter, Elena.
+---------
+
+# Taylor Sheridan’s $160M Action Sequel Finally Gets Update After 8-Year Wait
+
+Movies, Sicario
+
+Sat, 17 Oct 2026 03:59:30 GMT
+
+https://www.cbr.com/sicario-3-update-josh-brolin/
+
+The long-gestating sequel has finally found its way out of development hell.
+---------
+
+# Original Narnia Officially Returns With New 2026 Release Ahead of Divisive Reboot
+
+Movies, The Chronicles of Narnia, The Chronicles of Narnia: The Lion, the Witch and the Wardrobe
+
+Sat, 17 Oct 2026 03:57:47 GMT
+
+https://www.cbr.com/chronicles-of-narnia-the-lion-the-witch-and-the-wardrobe-4k-blu-ray/
+
+Return to Narnia as it was.
+---------
+
+# Quentin Tarantino's $394M Mega-Hit Officially Returns to Theaters Ahead of Sequel
+
+Movies, The Further Mis-Adventures of Cliff Booth, Once Upon a Time in Hollywood
+
+Sat, 17 Oct 2026 03:50:33 GMT
+
+https://www.cbr.com/once-upon-a-time-in-hollywood-theaters/
+
+One of Quentin Tarantino's biggest hits is heading back to theaters just in time for fans to rewatch it before the sequel arrives.
+---------
+
+# The Vampire Diaries Creator Officially Returns With New Prime Video Series
+
+TV, The Vampire Diaries, Prime Video
+
+Sat, 17 Oct 2026 03:46:54 GMT
+
+https://www.cbr.com/vampire-diaries-creeator-prime-video-tennis-series-rally/
+
+Prime Video has given a series order to a new tennis drama from The Vampire Diaries co-creator Julie Plec.
+---------
+
+# 6 One Piece Plot Twists That Hit Different on a Rewatch
+
+Anime, One Piece
+
+Sat, 17 Oct 2026 03:45:14 GMT
+
+https://www.cbr.com/one-piece-plot-twists-better-on-a-rewatch/
+
+One Piece has many twists and turns that were foreshadowed brilliantly, and these few are the best upon rewatching.
+---------
+
+# 20 Years Later, Aang’s 7 Chakras Are Suddenly Essential to Avatar’s New Series
+
+TV, Avatar: Seven Havens, Avatar: The Last Airbender, Paramount Plus
+
+Sat, 17 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/avatar-seven-havens-represents-seven-chakras/
+
+The answer to Seven Havens' apocalypse problem might be right under Pavi and Nisha's noses.
+---------
+
+# The First 10 Far Side Comics Gary Larson Ever Drew
+
+Comics, The Far Side
+
+Sat, 17 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/the-first-far-side-comics-gary-larson-ever-drew/
+
+Gary Larson's initial comics gave fans a very specific idea of the iconic cartoonist and what they could expect from The Far Side newspaper strip.
+---------
+
+# CBS Confirms Justin Hartley's Replacement for Tracker Season 4
+
+TV, Tracker, CBS
+
+Sat, 17 Oct 2026 03:22:35 GMT
+
+https://www.cbr.com/tracker-season-4-mel-mother-mystery-replace-colter/
+
+Tracker Season 4 introduces a replacement for Colter Shaw, played by Justin Hartley, in the CBS show's narrative, opening a new mystery.
+---------
+
+# Megan Fox's 'Severely Underrated' Cult Classic Horror Is Finally Getting Its Sequel
+
+Movies, Jennifer's Body
+
+Sat, 17 Oct 2026 03:17:54 GMT
+
+https://www.cbr.com/jennifers-body-2-sympathetic-megan-fox/
+
+The long-gestating sequel gets an exciting update nearly two decades later.
+---------
+
+# 6 Perfect PS2 Games That Nobody Remembers
+
+Games, PlayStation 2, retro games
+
+Sat, 17 Oct 2026 03:15:14 GMT
+
+https://www.cbr.com/most-perfect-ps2-games-nobody-remembers-list/
+
+PS2 games like Psi-Ops: The Mindgate Experiment come close to perfection, but they've become forgotten hidden gems.
+---------
+
+# Clint Eastwood Goes Full John Wick in This Epic 116-Minute Action Thriller
+
+Movie Features, Gran Torino, Clint Eastwood, John Wick, Thriller
+
+Sat, 17 Oct 2026 04:08:14 GMT
+
+https://collider.com/clint-eastwood-gran-torino-john-wick-streaming-october-2026/
+
+In 2008, Clint Eastwood directed and starred in Gran Torino, a unique take on the classic revenge thriller.
+---------
+
+# ‘Crystal Lake’ Officially Rewrites ‘Friday the 13th’s Most Iconic Scene
+
+TV Features, Crystal Lake, Peacock, Linda Cardellini, Friday the 13th
+
+Sat, 17 Oct 2026 03:48:14 GMT
+
+https://collider.com/crystal-lake-series-rewrites-friday-the-13th-opening-kill-scene/
+
+Peacock's new series Crystal Lake reimagines Friday the 13th's famous opening kill scene — with a shocking twist.
+---------
+
+# Forget Narnia, C.S. Lewis’ Best Book Trilogy Masterfully Combines Sci-Fi and Fantasy
+
+Books and Comics, Books, The Chronicles of Narnia, Fantasy, Science Fiction
+
+Sat, 17 Oct 2026 03:09:14 GMT
+
+https://collider.com/cs-lewis-ransom-trilogy-sci-fi-fantasy/
+
+C.S. Lewis' Ransom Trilogy masterfully combines sci-fi and fantasy, standing out even when compared with the author's most beloved creation, Narnia.
+---------
+
+# The 10 Best Netflix Original Comedy Shows, Ranked
+
+TV, Netflix, BoJack Horseman, Beef, Wednesday
+
+Sat, 17 Oct 2026 02:44:14 GMT
+
+https://collider.com/best-netflix-original-comedy-series-ranked/
+
+From Grace and Frankie to BoJack Horseman, these are the best Netflix original comedy shows.
+---------
+
+# 10 Books That Have Too Many Movie Adaptations
+
+TV, Books, Frankenstein, Beauty and the Beast, Peter Pan
+
+Sat, 17 Oct 2026 02:22:14 GMT
+
+https://collider.com/books-that-have-too-many-movie-adaptations/
+
+From Alice's Adventures in Wonderland to Frankenstein, there are just way too many movie adaptations of these books.
+---------
+
+# ‘Fire Country’s Newest Star Teases What’s Next for CJ in Season 5
+
+Interviews, Fire Country, Olivia Thirlby, Max Thieriot, CBS
+
+Sat, 17 Oct 2026 02:00:25 GMT
+
+https://collider.com/fire-country-season-5-episode-2-olivia-thirlby/
+
+Olivia Thirlby discusses joining Fire Country in Season 5, her character's dark past, the trust building between CJ and Bode, and what's to come.
+---------
+
+# Netflix’s 19-Episode Crime Thriller Is Officially Its Most Frustratingly Unfinished Show
+
+TV Features, Mindhunter, Netflix, David Fincher, Thriller
+
+Sat, 17 Oct 2026 01:56:14 GMT
+
+https://collider.com/mindhunter-netflix-crime-thriller-unfinished-show/
+
+Although we got two magnificent seasons, Mindhunter remains one of Netflix's greatest unfinished crime sagas.
+---------
+
+# ‘Tracker’ Officially Steals TV Crown From Taylor Sheridan
+
+TV News, Marshals, Tracker, CBS, Taylor Sheridan
+
+Sat, 17 Oct 2026 01:46:14 GMT
+
+https://collider.com/tracker-overtakes-taylor-sheridan-marshals-ratings-success-cbs-october-2026/
+
+Taylor Sheridan's Marshals has been overtaken by a fellow CBS hit as the number-one narrative series on linear television. Find out more.
+---------
+
+# The Greatest Sequel to This Slasher Classic Officially Rewrote the Formula
+
+Movie Features, Halloween III: Season of the Witch, Halloween, Michael Myers, John Carpenter
+
+Sat, 17 Oct 2026 01:42:14 GMT
+
+https://collider.com/halloween-3-season-of-the-witch-streaming-prime-video-october-2026/
+
+The Halloween franchise is known for Michael Myers, but Halloween III, which cut the masked killer from its story, is an underrated gem.
+---------
+
+# ‘Dune: Part Three’ Officially Reveals Anya Taylor-Joy Ahead of December Release
+
+Movie News, Dune: Part Three, Anya Taylor-Joy, Denis Villeneuve, Timothée Chalamet
+
+Sat, 17 Oct 2026 01:31:14 GMT
+
+https://collider.com/dune-part-3-anya-taylor-joy-image/
+
+A new look at Anya Taylor-Joy in Dune: Part Three has been released, teasing her critical role in the sci-fi film.
+---------
+
+# Paramount Lands New "Star Wars Meets Hunger Games" Adaptation of a Bestselling Sci-Fi Epic
+
+Movie News, Sci-Fi, Francis Lawrence, The Hunger Games: Sunrise on the Reaping
+
+Sat, 17 Oct 2026 02:39:45 GMT
+
+https://movieweb.com/red-rising-hunger-games-director/
+
+'The Hunger Games' director is officially taking on a new dystopia.
+---------
+
+# 9 Best ‘Peanuts’ Comic Strips of the 1980s, Ranked
+
+Movie Lists, comics, Peanuts
+
+Sat, 17 Oct 2026 02:00:27 GMT
+
+https://movieweb.com/peanuts-best-strips-1980s/
+
+Charles Schulz produced the funniest and most thought-provoking strips in the '80s, involving Charlie Brown, Snoopy, and his brothers, Spike and Olaf.
+---------
+
 # Spider-Man: Brand New Day Removed From 634 Theaters After Major New Release
 
 Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
