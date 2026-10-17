@@ -1,3 +1,421 @@
+# 20 Years Later, Iron Man Hears The 5 Devastating Words Fans Have Waited 2 Decades For
+
+Comics, Iron Man, Marvel
+
+Sat, 17 Oct 2026 23:08:56 GMT
+
+https://screenrant.com/iron-man-most-devastating-words/
+
+Iron Man has basically been a villain when it came to the decisions he made in his past, and a Marvel antihero has no problem calling him out on it.
+---------
+
+# DC Officially Introduces Its Answer To Wolverine, Codename and Powers Explained
+
+Comics, Wolverine
+
+Sat, 17 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/supergirl-new-hero-wombat-dc-wolverine/
+
+Complete with vicious claws and seemingly unbreakable bones.
+---------
+
+# 8 Near-Perfect Fantasy Shows Inspired By C.S. Lewis
+
+Classic TV, Fantasy
+
+Sat, 17 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/best-fantasy-shows-inspired-cs-lewis-narnia/
+
+C.S. Lewis is one of fantasy's founding fathers, with The Chronicles of Narnia still being adapted today while influencing other works of fantasy.
+---------
+
+# Talk To Me Is Officially Returning With An Immersive Spinoff Series
+
+Gaming, Horror, Talk to Me
+
+Sat, 17 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/talk-to-me-game-vr-2026/
+
+Meta and XRTV's brand-new series takes place in the world of 2023's best horror movie, and it's sure to be just as frightening as its source material.
+---------
+
+# Quentin Tarantino Provides Major Development Update For His Final Movie
+
+Movies, Quentin Tarantino
+
+Sat, 17 Oct 2026 22:50:25 GMT
+
+https://screenrant.com/quentin-tarantino-final-movie-script-development-update/
+
+The famed director has always said that he would retire from filmmaking after making ten movies, and that tenth film just got a major update.
+---------
+
+# C.S. Lewis' Family Delivers Official Stance On Netflix's Narnia Movie
+
+Movies, Narnia: The Magician's Nephew
+
+Sat, 17 Oct 2026 22:31:03 GMT
+
+https://screenrant.com/netflix-greta-gerwig-narnia-magicians-nephew-cs-lewis-family-response/
+
+The family of the author behind The Chronicles of Narnia have finally spoken out about Netflix's upcoming film, Narnia: The Magician's Nephew.
+---------
+
+# 10 Greatest Peanuts Comics Of All Time, Ranked by Screen Rant Readers
+
+Comics, Peanuts
+
+Sat, 17 Oct 2026 22:30:19 GMT
+
+https://screenrant.com/peanuts-best-comics-all-time-vote-poll/
+
+Your vote for the greatest of all time.
+---------
+
+# ABC Officially Awards High Potential Superior TV Positioning For Season 3
+
+Network TV, High Potential
+
+Sat, 17 Oct 2026 22:30:19 GMT
+
+https://screenrant.com/high-potential-season-3-post-super-bowl-timeslot-february-2027/
+
+ABC gives High Potential the coveted post-Super Bowl slot, setting the stage for a major episode and potentially record-breaking ratings.
+---------
+
+# Stardew Valley Meets Dungeons & Dragons In New RPG You Can Play Free Now
+
+Gaming, Stardew Valley, Dungeons & Dragons, RPG, Steam, PC
+
+Sat, 17 Oct 2026 22:30:19 GMT
+
+https://screenrant.com/stardew-valley-meets-dungeons-dragons-flamecraft-free-demo/
+
+Fans of both Dungeons & Dragons and Stardew Valley should absolutely try this brand-new RPG that can be played for free.
+---------
+
+# Daniel Radcliffe Revives His Best Non-Potter Character In Just 3 Weeks
+
+Network TV, The Fall and Rise of Reggie Dinkins, Daniel Radcliffe
+
+Sat, 17 Oct 2026 22:27:54 GMT
+
+https://screenrant.com/the-fall-and-rise-of-reggie-dinkins-season-2-return-daniel-radcliffe-best-role/
+
+Daniel Radcliffe arrived on NBC earlier this year for The Fall and Rise of Reggie Dinkins, and the comedy is returning to primetime in a few weeks.
+---------
+
+# 7 Biggest Transformers Combiners, Ranked by Size
+
+Anime, Transformers
+
+Sat, 17 Oct 2026 23:15:15 GMT
+
+https://www.cbr.com/transformers-biggest-combiners-ranked-by-size/
+
+The Combiners are naturally among the biggest Transformers but, even among them, there's a hierarchy.
+---------
+
+# In Just 1 Day, Paramount’s Controversial $214M Slasher Sequel Finds Success on New Streaming Home
+
+Movies, Scream, Scream 7
+
+Sat, 17 Oct 2026 23:00:14 GMT
+
+https://www.cbr.com/scream-7-slasher-prime-video-success-october-2026/
+
+The sequel was the highest-grossing in the franchise.
+---------
+
+# NCIS: LA Reunion on New Spinoff Gets Disappointing Update From Longtime Star
+
+TV, NCIS: New York
+
+Sat, 17 Oct 2026 22:51:04 GMT
+
+https://www.cbr.com/ncis-la-reunion-chris-odonnell-update/
+
+Fans have been asking about the reunion since the newest NCIS spinoff was announced.
+---------
+
+# HBO's New 8-Part Legal Drama Defeats DCU's Lanterns to No. 1
+
+TV, War, Lanterns, HBO Max
+
+Sat, 17 Oct 2026 22:30:15 GMT
+
+https://www.cbr.com/war-legal-drama-hbo-max-success-october-2026/
+
+HBO Max's latest legal drama, War, is the most-watched show in the United States.
+---------
+
+# 10 Classic Atari 2600 Games That Are Unplayable Today
+
+Games, Video Games, atari
+
+Sat, 17 Oct 2026 22:15:14 GMT
+
+https://www.cbr.com/classic-atari-2600-games-unplayable-today/
+
+The Atari 2600 had some great games, but not all of them are winners.
+---------
+
+# 10 Best ’80s Arcade Platformers of All Time, Ranked
+
+Games, Video Games, Nintendo, Gaming
+
+Sat, 17 Oct 2026 22:15:14 GMT
+
+https://www.cbr.com/all-time-best-80s-arcade-platformers/
+
+The best arcade platformers of the 1980s set a precedent that still impresses modern gamers today.
+---------
+
+# The Mummy 4 Is Bringing Back a Powerful Magic Artifact
+
+Movies, The Mummy, The Mummy 4, Adventure, Innovation
+
+Sat, 17 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/mummy-4-book-of-the-dead-title-meaning/
+
+The title of the new The Mummy film has revealed a key aspect of the upcoming legacy sequel.
+---------
+
+# Harrison Ford's 112-Minute Neo-Noir Crime Classic Is a Free Streaming Hit 41 Years Later
+
+Movies, Witness, harrison ford, Crime
+
+Sat, 17 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/harrison-ford-witness-neo-noir-crime-thriller-tubi-success-october-2026/
+
+Harrison Ford's 1985 sleeper hit, Witness, is now one of the most-watched movies streaming for free.
+---------
+
+# Fullmetal Alchemist Meets Hades in New Medieval Crafting Game Launching on Steam November 3
+
+Anime, Steam, Fullmetal Alchemist
+
+Sat, 17 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/corpus-et-spiritus-alchemy-crafting-game-steam-release-date/
+
+A new alchemy-inspired game invokes the spirit of Edward and Alphonse Elric by having players gamble with their own lives in order to gain power.
+---------
+
+# Reacher Is Becoming Prime Video’s Most Untouchable Action Series Before Season 5 Even Premieres
+
+TV, Reacher, Neagley, Action, Innovation
+
+Sat, 17 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/reacher-prime-video-most-untouchable-action-series/
+
+With new novels, a new spinoff, and two new seasons coming to Prime Video, 2026 might be the year of Reacher, and the era won't be up anytime soon.
+---------
+
+# 'Wednesday' Star's Beloved '90s Cult Classic Officially Returns From the Dead
+
+Movie News, Netflix, Christina Ricci, Bill Pullman, Casper
+
+Sat, 17 Oct 2026 23:15:15 GMT
+
+https://collider.com/christina-ricci-casper-streaming-success-disney-plus-october-2026/
+
+The Christina Ricci-led family supernatural comedy Casper is surging on the streaming charts ahead of Halloween. Here's what we know.
+---------
+
+# Forget ‘Fast X,’ the Franchise’s Wildest Street-Racing Adventure Is Officially Leaving Netflix
+
+Movie News, The Fast and the Furious: Tokyo Drift, Fast & Furious, Netflix, Justin Lin
+
+Sat, 17 Oct 2026 23:00:15 GMT
+
+https://collider.com/fast-and-furious-tokyo-drift-leaving-netflix-november-2026/
+
+Christopher Nolan's favorite Fast & Furious movie, Tokyo Drift, is officially leaving Netflix at the end of the month. Find out more.
+---------
+
+# The 6 Best Thriller Movies Released Between 2010 and Now
+
+Movie, Thriller, Parasite, Prisoners, The Handmaiden
+
+Sat, 17 Oct 2026 22:51:14 GMT
+
+https://collider.com/best-thrillers-since-2010/
+
+From Gone Girl to Prisoners, these six modern thriller masterpieces make audiences panic over the plot while admiring the flawless storytelling.
+---------
+
+# ‘Severance’ Star’s Twisted 2026 Horror Movie Officially Scares Away the Streaming Competition
+
+Movie News, Hokum, Horror, Hulu, Adam Scott
+
+Sat, 17 Oct 2026 22:45:14 GMT
+
+https://collider.com/adam-scott-horror-hokum-streaming-hit-hulu-october-2026/
+
+Severance star Adam Scott's quiet 2026 horror is a sleeper streaming favorite on Hulu. Here's everything you should know.
+---------
+
+# Netflix Officially Says Goodbye to One of the Greatest British Murder Mystery Series Ever Made
+
+TV News, Netflix, Broadchurch, Olivia Colman, David Tennant
+
+Sat, 17 Oct 2026 22:30:15 GMT
+
+https://collider.com/david-tennant-broadchurch-leaving-netflix-november-2026/
+
+One of the greatest British murder mystery shows ever made, Broadchurch, is about to be removed from Netflix. Find out when.
+---------
+
+# Forget ‘Deadwood,’ This 6-Season Western Still Has TV’s Greatest Opening
+
+TV Features, Deadwood, Have Gun - Will Travel, Western, CBS
+
+Sat, 17 Oct 2026 22:27:14 GMT
+
+https://collider.com/have-gun-will-travel-best-opening-scene-western/
+
+Have Gun — Will Travel rivals Deadwood for Western TV’s greatest opening with Richard Boone’s unforgettable introduction as Paladin.
+---------
+
+# Forget ‘Game of Thrones,’ This Time-Bending Fantasy Epic Is Officially Conquering America
+
+TV News, Outlander: Blood of My Blood, Sci-Fi, Fantasy, STARZ
+
+Sat, 17 Oct 2026 22:15:14 GMT
+
+https://collider.com/outlander-blood-of-my-blood-streaming-hit-starz-october-2026/
+
+Outlander: Blood of My Blood is one of the most-watched shows in America. Here's everything you should know.
+---------
+
+# 1994 Was the Best Year for TV, and These 10 Shows Prove It
+
+TV, Television, Friends, ER, The Magic School Bus
+
+Sat, 17 Oct 2026 22:08:14 GMT
+
+https://collider.com/1994-best-year-tv-shows-prove-it/
+
+From medical procedurals like ER to beloved sitcoms like Friends, these shows prove that 1994 was a landmark year that impacted television forever.
+---------
+
+# Netflix’s Twisted Coming-of-Age Masterpiece Is Officially Leaving
+
+TV News, The End of the F***ing World, Netflix, Alex Lawther, Jessica Barden
+
+Sat, 17 Oct 2026 22:01:15 GMT
+
+https://collider.com/end-of-the-f-ing-world-leaving-netflix-november-2026/
+
+One of Netflix's best-reviewed shows is about to be removed from the platform after an eight-year run. Find out more.
+---------
+
+# 15 Modern Non-Disney Animated Movies Destined To Become Classics
+
+Movie, Disney, The Super Mario Bros. Movie, Puss in Boots: The Last Wish, Guillermo del Toro’s Pinocchio
+
+Sat, 17 Oct 2026 21:41:14 GMT
+
+https://collider.com/non-disney-animated-movies-to-become-classics/
+
+From Tom & Jerry: The Movie to The Super Mario Bros. Movie, these animated movies are destined to become classics.
+---------
+
+# Anne Hathaway's Critically Panned Thriller Officially Leaves 500 Theaters After a $120M Box Office Run
+
+Movie News, Anne Hathaway, Verity, Thriller, Box Office Milestones
+
+Sat, 17 Oct 2026 23:01:17 GMT
+
+https://movieweb.com/verity-box-office-october-2026/
+
+Anne Hathaway’s Verity is losing 500 theaters in North America after a steep second-weekend drop.
+---------
+
+# 10 Hidden Gem Modern Hard Sci-Fi Movies Everyone Should Be Talking About
+
+Movie Lists, Sci-Fi, Ad Astra, Underwater, Prospect
+
+Sat, 17 Oct 2026 23:01:17 GMT
+
+https://movieweb.com/hard-sci-fi-modern-recommendations/
+
+These recent, overlooked sci-fi movies have something for every genre fan.
+---------
+
+# 2026 Officially Delivers the Highest-Rated Movie in History With a New 174-Minute Masterpiece
+
+Movie News, You Can See Everything, Documentary, Nathan Fielder
+
+Sat, 17 Oct 2026 22:55:12 GMT
+
+https://movieweb.com/you-can-see-everything-letterboxd-highest-rated-movie-ever/
+
+Nathan Fielder's shocking new documentary has already become a record-breaking sensation.
+---------
+
+# Amazon's 134-Minute Jason Bourne Substitute Action Thriller Remains a Global Streaming Smash Hit
+
+Movie News, Agent Zeta, Action, Thriller, Hot on Streaming
+
+Sat, 17 Oct 2026 22:30:18 GMT
+
+https://movieweb.com/agent-zeta-action-prime-video-stream-october-2026/
+
+One of modern cinema's best spies continues to captivate audiences around the world.
+---------
+
+# Jensen Ackles’s Forgotten 13-Part Action Thriller is a Near-Perfect Series You Can Binge in a Weekend
+
+Features, Countdown, Action, Thriller, Prime Video, Jensen Ackles
+
+Sat, 17 Oct 2026 22:30:18 GMT
+
+https://movieweb.com/countdown-streaming-recommendation/
+
+Jensen Ackles, who has starred in many popular TV series including 'Supernatural' and 'Tracker,' also headlined this action thriller show.
+---------
+
+# Anya Taylor-Joy's New 103-Minute Netflix Action-Adventure Gets Official Critics' Verdict on Rotten Tomatoes
+
+Movie News, Sacrifice, Anya Taylor-Joy, Apple TV, Action, Adventure, Comedy, Drama, Thriller
+
+Sat, 17 Oct 2026 22:03:02 GMT
+
+https://movieweb.com/sacrifice-rotten-tomatoes/
+
+Anya Taylor-Joy and Apple TV have a new movie available to view, and its official critics' score has been unveiled.
+---------
+
+# The 'Mistborn' Movie Will Rewrite the Most Important Rule of Brandon Sanderson Books
+
+Features, Mistborn, Brandon Sanderson, Fantasy
+
+Sat, 17 Oct 2026 21:31:18 GMT
+
+https://movieweb.com/mistborn-movie-brandon-sanderson-rules/
+
+The 'Mistborn' movie is likely to make changes in the jump from page to screen, and it will have to rework a key part of Brandon Sanderson's formula.
+---------
+
+# Quentin Tarantino's Final Movie Officially Takes a Back Seat for Now
+
+Movie News, Quentin Tarantino
+
+Sat, 17 Oct 2026 21:27:36 GMT
+
+https://movieweb.com/quentin-tarantinos-final-status-delayed/
+
+Tarantino confirms he has a script he wants to direct as his final film, but is focusing on his upcoming play and spending time with his family.
+---------
+
 # All 9 Pokémon Generations Ranked By Screen Rant Readers
 
 Gaming, Pokemon, Triple-A Games
