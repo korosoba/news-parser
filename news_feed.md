@@ -1,3 +1,399 @@
+# 7 Small-Town Thrillers To Watch After Netflix's Below
+
+Classic TV, Below
+
+Sat, 17 Oct 2026 16:30:19 GMT
+
+https://screenrant.com/thriller-shows-like-netflix-below/
+
+If you've finished Netflix's Below and are looking for more small-town thrills, these 7 TV shows are for you, with all the small-town tropes you need.
+---------
+
+# One Upcoming Ridley Scott Movie Will Finally Fulfil A Career Dream After Almost 50 Years
+
+Movies, Ridley Scott, Western
+
+Sat, 17 Oct 2026 16:20:19 GMT
+
+https://screenrant.com/ridley-scott-western-movie-freewalkers-dream/
+
+After almost 50 years, an upcoming Ridley Scott epic will see the director explore one of the few movie genres he hasn't tried out yet.
+---------
+
+# ABC Introduces The Biggest Obstacle To Buck & Eddie’s 9-1-1 Romance
+
+Network TV, 9-1-1
+
+Sat, 17 Oct 2026 16:15:19 GMT
+
+https://screenrant.com/911-season-10-buck-eddie-romance-different-parenting-style-obstacle/
+
+The 9-1-1 season 10 premiere saw tension introduced between Buck and Eddie that may prove to be a significant obstacle to the two getting together.
+---------
+
+# Josh Brolin’s Fiery Survival Biopic Returns As One Of The Biggest Movies In The World At The Perfect Time
+
+Movies, Only the Brave
+
+Sat, 17 Oct 2026 16:09:33 GMT
+
+https://screenrant.com/josh-brolin-only-the-brave-perfect-time-hbo-max-global-streaming-success-october-2026/
+
+Josh Brolin's survival movie has returned as one of the biggest movies in the world on a major streaming service at the perfect time for the actor.
+---------
+
+# Violent Night 2 Interview with David Harbour, Kristen Bell & More at NYCC 2026
+
+Interviews, Violent Night 2, David Harbour, Kristen Bell, New York Comic Con
+
+Sat, 17 Oct 2026 16:00:19 GMT
+
+https://screenrant.com/video/violent-night-2-david-harbour-kristen-bell-nycc-2026-interview/
+
+Violent Night 2 stars David Harbour, Kristen Bell, director Tommy Wirkola, and producer Kelly McCormick discuss the raised stakes and upgraded stunts for the bloody holiday sequel.
+---------
+
+# Marvel Needs To Hurry Up And Bring This Underrated Team To The MCU
+
+Comics, Marvel, Marvel Cinematic Universe
+
+Sat, 17 Oct 2026 16:00:19 GMT
+
+https://screenrant.com/marvel-midnight-sons-mcu-moon-knight/
+
+Bask in the sun.
+---------
+
+# Taylor Sheridan Emphatically Proves Luke Grimes' Marshals Hot Take Wrong
+
+Network TV, Marshals, Yellowstone, Kevin Costner
+
+Sat, 17 Oct 2026 16:00:19 GMT
+
+https://screenrant.com/marshals-kevin-costner-john-dutton-need-luke-grimes-wrong/
+
+Luke Grimes had an unpopular opinion about Kevin Costner's possible return as John Dutton III, and Marshals season 2, episode 2 proved him wrong.
+---------
+
+# Every Upcoming Keanu Reeves Movie
+
+Movies, Keanu Reeves
+
+Sat, 17 Oct 2026 15:55:20 GMT
+
+https://screenrant.com/upcoming-keanu-reeves-movies/
+
+Between three huge animations, two comic book movies, and John Wick's return, Keanu Reeves is going to be one of the busiest men in Hollywood.
+---------
+
+# The White Lotus Officially Returns With Season 4's First Look Images
+
+TV, The White Lotus
+
+Sat, 17 Oct 2026 15:51:36 GMT
+
+https://screenrant.com/the-white-lotus-season-4-first-images-released/
+
+The White Lotus season 4 is officially arriving, and now there are first-look images of the new location and more for the highly-anticipated return.
+---------
+
+# Blade Runner 2099 Stars Explain How The World Of The Movies Has Evolved In The Show
+
+Videos, Blade Runner 2099, New York Comic Con
+
+Sat, 17 Oct 2026 15:43:51 GMT
+
+https://screenrant.com/video/blade-runner-2099-dmitri-abold-matthew-needham-lewis-gribben-interview/
+
+While at NYCC, Blade Runner 2099 stars Dimitri Abold, Matthew Needham, and Lewis Gribben tease how the new Prime Video series flips the world of the movies on its head.
+---------
+
+# Apple TV Already Has a Perfect Slow Horses Cold War Prequel Lined Up
+
+TV, Slow Horses, Apple TV, Thriller, Innovation
+
+Sat, 17 Oct 2026 16:30:14 GMT
+
+https://www.cbr.com/apple-tv-slow-horses-perfect-cold-war-prequel/
+
+There has been talk of a Slow Horses spinoff for quite some time, but the acclaimed Apple TV series just served up the perfect story on a platter.
+---------
+
+# Tulsa King Season 4: Tyson Is Becoming a Different Man
+
+TV, Tulsa King
+
+Sat, 17 Oct 2026 16:15:14 GMT
+
+https://www.cbr.com/video/tulsa-king-season-4-tyson-is-becoming-a-different-man/
+
+Tulsa King Season 4 is taking Tyson Mitchell in an unexpected direction, and Jay Will explains how his character's growing ambition leads him into the music business.
+---------
+
+# 10 Mecha Anime Series Where Every Episode Is a Masterpiece
+
+Anime, mecha, Gundam, Neon Genesis Evangelion
+
+Sat, 17 Oct 2026 16:15:14 GMT
+
+https://www.cbr.com/mecha-anime-series-every-episode-masterpiece/
+
+The best mecha series understand that the people inside the robot matter far more than the battles they're fighting.
+---------
+
+# Darth Vader and Thanos Officially Cross Over In Star Wars/Marvel Crossover Comic
+
+Comics, Star Wars, Marvel, Darth Vader, Thanos
+
+Sat, 17 Oct 2026 16:00:15 GMT
+
+https://www.cbr.com/star-wars-marvel-hope-assembles-darth-vader-thanos-crossover/
+
+Star Wars/Marvel: Hope Assembles variant cover crosses Darth Vader with Thanos.
+---------
+
+# After 9 Years, Hello Kitty Officially Returns to Macy’s Thanksgiving Day Parade With Brand-New Design
+
+Anime, sanrio, Hello Kitty, merchandise
+
+Sat, 17 Oct 2026 16:00:15 GMT
+
+https://www.cbr.com/hello-kitty-macys-thanksgiving-day-parade-2026-new-balloon-design/
+
+Hello Kitty is returning to the Macy's Thanksgiving Day Parade for its 100th anniversary. Sanrio has unveiled a new balloon design and exclusive appar
+---------
+
+# Ben Affleck's Scrapped Batman Movie Gets Plot Tease From Deathstroke Actor
+
+Movies, Batman, DC Comics, DCU, Ben Affleck, Justice League, Zack Snyder's Justice League
+
+Sat, 17 Oct 2026 15:19:43 GMT
+
+https://www.cbr.com/ben-affleck-scrapped-batman-movie-plot-revealed/
+
+Bombshell: Ben Affleck's would-be co-star in his buried Batman film just revealed the entire plot.
+---------
+
+# 10 Anime to Watch If You Miss Sailor Moon
+
+Anime, Sailor Moon, Puella Magi Madoka Magica, Cardcaptor Sakura
+
+Sat, 17 Oct 2026 15:15:14 GMT
+
+https://www.cbr.com/anime-watchlist-if-you-miss-sailor-moon/
+
+Sailor Moon continues to hold fans close decades after the series initial introductions, and fans looking for something similar have plenty of options
+---------
+
+# Assassin's Creed's Canceled New Game Finally Revealed in First Gameplay Footage
+
+Games, Assassin's Creed
+
+Sat, 17 Oct 2026 15:06:15 GMT
+
+https://www.cbr.com/assassins-creed-new-game-cancelled-first-reveal/
+
+Assassin's Creed fans just got a look at what might be footage from a canceled game that could have had multiple tie-ins if it had been made.
+---------
+
+# 25 Years After Hit World War II Movie, Ben Affleck & Josh Hartnett Are Dominating Netflix
+
+Movies, Animals, Below, Pearl Harbor
+
+Sat, 17 Oct 2026 15:00:14 GMT
+
+https://www.cbr.com/animals-below-netflix-netflix-success-october-2026/
+
+The actors had the unofficial reunion no one had expected.
+---------
+
+# 6 Anime Swordsmen Stronger Than Every Hashira
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer
+
+Sat, 17 Oct 2026 15:00:14 GMT
+
+https://www.cbr.com/demon-slayer-anime-swordsmen-stronger-hashira/
+
+Demon Slayer's Hashira may be accomplished fighters, but these six anime swordsmen could defeat them without ever breaking a sweat.
+---------
+
+# Quentin Tarantino’s Favorite Movie of the Last 25 Years Officially Scores New Streaming Home
+
+Movie News, Black Hawk Down, Ridley Scott, Quentin Tarantino, Josh Hartnett
+
+Sat, 17 Oct 2026 16:30:15 GMT
+
+https://collider.com/quentin-tarantino-favorite-movie-black-hawk-down-streaming-fawesome-october-2026/
+
+Quentin Tarantino's favorite war movie of the last 25 years has found a new home on an underrated free streaming platform.
+---------
+
+# Every Tom Cruise Movie of the 2020s, Ranked
+
+Movie, Digger, Tom Cruise, Mission: Impossible - The Final Reckoning, Top Gun: Maverick
+
+Sat, 17 Oct 2026 16:18:15 GMT
+
+https://collider.com/tom-cruise-2020s-movies-ranked/
+
+Tom Cruise has been in four movies during the 2020s so far, including Digger and Mission: Impossible – Dead Reckoning, but which is the best?
+---------
+
+# Former ‘Doctor Who’ Star Officially Addresses the Show’s Uncertain Future [Exclusive]
+
+TV News, Doctor Who, The Diplomat, Sci-Fi, Jodie Whittaker
+
+Sat, 17 Oct 2026 16:05:14 GMT
+
+https://collider.com/doctor-who-future-jodie-whittaker-update/
+
+Jodie Whittaker addresses Doctor Who’s uncertain future, saying its ability to pause, regenerate, and reinvent itself gives it limitless possibility.
+---------
+
+# Why Caitríona Balfe Initially Said No to 'Sense and Sensibility'
+
+Exclusives, Caitriona Balfe, Sense and Sensibility, Ladies Night, Outlander
+
+Sat, 17 Oct 2026 16:00:15 GMT
+
+https://collider.com/sense-and-sensibility-caitriona-balfe-outlander/
+
+While on Ladies Night, Caitríona Balfe discusses her post-Outlander career priorities and why she nearly passed on the new Jane Austen adaptation.
+---------
+
+# Anya Taylor-Joy’s New Thriller Is Officially One of Netflix’s Biggest Hits
+
+Movie News, Anya Taylor-Joy, Netflix, Sacrifice, Chris Evans
+
+Sat, 17 Oct 2026 16:00:15 GMT
+
+https://collider.com/sacrifice-anya-taylor-joy-netflix-streaming-hit-october-2026/
+
+Anya Taylor-Joy’s new movie Sacrifice has quickly emerged as a Netflix streaming hit. See where it ranks.
+---------
+
+# Taylor Sheridan’s ‘The Sopranos’ Replacement Officially Returns
+
+TV News, Taylor Sheridan, Tulsa King, Paramount Plus, Sylvester Stallone
+
+Sat, 17 Oct 2026 15:30:15 GMT
+
+https://collider.com/tulsa-king-taylor-sheridan-streaming-hit-return-october-2026/
+
+Taylor Sheridan continues his streaming dominance on Paramount+ as Tulsa King officially returns with another season.
+---------
+
+# ‘The Diplomat’s Best New Star Jodie Whittaker Reacts to Season 4's “Politically Terrifying” Ending
+
+Exclusives, The Diplomat, Netflix, Jodie Whittaker, Doctor Who
+
+Sat, 17 Oct 2026 15:11:14 GMT
+
+https://collider.com/the-diplomat-season-4-finale-ending-jodie-whittaker/
+
+Jodie Whittaker discusses how Bethan Vaughn shakes up The Diplomat Season 4 and reacts to that shocking finale cliffhanger.
+---------
+
+# ‘Cloverfield’ Fans Officially Have a New Sci-Fi Sensation to Watch
+
+Movie News, Hope, Michael Fassbender, Sci-Fi, Cloverfield
+
+Sat, 17 Oct 2026 15:01:14 GMT
+
+https://collider.com/hope-sci-fi-movie-itunes-streaming-hit-october-2026/
+
+Michael Fassbender's new sci-fi thriller Hope is making waves on iTunes, offering a compelling watch for Cloverfield fans.
+---------
+
+# Behind the Scenes of Wildwood, at Laika Studios! | Collider Access
+
+Movie, Laika Studios, LAIKA Animation, Wildwood
+
+Sat, 17 Oct 2026 15:01:14 GMT
+
+https://collider.com/video/behind-the-scenes-of-wildwood-at-laika-studios-collider-access/
+
+What does visiting a stop-motion animation set look like? The Collider team was invited on an exclusive behind the scenes look at Laika Studios, while they were filming the upcoming Wildwood!Ever wondered how they get the puppets to breathe? How about all the face swapping and character building? We've got your answers and it's even more incredible than you can imagine!
+---------
+
+# HBO’s Epic ‘Gladiator’ Replacement Officially Finds New Life on Streaming
+
+TV News, Rome, HBO, Gladiator, John Milius
+
+Sat, 17 Oct 2026 14:30:15 GMT
+
+https://collider.com/rome-hbo-gladiator-replacement-streaming-hit-october-2026/
+
+HBO’s historical epic Rome is suddenly gaining new streaming momentum more than two decades after its debut.
+---------
+
+# "Mindhunter Meets Sherlock" in Near-Perfect Crime Thriller That's Officially Being Wiped From Streaming
+
+TV News, Luther, Coming/Leaving Streaming, Crime, Thriller, Idris Elba
+
+Sat, 17 Oct 2026 16:00:18 GMT
+
+https://movieweb.com/luther-idris-elba-leaving-streaming-hulu-october-2026/
+
+You only have a short time left to binge what is easily one of the best crime thrillers of the century.
+---------
+
+# Netflix's New Harlan Coben Thriller Can Run for 12 Years
+
+Features, Harlan Coben, Thriller, Netflix, Untitled Myron Bolitar Series
+
+Sat, 17 Oct 2026 16:00:18 GMT
+
+https://movieweb.com/harlan-coben-myron-bolitar-franchise/
+
+Harlan Coben has many Netflix adaptations of his popular crime thriller novels, but this upcoming series could run the longest.
+---------
+
+# 'Street Fighter' Director Explains Why Sagat Doesn't Appear & What Else Didn't Make the Cut
+
+Exclusives, Street Fighter, Action, Comedy
+
+Sat, 17 Oct 2026 15:54:56 GMT
+
+https://movieweb.com/street-fighter-2026-movie-sagat-cut-explained-director/
+
+Director Kitao Sakurai revealed why Ryu's arch-rival is missing from 'Street Fighter.'
+---------
+
+# Mark Wahlberg's Intense 133-Minute Real-Life Action Thriller Officially Sets New Free Streaming Home
+
+Movie News, Mark Wahlberg, Patriots Day, Action, Thriller, Coming/Leaving Streaming
+
+Sat, 17 Oct 2026 15:01:17 GMT
+
+https://movieweb.com/patriots-day-mark-wahlberg-thriller-stream-free-november-2026/
+
+The film is one of five that Wahlberg has made with Peter Berg.
+---------
+
+# 57 Years Later, the Only X-Rated Movie to Win Best Picture Is Getting a Stunning New Release
+
+Movie News, Midnight Cowboy, Dustin Hoffman, Jon Voight, Drama
+
+Sat, 17 Oct 2026 14:27:31 GMT
+
+https://movieweb.com/midnight-cowboy-4k-release/
+
+Divisive X-rated 1969 film gets glorious upgrade.
+---------
+
+# Forget 'Reacher,' Prime Video's Action Thriller With Half the Episodes Is a Perfect Binge-Watch
+
+Features, Reacher, Cross, Action, Thriller, Crime
+
+Sat, 17 Oct 2026 14:00:17 GMT
+
+https://movieweb.com/cross-prime-video-perfect-binge/
+
+Prime Video's action thriller TV series has fewer episodes than 'Reacher' starring Alan Ritchson, and is even more compelling.
+---------
+
 # 7 Things I Need To See In A Potential Street Fighter Sequel
 
 Movies, Street Fighter
