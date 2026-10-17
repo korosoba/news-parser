@@ -1,3 +1,443 @@
+# All 9 Pokémon Generations Ranked By Screen Rant Readers
+
+Gaming, Pokemon, Triple-A Games
+
+Sat, 17 Oct 2026 21:04:43 GMT
+
+https://screenrant.com/best-pokemon-generations-vote-poll/
+
+Every generation of Pokémon games means something to fans, but some have attained a much more beloved and iconic status than others over time.
+---------
+
+# Star Trek Confirms An Awesome Power For An Iconic Species
+
+Comics, Star Trek, IDW Publishing
+
+Sat, 17 Oct 2026 21:00:19 GMT
+
+https://screenrant.com/star-trek-caitian-awesome-power/
+
+Smell it.
+---------
+
+# Misery (1990), One Of The Best Stephen King Movies, Is Leaving HBO Max
+
+Movies, Stephen King, Horror, Misery, Masked Recs
+
+Sat, 17 Oct 2026 21:00:19 GMT
+
+https://screenrant.com/misery-1990-stephen-king-horror-movie-leaving-hbo-max/
+
+HBO Max is losing a Stephen King classic 36 years after its release. The Oscar-winning performance makes this psychological horror unforgettable.
+---------
+
+# The Gilded Age Returns With 3 Replacements For The Show’s Broken Marriage
+
+TV, The Gilded Age
+
+Sat, 17 Oct 2026 21:00:19 GMT
+
+https://screenrant.com/gilded-age-3-marriage-replacements-george-bertha-russell/
+
+George and Bertha Russell were The Gilded Age's ultimate power couple until season 3. Now there are three unions poised to take the Russells' spot.
+---------
+
+# It's Officially The End Of An Era For Star Wars On Disney+
+
+Streaming TV, Star Wars
+
+Sat, 17 Oct 2026 20:45:19 GMT
+
+https://screenrant.com/ahsoka-season-2-star-wars-disney-plus-era-ending/
+
+Disney+ has had a steady stream of live-action Star Wars shows since 2019 (for better or worse), but Ahsoka season 2 could be the last for a while.
+---------
+
+# The Mummy 4's Biggest Villain Theory Is Basically Confirmed After Major Update
+
+Movies, The Mummy, The Mummy 4
+
+Sat, 17 Oct 2026 20:45:19 GMT
+
+https://screenrant.com/the-mummy-4-book-of-the-dead-title-meaning-imhotep-return/
+
+The Mummy 4's official title strongly hints at the villain in the upcoming sequel, which has seemingly been confirmed by a cast member’s comments.
+---------
+
+# Netflix's R-Rated Bridgerton Replacement Is One Of The Best Shows Of 2026
+
+Streaming TV, Masked Recs
+
+Sat, 17 Oct 2026 20:30:19 GMT
+
+https://screenrant.com/east-of-eden-netflix-best-shows-of-2026/
+
+East of Eden is an R-rated replacement for Bridgerton, and the latest hit series on Netflix and possibly one of the best shows of the year.
+---------
+
+# House Of The Dragon Star's R-Rated Thriller Series On Prime Video Is The Perfect Binge
+
+Streaming TV, Masked Recs
+
+Sat, 17 Oct 2026 20:27:22 GMT
+
+https://screenrant.com/olivia-cooke-the-girlfriend-prime-video-thriller-binge/
+
+This House of the Dragon star leads one of Prime Video's best psychological thriller series, and now is the perfect time to binge the intense show.
+---------
+
+# Every Version Of Sabrina Spellman, Ranked
+
+Classic TV, Sabrina the Teenage Witch
+
+Sat, 17 Oct 2026 20:15:27 GMT
+
+https://screenrant.com/sabrina-spellman-teenage-witch-all-versions-ranking/
+
+The surprising evolution of Sabrina Spellman moves across comics, TV, and more as the character has become more relevant through time.
+---------
+
+# Disney's The Last Of Us Meets Walking Dead Gets Official Update From Franchise Star
+
+TV, Afterlife With Archie, Disney+, Archie Comics, Riverdale
+
+Sat, 17 Oct 2026 19:25:50 GMT
+
+https://screenrant.com/disney-plus-afterlife-with-archie-riverdale-kj-apa-return/
+
+As a big franchise is coming to Disney+ for its own The Last of Us meets Walking Dead series, a lead star responds if they will reprise their role.
+---------
+
+# Tom Hiddleston’s New 125-Minute Historical Epic Is an Instant Streaming Hit
+
+Movies, Tenzing, Apple TV, tom hiddleston
+
+Sat, 17 Oct 2026 21:00:15 GMT
+
+https://www.cbr.com/tom-hiddleston-tenzing-biographical-drama-apple-tv-success-october-2026/
+
+Tom Hiddleston's latest historical drama, Tenzing, is the most-watched movie on Apple TV.
+---------
+
+# Black Clover Season 2, Episode 3 Review
+
+Anime, Black Clover, Innovation
+
+Sat, 17 Oct 2026 20:41:14 GMT
+
+https://www.cbr.com/black-clover-season-2-episode-3-review/
+
+The Spade Kingdom Raid grows more intense as Black Clover delivers another episode packed with major developments.
+---------
+
+# Major Free Streaming Service With Over 500 Channels Is Finally Coming to the US
+
+TV, Tubi TV, Tubi, Netflix, Pluto TV
+
+Sat, 17 Oct 2026 20:39:33 GMT
+
+https://www.cbr.com/free-streaming-service-rakuten-tv-us-launch/
+
+While major streaming platforms are in a fierce competition to become the biggest one, free streaming is catching up.
+---------
+
+# Marshals Season 2 Paves the Way for Kayce Dutton’s New Yellowstone Role
+
+TV, Yellowstone, Marshals, CBS
+
+Sat, 17 Oct 2026 20:30:05 GMT
+
+https://www.cbr.com/marshals-season-2-episode-2-kayce-replace-cal/
+
+The Yellowstone franchise could be setting up a new role for Luke Grimes' Kayce Dutton, based on the trajectory of CBS's Marshals Season 2.
+---------
+
+# 10 Upcoming Anime That Could Be the Next Solo Leveling
+
+Anime, Solo Leveling, Innovation
+
+Sat, 17 Oct 2026 20:15:14 GMT
+
+https://www.cbr.com/anime-that-could-be-the-next-solo-leveling/
+
+Several upcoming titles promise the same mix of progression, action and personal growth as Solo Leveling.
+---------
+
+# 9 Biggest Differences Between 2026's Sense and Sensibility Movie and the Book
+
+Movies, Sense and Sensibility
+
+Sat, 17 Oct 2026 20:00:15 GMT
+
+https://www.cbr.com/sense-and-sensibility-book-vs-movie-2026-list/
+
+The new Sense and Sensibility movie takes a few more liberties with the story and characters than fans may expect.
+---------
+
+# Alan Ritchson’s New 98-Minute Action Thriller Dominates Streaming After Just 2 Days
+
+Movies, Runner, Action, Thriller, Prime Video
+
+Sat, 17 Oct 2026 20:00:15 GMT
+
+https://www.cbr.com/alan-ritchson-minute-action-thriller-runner-dominates-streaming/
+
+It took only 48 hours for Alan Ritchson's latest shot of adrenaline to take over streaming.
+---------
+
+# Netflix's 'The One Piece' Reboot Hits Major Production Milestone Ahead of February 2027 Release
+
+Anime, One Piece, Netflix, Shonen Jump
+
+Sat, 17 Oct 2026 20:00:15 GMT
+
+https://www.cbr.com/netflix-one-piece-reboot-production-milestone-february-2027-release/
+
+Netflix's highly anticipated One Piece anime reboot just hit a major milestone four months before release.
+---------
+
+# The 10 Best Batman Villains Who Still Haven't Had Their Perfect Story
+
+Comics, DC Comics, Batman
+
+Sat, 17 Oct 2026 20:00:15 GMT
+
+https://www.cbr.com/best-batman-villains-who-still-havent-had-their-perfect-story/
+
+These Batman villains might be classic antagonists but they still haven't starred in the story that would make them iconic.
+---------
+
+# The 10 Greatest Movies Released Since 2010, Ranked
+
+Movies, Drama, Interstellar, The Social Network, Innovation
+
+Sat, 17 Oct 2026 19:30:15 GMT
+
+https://www.cbr.com/greatest-movies-since-2010-ranked-list/
+
+The last 16 years have given movie fans some truly incredible releases, but these 10 masterpieces stand out as the greatest movies since 2010.
+---------
+
+# The 10 Most Suspenseful Classic Movies, Ranked
+
+Movie, Thriller, The Third Man, Psycho, Classics
+
+Sat, 17 Oct 2026 21:14:15 GMT
+
+https://collider.com/most-suspenseful-classic-movies-ranked/
+
+From Old Hollywood triumphs like Psycho to international gems like High and Low, these classics epitomize cinematic suspense in all its glory.
+---------
+
+# Taylor Sheridan's 'Yellowstone' Spin-Off Needs a Season 2 Change To Keep Surging on Streaming
+
+TV Features, Marshals, Yellowstone, Taylor Sheridan, Luke Grimes
+
+Sat, 17 Oct 2026 21:11:15 GMT
+
+https://collider.com/taylor-sheridan-marshals-season-2-yellowstone-spin-off-streaming/
+
+Marshals Season 2 faces challenges in trying to carve out its own unique identity in the Yellowstone universe, even as it climbs streaming charts.
+---------
+
+# Tom Cruise’s $203M Sci-Fi Thriller Officially Enters Its Final Days on Streaming
+
+Movie News, Vanilla Sky, Tom Cruise, Penelope Cruz, Cameron Diaz
+
+Sat, 17 Oct 2026 21:00:15 GMT
+
+https://collider.com/tom-cruise-vanilla-sky-leaving-peacock-november-2026/
+
+Tom Cruise's cult classic sci-fi romance film Vanilla Sky is about to be removed from Peacock. Find out more.
+---------
+
+# The Best Album From Every Year of the 2020s So Far
+
+Music Features, Music, Kendrick Lamar, Rock, Pop
+
+Sat, 17 Oct 2026 20:53:14 GMT
+
+https://collider.com/best-albums-2020s-every-year-so-far/
+
+The 2020s has been an interesting decade musically, with the best albums including Javelin by Sufjan Stevens and Magdalena Bay's Mercurial World.
+---------
+
+# Brad Pitt's Gritty Crime Thriller Is Officially #1 on HBO Max
+
+Movie News, Brad Pitt, Se7en, HBO Max, Crime
+
+Sat, 17 Oct 2026 20:30:15 GMT
+
+https://collider.com/brad-pitt-seven-streaming-hit-hbo-max-october-2026/
+
+David Fincher's darkest thriller, Se7en, which stars Brad Pitt, is a big hit on the global HBO Max charts.
+---------
+
+# The 10 Greatest Psychological Thriller Opening Scenes, Ranked
+
+Movie, When a Stranger Calls, Get Out, Memento, Taxi Driver
+
+Sat, 17 Oct 2026 20:29:15 GMT
+
+https://collider.com/best-psychological-thriller-opening-scenes-ranked/
+
+Thrillers like Memento, Taxi Driver, and Get Out open with an incredibly tense and unforgettable scene that ranks among the genre's all-time best.
+---------
+
+# Paramount+’s New ‘Avatar’ Sequel Is So Good, It Already Got Renewed for Seasons 3 & 4
+
+TV Features, Avatar: Seven Havens, Paramount Plus, Avatar: The Last Airbender, The Legend of Korra
+
+Sat, 17 Oct 2026 20:24:15 GMT
+
+https://collider.com/avatar-seven-havens-renewed-season-4-paramount-plus/
+
+Avatar: Seven Havens, which premiered to positive critical reception, has already earned an early renewal for Seasons 3 and 4 on Paramount+.
+---------
+
+# 8 Worst Video Games Based on TV Shows, Ranked
+
+Gaming, Video Game, The Simpsons, The Sopranos, Pimp My Ride
+
+Sat, 17 Oct 2026 20:21:15 GMT
+
+https://collider.com/worst-video-games-based-on-tv-shows/
+
+There have been several notoriously terrible video games based on TV shows, adapting shows like The Sopranos, Pimp My Ride, and Lost.
+---------
+
+# The 10 Worst Psychological Thrillers in Film History
+
+Movie, Psychological Thriller, Twisted, The In Crowd, The Roommate
+
+Sat, 17 Oct 2026 20:05:15 GMT
+
+https://collider.com/worst-psychological-thrillers-film-history/
+
+From The Woman in the Window to Secret Obsession, these disastrous thrillers trade psychological depth for insultingly obvious twists.
+---------
+
+# The Clock Is Officially Ticking for ‘Nightmare Before Christmas’ Fans to Grab 2 Exclusives
+
+Gaming News, Disney, The Nightmare Before Christmas, Video Game, Tim Burton
+
+Sat, 17 Oct 2026 20:00:15 GMT
+
+https://collider.com/nightmare-before-christmas-disney-dreamlight-valley-oogie-boogie-zero-unlock-deadline/
+
+Disney Dreamlight Valley players must begin Oogie Boogie’s quests before November 4 to unlock him and Zero without waiting another year.
+---------
+
+# Goodbye 'Lioness,' Paramount's Hit 114-Episode Military Thriller Is Officially KIA on Streaming
+
+TV News, SEAL Team, Paramount Plus, Hot on Streaming, Action, Thriller, Lioness
+
+Sat, 17 Oct 2026 21:00:18 GMT
+
+https://movieweb.com/seal-team-stream-paramount-october-2026/
+
+Paramount+'s Taylor Sheridan replacement just suffered a major defeat on streaming.
+---------
+
+# 10 '80s Horror Masterpieces No One Remembers Today
+
+Movie Lists, 1980s, Horror
+
+Sat, 17 Oct 2026 21:00:18 GMT
+
+https://movieweb.com/forgotten-1980s-horror-movies/
+
+The 1980s were an exciting and important time in the horror genre, and these underrated movies deserve more attention.
+---------
+
+# Josh Brolin's New 106-Minute Thriller Makes a Big Splash With Audiences on Rotten Tomatoes
+
+Movie News, Whalefall, Josh Brolin, Thriller
+
+Sat, 17 Oct 2026 20:44:04 GMT
+
+https://movieweb.com/whalefall-rt-audience-score/
+
+Audiences love Josh Brolin and Austin Abrams latest collaboration.
+---------
+
+# 'Crystal Lake' Officially Solves 'Friday the 13th's 50-Year Jason Voorhees Mystery
+
+Features, Crystal Lake, Friday The 13th, Horror
+
+Sat, 17 Oct 2026 20:30:17 GMT
+
+https://movieweb.com/crystal-lake-friday-13th-jason-mystery/
+
+'Crystal Lake' solves one of the 'Friday the 13th' franchise's long-running mysteries, honoring both prevailing theories in the process.
+---------
+
+# Jason Momoa's New 119-Minute Action Reboot Gets Official Audience Verdict on Rotten Tomatoes
+
+Movie News, Street Fighter, Jason Momoa, Action, Martial Arts, Comedy, Adventure
+
+Sat, 17 Oct 2026 20:00:21 GMT
+
+https://movieweb.com/street-fighter-audience-score-rotten-tomatoes/
+
+Known for 'Supergirl' and 'Fast X,' Jason Momoa is back with an exciting new reboot, which now has its initial Audience Score on Rotten Tomatoes.
+---------
+
+# Stephen King’s Star-Studded Thriller Masterpiece Has Two Perfect Episodes That You Can Binge in a Day
+
+Features, Stephen King, It, Horror, Thriller
+
+Sat, 17 Oct 2026 20:00:18 GMT
+
+https://movieweb.com/it-miniseries-recommendation/
+
+Stephen King's beloved horror novels have been adapted for film and TV several times, and this thriller TV series with a famous cast stands out.
+---------
+
+# The Best Shows on Crave To Watch Right Now
+
+TV Lists, Streaming
+
+Sat, 17 Oct 2026 20:00:18 GMT
+
+https://movieweb.com/best-shows-crave-streaming/
+
+A roundup of the best shows currently streaming on Crave, from new hits to proven favorites.
+---------
+
+# 7 Years Later, Ben Affleck's David Fincher-Inspired Action Thriller Gets Its Biggest Reveal Yet
+
+Movie News, Batman, Ben Affleck, David Fincher, Action, Thriller
+
+Sat, 17 Oct 2026 19:49:33 GMT
+
+https://movieweb.com/batman-script-ben-affleck-details/
+
+Joe Manganiello reveals details of Ben Affleck's Batman script, including which famous DC character Deathstroke was going to kill.
+---------
+
+# Tom Cruise's 116-Minute Remake of 128-Year-Old Sci-Fi Thriller Is Officially Being Cut From Streaming
+
+Movie News, War of The Worlds, Coming/Leaving Streaming, Tom Cruise, Sci-Fi, Thriller
+
+Sat, 17 Oct 2026 19:00:18 GMT
+
+https://movieweb.com/war-of-the-worlds-tom-cruise-leaving-streaming-hbo-max-october-2026/
+
+Tom Cruise and Steven Spielberg teamed up in 2005 to deliver a sci-fi spectacle that still divides people to this day.
+---------
+
+# 'Yellowstone's First Real Replacement Is an Action Crime Epic That's Already Bigger Than Any Taylor Sheridan Show
+
+Features, Yellowstone, Taylor Sheridan, Action, Crime, Far Cry
+
+Sat, 17 Oct 2026 19:00:18 GMT
+
+https://movieweb.com/far-cry-yellowstone-comparison/
+
+'Yellowstone' finally has a rival TV series that does not need a ranch.
+---------
+
 # Disney's 'Firefly Meets Dune' Sci-Fi Series Paved The Way For Spielberg, Star Trek & Doctor Who
 
 Streaming TV, Masked Recs, The Mandalorian
