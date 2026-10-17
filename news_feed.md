@@ -1,3 +1,410 @@
+# Disney's 'Firefly Meets Dune' Sci-Fi Series Paved The Way For Spielberg, Star Trek & Doctor Who
+
+Streaming TV, Masked Recs, The Mandalorian
+
+Sat, 17 Oct 2026 18:45:19 GMT
+
+https://screenrant.com/the-mandalorian-volume-filming-first-sci-fi-series/
+
+Disney's sweeping science fiction masterpiece is too often overlooked for its contributions to the genre, inspiring iconic directors and TV series.
+---------
+
+# Mark Wahlberg’s Riveting Real-Life Action Thriller Is Streaming For Free In 2 Weeks
+
+Movies, Patriots Day
+
+Sat, 17 Oct 2026 18:44:03 GMT
+
+https://screenrant.com/patriots-day-mark-wahlberg-thriller-stream-free-november-2026/
+
+An action thriller based on a real-life story starring Mark Wahlberg, Kevin Bacon, and John Goodman will begin streaming for free in just two weeks.
+---------
+
+# Jane Austen's All-Time Box Office Record Shattered By New Adaptation
+
+Movies, Sense and Sensibility, Box Office
+
+Sat, 17 Oct 2026 18:41:45 GMT
+
+https://screenrant.com/sense-and-sensibility-2026-box-office-opening-weekend-domestic-result/
+
+The latest Jane Austen movie adaptation breaks an all-time box office record for the literary giant during its domestic opening weekend.
+---------
+
+# 12 Years Later, The Greatest X-Men Line Is Still The Best Quote In Marvel History
+
+Marvel Comics, X-Men
+
+Sat, 17 Oct 2026 18:30:18 GMT
+
+https://screenrant.com/xmen-best-quote-marvel-greatest-line/
+
+Only twelve years ago, the most iconic X-Men line in Marvel history perfectly summarized the arc of countless superheroes and supervillains.
+---------
+
+# 10 Greatest Sci-Fi Games Of The 2000s
+
+Gaming, Sci-Fi
+
+Sat, 17 Oct 2026 18:30:18 GMT
+
+https://screenrant.com/greatest-sci-fi-games-2000s/
+
+With enough distance from the 2000s to properly assess it, there's no question that it was one of the best decades ever for sci-fi games.
+---------
+
+# The X-Men Get A Grand Theft Auto Twist In Glorious New Marvel Series
+
+Comics, X-Men, Marvel
+
+Sat, 17 Oct 2026 18:23:16 GMT
+
+https://screenrant.com/wolverine-paradise-new-xmen-series-gta-marvel/
+
+Marvel's most iconic X-Men character is taking a vacation and dipping his toes in the same nostalgic, tropical waters as Grand Theft Auto 6.
+---------
+
+# Star Trek: Deep Space Nine Walked So Prime Video's Near-Perfect Sci-Fi Series Could Run
+
+Classic TV, Star Trek: Deep Space Nine, The Expanse, Star Trek
+
+Sat, 17 Oct 2026 18:15:18 GMT
+
+https://screenrant.com/star-trek-deep-space-nine-walk-the-expanse-run/
+
+A gritty saga that normalized morally messy politics and serialized stakes for modern space operas, DS9 set up sci-fi's great 2010s masterpiece.
+---------
+
+# All X Alien: Romulus Deleted Scenes, Ranked By How Much They Improve The Movie
+
+Movies, Alien: Romulus, Alien
+
+Sat, 17 Oct 2026 18:05:18 GMT
+
+https://screenrant.com/alien-romuluss-4-deleted-scenes-ranked-by-how-much-the-movie-needed-them/
+
+Alien: Romulus is one of the best entries in the franchise, though a handful of scenes were left on the cutting room floor that are worth checking out
+---------
+
+# Taylor Sheridan Has Officially Avoided The Fate Of TV’s #1 Modern-Day Western
+
+Classic TV, Taylor Sheridan, Yellowstone
+
+Sat, 17 Oct 2026 18:00:19 GMT
+
+https://screenrant.com/taylor-sheridan-yellowstone-avoided-dallas-tv-fate-neo-western-shows/
+
+With his biggest franchise still growing, Taylor Sheridan has officially avoided the fate that befell the most popular Western show in TV history.
+---------
+
+# 10 Science Fantasy Books That Are The Best Of Both Genres
+
+Books, Sci-Fi, Fantasy
+
+Sat, 17 Oct 2026 18:00:19 GMT
+
+https://screenrant.com/science-fantasy-books-best-of-both-genres/
+
+Science fantasy is an underrated genre, so here are ten science fantasy book recommendations ranging from classics to upcoming releases.
+---------
+
+# Ethan Hawke’s Gritty 8-Part Neo-Noir Dubbed 'Best Drama on TV' After 100% Rotten Tomatoes Score
+
+TV, Rotten Tomatoes, The Lowdown
+
+Sat, 17 Oct 2026 18:44:37 GMT
+
+https://www.cbr.com/ethan-hawke-the-lowdown-season-2-rotten-tomatoes-score/
+
+The series continues the perfect reception the show received in Season 1.
+---------
+
+# Former Doctor Who Boss Slams AI Episode: 'A Clumsy Thing to Say'
+
+TV, Doctor Who
+
+Sat, 17 Oct 2026 18:37:31 GMT
+
+https://www.cbr.com/russell-t-davies-doctor-who-ai-episode/
+
+Former Doctor Who showrunner Russell T. Davies lambasts a top BBC executive's past comments as "a clumsy thing to say" about the series and AI.
+---------
+
+# Masters of the Universe Features the Best Action Scene of the Year
+
+Movies, Masters of the Universe, Prime Video, Sci-Fi, Innovation
+
+Sat, 17 Oct 2026 18:30:14 GMT
+
+https://www.cbr.com/masters-of-the-universe-movie-greatest-fight-scene/
+
+In a year of action blockbusters, the live-action Masters of the Universe film stood out for its exciting final fight scene.
+---------
+
+# 10 Near-Perfect Anime With 1 Fatal Flaw
+
+Anime, One Piece, Soul Eater
+
+Sat, 17 Oct 2026 18:15:14 GMT
+
+https://www.cbr.com/near-perfect-anime-one-fatal-flaw/
+
+Anime series like Gintama and Soul Eater are held back by a single glaring shortcoming.
+---------
+
+# Tulsa King Season 4: Dwight Has a New Problem
+
+TV, Tulsa King
+
+Sat, 17 Oct 2026 18:15:14 GMT
+
+https://www.cbr.com/video/tulsa-king-season-4-dwight-has-a-new-problem/
+
+Tulsa King Season 4 puts Cal Thresher and Dwight Manfredi on a collision course as Neal McDonough teases a new political power struggle.
+---------
+
+# Critical Role Officially Reveals Brand-New Canon Adventure This November
+
+Anime, Critical Role, The Legend of Vox Machina, The Mighty Nein
+
+Sat, 17 Oct 2026 18:00:14 GMT
+
+https://www.cbr.com/critical-role-new-canon-adventure-november-2026/
+
+Critical Role returns this November with a brand-new canonical adventure featuring Hololive stars.
+---------
+
+# 50 Years Later, a Fan-Favorite X-Men Officially Gets A New Name
+
+Comics, Psylocke, X-Men, Marvel Comics
+
+Sat, 17 Oct 2026 18:00:14 GMT
+
+https://www.cbr.com/maximum-x-men-psylocke-new-name-butterfly/
+
+She's worn many suits and multiple faces, and as the X-Men continue to evolve, one hero will return to the team with a new identity.
+---------
+
+# Dexter: Resurrection Season 2 - Everything to Remember Before the Revival Returns
+
+TV, Dexter: Resurrection, Innovation, Thriller, Showtime
+
+Sat, 17 Oct 2026 17:30:14 GMT
+
+https://www.cbr.com/dexter-resurrection-season-1-recap/
+
+Dexter: Resurrection is returning for a second season, but with a three-year time jump, it's important to remember where everyone left off.
+---------
+
+# Dungeons & Dragons Meets KPop Demon Hunters In Idols Of the Neon Dark
+
+Games, Dungeons and Dragons, Tabletop, KPop Demon Hunters
+
+Sat, 17 Oct 2026 17:15:15 GMT
+
+https://www.cbr.com/dnd-meets-kpop-idols-of-the-neon-dark/
+
+Idols of the Neon Dark is an upcoming KPop-inspired DnD setting that vastly overhauls existing classes through exciting new subclasses.
+---------
+
+# Beloved 53-Year-Old Holiday Special Surges on Streaming 1 Month Early
+
+TV, A Charlie Brown Thanksgiving, Apple TV, Television
+
+Sat, 17 Oct 2026 17:01:14 GMT
+
+https://www.cbr.com/a-charlie-brown-thanksgiving-apple-tv-success-october-2026/
+
+One of the most beloved holiday specials ever is soaring on streaming ahead of the upcoming holiday.
+---------
+
+# As a Harry Potter Fan, Here's How I'd Rank All 8 Movies
+
+Movie, Harry Potter, Harry Potter and the Sorcerer's Stone, Fantasy
+
+Sat, 17 Oct 2026 18:53:14 GMT
+
+https://collider.com/harry-potter-movies-original-ranked-by-a-fan/
+
+I love the Harry Potter movies, starring Daniel Radcliffe, and here's how I'd rank them all, from Sorcerer's Stone to Deathly Hallows: Part 2.
+---------
+
+# 'Fire Country' Season 5 Is Officially Failing One of Its Most Important Characters
+
+TV Features, Fire Country, Max Thieriot, CBS
+
+Sat, 17 Oct 2026 18:38:14 GMT
+
+https://collider.com/fire-country-season-5-jake-crawford-malcolm-missing/
+
+Fire Country Season 5 has a key character missing in action at its outset, and it's exacerbated after a major event involving Jake Crawford.
+---------
+
+# The Biggest Superhero Sci-Fi Bomb of 2026 Is Officially a 30-Day Streaming Sensation
+
+Movie News, Supergirl, Superhero, HBO Max, Streaming
+
+Sat, 17 Oct 2026 18:30:14 GMT
+
+https://collider.com/supergirl-30-day-streaming-hit-hbo-max-october-2026/
+
+2026's worst-performing superhero movie hits a new milestone on the streaming charts. Find out more here.
+---------
+
+# The 8 Most Ambitious Gangster Movies of All Time, Ranked
+
+Movie, The Godfather Part II, Gangs of Wasseypur, The Irishman, Pulp Fiction
+
+Sat, 17 Oct 2026 18:28:14 GMT
+
+https://collider.com/most-ambitious-gangster-movies-all-time-ranked/
+
+Classic gangster movies like The Godfather Part II, Once Upon a Time in America, and Scarface all rank among the most ambitious of all time.
+---------
+
+# George R. R. Martin Fans Are Officially Still Having the Wrong Debate About 'Winds of Winter'
+
+TV Features, Books, George R.R. Martin, Brandon Sanderson, The Winds of Winter
+
+Sat, 17 Oct 2026 18:27:14 GMT
+
+https://collider.com/the-winds-of-winter-george-rr-martin-brandon-sanderson-comparison/
+
+Brandon Sanderson's recent comments about George R. R. Martin's Winds of Winter delay are a reminder that no two authors work the same way.
+---------
+
+# Forget ‘Yellowstone,’ Taylor Sheridan’s New Western Epic Is Officially Unstoppable on Streaming
+
+TV News, The Madison, Taylor Sheridan, Yellowstone, Paramount Plus
+
+Sat, 17 Oct 2026 18:01:14 GMT
+
+https://collider.com/taylor-sheridan-the-madison-streaming-success-paramount-plus-100-days/
+
+Taylor Sheridan's official Yellowstone replacement is closing in on 100 days in the top 10 on Paramount Plus.
+---------
+
+# 10 Thriller Movies That Are 10/10 Masterpieces
+
+Movie, Thriller, Black Swan, Alien, Inception
+
+Sat, 17 Oct 2026 17:57:14 GMT
+
+https://collider.com/thriller-movies-perfect-masterpieces/
+
+Alien, Black Swan, Knives Out, Prisoners, Misery, The Silence of the Lambs, and more make up our list of thriller movies that are masterpieces.
+---------
+
+# 10 Great Noir Thrillers That Are Quietly Intense
+
+Movie, Film Noir, In A Lonely Place, Chinatown, The Night of the Hunter
+
+Sat, 17 Oct 2026 17:52:15 GMT
+
+https://collider.com/great-noir-thriller-movies-quietly-intense/
+
+All-time great film noir movies like In a Lonely Place, Le Samourai, and The Conversation have a quiet intensity.
+---------
+
+# ‘Star Wars’ Box-Office Disappointment Officially Finds Redemption on Streaming
+
+Movie News, The Mandalorian and Grogu, Streaming, Disney+, Pedro Pascal
+
+Sat, 17 Oct 2026 17:30:14 GMT
+
+https://collider.com/star-wars-the-mandalorian-and-grogu-streaming-hit-disney-plus-october-2026/
+
+This year's Star Wars movie is still proving relevant on the global streaming charts. Here's everything you should know.
+---------
+
+# 7 Sci-Fi Shows From the 2010s That Are Perfect From Start to Finish
+
+TV, Sci-Fi, Science Fiction, Person of Interest, The Expanse
+
+Sat, 17 Oct 2026 17:19:14 GMT
+
+https://collider.com/sci-fi-shows-2010s-perfect-start-to-finish/
+
+Person of Interest, The Expanse, and Continuum are some of the best sci-fi shows from the 2010s and are genuinely perfect from start to finish.
+---------
+
+# Guy Ritchie's Hit Netflix Crime Thriller Gets a Real-Life Brawl on Set as "All Hell Broke Loose"
+
+TV News, Guy Ritchie, The Gentleman, Crime, Netflix
+
+Sat, 17 Oct 2026 18:19:35 GMT
+
+https://movieweb.com/the-gentlemen-set-fight-report/
+
+As The Gentlemen gears up for its third season, a new report says filming was briefly disrupted by a physical clash behind the scenes.
+---------
+
+# Taylor Sheridan's $160M Action Thriller Franchise Officially Gets Major Update After 8-Year Wait
+
+Movie News, Sicario, Sicario: Day Of The Soldado, Taylor Sheridan, Josh Brolin, Action, Crime, Thriller
+
+Sat, 17 Oct 2026 18:10:21 GMT
+
+https://movieweb.com/sicario-3-filming-2027/
+
+One of Taylor Sheridan's biggest movie series finally has a new update, indicating it is not far away from continuing into a new story.
+---------
+
+# Prime Video’s Long-Awaited Epic Is Already Bigger Than All Its Other Fantasy Shows
+
+Features, The Dark Tower, Stephen King, Fantasy
+
+Sat, 17 Oct 2026 18:01:18 GMT
+
+https://movieweb.com/dark-tower-prime-video-fantasy-shows/
+
+Prime Video has produced several of streaming's most ambitious shows, but one of its upcoming series will be its most sprawling epic ever.
+---------
+
+# Change of Plans for Disney's Secret 8-Part Space Western as the Project Appears to Have Stalled
+
+TV News, Star Wars, Jon Watts, Star Wars: Skeleton Crew, Sci-Fi, Western
+
+Sat, 17 Oct 2026 18:00:30 GMT
+
+https://movieweb.com/star-wars-western-series-jon-watts/
+
+Before being hired to direct a new 'Star Wars' film, Jon Watts was reportedly developing a new Disney+ series for the franchise.
+---------
+
+# 'Street Fighter' Cast Reveals What They Want to See in 'Street Fighter 2'
+
+Exclusives, Street Fighter, Action, Comedy
+
+Sat, 17 Oct 2026 17:18:28 GMT
+
+https://movieweb.com/street-fighter-2026-cast-movie-sequel-story/
+
+Actor Noah Centineo wants Ken to finally meet his love interest.
+---------
+
+# Guy Ritchie’s Debut Crime Thriller on Prime Is Better Than 'The Gentlemen'
+
+Features, Lock, Stock and Two Smoking Barrels, The Gentlemen, Guy Ritchie, Comedy, Action, Crime, Vinnie Jones, Jason Statham
+
+Sat, 17 Oct 2026 17:01:17 GMT
+
+https://movieweb.com/lock-stock-guy-ritchie-streaming-recommendation/
+
+28 years ago, Guy Ritchie made his directorial debut with 'Lock, Stock and Two Smoking Barrels,' setting a new standard for future crime thrillers.
+---------
+
+# Fate of Disney's Near-Perfect Action-Adventure Series Gets a Major Boost From Its Showrunner
+
+TV News, Your Friendly Neighborhood Spider-Man, Disney, Superhero, Action
+
+Sat, 17 Oct 2026 16:52:43 GMT
+
+https://movieweb.com/your-friendly-neighborhood-spider-man-season-4-update/
+
+Marvel Animation is already developing a fourth season of Your Friendly Neighborhood Spider-Man, according to creator Jeff Trammell.
+---------
+
 # 7 Small-Town Thrillers To Watch After Netflix's Below
 
 Classic TV, Below
