@@ -1,3 +1,355 @@
+# Spider-Man: Brand New Day Removed From 634 Theaters After Major New Release
+
+Movies, Spider-Man: Brand New Day, Spider-Man, Marvel Cinematic Universe
+
+Sat, 17 Oct 2026 00:52:37 GMT
+
+https://screenrant.com/spiderman-brand-new-day-loses-theaters-marvel/
+
+Spider-Man: Brand New Day is one of the highest-grossing movies of all time, but how much higher it can climb is limited by the loss of 634 theaters.
+---------
+
+# Tom Welling Addresses Smallville Revival’s Future Amid Warner Bros. Merger
+
+TV
+
+Sat, 17 Oct 2026 00:47:53 GMT
+
+https://screenrant.com/smallville-sequel-dc-update-tom-welling-warner-bros/
+
+EXCLUSIVE: As Smallville celebrates 25 years, Tom Welling opens up about the potential of the sequel he and Michael Rosenbaum are developing.
+---------
+
+# Tenzing Ending Explained: Who Makes It To The Top Of Mount Everest First?
+
+Movies, Tenzing
+
+Sat, 17 Oct 2026 00:30:18 GMT
+
+https://screenrant.com/tenzing-ending-explained/
+
+Tom Hiddleston's highly anticipated Mount Everest movie, Tenzing, is finally available to stream on Apple TV; here's how the film concludes.
+---------
+
+# Yellowstone's 2026 Return Threatens To Rip Apart 2 Duttons Forever
+
+TV, Marshals
+
+Sat, 17 Oct 2026 00:00:42 GMT
+
+https://screenrant.com/yellowstone-marshals-season-2-duttons-ripped-apart-kayce-tate-troubles/
+
+EXCLUSIVE: The second season of Marshals introduces some new threats that could potentially tear up the relationship between two of its characters.
+---------
+
+# Hunger Games Panem Map Guide: Every Location Explained
+
+Movies, The Hunger Games
+
+Sat, 17 Oct 2026 00:00:19 GMT
+
+https://screenrant.com/hunger-games-world-map-panem-guide-locations/
+
+An in-depth look at the Panem map from the Hunger Games franchise, breaking down each district, its exports, and its most famous residents.
+---------
+
+# Zelda: Tears Of The Kingdom Gets Official New Release This Month
+
+Gaming, The Legend of Zelda: Tears of the Kingdom, Triple-A Games, The Legend of Zelda
+
+Sat, 17 Oct 2026 00:00:18 GMT
+
+https://screenrant.com/zelda-tears-kingdom-new-release-statue-october/
+
+The Legend of Zelda: Tears of the Kingdom is getting an official release this month, over three years since the game’s launch, and fans can’t miss it.
+---------
+
+# Star Trek’s Kelvin Era Return Is Officially One Month Away
+
+Comics, Star Trek
+
+Fri, 16 Oct 2026 23:55:39 GMT
+
+https://screenrant.com/star-trek-kelvin-era-return/
+
+Trekkies are officially one month away from a new Star Trek release that revisits the world of the 2009 movie that launched the Kelvin Timeline.
+---------
+
+# 38 Years Later, The Most Important Batman Story Of All Time Is Aging Like Milk
+
+Gaming, Batman, DC, DC Comics
+
+Fri, 16 Oct 2026 23:47:24 GMT
+
+https://screenrant.com/batman-death-in-the-family-aging-like-milk/
+
+One of Batman's most iconic stories of all time is a four-part adventure that ends in tragedy and has aged horribly over the last 38 years.
+---------
+
+# Mike Flanagan's The Dark Tower Update Is What Stephen King Fans Have Been Waiting For
+
+Streaming TV, The Dark Tower
+
+Fri, 16 Oct 2026 23:30:18 GMT
+
+https://screenrant.com/the-dark-tower-mike-flanagan-stephen-king-book-update-good/
+
+Mike Flanagan has proven himself to be a great Stephen King collaborator, and his Dark Tower update is a promising sign for fans of the books.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Weekend (October 17-18)
+
+Movies, HBO Max, Recommendation
+
+Fri, 16 Oct 2026 23:25:18 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-weekend-october-17/
+
+The best movies on HBO Max this weekend are a Jon Bernthal spy thriller, a Hugh Jackman dark drama, and a James Gunn DC Universe sci-fi.
+---------
+
+# 10 Greatest Isekai Worlds in Anime History, Ranked
+
+Anime, Isekai, Innovation
+
+Sat, 17 Oct 2026 00:45:14 GMT
+
+https://www.cbr.com/greatest-isekai-worlds-in-anime-history-ranked/
+
+Isekai has quickly become one of the most popular genres in anime, and these isekai worlds show why it's become beloved by so many.
+---------
+
+# 10 Most Perfect JRPGs Nobody Plays, Ranked
+
+Games, JRPG, Final Fantasy, Video Games
+
+Sat, 17 Oct 2026 00:31:14 GMT
+
+https://www.cbr.com/perfect-jrpgs-nobody-plays-ranked/
+
+Over the years, some great JRPGs have flown under the radar because nobody played them.
+---------
+
+# Jujutsu Kaisen's Satoru Gojo Finally Claims No. 1 After 4-Year Losing Streak
+
+Anime, Jujutsu Kaisen, Assassination Classroom
+
+Sat, 17 Oct 2026 00:20:14 GMT
+
+https://www.cbr.com/jujutsu-kaisen-gojo-satoru-top-anime-teacher-2026/
+
+Jujutsu Kaisen’s strongest character has finally managed to defeat a long-time adversary to grab the top spot in the latest rankings.
+---------
+
+# 10 Anime to Watch If You Love Naruto
+
+Anime, Naruto, Naruto: Shippuden
+
+Sat, 17 Oct 2026 00:15:13 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-love-naruto/
+
+Naruto is one of the most loved anime of all time, and these series are perfect for its fans.
+---------
+
+# Nielsen’s Most-Watched This Week: Netflix's Record-Setting Willy Wonka Series Beats East of Eden by 31%
+
+TV, Netflix, Wonka's The Golden Ticket, East of Eden
+
+Sat, 17 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/nielsen-most-watched-streaming-sept-28-2026/
+
+It was also 12% ahead of the second spot and the only title to score more than 1 billion minutes viewed.
+---------
+
+# 5 Open-World RPGs That Surpassed Skyrim, Ranked
+
+Games, Video Games, The Elder Scrolls V: Skyrim, open world, Elden Ring, Fallout 4
+
+Sat, 17 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/open-world-rpgs-surpass-skyrim-ranked/
+
+Skyrim continues to hold onto its popularity 15 years after its initial release, but these games blow it out of the water.
+---------
+
+# 10 Spider-Man Villains Who Deserve a Major Comeback
+
+Comics, Spider-Man
+
+Sat, 17 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/spider-man-villains-who-deserve-a-major-comeback/
+
+These Spider-Man villains were once incredibly important, but they haven't been used in the same way in recent years.
+---------
+
+# 10 Most Perfect Sports Anime of All Time, Ranked
+
+Anime, Haikyu!!, Major
+
+Fri, 16 Oct 2026 23:45:14 GMT
+
+https://www.cbr.com/most-perfect-sports-anime-all-time-ranked/
+
+Anime's sports genre is full of surprising hits, with titles like Haikyu!!, Blue Lock, and Major representing some of the medium's best works!
+---------
+
+# 5 Strongest Demon Slayer Characters Who Aren't Demons
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Innovation
+
+Fri, 16 Oct 2026 23:15:14 GMT
+
+https://www.cbr.com/strongest-demon-slayer-characters-not-demons/
+
+Demons aren't the only powerhouses in Demon Slayer. These five human characters rank among the anime's strongest fighters.
+---------
+
+# ‘Avengers: Doomsday’ Star Hayley Atwell Reveals Marvel Filmed Multiple Storylines That Were Cut
+
+Movie News, Avengers: Doomsday, Hayley Atwell, Marvel Studios, Superhero
+
+Sat, 17 Oct 2026 00:45:14 GMT
+
+https://collider.com/avengers-doomsday-cut-storylines-confirmed-hayley-atwell/
+
+Avengers: Doomsday star Hayley Atwell reveals that Marvel filmed multiple storylines, with some cut from the final movie.
+---------
+
+# CBS' 'Elsbeth' Is Officially Breaking the Format of Its Murder Mystery
+
+TV Features, Elsbeth, Nicholas Braun, Carrie Preston, CBS
+
+Sat, 17 Oct 2026 00:39:14 GMT
+
+https://collider.com/elsbeth-season-4-episode-2-whodunit-format-change/
+
+Although Elsbeth has always been a howcatchem show, its most recent episode proves that the whodunit format is something the series can succeed at.
+---------
+
+# Time Is Officially Running Out to Watch Tom Cruise's Sci-Fi Disaster Epic
+
+Movie News, Tom Cruise, Steven Spielberg, War of The Worlds, Sci-Fi
+
+Sat, 17 Oct 2026 00:30:14 GMT
+
+https://collider.com/tom-cruise-war-of-the-worlds-leaving-hbo-max-november-2026/
+
+Tom Cruise and Steven Spielberg's cult-favorite sci-fi classic is about to leave its streaming home. Read on for more.
+---------
+
+# Charlie Hunnam's 'Sons of Anarchy' Spin-off Officially Gets Major Production Update
+
+TV News, Sons of Anarchy, Ron Perlman, Charlie Hunnam, FX
+
+Sat, 17 Oct 2026 00:15:14 GMT
+
+https://collider.com/sons-of-anarchy-spin-off-filming-start-2027-ron-perlman/
+
+Ron Perlman has officially confirmed that the upcoming Sons of Anarchy spin-off will start filming in 2027.
+---------
+
+# 10 Thriller Films That Are Perfect From Start to Finish
+
+Movie, Thriller, Vertigo, Jaws, High And Low
+
+Sat, 17 Oct 2026 00:11:14 GMT
+
+https://collider.com/thriller-films-perfect-start-to-finish/
+
+Suspenseful masterpieces like Blow Out, Zodiac, and Vertigo are among the best, most perfect thriller movies ever made.
+---------
+
+# 10 Worst 'The Twilight Zone' Episodes, Ranked
+
+TV, The Twilight Zone, Rod Serling, Sci-Fi, Horror
+
+Sat, 17 Oct 2026 00:02:14 GMT
+
+https://collider.com/twilight-zone-worst-tv-episodes-ranked/
+
+From "Caesar and Me" to "Jess-Belle," which episode of Rod Serling's landmark CBS anthology series, The Twilight Zone, is the absolute worst?
+---------
+
+# First ‘The Mummy 4’ Set Photos Officially Reunite Brendan Fraser and Rachel Weisz
+
+Movie News, Brendan Fraser, The Mummy, The Mummy 4, Rachel Weisz
+
+Sat, 17 Oct 2026 00:00:14 GMT
+
+https://collider.com/brendan-fraser-rachel-weisz-the-mummy-4-set-images/
+
+The first set photos from The Mummy: Book of the Dead officially reunite Brendan Fraser and Rachel Weisz.
+---------
+
+# Michael Jackson's Next Movie Officially Sets 2027 Streaming Release
+
+Movie News, Michael, Michael Jackson's Thriller, Musical, Super Bowl
+
+Fri, 16 Oct 2026 23:45:14 GMT
+
+https://collider.com/michael-jackson-spectacle-super-bowl-documentary-release-date-hulu-2027/
+
+Michael Jackson's new documentary Spectacle officially premieres on Hulu and ESPN in February 2027, featuring never-before-seen footage.
+---------
+
+# The Perfect ‘VisionQuest’ Replacement Is Ready to Binge on Prime Video
+
+TV, 12 Monkeys, Elle, Prime Video, Hannibal
+
+Fri, 16 Oct 2026 23:43:14 GMT
+
+https://collider.com/prime-video-shows-binge-october-17-2026/
+
+12 Monkeys, Hannibal, and Elle make up our list of the best shows to binge on Prime Video the weekend of October 17.
+---------
+
+# Taylor Sheridan Star’s ‘Black Sails' Replacement Is Officially a Global Streaming Hit
+
+TV News, Treasure Island, David Oyelowo, MGM, Hayley Atwell
+
+Fri, 16 Oct 2026 23:31:14 GMT
+
+https://collider.com/david-oyelowo-treasure-island-streaming-success-mgm-plus-october-2026/
+
+Paramount+ and MGM+'s new pirate adventure series, Treasure Island, starring David Oyelowo, is an instant streaming hit.
+---------
+
+# 8 Must-See Modern Martial Arts Masterpieces & Where To Stream Them
+
+Movie Lists, Martial Arts, Action, Streaming
+
+Sat, 17 Oct 2026 00:00:17 GMT
+
+https://movieweb.com/modern-martial-arts-masterpieces-streaming/
+
+These modern martial arts movies deliver masterful, fast-paced action, sure to cement their place as genre classics.
+---------
+
+# 'Avatar' Director Congratulates $2.9-Billion Blockbuster for Surpassing 2009 Sci-Fi Epic
+
+Movie News, Avatar, Avengers: Endgame Encore, Avengers: Endgame, James Cameron, Box Office Milestones
+
+Fri, 16 Oct 2026 23:15:54 GMT
+
+https://movieweb.com/avengers-endgame-encore-avatar-james-cameron/
+
+The director of 2009's 'Avatar' honored the movie that surpassed his original sci-fi epic at the box office with an incredible run.
+---------
+
+# Walton Goggins' 118-Minute Action Thriller Adaptation Is Now a Global Netflix Streaming Hit
+
+Movie News, Tomb Raider, Netflix, Hot on Streaming, Walton Goggins, Action, video games
+
+Fri, 16 Oct 2026 23:01:17 GMT
+
+https://movieweb.com/tomb-raider-stream-netflix-october-2026/
+
+Before 'Fallout,' Walton Goggins starred in an even more action-heavy video game adaptation.
+---------
+
 # Friday The 13th: Every Unmasked Jason Voorhees (In Chronological Order)
 
 Lists, Jason Voorhees, Friday The 13th
