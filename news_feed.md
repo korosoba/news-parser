@@ -1,3 +1,333 @@
+# Murder In A Small Town's Setting & Filming Locations Explained
+
+Network TV, Murder in a Small Town
+
+Sun, 18 Oct 2026 01:15:19 GMT
+
+https://screenrant.com/murder-in-a-small-town-fox-filming-locations-setting-explained/
+
+Murder in a Small Town has a setting that helps tell the mysteries in Kristin Kreuk and Rossif Sutherland's brand new murder series on Fox.
+---------
+
+# Street Fighter 2 Chances Addressed By Director As Reboot Splits Critics & Audiences
+
+Movies, Street Fighter
+
+Sun, 18 Oct 2026 01:11:02 GMT
+
+https://screenrant.com/street-fighter-2026-sequel-chances-sakurai/
+
+Exclusive: Director Kitao Sakurai shares insight into the possibility of a Street Fighter sequel, following the highly anticipated movie's debut.
+---------
+
+# J. J. Abrams' Biggest Failure Is His 'Jack Ryan Meets Mr And Mrs Smith' Spy Series
+
+Classic TV, J.J. Abrams
+
+Sun, 18 Oct 2026 01:02:19 GMT
+
+https://screenrant.com/undercovers-jj-abrams-biggest-failure/
+
+From Felicity to Lost, J.J. Abrams has a reputation as a certified TV hitmaker, but his 2010 series Undercovers bombed spectacularly. What went wrong?
+---------
+
+# Smallville 25th Anniversary Interview: Michael Rosenbaum Looks Back At Lex Luthor's Legacy & Potential Future With James Gunn's DC
+
+Interviews, Smallville, Michael Rosenbaum, Superman, DC Universe, Lex Luthor
+
+Sun, 18 Oct 2026 01:00:19 GMT
+
+https://screenrant.com/smallville-25th-anniversary-michael-rosenbaum-lex-luthor-interview/
+
+Michael Rosenbaum looks back at 25 years of Smallville, how becoming Lex Luthor was life-changing and a potential future with James Gunn's DC Studios.
+---------
+
+# Timothy Olyphant Has The Best Cameo In NBC’s Perfect Sitcom
+
+Classic TV, The Good Place, Timothy Olyphant, The Good Place - Season 4
+
+Sun, 18 Oct 2026 01:00:19 GMT
+
+https://screenrant.com/timothy-olyphant-the-good-place-cameo/
+
+Along with playing the perfect lawman in Justified, Deadwood, and The Mandalorian, Timothy Olyphant also has the cameo in NBC's perfect sitcom.
+---------
+
+# A Different World: Every Cast Member Who Has Died In Real Life
+
+Classic TV, A Different World
+
+Sun, 18 Oct 2026 00:50:19 GMT
+
+https://screenrant.com/different-world-every-cast-member-who-died/
+
+There have been several A Different World cast members who died, and each passed away with a celebrated on-screen legacy.
+---------
+
+# Isaac Asimov Meets Terminator in Netflix’s 13-Episode Sci-Fi Thriller Made for Your Next Binge
+
+Anime, Netflix, Masked Recs
+
+Sun, 18 Oct 2026 00:45:19 GMT
+
+https://screenrant.com/asimov-meets-terminator-netflix-vivy/
+
+A hidden sci-fi gem series on Netflix is perfect for fans of Isaac Asimov's novels and Terminator, and it’s ideal for a weekend binge-watch.
+---------
+
+# Michael Rosenbaum Addresses Future In James Gunn’s DCU After Superman Cameo
+
+Movies, Superman, Man of Tomorrow, DC Universe, Michael Rosenbaum, Smallville, James Gunn
+
+Sun, 18 Oct 2026 00:40:02 GMT
+
+https://screenrant.com/michael-rosenbaum-future-dcu-role-james-gunn-superman/
+
+EXCLUSIVE: Following his cameo in 2025's Superman movie, Smallville's Michael Rosenbaum up about potentially having a larger role in James Gunn's DCU.
+---------
+
+# Street Fighter Star Sparks MCU X-Men Speculation With Yet Another Cryptic Message
+
+Movies, Street Fighter, X-Men
+
+Sun, 18 Oct 2026 00:38:36 GMT
+
+https://screenrant.com/street-fighter-cody-rhodes-x-men-mcu-hint/
+
+One of the stars of the new video game adaptation, Street Fighter, dropped another hint about his future in the Marvel Cinematic Universe.
+---------
+
+# ABC’s Forgotten 22-Episode Lost Replacement Is The Better Sci-Fi Mystery
+
+Classic TV, ABC, Lost
+
+Sun, 18 Oct 2026 00:30:19 GMT
+
+https://screenrant.com/flashforward-better-sci-fi-mystery-than-lost/
+
+While many TV shows were trying to be the next Lost, this high-concept forgotten gem presented us with an even better premise during its brief run.
+---------
+
+# In Just 1 Day, Peacock's Iconic Horror Franchise Revival Is No. 1 on Streaming Charts
+
+TV, Crystal Lake
+
+Sun, 18 Oct 2026 01:00:14 GMT
+
+https://www.cbr.com/crystal-lake-horror-streaming-success-october-2026/
+
+Peacock slays the streaming charts with the visceral new horror series.
+---------
+
+# Apple TV's Hit 5-Season Sci-Fi Series Officially Passes Major Streaming Milestone
+
+TV, Apple TV, Dark Matter, Sci-Fi
+
+Sun, 18 Oct 2026 00:49:43 GMT
+
+https://www.cbr.com/apple-tv-sci-fi-dark-matter-series-streaming-milestone/
+
+WOW — this is a milestone most other sci-fi series and films only wish they could achieve.
+---------
+
+# The Simpsons Bosses Address the Show's Future: 'It's Never Going to End'
+
+TV, The Simpsons
+
+Sun, 18 Oct 2026 00:47:46 GMT
+
+https://www.cbr.com/the-simpsons-bosses-talk-series-ending/
+
+The Simpsons bosses weigh in on how the series will come to an end.
+---------
+
+# 5 Anime Series Where the Villain Pretends to Be an Ally
+
+Anime, Attack on Titan, One Piece
+
+Sun, 18 Oct 2026 00:45:15 GMT
+
+https://www.cbr.com/anime-series-villain-betrayals/
+
+The best anime villains are the ones who forge a genuine friendship with the main characters and exploit that trust.
+---------
+
+# 7 Masterpiece Isekai Anime With Better Magic Systems Than Mushoku Tensei
+
+Anime, Mushoku Tensei: Jobless Reincarnation, Isekai, Innovation
+
+Sun, 18 Oct 2026 00:15:14 GMT
+
+https://www.cbr.com/isekai-anime-magic-systems-better-than-mushoku-tensei/
+
+Mushoku Tensei has one of the most highly-regarded magic systems in all of anime, but these isekai surpass those heights with ease.
+---------
+
+# 10 Movies To Watch If You Can't Wait For Sydney Sweeney's The Housemaid Sequel
+
+Movies, The Housemaid, Thriller, The Housemaid's Secret
+
+Sun, 18 Oct 2026 00:00:15 GMT
+
+https://www.cbr.com/movies-to-watch-before-sydney-sweeneys-the-housemaid-sequel-list/
+
+These psychological thrillers offer the same mix of messy relationships, hidden motives and dangerous secrets like The Housemaid.
+---------
+
+# Prime Video's New Stephen King Era Is Coming to Take Over Streaming
+
+TV, Stephen King, Prime Video, Horror
+
+Sun, 18 Oct 2026 00:00:15 GMT
+
+https://www.cbr.com/prime-video-new-stephen-king-era-take-over-streaming/
+
+Prime Video is gearing up for a major Stephen King era, with fresh adaptations of the horror author's work bringing plenty of excitement to streaming.
+---------
+
+# The Top 10 Time-Traveling Anime Characters of All Time, Ranked (According to Japan)
+
+Anime, Puella Magi Madoka Magica, Steins;Gate (2011), Tokyo Revengers
+
+Sun, 18 Oct 2026 00:00:15 GMT
+
+https://www.cbr.com/top-time-travel-anime-characters-japan-ranking-2026/
+
+A prominent Japanese survey site reveals which 10 anime time travelers have garnered the most love among viewers in the Land of the Rising Sun.
+---------
+
+# 10 Best Peanuts Comics About Siblings, Ranked
+
+Comics, Peanuts
+
+Sun, 18 Oct 2026 00:00:15 GMT
+
+https://www.cbr.com/best-peanuts-comics-about-siblings-ranked/
+
+The Peanuts comics are all about young friends and family members who have fun hijinks together, but the best ones are about sibling relationships.
+---------
+
+# 10 Isekai Anime Series That Went Way Too Far, Ranked
+
+Anime, Isekai
+
+Sat, 17 Oct 2026 23:45:14 GMT
+
+https://www.cbr.com/isekai-anime-series-went-way-too-far/
+
+These Isekai anime series get a lot of hate for their handling of controversial topics, and it's entirely deserved.
+---------
+
+# 'Twin Peaks' Meets 'X-Files' in Disney+'s 2-Part Mystery Series Surging the Streaming Charts
+
+TV Features, Gravity Falls, Disney Channel, Alex Hirsch, Disney XD
+
+Sun, 18 Oct 2026 01:01:15 GMT
+
+https://collider.com/gravity-falls-disney-twin-peaks-meets-x-files-streaming/
+
+The animated masterpiece Gravity Falls is climbing the streaming charts again. Here's why now is the perfect time to rewatch it.
+---------
+
+# Is Slough House Real? The True Story Behind Apple TV's Spy Thriller 'Slow Horses'
+
+TV Features, Slow Horses, Apple TV, Gary Oldman, Kristin Scott Thomas
+
+Sun, 18 Oct 2026 00:47:15 GMT
+
+https://collider.com/slow-horses-apple-tv-slough-house-real-true-story/
+
+What's the true story behind Apple TV's hit spy series Slow Horses? Explore the real-life inspirations for MI5's disgraced Slough House.
+---------
+
+# Tom Hanks' Classic Vietnam War Movie Is Officially a Free Streaming Sensation
+
+Movie News, Tom Hanks, Forrest Gump, Tubi, Streaming
+
+Sun, 18 Oct 2026 00:31:14 GMT
+
+https://collider.com/tom-hanks-forrest-gump-free-streaming-hit-tubi-october-2026/
+
+Tom Hanks' beloved Robert Zemeckis film, Forrest Gump, is a smash hit on free streaming this October.
+---------
+
+# Clint Eastwood's Record-Breaking War Movie Officially Disappears From Netflix
+
+Movie News, Clint Eastwood, Bradley Cooper, American Sniper, Netflix
+
+Sun, 18 Oct 2026 00:15:14 GMT
+
+https://collider.com/clint-eastwood-war-movie-american-sniper-leaving-netflix-november-2026/
+
+The highest-grossing movie of Clint Eastwood's directorial career, American Sniper, is on its way out of Netflix. Find out more.
+---------
+
+# Netflix’s New Wonka Reboot Series Officially Becomes a Streaming Smash Hit
+
+TV News, Netflix, Wonka, Wonka's The Golden Ticket, Streaming
+
+Sun, 18 Oct 2026 00:00:15 GMT
+
+https://collider.com/wonkas-the-golden-ticket-streaming-hit-netflic-october-2026/
+
+Netflix's new Wonka series is smashing streaming expectations, rejoining the top ten in the U.S.
+---------
+
+# Kit Harington’s 105-Minute Disaster Epic Is Officially Leaving Netflix
+
+Movie News, Pompeii, Kit Harington, Titanic, Netflix
+
+Sat, 17 Oct 2026 23:45:14 GMT
+
+https://collider.com/kit-harington-pompeii-leaving-netflix-november-2026/
+
+The forgotten disaster epic Pompeii, starring Kit Harington, is about to be removed from Netflix. Find out more.
+---------
+
+# 'Glee' Meets 'Fleabag' in This 4-Part Comedy Series That's Officially a Streaming Hit
+
+TV Features, Crazy Ex-Girlfriend, CW, Glee, Fleabag
+
+Sat, 17 Oct 2026 23:36:14 GMT
+
+https://collider.com/crazy-ex-girlfriend-glee-meets-fleabag-streaming-hit/
+
+Crazy Ex-Girlfriend is the perfect blend of music and dark humor for fans of Glee and Fleabag, and the series is now rising in the streaming charts.
+---------
+
+# 22 Years Later, ‘Saw’ Is Officially Back From the Dead on Streaming
+
+TV News, Saw, Horror, Streaming
+
+Sat, 17 Oct 2026 23:30:15 GMT
+
+https://collider.com/saw-streaming-hit-itunes-october-2026/
+
+The low-budget horror phenomenon Saw is taking over the iTunes charts 22 years after it shocked the box office.
+---------
+
+# George Lucas Explained Why He Really Had To Kill Obi-Wan Kenobi 50 Years Ago
+
+Features, Star Wars: Episode IV - A New Hope, Star Wars, Fantasy, Sci-Fi, George Lucas
+
+Sun, 18 Oct 2026 00:30:18 GMT
+
+https://movieweb.com/star-wars-obi-wan-death-reason/
+
+Alec Guinness' Star Wars character survived in early drafts of 'A New Hope's script, but Lucas changed his mind for a good reason. Read on for more.
+---------
+
+# Rebecca Ferguson's Unsung 152-Minute Fantasy Thriller Seeks Redemption on New Streaming Home
+
+Movie News, Doctor Sleep, Paramount Plus, Coming/Leaving Streaming, Stephen King, Rebecca Ferguson, Fantasy, Thriller
+
+Sun, 18 Oct 2026 00:00:18 GMT
+
+https://movieweb.com/doctor-sleep-stream-paramount-october-2026/
+
+Nobody expected Rebecca Ferguson's fantasy sequel to be this good.
+---------
+
 # 20 Years Later, Iron Man Hears The 5 Devastating Words Fans Have Waited 2 Decades For
 
 Comics, Iron Man, Marvel
