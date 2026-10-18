@@ -1,3 +1,421 @@
+# Why Friends Only Has 1 Halloween Episode (And Seinfeld Doesn't Have Any)
+
+Classic TV, Friends, Seinfeld
+
+Sun, 18 Oct 2026 17:30:18 GMT
+
+https://screenrant.com/friends-1-halloween-episode-seinfeld-none-reason-explained/
+
+While most sitcoms now have at least one Halloween episode per season, two of the most influential sitcoms, Friends and Seinfeld, didn't follow that.
+---------
+
+# New Sherlock Holmes Show’s Future Gets Encouraging Update From Star
+
+TV, Sherlock Holmes
+
+Sun, 18 Oct 2026 17:13:56 GMT
+
+https://screenrant.com/death-of-sherlock-holmes-season-2-response-rafe-spall/
+
+Sherlock Holmes' return is far from over, as a new mystery series gets an encouraging season 2 update from star Rafe Spall ahead of its release.
+---------
+
+# 30 Years Ago, Charles M. Schulz Changed Peanuts for the Better With One Character Retcon
+
+Comics, Peanuts
+
+Sun, 18 Oct 2026 17:00:18 GMT
+
+https://screenrant.com/charles-shculz-changed-peanuts-emily/
+
+Schulz made many changes to Peanuts' characters throughout the comic, but one retcon is the best thing that could have happened to Charlie Brown.
+---------
+
+# NBC & Dick Wolf Officially Break Their Promise To Fix Law & Order: SVU's Glaring Cast Mistake
+
+Network TV, Law & Order: Special Victims Unit
+
+Sun, 18 Oct 2026 17:00:18 GMT
+
+https://screenrant.com/law-and-order-svu-season-28-fin-absence-mistake-not-fixed/
+
+Dick Wolf's Law & Order: SVU promised to include Ice-T's Odafin Tutuola in every episode of season 28, but he has already missed an episode.
+---------
+
+# 3 Scariest Resident Evil Games Of All Time
+
+Gaming, Resident Evil, Resident Evil Village, Resident Evil 7: Biohazard
+
+Sun, 18 Oct 2026 17:00:18 GMT
+
+https://screenrant.com/scariest-resident-evil-games-ever/
+
+What someone finds scary may be subjective, but three Resident Evil games have gone above and beyond to prove that they are the scariest of them all.
+---------
+
+# This John Carpenter Meets Air Force One Thriller Is Samuel L. Jackson's Best R-Rated Action Movie Since 2014
+
+Movies, Masked Recs
+
+Sun, 18 Oct 2026 16:55:19 GMT
+
+https://screenrant.com/beast-movie-samuel-l-jackson-best-action-movie-john-carpenter-meets-air-force-one/
+
+Samuel L. Jackson's new action thriller is best described as John Carpenter's Air Force One, and it's Jackson's best action vehicle in over a decade.
+---------
+
+# Star Wars' Upcoming Slate Takes Another Massive Blow As New Movie Hits Major Roadblock
+
+Movies, Star Wars
+
+Sun, 18 Oct 2026 16:48:29 GMT
+
+https://screenrant.com/star-wars-untitled-taika-waititi-movie-on-hold/
+
+One of the most highly anticipated Star Wars films receives some very disappointing news after spending years dealing with development problems.
+---------
+
+# Clint Eastwood's $547 Million War Movie Is Leaving Netflix Next Month
+
+Movies, Masked Recs
+
+Sun, 18 Oct 2026 16:40:18 GMT
+
+https://screenrant.com/clint-eastwood-american-sniper-movie-leaving-netflix-november-2026/
+
+Clint Eastwood's $547 million war movie that's one of his best is leaving Netflix next month, with only a short time left to watch it.
+---------
+
+# The Best Legendary In Every Pokémon Generation
+
+Lists, Pokemon
+
+Sun, 18 Oct 2026 16:32:15 GMT
+
+https://screenrant.com/best-legendary-every-pokemon-generation/
+
+Legendary Pokémon are a staple of the franchise, and even though every generation has a bunch, only a few stand out as the best of the best.
+---------
+
+# 65 Years Later, DC Gives A Classic Justice League Hero A Completely New Origin
+
+DC Comics, Justice League
+
+Sun, 18 Oct 2026 16:30:19 GMT
+
+https://screenrant.com/atom-justice-league-new-origin-story-absolute-flash-dc/
+
+A classic Justice League hero gets a new origin story that might make them essential to the future of DC Comics' most popular timeline.
+---------
+
+# Theo James' Unfinished Dystopian Franchise Gets Cancellation Explanation From Book Author
+
+Movies, Theo James, Divergent
+
+Sun, 18 Oct 2026 17:37:32 GMT
+
+https://www.cbr.com/theo-james-allegiant-cancellation-veronica-roth/
+
+In the era of dystopian book adaptations, one of them failed to impress.
+---------
+
+# Netflix’s 8-Episode Cyberpunk Thriller Will Go Down as a Modern Sci-Fi Classic
+
+TV, Bodies, Netflix, Sci-Fi
+
+Sun, 18 Oct 2026 17:30:14 GMT
+
+https://www.cbr.com/netflix-cyberpunk-bodies-modern-sci-fi-classic/
+
+Told over eight episodes, Netflix's most surprising sci-fi mystery series is a must-watch for any fans of the cyberpunk thriller genre.
+---------
+
+# 10 Most Perfect Game Boy Color Games of All Time, Ranked
+
+Games, Nintendo, Video Games, Mario
+
+Sun, 18 Oct 2026 17:15:15 GMT
+
+https://www.cbr.com/most-perfect-game-boy-color-games-ranked/
+
+The Game Boy Color might have been a weak system at launch, but that didn't stop it from hosting some of the most perfect video games ever made.
+---------
+
+# Guy Ritchie's Controversial 2-Part Crime Series Surges on Paramount+
+
+TV, MobLand, guy ritchie, tom hardy, Pierce Brosnan, helen mirren, Paramount Plus, Television
+
+Sun, 18 Oct 2026 17:00:14 GMT
+
+https://www.cbr.com/guy-ritchie-mobland-crime-paramount-plus-surge-october-2026/
+
+Guy Ritchie's TV show about two warring crime families is soaring on Paramount+.
+---------
+
+# Harry Potter and the Goblet of Fire Gave Hagrid the Best Quote in Fantasy
+
+Books, Harry Potter
+
+Sun, 18 Oct 2026 17:00:14 GMT
+
+https://www.cbr.com/harry-potter-goblet-of-fire-hagrid-hardest-quote-fantasy-history/
+
+Harry Potter and the Goblet of Fire is a beloved Harry Potter novel, and one of Hagrid's quotes is the hardest in fantasy history.
+---------
+
+# ABC's Grey's Anatomy Texas Spinoff Gets New Update 5 Months After Confirmation
+
+TV, ABC, Grey's Anatomy
+
+Sun, 18 Oct 2026 16:55:59 GMT
+
+https://www.cbr.com/abc-greys-anatomy-texas-spinoff-gets-new-update/
+
+The Grey's Anatomy spinoff in Texas just received some fantastic updates and intriguing reveals.
+---------
+
+# Sega Genesis Gets New Physical Game Release 37 Years Later
+
+Games, Sega Genesis, Video Games
+
+Sun, 18 Oct 2026 16:30:14 GMT
+
+https://www.cbr.com/sega-genesis-new-80s-arcade-game-physical-release-2026/
+
+A classic '80s arcade game is finally getting a physical release on the Sega Genesis in 2026.
+---------
+
+# CBS Just Set Up Kayce Dutton’s Replacement in Marshals Season 2
+
+TV, Yellowstone, Marshals, CBS
+
+Sun, 18 Oct 2026 16:30:14 GMT
+
+https://www.cbr.com/marshals-season-2-replace-kayce-with-boone/
+
+Marshals Season 2 replaces Kayce Dutton's original Yellowstone story as the spinoff revisits the franchise's themes of legacy and succession.
+---------
+
+# One Piece Crowns Its Third Straw Hat with Conqueror's Haki
+
+Anime, One Piece, Reviews, Manga, Eiichiro Oda, Shonen
+
+Sun, 18 Oct 2026 16:15:14 GMT
+
+https://www.cbr.com/one-piece-chapter-1196-review-sanji-self-love-conqueror-haki/
+
+Both of Luffy's lieutenants can now use Conqueror's Haki, bringing him ever closer to Pirate Kingship
+---------
+
+# 8 Movies To Watch If You Love Brandon Sanderson's Mistborn Series
+
+Movies, Fantasy
+
+Sun, 18 Oct 2026 16:00:14 GMT
+
+https://www.cbr.com/best-movies-to-watch-for-brandon-sandersons-mistborn-fans-list/
+
+Snippets of Brandon Sanderson's Mistborn can be found in these 8 films.
+---------
+
+# Seth Rogen’s $98M Sci-Fi Adventure Is Officially Leaving Streaming
+
+Movie News, Paul, Steven Spielberg, Peacock, Seth Rogen
+
+Sun, 18 Oct 2026 17:30:14 GMT
+
+https://collider.com/seth-rogen-sci-fi-paul-leaving-peacock-november-2026/
+
+Steven Spielberg had a voice cameo in the sci-fi comedy film Paul, which is about to be removed from Peacock. Find out more.
+---------
+
+# The 7 Best Martial Arts Movies Released Since 2020, Ranked
+
+Movie, Martial Arts, Rurouni Kenshin: Final Chapter Part I - The Final, Twilight of the Warriors: Walled In, Everything Everywhere All at Once
+
+Sun, 18 Oct 2026 16:41:15 GMT
+
+https://collider.com/best-martial-arts-movies-since-2020-ranked/
+
+From Kill to The Paper Tigers, these post-2020 martial arts epics trade mindless stunts for pure character depth.
+---------
+
+# Tom Hardy's Near-Perfect True Crime Thriller Officially Resurfaces as a Free Streaming Hit
+
+Movie News, Lawless, Tom Hardy, Pluto TV, Jessica Chastain
+
+Sun, 18 Oct 2026 16:30:15 GMT
+
+https://collider.com/tom-hardy-lawless-streaming-free-pluto-tv-october-2026/
+
+After 14 years, Tom Hardy's forgotten true crime thriller has officially been unleashed onto free streaming.
+---------
+
+# ‘Reacher’ Star Alan Ritchson Officially Scores 3 Simultaneous Streaming Hits
+
+Movie News, Alan Ritchson, Runner, Motor City, Reacher
+
+Sun, 18 Oct 2026 16:00:14 GMT
+
+https://collider.com/alan-ritchson-runner-motor-city-reacher-streaming-hits-october-2026/
+
+Alan Ritchson has three simultaneous streaming hits as Runner, Motor City, and Reacher find success with viewers.
+---------
+
+# 7 Years Ago, Netflix Officially Cancelled One of Its Best Prequel Series
+
+TV Features, Netflix, The Dark Crystal, The Dark Crystal: Age of Resistance, Jim Henson
+
+Sun, 18 Oct 2026 15:54:14 GMT
+
+https://collider.com/dark-crystal-age-of-resistance-netflix-cancelled/
+
+Among Netflix's many premature cancellations is The Dark Crystal: Age of Resistance, which only got a single season, despite its rave reviews.
+---------
+
+# ‘Ghostbusters’ Meets ‘Wednesday’ in Netflix’s 8-Part Thriller You Can Binge in a Day
+
+TV, Lockwood & Co., Netflix, Thriller, Wednesday
+
+Sun, 18 Oct 2026 15:39:15 GMT
+
+https://collider.com/lockwood-and-co-netflix-supernatural-thriller/
+
+Netflix's Lockwood & Co. is the perfect thriller for fans of Wednesday and Ghostbusters, giving audiences a chilling supernatural series to binge.
+---------
+
+# Russell Crowe’s Crime Movie Officially Extends Its Streaming Streak
+
+Movie News, The Get Out, Russell Crowe, Nina Dobrev, Crime
+
+Sun, 18 Oct 2026 15:30:14 GMT
+
+https://collider.com/the-get-out-russell-crowe-streaming-charts-30-days/
+
+Russell Crowe’s 111-minute crime movie The Get Out has extended its impressive streaming chart streak.
+---------
+
+# Netflix’s Next WWII Blockbuster Officially Arrives This Month
+
+Movie News, The Mosquito Bowl, Taylor Kitsch, World War II, Netflix
+
+Sun, 18 Oct 2026 15:00:15 GMT
+
+https://collider.com/the-mosquito-bowl-netflix-release-date-october-2026/
+
+Netflix’s new WWII movie The Mosquito Bowl officially arrives this month as one of the streamer’s next major releases.
+---------
+
+# The 10 Funniest Video Games of All Time, Ranked
+
+TV, Video Game, Disco Elysium, Portal, Comedy
+
+Sun, 18 Oct 2026 14:59:15 GMT
+
+https://collider.com/funny-video-games-all-time-ranked/
+
+These funny games will keep players entertained from start to finish, featuring titles like Portal 2, Untitled Goose Game, and Yakuza 0.
+---------
+
+# New "Must-See" 174-Minute Masterpiece Pulls Off a Box Office Feat Not Seen in 20 Years
+
+Movie News, Documentary, You Can See Everything, Nathan Fielder
+
+Sun, 18 Oct 2026 17:27:32 GMT
+
+https://movieweb.com/you-can-see-everything-box-office-update/
+
+Defying documentary trends, 'You Can See Everything' turns Elizabeth Holmes' private life into a box-office sensation.
+---------
+
+# 13 'Friday the 13th' Easter Eggs & References in the New Prequel Series
+
+TV Lists, Crystal Lake, Friday The 13th, Horror, Peacock
+
+Sun, 18 Oct 2026 17:01:17 GMT
+
+https://movieweb.com/crystal-lake-friday-the-13th-easter-eggs/
+
+Peacock's hit series features many callbacks to 'Friday the 13th's 46-year history, from familiar characters to hints at Jason Voorhees' future.
+---------
+
+# The Near-Perfect Thriller Hailed as the "Best Movie of the 21st Century" Officially Returns in 4K
+
+Movie News, Parasite, Thriller, Bong Joon  Ho
+
+Sun, 18 Oct 2026 16:26:30 GMT
+
+https://movieweb.com/parasite-4k-release-bong-joon-ho/
+
+See this modern classic like you've never seen it before.
+---------
+
+# 8 Great Martial Arts Action Sequels That Are Better Than the Original
+
+Movie Lists, Martial Arts, Action
+
+Sun, 18 Oct 2026 16:00:17 GMT
+
+https://movieweb.com/martial-arts-action-sequels-better-original/
+
+While rare, some sequels outdo the first movie, with these action-packed martial arts follow-ups raising the stakes at every turn.
+---------
+
+# Bruce Willis' $1.4B Action Franchise Officially Returns With Explosive New Release
+
+Movie News, Die Hard, Die Hard 2, Die Hard: With a Vengeance, Bruce Willis, Action, Blu-ray
+
+Sun, 18 Oct 2026 16:00:17 GMT
+
+https://movieweb.com/die-hard-bruce-willis-4k-blu-ray-trilogy/
+
+20th Century Studios Home Entertainment has announced that Bruce Willis' action classic 'Die Hard' trilogy is coming to 4K Blu-ray steelbook.
+---------
+
+# Prime Video's 'Fourth Wing' Sparks Backlash Over Xaden & Violet Casting: "This Is NOT Xaden"
+
+TV News, Fourth Wing, Fantasy, Action, Romance
+
+Sun, 18 Oct 2026 15:22:33 GMT
+
+https://movieweb.com/fourth-wing-tv-series-xaden-violet-casting-backlash/
+
+'Fourth Wing's new leads face criticism following Prime Video's milestone announcement.
+---------
+
+# Two Long-Awaited 'Lord of the Rings' Movies Officially Get Big Updates From Peter Jackson
+
+Movie News, The Lord of the Rings, The Lord of the Rings: Shadow of the Past, The Lord of the Rings: The Hunt for Gollum, Fantasy
+
+Sun, 18 Oct 2026 15:21:01 GMT
+
+https://movieweb.com/lord-rings-shadow-past-hunt-gollum-peter-jackson/
+
+It sounds like both projects are moving forward, even though we've heard that one may be in danger.
+---------
+
+# 'Street Fighter' Director Reveals the Biggest Change He Made After Taking Over the Movie
+
+Exclusives, Street Fighter, Action, Comedy
+
+Sun, 18 Oct 2026 15:12:47 GMT
+
+https://movieweb.com/street-fighter-2026-movie-director-change-explained/
+
+'Street Fighter' was initially helmed by the directors of an acclaimed A24 horror movie.
+---------
+
+# George’s Greatest ‘Seinfeld’ Quote Is Surprisingly the Most Inspiring in TV History
+
+Features, Seinfeld, Comedy, Great Line
+
+Sun, 18 Oct 2026 15:00:18 GMT
+
+https://movieweb.com/seinfeld-george-inspiring-quote/
+
+'Seinfeld' has many memorable quotes from Jerry Seinfeld and Elaine Benes, but George Costanza (Jason Alexander) has one particularly great line.
+---------
+
 # Scarlett Johansson's Blade Runner Replacement Releases In 2 Months & Keeps Getting More Exciting
 
 Movies, Masked Recs
