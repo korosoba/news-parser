@@ -1,3 +1,421 @@
+# Every Confirmed Narnia Book Change In The Magician's Nephew, & What It Means For The Plot
+
+Books, Narnia: The Magician's Nephew, The Chronicles of Narnia
+
+Sun, 18 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/chronicles-of-narnia-magicians-nephew-changes-confirmed/
+
+The Magician's Nephew has made dramatic changes to The Chronicles of Narnia, and they're a lot more important than some viewers may have realized.
+---------
+
+# 5 Greatest Fantasy Games Of The 2000s
+
+Gaming, Fantasy, Triple-A Games, PC
+
+Sun, 18 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/greatest-fantasy-games-2000s/
+
+Some of the greatest fantasy games ever made came out in the 2000s, and there's a surprising about of variety among the best of the best.
+---------
+
+# The 20 Best Horror TV Shows Of All Time, Ranked
+
+Classic TV, Horror, Halloween 2026
+
+Sun, 18 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/best-horror-tv-series-all-time/
+
+From Twin Peaks to The Twilight Zone to Buffy the Vampire Slayer to Mike Flanagan's masterpieces, these are the scariest horror TV shows ever made.
+---------
+
+# The Most Iconic 3 Minutes Of Goodfellas Only Have 1 Rival In Crime Movie History
+
+Movies, Goodfellas, Touch of Evil
+
+Sun, 18 Oct 2026 21:55:19 GMT
+
+https://screenrant.com/goodfellas-movie-copacabana-one-shot-touch-of-evil/
+
+Goodfellas' best scene has none of Scorsese's trademark violence, and its closest competitor came out more than 30 years before its release.
+---------
+
+# HBO Deserves Kudos For Successfully Adapting A 3-Book "Anti-Narnia" Fantasy Saga
+
+Classic TV, Masked Recs
+
+Sun, 18 Oct 2026 21:30:18 GMT
+
+https://screenrant.com/his-dark-materials-anti-narnia-hbo-fantasy-show/
+
+Certain book series have proven rather difficult to adapt, but that didn't stop HBO from successfully taking a stab at a highly controversial fantasy
+---------
+
+# DC's Clayface Movie Could Fix Batman's Lack Of Original Live-Action Villains
+
+Movies, Clayface, DC Universe, Batman
+
+Sun, 18 Oct 2026 21:30:18 GMT
+
+https://screenrant.com/dc-clayface-movie-batman-live-action-villains-problem/
+
+DC's Clayface movie brings body horror to Gotham, exploring a tragic transformation that could open the door to bold new stories about Batman's world.
+---------
+
+# R-Rated Batman Villain's Movie Gets Mike Flanagan's Official Verdict
+
+Movies, Clayface, Batman, DC Universe
+
+Sun, 18 Oct 2026 21:28:29 GMT
+
+https://screenrant.com/clayface-mike-flanagan-letterboxd-review/
+
+Mike Flanagan has officially given his verdict on DC Studios' upcoming R-rated Batman horror film set in James Gunn's DC Universe franchise.
+---------
+
+# A24 Reunites With Jesse Eisenberg For First-Ever TV Show
+
+TV, Jesse Eisenberg, A24
+
+Sun, 18 Oct 2026 21:22:20 GMT
+
+https://screenrant.com/jesse-eisenberg-tv-show-a24-development/
+
+After collaborating on The Debut, A24 and Jesse Eisenberg are making a television show, which will be the first he has directed, written, or produced.
+---------
+
+# 9 Valinor Secrets LOTR & The Rings Of Power Leave Out
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Sun, 18 Oct 2026 21:15:19 GMT
+
+https://screenrant.com/lord-of-the-rings-valinor-details-missing/
+
+Valinor is the name of the mysterious Undying Lands to the west of Middle-earth, and LOTR and Rings of Power leave a lot of information out.
+---------
+
+# The Top 10 James Bond Gadgets Of All Time
+
+Movies, James Bond
+
+Sun, 18 Oct 2026 21:15:18 GMT
+
+https://screenrant.com/james-bond-best-gadgets-all-time/
+
+Whether it’s a hidden weapon or an invisible car, these are the greatest James Bond gadgets ever, from both Q Branch and 007’s villains.
+---------
+
+# Gerard Butler's 102-Minute Sci-Fi Flop Finds a New Life on Streaming 24 Years Later
+
+Movies, Reign of Fire
+
+Sun, 18 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/gerard-butler-reign-of-fire-sci-fi-prime-video-success-october-2026/
+
+One of the most divisive modern fantasy epics is lighting up the streaming charts more than two decades after flopping at the box office.
+---------
+
+# Studio Ghibli Brings Totoro's Forest Back to the Table With 3 Classic Kitchenware Designs From Its 21-Year-Old Collection
+
+Anime, My Neighbor Totoro, Studio Ghibli, merchandise
+
+Sun, 18 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/studio-ghibli-my-neighbor-totoro-noritake-plates-restock/
+
+Studio Ghibli's My Neighbor Totoro brings back three adorable collectible plates from 2005, featuring seasonal designs by Noritake.
+---------
+
+# Forget Yellowstone, Timothy Olyphant's 6-Season Western Masterpiece Gets Everything Right
+
+TV, Justified, Western, Yellowstone
+
+Sun, 18 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/justified-beats-yellowstone-timothy-olyphant-western-masterpiece/
+
+Yellowstone might be king of the neo-Western as far as streaming goes, but Timothy Olyphant's 2010 crime show is better all the way.
+---------
+
+# 10 Iron Man Villains That Desperately Need a Reboot
+
+Comics, Marvel Comics, Iron Man, Avengers
+
+Sun, 18 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/iron-man-villains-that-desperately-need-a-reboot/
+
+Iron Man has a ton of villains that just need reimagining to become worth writing about.
+---------
+
+# Zelda Returns With New 40th Anniversary Release April 2027
+
+Games, The Legend of Zelda, Nintendo
+
+Sun, 18 Oct 2026 21:46:14 GMT
+
+https://www.cbr.com/zelda-returns-with-new-40th-anniversary-release/
+
+Zelda's 40th anniversary celeberations will continue into 2027 with a new release coming this April.
+---------
+
+# All 5 Percy Jackson and the Olympians Books, Ranked
+
+Books, Percy Jackson & The Olympians, Fantasy, Innovation
+
+Sun, 18 Oct 2026 21:30:14 GMT
+
+https://www.cbr.com/every-percy-jackson-and-the-olympians-book-ranked-list-fantasy/
+
+Percy Jackson & the Olympians is one of the greatest fantasy series of all time, but which book is the best?
+---------
+
+# Jason Statham's New Action Flop Gets Great Streaming News 1 Month After Release
+
+Movies, Mutiny, Jason Statham
+
+Sun, 18 Oct 2026 21:00:14 GMT
+
+https://www.cbr.com/jason-statham-mutiny-action-flop-streaming-success-october-2026/
+
+Statham's latest action movie had a rough theatrical run, but is finding a new audience at home.
+---------
+
+# Yellowstone's Monica Dutton Return Gets Thrilling Tease From Marshals Boss
+
+TV, Yellowstone, Marshals
+
+Sun, 18 Oct 2026 20:43:40 GMT
+
+https://www.cbr.com/marshals-monica-dutton-yellowstone-reunion/
+
+Despite Monica Dutton's demise, a Yellowstone reunion is not off the table.
+---------
+
+# Doctor Who’s Scariest Episode Is Stephen King-Level Horror
+
+TV, Doctor Who, bbc, Stephen King
+
+Sun, 18 Oct 2026 20:31:14 GMT
+
+https://www.cbr.com/doctor-who-midnight-stephen-king-level-horror/
+
+One of Doctor Who's most terrifying and emotional episodes could have been taken straight from the mind of legendary horror author Stephen King.
+---------
+
+# Crystal Lake Creator Shades Friday the 13th Sequels to Defend Canon Changes
+
+TV, Crystal Lake
+
+Sun, 18 Oct 2026 20:17:46 GMT
+
+https://www.cbr.com/crystal-lake-new-lore-defended-creator/
+
+Crystal Lake showrunner Brad Caleb Kane calls out the sequels when asked about his changes to the Friday the 13th lore.
+---------
+
+# 10 Most Popular Movie Masterpieces of the Past 6 Years
+
+Movie, Barbie, Project Hail Mary, Oppenheimer, KPop Demon Hunters
+
+Sun, 18 Oct 2026 22:03:15 GMT
+
+https://collider.com/most-popular-movie-masterpieces-past-six-years/
+
+Barbie, Encanto, Dune: Part Two, Project Hail Mary, KPop Demon Hunters, and more make up our list of the most beloved movies of the past six years.
+---------
+
+# Hulu’s Bloody Horror Sequel Officially Returns to the Streaming Top 10
+
+Movie News, Ready or Not 2: Here I Come, Horror, Hulu, Samara Weaving
+
+Sun, 18 Oct 2026 22:00:14 GMT
+
+https://collider.com/samara-weaving-ready-or-not-2-here-i-come-streaming-hit-hulu-october-2026/
+
+One of the goriest horror sequels of the year, Ready or Not 2: Here I Come, is a streaming hit once again.
+---------
+
+# The 10 Most Subversive War Movies, Ranked
+
+Movie, War, La Bola Negra, Dr. Strangelove Or: How I Learned To Stop Worrying And Love The Bomb, Born on the Fourth of July
+
+Sun, 18 Oct 2026 21:55:15 GMT
+
+https://collider.com/most-subversive-war-movies-ranked/
+
+These war movies aren't what you're expecting.
+---------
+
+# 10 Most Universally Loved Thriller Movies Based on Books, Ranked
+
+Movie, Books, Thriller, The Silence of the Lambs, Psycho
+
+Sun, 18 Oct 2026 21:42:14 GMT
+
+https://collider.com/most-universally-loved-thriller-movies-based-on-books-ranked/
+
+Suspenseful classics like The Silence of the Lambs, Perfect Blue, and Psycho are among the most universally loved thriller movies based on books.
+---------
+
+# 10 Classic Rock Songs That Could Be the Soundtrack to The Exorcist, Ranked
+
+Music Features, Black Sabbath: Never Say Die, The Rolling Stones, Fleetwood Mac, Music
+
+Sun, 18 Oct 2026 21:35:20 GMT
+
+https://collider.com/best-rock-songs-the-exorcist-ranked/
+
+The Exorcist meets the darker side of classic rock with these chilling songs from Alice Cooper, Whitesnake, and other rock legends.
+---------
+
+# Taylor Sheridan’s ‘Tulsa King’ Season 4 Officially Falls Behind a Rival Crime Hit
+
+TV News, Tulsa King, Taylor Sheridan, Guy Ritchie, MobLand
+
+Sun, 18 Oct 2026 21:30:14 GMT
+
+https://collider.com/tulsa-king-season-4-vs-mobland-season-2-streaming-success-paramount-plus-october-2026/
+
+Taylor Sheridan's Tulsa King Season 4 has officially premiered, but has yet to overtake Guy Ritchie's 2-part crime saga.
+---------
+
+# 10 Adventure Movies That Are Fun From Start to Finish
+
+Movie, Adventure, Indiana Jones and the Last Crusade, Back to the Future, Jurassic Park
+
+Sun, 18 Oct 2026 21:30:14 GMT
+
+https://collider.com/adventure-movies-fun-start-to-finish/
+
+Whether it's animated gems like Up or tales of ancient curses like The Mummy, these adventure movies remain enjoyable throughout their entire runtime.
+---------
+
+# 5 Years Later, HBO Max's Greatest Franchise Is Still the Best in Sci-Fi History
+
+Movie Features, Dune, Denis Villeneuve, Timothée Chalamet, Zendaya
+
+Sun, 18 Oct 2026 21:23:15 GMT
+
+https://collider.com/dune-denis-villeneuve-best-sci-fi-franchise/
+
+Denis Villeneuve has achieved the impossible by adapting Dune, the best sci-fi saga in history.
+---------
+
+# Christopher Nolan’s Box Office Epic Officially Conquers Apple TV
+
+Movie News, The Odyssey, Christopher Nolan, Matt Damon, Apple TV
+
+Sun, 18 Oct 2026 21:15:15 GMT
+
+https://collider.com/the-odyssey-streaming-success-apple-tv-october-2026/
+
+Explore how The Odyssey became a streaming hit on Apple TV after its box office success, showcasing Nolan's filmmaking genius.
+---------
+
+# 'Twilight Zone's Most Chilling Episode Was Officially Ruined by a Bad Performance
+
+TV Features, The Twilight Zone, Rod Serling, CBS, Horror
+
+Sun, 18 Oct 2026 21:14:15 GMT
+
+https://collider.com/twilight-zone-hes-alive-rod-serling-script/
+
+Rod Serling's best script for The Twilight Zone was ruined by one actor's bad performance and never got a chance to make it to the big screen.
+---------
+
+# 8 Classic American War Movies Currently Available on Free Streaming
+
+Movie Lists, War
+
+Sun, 18 Oct 2026 21:46:17 GMT
+
+https://movieweb.com/american-war-movies-streaming-free/
+
+Most iconic war movies from the past are on paid streaming services. Luckily, a few are also available to watch on free platforms.
+---------
+
+# Sylvester Stallone Personally Called Frank Grillo Back to 'Tulsa King' Season 4
+
+Exclusives, Tulsa King, Frank Grillo, Sylvester Stallone, Crime, Drama, Comedy
+
+Sun, 18 Oct 2026 21:15:20 GMT
+
+https://movieweb.com/tulsa-king-season-4-frank-grillo-sylvester-stallone/
+
+Frank Grillo is in it for the long haul after Sylvester Stallone secured his return in 'Tulsa King.'
+---------
+
+# Hugh Jackman's New "Ridley Scott Meets Logan" R-Rated Action Thriller Is Already the #1 Movie on Streaming
+
+Movie News, The Death of Robin Hood, HBO Max, Hot on Streaming, Action, Hugh Jackman, Ridley Scott
+
+Sun, 18 Oct 2026 21:01:18 GMT
+
+https://movieweb.com/death-of-robin-hood-stream-hbo-october-2026/
+
+Hugh Jackman's new action thriller might have flopped at the box office, but it's a sensation on streaming.
+---------
+
+# HBO Max's 18-Part Sci-Fi Space Opera Is Still Bigger Than 'The Expanse' Ever Was
+
+Features, The Expanse, Raised by Wolves, Sci-Fi
+
+Sun, 18 Oct 2026 21:01:18 GMT
+
+https://movieweb.com/raised-by-wolves-expanse-comparison/
+
+'The Expanse,' the Prime Video sci-fi series, is big in scale, but this underrated HBO Max series is just as impressive.
+---------
+
+# I Watched Every Taylor Sheridan Series, Here’s All 10, Ranked From Worst to Best
+
+TV Lists, Taylor Sheridan, Yellowstone, Western, Crime, Network TV
+
+Sun, 18 Oct 2026 20:30:17 GMT
+
+https://movieweb.com/taylor-sheridan-shows-ranked/
+
+MovieWeb's resident Taylor Sheridan expert breaks down every series so far, determining which series hold up best.
+---------
+
+# Disney's 'Hexed' Directors Address Vertical Video Backlash and Real Reason Behind It
+
+Movie News, Hexed, Hailee Steinfeld, Disney
+
+Sun, 18 Oct 2026 20:27:13 GMT
+
+https://movieweb.com/disney-hexed-movie-vertical-video-backlash-explained-directors/
+
+The directors of Disney's 'Hexed' address early vertical video backlash and the story reason behind it
+---------
+
+# X-Men Veteran Eyes One of the Most Iconic Roles in Sci-Fi History
+
+TV News, Star Trek, James McAvoy, Sci-Fi
+
+Sun, 18 Oct 2026 20:09:21 GMT
+
+https://movieweb.com/star-trek-james-mcavoy-patrick-stewart-picard/
+
+This prequel series came very close to happening. It even had a name.
+---------
+
+# 9 Years Later, Fantasy TV’s Greatest Plot Twist Still Has No Equal
+
+Features, The Good Place, Fantasy
+
+Sun, 18 Oct 2026 20:00:55 GMT
+
+https://movieweb.com/the-good-place-best-plot-twist/
+
+Fantasy doesn’t depend on twists as much as thrillers, but the greatest of the genre sets the bar high.
+---------
+
 # Liam Neeson's 114-Minute Gritty Action Thriller Is Free To Stream Next Month
 
 Movies, A Walk Among The Tombstones
