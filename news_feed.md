@@ -1,3 +1,399 @@
+# Scarlett Johansson's Blade Runner Replacement Releases In 2 Months & Keeps Getting More Exciting
+
+Movies, Masked Recs
+
+Sun, 18 Oct 2026 14:40:19 GMT
+
+https://screenrant.com/scarlett-johansson-ray-gunn-netflix-movie-blade-runner-exciting/
+
+Scarlett Johansson has a Blade Runner replacement on the way, and the sci-fi movie just keeps getting better ahead of its release in two months.
+---------
+
+# All X Video Game Movies Of 2026, Ranked
+
+Movies, Ranking, Resident Evil, Mortal Kombat II, Street Fighter, The Super Mario Galaxy Movie
+
+Sun, 18 Oct 2026 14:34:19 GMT
+
+https://screenrant.com/video-game-movies-2026-ranked/
+
+From Resident Evil to Street Fighter and Super Mario Galaxy, here are the 8 video game movies of 2026, ranked worst to best.
+---------
+
+# Josh Brolin & Melissa Leo’s 68-Episode TV Version Of Young Guns Deserves Its Cult-Classic Status
+
+Classic TV, Masked Recs
+
+Sun, 18 Oct 2026 14:30:18 GMT
+
+https://screenrant.com/the-young-riders-tv-show-like-young-guns-cult-classic/
+
+Josh Brolin and Melissa Leo's 68-episode Western series deserves another look thanks to its memorable performances and cult classic status.
+---------
+
+# What Really Happened To River Cartwright In Slow Horses
+
+Streaming TV, Slow Horses
+
+Sun, 18 Oct 2026 14:15:18 GMT
+
+https://screenrant.com/what-happened-to-river-cartwright-in-slow-horses-season-4/
+
+Slow Horses season 4, episode 1, starts out with a shocking revelation: River Cartwright has been killed by his grandfather — but is that really true?
+---------
+
+# Pokémon Emerald And Crystal Officially Return In 30th Anniversary Collection
+
+Gaming, Pokemon
+
+Sun, 18 Oct 2026 14:09:39 GMT
+
+https://screenrant.com/pokmon-emerald-and-crystal-officially-return-in-30th-anniversary-collection/
+
+Fans can relive two of the best Pokémon games ever released as part of a 30th anniversary collection.
+---------
+
+# Peter Jackson Drops Big Updates On Two Lord Of The Rings Projects
+
+Movies, The Lord of the Rings
+
+Sun, 18 Oct 2026 14:00:55 GMT
+
+https://screenrant.com/peter-jackson-lord-of-the-rings-shadow-of-the-past-hunt-for-gollum-updates/
+
+Peter Jackson is returning to the Shire, as the acclaimed filmmaker drops major development updates on two new Lord of the Rings projects.
+---------
+
+# Peter Krause's New Crime Drama Steals 9-1-1's Biggest Hook
+
+Network TV, Masked Recs
+
+Sun, 18 Oct 2026 14:00:19 GMT
+
+https://screenrant.com/line-of-fire-911-story-hook-steal/
+
+Peter Krause's Line of Fire has some striking similarities to 9-1-1, the ABC first-responder procedural that the actor exited last year.
+---------
+
+# Every Collection In The Realm Of The Elderlings Series, Ranked
+
+Books, Fantasy
+
+Sun, 18 Oct 2026 14:00:19 GMT
+
+https://screenrant.com/the-realm-of-the-elderlings-series-ranked/
+
+The Realm of the Elderlings is a perfect fantasy series, with five subseries that are vividly imagined and worth reading, no matter your favorite.
+---------
+
+# The Legend Of Zelda: Trails Of Time Officially Announced
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Sun, 18 Oct 2026 13:57:46 GMT
+
+https://screenrant.com/legend-of-zelda-trails-of-time-ocarina-switch-2-remake/
+
+Explore the new Trails of Time feature in Zelda: Ocarina of Time Remake, launching November 2026 on Switch 2.
+---------
+
+# 7 Perfect Movie Masterpieces That Are Even Better Than Citizen Kane
+
+Movies, Citizen Kane, Parasite, 2001: A Space Odyssey, Seven Samurai, M, 12 Angry Men, Vertigo, The Third Man
+
+Sun, 18 Oct 2026 13:55:18 GMT
+
+https://screenrant.com/movie-masterpieces-better-than-citizen-kane/
+
+Orson Welles’ Citizen Kane is among the greatest achievements in cinema history, but these perfect films by directors like Hitchcock are even better.
+---------
+
+# Star Wars' New Leia Novel Quietly Connects A New Hope's 50th Anniversary to Starfighter
+
+Books, Star Wars, Sci-Fi, Star Wars: Starfighter, Innovation
+
+Sun, 18 Oct 2026 14:30:15 GMT
+
+https://www.cbr.com/star-wars-princess-leia-novel-anniversary-celebration-starfighter/
+
+A new Princess Leia adventure kicks off what should be one of the most important months in Star Wars history.
+---------
+
+# 7 Anime Villains Stronger Than Super Saiyan Blue Goku
+
+Anime, Dragon Ball, anime villains, Goku, Dragon Ball Super
+
+Sun, 18 Oct 2026 14:15:14 GMT
+
+https://www.cbr.com/anime-villains-stronger-super-saiyan-blue-goku/
+
+Super Saiyan Blue Goku wins fights with speed, ki blasts and Kaio-ken multipliers, which do not work on these anime villains.
+---------
+
+# Transformers Officially Puts Starscream Behind the Wheel of G.I. Joe's H.I.S.S. Tank
+
+Anime, Transformers
+
+Sun, 18 Oct 2026 14:00:15 GMT
+
+https://www.cbr.com/transformers-starscream-gi-joe-hiss-tank-blokees/
+
+Transformers fans just got their first look at one of the coolest Energon Universe collectible designs yet, and it isn't even close.
+---------
+
+# 10 Most Influential Marvel Writers, Ranked
+
+Comics, Marvel, Marvel Comics, Spider-Man
+
+Sun, 18 Oct 2026 14:00:15 GMT
+
+https://www.cbr.com/most-influential-marvel-writers-ranked-list/
+
+Marvel Comics has been shaped by legendary writers for decades, and these 10 icons are easily the most influential in the publisher's history.
+---------
+
+# Snoopy's Christmas 2026 Collection Is Officially Making Holidays More Festive
+
+Comics, Peanuts, snoopy
+
+Sun, 18 Oct 2026 14:00:15 GMT
+
+https://www.cbr.com/peanuts-christmas-2026-collection-ruz-usa/
+
+Peanuts and Snoopy fans can start getting ready for the Christmas season with a new line of holiday-themed exclusives filled with cheer.
+---------
+
+# Fire Country Confirms Sheriff Country's Crossover Members With Dangerous Plot Tease
+
+TV, Fire Country, Sheriff Country, CBS
+
+Sun, 18 Oct 2026 13:36:30 GMT
+
+https://www.cbr.com/fire-country-sheriff-country-crossover-members-plot/
+
+New details for Fire Country's upcoming crossover with Sheriff Country have confirmed a dangerous plot for Edgewater's finest.
+---------
+
+# Forget Pirates of the Caribbean, Johnny Depp's 77-Minute Gothic Fantasy Is His True Masterpiece
+
+Movies, Johnny Depp, tim burton
+
+Sun, 18 Oct 2026 13:30:14 GMT
+
+https://www.cbr.com/johnny-depp-best-gothic-masterpiece-corpse-bride/
+
+Pirates of the Caribbean may be Johnny Depp's most famous movie, but far from his best work.
+---------
+
+# Fatal Fury: The Ultimate History is a Masterpiece For Fighting Game Fans
+
+Games, Fatal Fury, The King Of Fighters
+
+Sun, 18 Oct 2026 13:30:14 GMT
+
+https://www.cbr.com/fatal-fury-the-ultimate-history-masterpiece-fighting-game-review/
+
+Fatal Fury is one of the most important fighting game series of all time, and a new book release is the perfect celebration of its history.
+---------
+
+# Michael Mann’s 18-Episode HBO Thriller Beats Tulsa King at Its Own Game
+
+TV, Tokyo Vice, Tulsa King, HBO Max, Innovation
+
+Sun, 18 Oct 2026 13:30:14 GMT
+
+https://www.cbr.com/hbo-tokyo-vice-underrated-crime-drama/
+
+With Taylor Sheridan's Tulsa King returning to Paramount+ for a fourth season, this similar HBO crime show from Michael Mann deserves another look.
+---------
+
+# 10 Strongest Transformers Titans, Ranked by Power
+
+Anime, Transformers
+
+Sun, 18 Oct 2026 13:15:14 GMT
+
+https://www.cbr.com/strongest-transformers-titans-ranked/
+
+Transformers stories treat Titans as walking weapons as each one turns into a city or a starship and carries weapons to match that size as well.
+---------
+
+# Apple TV’s Near-Perfect Spy Series Is Officially a Streaming Powerhouse
+
+TV News, Apple TV, Gary Oldman, Slow Horses, Olivia Cooke
+
+Sun, 18 Oct 2026 14:30:15 GMT
+
+https://collider.com/slow-horses-apple-tv-streaming-streak-october-2026/
+
+Slow Horses continues an impressive streaming streak as Apple TV’s acclaimed spy series shows no signs of slowing down.
+---------
+
+# Steven Spielberg’s New Sci-Fi Epic Is Officially Still the #1 Movie on Peacock
+
+Movie News, Disclosure Day, Steven Spielberg, Sci-Fi, Peacock
+
+Sun, 18 Oct 2026 14:01:14 GMT
+
+https://collider.com/steven-spielberg-disclosure-day-peacock-top-movie-october-2026/
+
+Steven Spielberg’s divisive new sci-fi movie Disclosure Day has climbed to No. 1 on Peacock.
+---------
+
+# 8 Fantasy Movies That Give The Lord of the Rings a Run for Its Money
+
+Movie, The Lord of the Rings, Fantasy, The Odyssey, The Empire Strikes Back
+
+Sun, 18 Oct 2026 13:56:15 GMT
+
+https://collider.com/fantasy-movies-rival-the-lord-of-the-rings/
+
+Fantasy movies like The Empire Strikes Back, Spirited Away, and Pan's Labyrinth are so great they rival The Lord of the Rings trilogy.
+---------
+
+# Chris Pratt’s ‘Reacher’ Replacement Officially Returns After 4-Year Wait
+
+TV News, Chris Pratt, The Terminal List, Reacher, Prime Video
+
+Sun, 18 Oct 2026 13:16:15 GMT
+
+https://collider.com/the-terminal-list-chris-pratt-prime-video-release-date-october-2026/
+
+Chris Pratt’s The Terminal List officially returns this week, ending a four-year wait for the Prime Video action series.
+---------
+
+# ‘The Diplomat’s Season 4 Finale Made This Star Throw His Script Across the Room (Again)
+
+TV, The Diplomat, Ato Essandoh, Ali Ahn, Netflix
+
+Sun, 18 Oct 2026 13:13:14 GMT
+
+https://collider.com/the-diplomat-season-4-finale-cliffhanger-ato-essandoh-ali-ahn/
+
+The Diplomat Season 4 stars Ato Essandoh and Ali Ahn break down the big developments in Stuart and Eidra's relationship and that shocking finale.
+---------
+
+# HBO Max Officially Says Goodbye to Matt Damon's Best Picture-Winning Crime Masterpiece
+
+Movie News, The Departed, Matt Damon, Martin Scorsese, HBO Max
+
+Sun, 18 Oct 2026 12:46:15 GMT
+
+https://collider.com/matt-damon-the-departed-leaving-hbo-max-november-2026/
+
+Matt Damon and Leonardo DiCaprio's Oscar-winning crime masterpiece The Departed is officially being removed from HBO Max. Find out more.
+---------
+
+# Ridley Scott's Spy Thriller Is Officially a 75-Day Streaming Sensation
+
+TV News, Prime Target, Ridley Scott, Apple TV, Leo Woodall
+
+Sun, 18 Oct 2026 12:30:15 GMT
+
+https://collider.com/ridley-scott-prime-target-apple-tv-streaming-success-75-days-october-2026/
+
+Ridley Scott's Apple TV spy thriller with shades of James Bond has officially been in the top 10 for over 75 days.
+---------
+
+# The 9 Best Movies About Cyber Warfare, Ranked
+
+Movie, War, Ghost in the Shell, Wargames, Skyfall
+
+Sun, 18 Oct 2026 12:27:14 GMT
+
+https://collider.com/best-movies-cyber-warfare-ranked/
+
+Cyber warfare has become a common anxiety in today's world, a point reflected in many great movies like Skyfall, The Matrix, and Ghost in the Shell.
+---------
+
+# 7 Near-Perfect 'Far Side' Halloween Comics Everyone Forgot About
+
+TV, Horror, Halloween, Comics, Jaws
+
+Sun, 18 Oct 2026 12:21:14 GMT
+
+https://collider.com/far-side-halloween-comics-near-perfect-forgotten/
+
+Revisit hilarious yet forgotten classic Halloween-themed cartoons from The Far Side by Gary Larson, from "Deer Halloweens" to "Bait Motel."
+---------
+
+# 6 Most Universally Loved Books Released Since 2010, Ranked
+
+Books and Comics, Books, Best of the 2010s, Sci-Fi, Andy Weir
+
+Sun, 18 Oct 2026 12:18:15 GMT
+
+https://collider.com/most-universally-loved-books-since-2010-ranked/
+
+From The Song of Achilles to The Seven Husbands of Evelyn Hugo, these six universally loved masterpieces spark total reader obsession.
+---------
+
+# 'Whalefall' Writer Explains the Real Science That Drives the Survival Thriller
+
+Exclusives, Whalefall, Thriller, Drama
+
+Sun, 18 Oct 2026 14:37:38 GMT
+
+https://movieweb.com/whalefall-movie-real-science-accuracy-writer-director-explained/
+
+What happens in 'Whalefall' is surprisingly accurate to the real ordeal, tapping deep into primal human fears.
+---------
+
+# Paramount's New 119-Minute Action Hit Officially Breaks a 32-Year Box Office Record
+
+Movie News, Street Fighter, Jason Momoa, Action
+
+Sun, 18 Oct 2026 14:03:48 GMT
+
+https://movieweb.com/street-fighter-box-office-record/
+
+Star-studded cast and arcade nostalgia collide in a vibrant, adrenaline fueled adaptation that finally lands right.
+---------
+
+# 10 Most Beloved Star Trek Friendships in Franchise Canon
+
+TV Lists, Star Trek, Sci-Fi
+
+Sun, 18 Oct 2026 14:00:18 GMT
+
+https://movieweb.com/star-trek-most-beloved-friendships/
+
+Kirk and Spock are often named as one of the best Star Trek duos, but there are plenty of others. Read on for more.
+---------
+
+# Stephen King's Near-Perfect 144-Minute Thriller Masterpiece Remains Essential Viewing on Streaming This Halloween
+
+Movie News, The Shining, Hot on Streaming, Stephen King, Horror, HBO Max
+
+Sun, 18 Oct 2026 14:00:18 GMT
+
+https://movieweb.com/the-shining-stephen-king-streaming-hbo-max-october-2026/
+
+Despite being nominated for two Razzie awards, the decades-old movie has become a revered classic since its release in 1980.
+---------
+
+# Liam Neeson's 114-Minute Gritty Action Thriller Shoots Onto Free Streaming Next Month
+
+Movie News, Liam Neeson, A Walk Among The Tombstones, Action, Thriller, Coming/Leaving Streaming, Tubi
+
+Sun, 18 Oct 2026 13:00:17 GMT
+
+https://movieweb.com/a-walk-among-the-tombstones-liam-neeson-stream-free-tubi-november-2026/
+
+The film blends neo-noir elements with the common tropes of Neeson's action catalog.
+---------
+
+# 48 Years Later, Snoopy’s Wisest ‘Peanuts’ Quote Remains Unbeaten
+
+Features, Peanuts, comics, Comedy
+
+Sun, 18 Oct 2026 12:00:18 GMT
+
+https://movieweb.com/peanuts-wisest-snoopy-quote/
+
+Snoopy's profound outlook on life feels especially relevant in a world obsessed with nonstop productivity.
+---------
+
 # Batman: The Animated Series Officially Returns In New Game
 
 Gaming, Batman, Batman: The Animated Series
