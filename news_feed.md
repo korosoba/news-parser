@@ -1,3 +1,322 @@
+# Star Trek: Deep Space 9 Officially Returns This Month With Fluxx
+
+Gaming, Star Trek, Star Trek: Deep Space Nine
+
+Sun, 18 Oct 2026 06:00:18 GMT
+
+https://screenrant.com/star-trek-deep-space-9-fluxx-release-date-psa/
+
+Deep Space 9 is one of the coolest Star Trek adaptations of all time, and its return is more than welcome.
+---------
+
+# Apple TV Deserves Credit For Successfully Adapting Isaac Asimov's Most Difficult Book
+
+Streaming TV, Masked Recs
+
+Sun, 18 Oct 2026 06:00:05 GMT
+
+https://screenrant.com/apple-tv-foundation-isaac-asimov-most-difficult-book-adaptation/
+
+Adapting Isaac Asimov’s work for the screen is not an easy feat, but Apple TV has almost achieved the impossible by translating his most complex book.
+---------
+
+# Star Wars Jedi 3 Perfect Title Unites Gamers
+
+Gaming, Star Wars Jedi: Survivor
+
+Sun, 18 Oct 2026 05:30:19 GMT
+
+https://screenrant.com/star-wars-jedi-3-perfect-title-legacy-hopes/
+
+Explore fan theories on the title of Star Wars Jedi 3 and what it might mean for the saga.
+---------
+
+# New God Of War Collection Officially Confirmed For February 2027
+
+Gaming, God of War, Triple-A Games, God of War Laufey
+
+Sun, 18 Oct 2026 05:00:19 GMT
+
+https://screenrant.com/god-of-war-laufey-collector-box-february-2027/
+
+While Kratos is also set to return in the future with a fully-fledged TV show, we're also getting a new collection in February 2027.
+---------
+
+# The Lord Of The Rings: Sieges Of Middle-Earth Officially Arrives Winter 2026
+
+Gaming, The Lord of the Rings, The Lord of the Rings: The Two Towers, King of Boys: The Return of the King
+
+Sun, 18 Oct 2026 04:30:19 GMT
+
+https://screenrant.com/lord-of-the-rings-sieges-of-middle-earth-winter-2026/
+
+The Lord of the Rings lives and dies by the battles that permeate the narrative, and one game brings that to life in spectacular fashion.
+---------
+
+# Pokémon TCG Officially Bans Reselling Cards In Latest Move To Combat Scalping
+
+Gaming, Pokemon Trading Card Game, Pokemon
+
+Sun, 18 Oct 2026 04:15:18 GMT
+
+https://screenrant.com/pokemon-tcg-reselling-cards-ban-auction-sites/
+
+The Pokémon Trading Card Game has a scalping problem, and in the latest move to fight scalpers, reselling cards has been banned on some auction sites.
+---------
+
+# Dungeon Crawler Carl: The Royal Court Collection Officially Releases November 2026
+
+Gaming, Dungeon Crawler Carl
+
+Sun, 18 Oct 2026 04:00:23 GMT
+
+https://screenrant.com/dungeon-crawler-carl-royal-court-november-2026-psa/
+
+Dungeon Crawler Carl continues to go from strength to strength, and another release is coming down the pipeline that fans will want to be aware of.
+---------
+
+# Peanuts' Official Holiday Crocs Are Here, And They're Beyond Adorable
+
+Comics, Peanuts
+
+Sun, 18 Oct 2026 03:59:19 GMT
+
+https://screenrant.com/peanuts-holiday-crocs-adorable/
+
+The perfect Peanuts-themed gift has arrived, so be sure to get ready when it drops later this October.
+---------
+
+# After 8 Years, Marvel Has Finally Figured Out What To Do With The Guardians Of The Galaxy
+
+Superheroes, Guardians of the Galaxy, Marvel Cinematic Universe
+
+Sun, 18 Oct 2026 03:59:11 GMT
+
+https://screenrant.com/marvel-figured-out-guardians-of-the-galaxy-marvel-zombies-last-guardian/
+
+8 years later after firing James Gunn, Marvel Studios has finally figured out what to do with The Guardians of the Galaxy on their own.
+---------
+
+# Apple TV's Next Hit Crime Thriller Is Reinventing A Genre In Just 8 Episodes
+
+Streaming TV, Masked Recs
+
+Sun, 18 Oct 2026 03:46:47 GMT
+
+https://screenrant.com/12-12-12-apple-tv-heist-genre-reinvent/
+
+A new crime thriller on Apple TV is not only expected to become the streamer’s next big hit but will also seemingly reinvent the genre in 8 episodes.
+---------
+
+# Clive Barker Plots New Hellraiser Movie Nearly 40 Years After Original
+
+Movies, Hellraiser
+
+Sun, 18 Oct 2026 03:57:33 GMT
+
+https://www.cbr.com/hellraiser-clive-barker-return-new-movie/
+
+Four decades later, Clive Barker has a reinvigorated interest in Hellraiser.
+---------
+
+# Pokémon Celebrates 30th Anniversary With 3 New Switch 2 Releases Available Now
+
+Games, Pokemon, Nintendo
+
+Sun, 18 Oct 2026 03:50:14 GMT
+
+https://www.cbr.com/pokemon-switch-2-new-release-plantopia-out-now/
+
+Pokémon Winds and Waves won't arrive until next year, but there's a new Switch 2 release fans can enjoy in the meantime.
+---------
+
+# Every Majin Buu Form in Dragon Ball, Ranked From Weakest to Strongest
+
+Anime, Dragon Ball, Akira Toriyama
+
+Sun, 18 Oct 2026 03:45:15 GMT
+
+https://www.cbr.com/dragon-ball-every-majin-buu-form-ranked/
+
+Majin Buu is one of Dragon Ball's most versatile villains and there's a surprising amount of debate when it comes to which of his forms are the best!
+---------
+
+# The Street Fighter Movie Teased the Franchise's Strongest Character
+
+Movies, Street Fighter
+
+Sun, 18 Oct 2026 03:40:15 GMT
+
+https://www.cbr.com/street-fighter-movie-tease-gouken-return/
+
+The live-action film adaptation of Street Fighter laid the groundwork for the series' most powerful fighter.
+---------
+
+# 66 Years Later, Twilight Zone's Creepiest Episode Remains the Best 25 Minutes in Sci-Fi History
+
+TV, The Twilight Zone, CBS, Sci-Fi
+
+Sun, 18 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/the-twilight-zone-creepiest-episode-eye-of-the-beholder/
+
+One of the creepiest episodes of the classic sci-fi anthology series The Twilight Zone remains just as disturbing decades after its premiere.
+---------
+
+# 3 Superhero Trilogies Better Than Christopher Nolan's Batman
+
+Movies, The Dark Knight, Christopher Nolan, superheroes
+
+Sun, 18 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/best-superhero-trilogies-better-than-christopher-nolan-batman-list/
+
+Christopher Nolan's Dark Knight Trilogy is the gold standard for many people, but there are a few trilogies that are better than even Nolan's work.
+---------
+
+# 10 Far Side Comics Featuring The Worst Cases Of Writer's Block
+
+Comics, The Far Side
+
+Sun, 18 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/far-side-comics-featuring-the-worst-cases-of-writers-block/
+
+Writer’s block isn't usually considered funny, but Gary Larson uses The Far Side to show the situation can be exceptionally entertaining and humorous.
+---------
+
+# 36 Years Later, Cult Classic '90s Cyberpunk Series Finally Sets Its Return Date
+
+Anime, AD Police Files, Bubblegum Crisis
+
+Sun, 18 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/ad-police-files-4k-blu-ray-release-date/
+
+1990's wildly underrated prequel to one of the greatest cyberpunk anime of all time is finally coming back, and it's coming soon.
+---------
+
+# Pokémon Mainline Game Remakes, Ranked
+
+Games, Pokemon, Pokémon, Nintendo
+
+Sun, 18 Oct 2026 03:15:14 GMT
+
+https://www.cbr.com/pokemon-mainline-game-remakes-ranked/
+
+The Pokémon series has remade many of its mainline games over the years, with some remakes far better than others, regardless of their faithfulness.
+---------
+
+# James McAvoy Almost Played Young Picard in a Star Trek: TNG Prequel Series
+
+TV, Star Trek
+
+Sun, 18 Oct 2026 02:56:27 GMT
+
+https://www.cbr.com/james-mcavoy-star-trek-young-picard-series/
+
+James McAvoy came close to playing another younger version of an iconic Patrick Stewart character.
+---------
+
+# 5 Netflix Thriller Shows Where Every Episode Is a Masterpiece
+
+TV, Netflix, Thriller, Squid Game, His & Hers
+
+Sun, 18 Oct 2026 03:22:15 GMT
+
+https://collider.com/netflix-thriller-shows-every-episode-masterpiece/
+
+From the K-drama phenomenon Squid Game to the mystery miniseries His & Hers, every episode of these Netflix thriller shows is a true masterpiece.
+---------
+
+# 13 Years Later, Prime Video’s Twisty Mystery Thriller Hits Harder Than Ever
+
+Movie Features, Now You See Me, Now You See Me 2, Now You See Me: Now You Don't, Prime Video
+
+Sun, 18 Oct 2026 03:07:14 GMT
+
+https://collider.com/prime-video-now-you-see-me-mystery-thriller/
+
+Fans looking for a truly clever mystery should check out Now You See Me on Prime Video.
+---------
+
+# 10 Great Books Recommended by Barack Obama
+
+TV, Barack Obama, Books, Pachinko, History
+
+Sun, 18 Oct 2026 02:22:15 GMT
+
+https://collider.com/great-books-recommended-by-barack-obama/
+
+44th President Barack Obama has made it a regular habit to share what he's been reading over the past years.
+---------
+
+# 10 Essential Sitcoms That Belong on Every Fan's Bucket List
+
+TV, Sitcom, Friends, The Office, The Big Bang Theory
+
+Sun, 18 Oct 2026 02:03:14 GMT
+
+https://collider.com/essential-sitcoms-bucket-list/
+
+From '90s favorites like Friends and Seinfeld to long-running gems like The Big Bang Theory, every sitcom fan show experience these shows once.
+---------
+
+# The Perfect 'Gilmore Girls' Cast if the Series Were Made in 2026
+
+TV, Gilmore Girls, Rachel Brosnahan, Alden Ehrenreich, John Slattery
+
+Sun, 18 Oct 2026 01:33:14 GMT
+
+https://collider.com/gilmore-girls-cast-made-today-2026/
+
+From an Amy Sherman-Palladino icon to The Walking Dead's beloved young star, these actors would be perfect for a modern Gilmore Girls series.
+---------
+
+# HBO Max Officially Scores a Global Hit With Sam Raimi's New 111-Minute Intense Thriller
+
+Movie News, HBO Max, Evil Dead Burn, Thriller, Horror
+
+Sun, 18 Oct 2026 02:30:18 GMT
+
+https://movieweb.com/evil-dead-burn-streaming-hit-october-2026/
+
+A few weeks into its streaming run, Evil Dead Burn has climbed to No. 1 on HBO Max’s worldwide movie chart.
+---------
+
+# 37 Years Later, ‘Calvin and Hobbes’s Greatest Quote Defines the Whole Comic Strip
+
+Features, comics, Calvin and Hobbes
+
+Sun, 18 Oct 2026 02:30:18 GMT
+
+https://movieweb.com/calvin-hobbes-best-quote-friendship/
+
+Despite Calvin's many adventures as Stupendous Man, the heart of the series was always its portrayal of friendship.
+---------
+
+# 10 Recent Connections Setting Up a Shared Stephen King TV Universe
+
+Features, Stephen King, Carrie, It: Welcome to Derry, The Dark Tower
+
+Sun, 18 Oct 2026 02:15:17 GMT
+
+https://movieweb.com/stephen-king-universe-tv-connections/
+
+Two recent King adaptations have been littered with potential connections to the upcoming 'The Dark Tower' series, hinting at a shared universe.
+---------
+
+# Tom Hardy's Bingeworthy 2-Part Thriller Officially Marks 100 Days of Streaming Dominance
+
+TV News, MobLand, Tom Hardy, Paramount Plus, Thriller
+
+Sun, 18 Oct 2026 01:30:18 GMT
+
+https://movieweb.com/mobland-streaming-hit-october-2026/
+
+Tom Hardy’s MobLand has now spent more than 100 days in Paramount+’s U.S. Top 10.
+---------
+
 # Murder In A Small Town's Setting & Filming Locations Explained
 
 Network TV, Murder in a Small Town
