@@ -1,3 +1,366 @@
+# Liam Neeson's 114-Minute Gritty Action Thriller Is Free To Stream Next Month
+
+Movies, A Walk Among The Tombstones
+
+Sun, 18 Oct 2026 19:47:20 GMT
+
+https://screenrant.com/liam-neeson-a-walk-among-the-tombstones-tubi-free-stream-november-2026/
+
+One of Liam Neeson's most underrated thrillers will officially be streaming for free next month over a decade after its original release.
+---------
+
+# 48 Years Later, NBC's Timeless 45-Episode Crime Drama Is Streaming Free On Tubi
+
+Classic TV, Masked Recs
+
+Sun, 18 Oct 2026 19:45:18 GMT
+
+https://screenrant.com/columbo-detective-crime-drama-all-seasons-streaming-free-tubi/
+
+Every episode of Columbo, the nearly 50 year old crime drama from NBC that revolutionized the genre, is available for free on Tubi.
+---------
+
+# New Pirate Series Based On 143-Year-Old Book Is The Worst Thing To Happen To Pirates Since Scurvy
+
+Streaming TV, Masked Recs
+
+Sun, 18 Oct 2026 19:30:19 GMT
+
+https://screenrant.com/treasure-island-pirate-series-not-good/
+
+The 2026 adaptation of Treasure Island should have been TV's next great adventure series, but the pirate drama has been met with terrible reviews.
+---------
+
+# What Is Ninku? Naruto's New Anime Crossover, Explained
+
+Anime, Naruto, Naruto x Ninkū
+
+Sun, 18 Oct 2026 19:30:19 GMT
+
+https://screenrant.com/ninku-naruto-new-anime-crossover-explained/
+
+The Naruto crossover anime special will drop the iconic young Team 7 into a new world that Western audiences are unfamiliar with but owe a lot to.
+---------
+
+# Marvel’s Unique Halloween Superhero Explained, All Details
+
+Comics, Marvel
+
+Sun, 18 Oct 2026 19:25:41 GMT
+
+https://screenrant.com/marvel-halloween-hallows-eve-explained/
+
+Marvel is enjoying spooky season festivities with a Halloween-themed character whose magic powers and origin story are utterly fascinating.
+---------
+
+# CBS Is Switching Sheriff Country’s Structure In Season 2
+
+Network TV, Sheriff Country, Fire Country
+
+Sun, 18 Oct 2026 19:15:19 GMT
+
+https://screenrant.com/sheriff-country-format-change-serialized-season-2/
+
+CBS' Sheriff Country season 2 is evolving in its sophomore season as it creates deeper narratives and a vaguely less episodic structure.
+---------
+
+# Matt Dinniman Reveals The Most Difficult Dungeon Crawl Carl Problem To Date
+
+Books, Dungeon Crawler Carl
+
+Sun, 18 Oct 2026 19:00:18 GMT
+
+https://screenrant.com/matt-dinniman-reveals-the-most-difficult-dungeon-crawl-carl-problem-to-date/
+
+Author Matt Dinniman shared challenges in concluding the Dungeon Crawler Carl series as he approaches the final books of the series.
+---------
+
+# Marvel Confirms New Major Villain For Wolverine's Next Major Era
+
+Marvel Comics, Wolverine
+
+Sun, 18 Oct 2026 19:00:18 GMT
+
+https://screenrant.com/wolverine-new-villain-crucible-next-era/
+
+Marvel officially introduces Wolverine's next villain, an enigmatic figure with secret ties to Logan's past and suspiciously similar superpowers.
+---------
+
+# Mass Effect’s Replacement Will Arrive April 2027
+
+Gaming, Mass Effect
+
+Sun, 18 Oct 2026 19:00:18 GMT
+
+https://screenrant.com/expanse-osiris-reborn-mass-effect-replacement/
+
+Discover the upcoming release 'The Expanse: Osiris Reborn' set for April 2027, the anticipated sci-fi RPG for Mass Effect fans.
+---------
+
+# Henry Cavill's New Prime Video Sci-Fi Saga Makes The DC Universe Look Small
+
+Streaming TV, Henry Cavill
+
+Sun, 18 Oct 2026 18:45:19 GMT
+
+https://screenrant.com/henry-cavill-warhammer-40k-lore-dc-universe-small/
+
+Among Henry Cavill's new projects is a sprawling sci-fi saga that will make efforts to bring the DC Universe to the screen look positively simple.
+---------
+
+# Dragon Ball Super: Beerus Episode 2 Review
+
+Anime, Dragon Ball, Dragon Ball Super: Beerus
+
+Sun, 18 Oct 2026 19:45:14 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-episode-2-review/
+
+Dragon Ball Super: Beerus turns one of the 2015 anime's worst scenes into an epic battle befitting a God of Destruction; and makes SSJ4 canon, too.
+---------
+
+# 10 Hardest Hunter x Hunter Episodes to Rewatch
+
+Anime, Hunter X Hunter
+
+Sun, 18 Oct 2026 19:15:14 GMT
+
+https://www.cbr.com/hardest-hunter-x-hunter-episodes-to-rewatch/
+
+Hunter X Hunter is one of the greatest anime of all time, but these episodes are still hard to rewatch.
+---------
+
+# Fox's Overlooked Crime Show Breaks Into the Top 10 After Netflix Release
+
+TV, Murder in a Small Town, fox, Hulu, Netflix
+
+Sun, 18 Oct 2026 19:00:14 GMT
+
+https://www.cbr.com/murder-in-a-small-town-crime-nielsen-charts-september-2026/
+
+Ahead of Season 3, Fox's Murder in a Small Town breaks into the Top 10 on Nielsen after the first two seasons dropped on Netflix.
+---------
+
+# 5 Most Addictive Harlan Coben Thrillers on Netflix
+
+TV, I Will Find You, Fool Me Once, Netflix, Innovation
+
+Sun, 18 Oct 2026 19:00:14 GMT
+
+https://www.cbr.com/netflix-most-addictive-harlan-coben-thrillers-list/
+
+Harlan Coben's incredibly addictive Netflix series, such as Run Away and I Will Find You, feature shocking twists and must-watch, bingeable mysteries.
+---------
+
+# 7 Greatest Gaara Battles in Naruto, Ranked
+
+Anime, Naruto
+
+Sun, 18 Oct 2026 18:15:15 GMT
+
+https://www.cbr.com/naruto-greatest-gaara-battles-ranked/
+
+Whether a hero or a villain, Gaara has some of the coolest fights in all of Naruto.
+---------
+
+# Netflix’s 4-Season Political Thriller Gets Official Verdict From Stephen King
+
+TV, Stephen King, The Diplomat
+
+Sun, 18 Oct 2026 18:06:28 GMT
+
+https://www.cbr.com/netflix-the-diplomat-season-4-stephen-king-review/
+
+The author has weighed in on the show's most recent season, which boasts a perfect score.
+---------
+
+# Crunchyroll's Top 10 Scariest Episodes From Non-Horror Anime for Fall 2026
+
+Anime, Crunchyroll, The Apothecary Diaries, Frieren: Beyond Journey's End, Gachiakuta
+
+Sun, 18 Oct 2026 18:00:14 GMT
+
+https://www.cbr.com/crunchyroll-top-10-scariest-non-horror-anime-episodes/
+
+Anime streaming giant just clued fans in to the top ten scariest episodes from non-horror titles to rewatch before this Halloween.
+---------
+
+# ‘Crystal Lake’s Biggest Sci-Fi Twist for Jason Voorhees Doesn’t Make Any Sense
+
+TV Features, Crystal Lake, Linda Cardellini, Peacock, Friday The 13th
+
+Sun, 18 Oct 2026 19:41:15 GMT
+
+https://collider.com/crystal-lake-series-biggest-sci-fi-twist-jason-voorhees-powers/
+
+Crystal Lake's reveal about Jason Voorhees' origins is a nonsensical sci-fi twist that misses the mark.
+---------
+
+# Russell Crowe’s ‘Mindhunter’ Replacement Officially Nears 500 Million Minute Mark
+
+Movie News, Russell Crowe, Mindhunter, Unabomber, Netflix
+
+Sun, 18 Oct 2026 19:30:15 GMT
+
+https://collider.com/russell-crowe-unabomber-netflix-streaming-success-october-2026/
+
+Russell Crowe's critically panned Netflix movie Unabomber drew a huge audience in its premiere week, the latest Nielsen report has revealed.
+---------
+
+# Netflix's New 'Carrie' Replacement Officially arrives in 1 Month
+
+TV News, Carrie, The Body, Netflix
+
+Sun, 18 Oct 2026 19:00:14 GMT
+
+https://collider.com/netflix-the-body-release-date-november-2026/
+
+Amid Carrie's popularity, Netflix is gearing up to release its coming-of-age psychological horror series next month. Here's all to know.
+---------
+
+# 5 Greatest Books of the Last 40 Years, Ranked
+
+Books and Comics, The Sympathizer, Wolf Hall, The Remains of the Day, Books
+
+Sun, 18 Oct 2026 18:50:14 GMT
+
+https://collider.com/best-books-last-40-years-ranked/
+
+The Sympathizer, Wolf Hall, Babel, or the Necessity of Violence, and more make up our list of the best books of the last 40 years.
+---------
+
+# ‘SNL UK’ Officially Delivers a Brutal Takedown of ‘Saturday Night Live’s Shane Gillis
+
+TV Features, Shane Gillis, Saturday Night Live, Saturday Night Live UK, Peacock
+
+Sun, 18 Oct 2026 18:48:52 GMT
+
+https://collider.com/snl-uk-saturday-night-live-ania-magliano-shane-gillis-joke-opinion/
+
+SNL UK's Ania Magliano aims Shane Gillis after his controversial Saturday Night Live monologue, turning the comedian into the punchline.
+---------
+
+# Every Mike Flanagan TV Show, Ranked
+
+TV, Mike Flanagan, The Haunting of Hill House, Carrie, Midnight Mass
+
+Sun, 18 Oct 2026 18:33:15 GMT
+
+https://collider.com/mike-flanagan-shows-ranked/
+
+From The Haunting of Hill House to Carrie, Mike Flanagan has reinvented horror television for modern audiences, but which show is his greatest?
+---------
+
+# Denis Villeneuve Officially Reveals How ‘Dune: Part Three’ Changes Everything
+
+Movie News, Timothée Chalamet, Denis Villeneuve, Dune, Dune: Part Three
+
+Sun, 18 Oct 2026 18:30:15 GMT
+
+https://collider.com/denis-villeneuve-dune-part-3-changes/
+
+Explore Denis Villeneuve's insights on the time jump and shifts in Dune Part 3, revealing new character dynamics.
+---------
+
+# Love of Your Life: Exhaustion Drew the Cast Closer | Collider BTS
+
+Movie, Love of Your Life
+
+Sun, 18 Oct 2026 18:15:15 GMT
+
+https://collider.com/video/love-of-your-life-exhaustion-drew-the-cast-closer-collider-bts/
+
+Margaret Qualley, Aaron Pierre, and director Rachel Morrison reveal how a crucial emotional scene in Love of Your Life had to be filmed in just 28 minutes before the sun disappeared.
+---------
+
+# 'Five Nights at Freddy's Officially Returns for New Halloween Release
+
+Gaming News, Five Nights at Freddy's, Video Game, Amazon, Five Nights at Freddy's 2
+
+Sun, 18 Oct 2026 18:00:14 GMT
+
+https://collider.com/five-nights-at-freddys-into-the-pit-free-amazon-prime-october-2026/
+
+Amazon Prime members can claim Five Nights at Freddy’s Into the Pit for PC at no additional cost during October.
+---------
+
+# After 'Widow's Bay,' Matthew Rhys' 2-Part Crime Thriller Saga Officially Deserves To Be Revisited
+
+TV Features, Perry Mason, HBO, Matthew Rhys, Chris Chalk
+
+Sun, 18 Oct 2026 17:58:15 GMT
+
+https://collider.com/matthew-rhys-crime-thriller-perry-mason-deserves-revisit-widows-bay/
+
+After Widow's Bay, check out Matthew Rhys' captivating performance in Perry Mason, HBO Max's must-watch crime thriller.
+---------
+
+# 10 Best Far Side Comics About Cows
+
+Movie Lists, The Far Side, Comedy, comics, Gary Larson
+
+Sun, 18 Oct 2026 19:30:17 GMT
+
+https://movieweb.com/best-far-side-cows/
+
+The 'Far Side' comic strips by Gary Larson explore various subjects including dogs, cats, popular culture, and cows.
+---------
+
+# Brandon Sanderson Gives Sobering Update on Apple TV's Long-Awaited Fantasy Epic Movie
+
+Movie News, Brandon Sanderson, Mistborn, Fantasy
+
+Sun, 18 Oct 2026 19:14:36 GMT
+
+https://movieweb.com/mistborn-movie-brandon-sanderson-new-update/
+
+Apple is working with Brandon Sanderson to bring his beloved books to life, but it won't happen as quickly as we would like.
+---------
+
+# Russell Crowe's New 100-Minute Netflix Thriller Is Officially One of the Biggest Streaming Hits in the World
+
+Movie News, Russell Crowe, Netflix, Unabomber, Thriller
+
+Sun, 18 Oct 2026 19:01:17 GMT
+
+https://movieweb.com/unabomber-russell-crowe-thriller-netflix-stream-october-2026/
+
+The latest in Netflix's true-crime offerings provides another look into the life of one of America's most notorious terrorists
+---------
+
+# Movies That Took Longer Than a Decade to Complete
+
+Movie Lists
+
+Sun, 18 Oct 2026 19:01:17 GMT
+
+https://movieweb.com/films-took-longer-than-a-decade/
+
+From troubled productions to years-long passion projects, these movies took over a decade to finally reach theaters, some facing major delays.
+---------
+
+# 2026's Breakout Hit 'Obsession' Is Officially Coming to Netflix Next Month
+
+Movie News, Obsession, Netflix, Horror, Thriller
+
+Sun, 18 Oct 2026 18:50:39 GMT
+
+https://movieweb.com/obsession-netflix-release-date/
+
+Curry Barker's $500-million hit, 'Obsession,' will finally be available for the world to stream in a few weeks.
+---------
+
+# 10 Superheroes Who Are Stronger Than Superman
+
+Movie Lists, Superhero, Superman
+
+Sun, 18 Oct 2026 18:00:17 GMT
+
+https://movieweb.com/superheroes-stronger-superman/
+
+From magic users to cosmic aliens, these 10 heroes from across Marvel and DC outclass comics' most iconic superhero.
+---------
+
 # Why Friends Only Has 1 Halloween Episode (And Seinfeld Doesn't Have Any)
 
 Classic TV, Friends, Seinfeld
