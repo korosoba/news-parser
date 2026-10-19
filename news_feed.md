@@ -1,3 +1,399 @@
+# Yellowstone's Monica Replacement Plans Clarified By Stars Amid Fan Reactions
+
+TV, Yellowstone, Marshals
+
+Mon, 19 Oct 2026 00:09:04 GMT
+
+https://screenrant.com/yellowstone-marshals-cbs-monica-replacement-plans-fan-reactions-grimes-santos/
+
+Exclusive: Marshals stars Luke Grimes and Ash Santos discuss Kayce Dutton moving on from Monica and a 'will-they-won't-they'? with Andrea.
+---------
+
+# 10 Heartbreaking Snoopy Comics That Prove Peanuts Was Always More Than A Comedy
+
+Comics, Peanuts
+
+Mon, 19 Oct 2026 00:00:18 GMT
+
+https://screenrant.com/peanuts-snoopy-most-heartbreaking-comics/
+
+These sad Peanuts strips featuring Snoopy reveal the profound depth of the comic series and are almost certain to break readers' hearts.
+---------
+
+# Adventure Time Meets Stardew Valley In New 8/10 Open-World RPG
+
+Gaming, RPG, PC, Indie Games
+
+Mon, 19 Oct 2026 00:00:18 GMT
+
+https://screenrant.com/adventure-time-meets-stardew-valley-good-heavens/
+
+A new open-world RPG with a whimsical art style, not unlike Adventure Time, brings forth Stardew Valley-adjacent gameplay in an 8/10 experience.
+---------
+
+# 5 Best New Disney+ Series To Binge-Watch This Week (October 19–23, 2026)
+
+Streaming TV, Disney+, What to Watch on Disney Plus
+
+Sun, 18 Oct 2026 23:45:19 GMT
+
+https://screenrant.com/best-new-disney-plus-shows-to-watch-week-october-19-2026/
+
+The 5 best shows to watch on Disney+ and Hulu this week October 19–23, 2026: Abbot Elementary, American Horror Story, The Lowdown, Phony, VisionQuest.
+---------
+
+# Ted Lasso Season 5 Gets Disappointing Update From Jason Sudeikis
+
+TV, Ted Lasso
+
+Sun, 18 Oct 2026 23:42:08 GMT
+
+https://screenrant.com/ted-lasso-season-5-no-renewal-writers-room-yet-jason-sudeikis/
+
+After the season 4 finale and amid uncertainty about the show's future, Jason Sudeikis delivers a disappointing update about Ted Lasso season 5.
+---------
+
+# Netflix's 4-Season Dark Fantasy Masterpiece Is Everything Supernatural Should Have Been
+
+Anime, Supernatural, Netflix, Masked Recs
+
+Sun, 18 Oct 2026 23:30:18 GMT
+
+https://screenrant.com/netflix-castlevania-everything-supernatural-should-be/
+
+While Supernatural lost its horror edge over fifteen years, this tight four-season fantasy series keeps its monsters terrifying.
+---------
+
+# 8 Greatest Transformers Introduced In The 2020s
+
+Comics, Transformers
+
+Sun, 18 Oct 2026 23:30:18 GMT
+
+https://screenrant.com/greatest-transformers-introduced-2020s/
+
+The robots in disguise are always evolving, and these exceptional characters introduced in the 2020s have already made a lasting impression.
+---------
+
+# Nicolas Cage Finds His Spider-Noir Replacement In New HBO Series
+
+Streaming TV, Spider-Noir
+
+Sun, 18 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/nicolas-cage-spider-noir-replacement-true-detective/
+
+Spider-Noir may have been unceremoniously canceled at Prime, but we'll see Nicolas Cage back in sleuthing mode in True Detective season 5 on HBO.
+---------
+
+# 10 Greatest Far Side Comics Featuring Animals, Ranked
+
+Comics, The Far Side
+
+Sun, 18 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/greatest-far-side-animals/
+
+Animals often stole the show in Gary Larson’s brilliant comic strip, and these classics represent the best of the bunch.
+---------
+
+# 2026's 174-Minute Masterpiece Is Officially The Highest-Rated Movie In History
+
+Movies, You Can See Everything
+
+Sun, 18 Oct 2026 22:38:50 GMT
+
+https://screenrant.com/you-can-see-everything-letterboxd-highest-rated-feature/
+
+After considerable buzz and a record-breaking opening weekend at the box office, this 174-minute masterpiece is now the highest-rated movie ever.
+---------
+
+# 7 Naruto Transformations That Can Rival Baryon Mode
+
+Anime, Naruto, Naruto: Shippuden, Innovation
+
+Mon, 19 Oct 2026 00:15:15 GMT
+
+https://www.cbr.com/naruto-transformations-rival-baryon-mode/
+
+Fans treat Baryon Mode as the Narutoverse's absolute ceiling of power, but other transformations close that distance without demanding the same price.
+---------
+
+# HBO Max Is Removing Several Tom Cruise Movies After Digger Flop
+
+TV, Digger
+
+Mon, 19 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/hbo-max-tom-cruise-movies-digger-flop/
+
+Tom Cruise's newest movie was a major misfire at the box office.
+---------
+
+# Demon Slayer Reunites Giyu and Shinobu for Major October Update
+
+Anime, Demon Slayer, Demon Slayer: Kimetsu no Yaiba Infinity Castle
+
+Mon, 19 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/demon-slayer-giyu-shinobu-seven-knights-rebirth-update/
+
+Demon Slayer brings Giyu Tomioka and Shinobu Kocho together for a major October event featuring a familiar and deadly enemy.
+---------
+
+# The Fall of the House of Usher Is A Rare Streaming Gem With Zero Bad Episodes
+
+TV, The Fall of the House of Usher, Horror, Netflix
+
+Mon, 19 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/netflix-the-fall-of-the-house-of-usher-flawless-streaming-gem/
+
+Director Mike Flanagan's take on Edgar Allan Poe's collected works resulted in one of the best horror miniseries ever to stream on Netflix.
+---------
+
+# Sorry, But Peanuts Was Never Really a Children's Comic After All
+
+Comics, Peanuts
+
+Mon, 19 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/peanuts-not-a-childrens-comic/
+
+Kids may love the Peanuts gang, but Charles Schulz's masterpiece went so much deeper.
+---------
+
+# Carrie Season 2 Update Shared by Star After Prime Video Streaming Success
+
+TV, Carrie
+
+Sun, 18 Oct 2026 23:49:11 GMT
+
+https://www.cbr.com/carrie-season-2-summer-howell-update/
+
+Carrie White actress Summer H. Howell addresses the future of the Prime Video series.
+---------
+
+# 10 Forgotten '90s Mecha Anime That Have Aged Like Fine Wine
+
+Anime, Macross 7, mecha, Turn A Gundam
+
+Sun, 18 Oct 2026 23:45:14 GMT
+
+https://www.cbr.com/forgotten-90s-mecha-anime-aged-like-fine-wine/
+
+Amidst the Escaflownes and Evangelions, the '90s had plenty of other amazing mecha anime that have aged gracefully.
+---------
+
+# 7 Years Later, CBS' Franchise-Spawning Sitcom Is Still Dominating the Charts
+
+TV, The Big Bang Theory, CBS, HBO Max
+
+Sun, 18 Oct 2026 23:30:14 GMT
+
+https://www.cbr.com/the-big-bang-theory-sitcom-nielsen-charts-september-28-2026/
+
+Seven years after its series finale, The Big Bang Theory continues to dominate the streaming charts and is No. 2 overall for late September.
+---------
+
+# Pokémon Gives Dragonite an Official New Design in Exclusive Release
+
+Games, Pokemon
+
+Sun, 18 Oct 2026 23:25:14 GMT
+
+https://www.cbr.com/pokemon-dragonite-new-design-exclusive-pearlescent-funko-pop/
+
+A new official Dragonite release is exclusively available at the Pokémon Center.
+---------
+
+# 10 Greatest Isekai Anime Ever, Ranked By CBR Readers
+
+Anime, Isekai, Innovation
+
+Sun, 18 Oct 2026 23:15:14 GMT
+
+https://www.cbr.com/greatest-isekai-ranked-by-cbr-readers/
+
+Isekai anime's versatility is one of the many reasons CBR readers argue so passionately about which series deserves the top spot.
+---------
+
+# Rebecca Ferguson’s Sci-Fi Series Officially Returns to Apple TV’s Global Top 10
+
+TV News, Rebecca Ferguson, Silo, Sci-Fi, Apple TV
+
+Mon, 19 Oct 2026 00:15:15 GMT
+
+https://collider.com/rebecca-ferguson-silo-streaming-success-apple-tv-october-2026/
+
+Rebecca Ferguson's acclaimed sci-fi series Silo returns to the global streaming charts as Season 4 finds success on Apple TV.
+---------
+
+# The 10 Best Fantasy Movies To Check Out From the 1970s
+
+Movie, Fantasy, 1970s, Superman, The Lord of the Rings
+
+Mon, 19 Oct 2026 00:02:14 GMT
+
+https://collider.com/best-70s-fantasy-movies/
+
+The fantasy genre has come a long way since the 1970s, but the decade was still home to some classic movies.
+---------
+
+# Harry Potter Star Officially Confirms Iconic Scene Will Appear in HBO Series Season 2
+
+TV News, Harry Potter, Rafe Spall, HBO Max
+
+Mon, 19 Oct 2026 00:00:14 GMT
+
+https://collider.com/harry-potter-star-rafe-spall-comments-lucius-malfoy-arthur-weasley-confrontation/
+
+HBO's Harry Potter reboot is bringing back Arthur Weasley and Lucius Malfoy's famous confrontation in Flourish and Blotts.
+---------
+
+# Sam Raimi’s New R-Rated Horror Nightmare Officially Hits No. 1 on Streaming
+
+Movie News, Evil Dead Burn, Horror, Netflix, HBO Max
+
+Sun, 18 Oct 2026 23:45:14 GMT
+
+https://collider.com/evil-dead-burn-streaming-success-netflix-hbo-max-october-2026/
+
+2026's brutal horror sequel, Evil Dead Burn, is taking over not one, but two streaming platforms. Read on for more.
+---------
+
+# ‘Shadow and Bone’ Is Officially Dead at Netflix 3 Years After Cancellation
+
+Gaming News, Shadow and Bone, Netflix, Leigh Bardugo, Tomb Raider
+
+Sun, 18 Oct 2026 23:30:14 GMT
+
+https://collider.com/shadow-and-bone-enter-the-fold-leaving-netflix-november-2026/
+
+Three years after the TV adaptation was cancelled, Netflix is officially done with the Shadow and Bone franchise. Here's all to know.
+---------
+
+# ‘Avatar: The Last Airbender’s Newest Series Is Officially Switching Main Characters
+
+TV Features, Avatar: The Last Airbender, Paramount+ with Showtime, Nickelodeon, Fantasy
+
+Sun, 18 Oct 2026 23:27:14 GMT
+
+https://collider.com/avatar-the-last-airbender-kuruk-spinoff-wave-of-chaos/
+
+Avatar: The Last Airbender's newest spin-off is set to focus on one of the franchise's most underrated and overlooked characters.
+---------
+
+# 10 Most Satisfying Character Arcs in 'The Vampire Diaries,' Ranked
+
+TV, The Vampire Diaries, The CW, Vampire, Fantasy
+
+Sun, 18 Oct 2026 23:21:14 GMT
+
+https://collider.com/the-vampire-diaries-most-satisfying-character-arcs-ranked/
+
+From Caroline Forbes to Damon Salvatore, which character from The CW's hit series The Vampire Diaries had the most satisfying character arc?
+---------
+
+# Denis Villeneuve Officially Reveals Why He Couldn't Say No to James Bond
+
+Movie News, Denis Villeneuve, Dune: Part Three, James Bond 25, James Bond
+
+Sun, 18 Oct 2026 23:15:15 GMT
+
+https://collider.com/denis-villeneuve-james-bond-movie-after-dune-part-3-comments/
+
+Denis Villeneuve opens up as to why he chose to direct the next James Bond film after Dune: Part Three. Read on for details.
+---------
+
+# 3 of Marvel's Best Sci-Fi Shows Are Officially Taking Over the World
+
+TV News, Disney+, VisionQuest, WandaVision, Loki
+
+Sun, 18 Oct 2026 23:00:15 GMT
+
+https://collider.com/marvel-visionquest-wandavision-loki-streaming-success-disney-plus-october-2026/
+
+Ahead of Avengers: Doomsday, three of Marvel's best sci-fi shows are officially taking over the world. Read on for more.
+---------
+
+# Disney's 3-Part Sci-Fi Thriller Is a Rare Streaming Gem With Zero Bad Movies
+
+Movie Features, Guardians of the Galaxy, Guardians of the Galaxy Vol. 2, Guardians of the Galaxy Vol. 3, Disney+
+
+Sun, 18 Oct 2026 22:49:15 GMT
+
+https://collider.com/disney-plus-guardians-of-the-galaxy-perfect-marvel-trilogy/
+
+Among the Marvel Cinematic Universe movies, the Guardians of the Galaxy trilogy remains a high point.
+---------
+
+# Paramount's New Action Hit Remains Box Office King Over 2026's Highest Rated Masterpiece
+
+Movie News, Street Fighter, Box Office Milestones, You Can See Everything, Action, Drama
+
+Mon, 19 Oct 2026 00:08:40 GMT
+
+https://movieweb.com/street-fighter-box-office-opening-weekend/
+
+Street Fighter opened at No. 1 with a $31 million domestic debut, beating A24’s buzzy Elizabeth Holmes documentary by a wide margin.
+---------
+
+# Matt Damon's Forgotten (Very) Unsettling 106-Minute Thriller Classic Is the New King of HBO Max
+
+Movie News, Matt Damon, Contagion, HBO Max, Hot on Streaming, Thriller
+
+Sun, 18 Oct 2026 23:42:20 GMT
+
+https://movieweb.com/contagion-hbo-max-october-2026/
+
+Matt Damon’s 2011 pandemic thriller Contagion has staged another streaming comeback, climbing to No. 2 on HBO Max’s global movie chart.
+---------
+
+# 29 Years Later, Sylvester Stallone's 105-Minute Crime Epic Still Beats Any Action Movie He Ever Made
+
+Features, Crime, Sylvester Stallone, Cop Land
+
+Sun, 18 Oct 2026 23:30:17 GMT
+
+https://movieweb.com/cop-land-best-stallone-movie/
+
+The 'Tulsa King' star is no stranger to playing "tough guy" roles, but this 1997 drama is hard to beat.
+---------
+
+# 8 Classic Sci-Fi Series That Are Now Unwatchable
+
+TV Lists, Sci-Fi, Battlestar Galactica, Babylon 5
+
+Sun, 18 Oct 2026 23:00:18 GMT
+
+https://movieweb.com/classic-sci-fi-series-unwatchable/
+
+These classic sci-fi TV series had a big influence on the popular genre, but they're difficult to watch by today's standards.
+---------
+
+# Paramount's 24-part Military Thriller Hit Officially Marks 900 Days of Streaming Dominance
+
+TV News, NCIS, Paramount Plus, Crime, Hot on Streaming
+
+Sun, 18 Oct 2026 22:48:33 GMT
+
+https://movieweb.com/ncis-paramount-plus-hit-october-2026/
+
+Paramount+'s deep library strategy keeps paying off
+---------
+
+# HBO’s Masterpiece Sci-Fi Thriller Has One of the Best Opening Scenes in TV History
+
+Features, The Leftovers, HBO Max, Sci-Fi, Thriller
+
+Sun, 18 Oct 2026 22:15:18 GMT
+
+https://movieweb.com/the-leftovers-best-opening-scene/
+
+'The Leftovers' has one of the strongest TV openings, using multiple strengths to draw viewers in and drive the show's message home.
+---------
+
 # Every Confirmed Narnia Book Change In The Magician's Nephew, & What It Means For The Plot
 
 Books, Narnia: The Magician's Nephew, The Chronicles of Narnia
