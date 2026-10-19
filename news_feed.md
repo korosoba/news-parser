@@ -1,3 +1,443 @@
+# Blue Bloods’ Major Reagan Family Member Return Officially Unveiled
+
+TV, Boston Blue, Boston Blue - Season 2
+
+Mon, 19 Oct 2026 21:36:15 GMT
+
+https://screenrant.com/boston-blue-season-2-will-estes-jamie-reagan-return-unveiled-image/
+
+Another major member of the Reagan family is confirmed to be joining Boston Blue, with images featuring their upcoming appearance now unveiled.
+---------
+
+# 9 Netflix Masterpiece Miniseries With 8 Episodes Or Less
+
+Classic TV
+
+Mon, 19 Oct 2026 21:30:17 GMT
+
+https://screenrant.com/best-netflix-masterpiece-miniseries-eight-episodes-or-less/
+
+Netflix has produced some of the best TV shows of all time, among them some miniseries with eight episodes or less, being a perfect binge-watch.
+---------
+
+# Marvel’s New Thanos Replacement Is A Star Wars Legend
+
+Comics, Star Wars, Thanos
+
+Mon, 19 Oct 2026 21:20:50 GMT
+
+https://screenrant.com/thanos-replacement-star-wars-darth-vader/
+
+Marvel may have found its next Thanos in a Star Wars legend, given that one epic image hints at a surprising new wielder of the Infinity Gauntlet.
+---------
+
+# Jason Statham's R-Rated Action Thriller Sequel Officially Looks Like 2027's First Great Movie
+
+Movies, Jason Statham, The Beekeeper, The Beekeeper 2
+
+Mon, 19 Oct 2026 21:20:20 GMT
+
+https://screenrant.com/jason-statham-the-beekeeper-2-trailer-2027-first-great-movie/
+
+Jason Statham pulls a minigun from a muscle car in The Beekeeper 2’s trailer, and his other 2027 movies sound almost as ridiculous. That’s good news.
+---------
+
+# HBO's Harry Potter Is Picking Up Right Where Game Of Thrones Left Off
+
+Streaming TV, Harry Potter, Game Of Thrones
+
+Mon, 19 Oct 2026 21:15:19 GMT
+
+https://screenrant.com/harry-potter-hbo-season-1-budget-game-of-thrones-ending/
+
+Game of Thrones took a particular journey through its eight seasons, and rather than start over, Harry Potter is prepared to run it forward.
+---------
+
+# Cyberpunk: Edgerunners Season 2 Release Date & Time
+
+Anime, Cyberpunk: Edgerunners 2, Cyberpunk: Edgerunners
+
+Mon, 19 Oct 2026 21:11:45 GMT
+
+https://screenrant.com/cyberpunk-edgerunners-season-2-release-date-time/
+
+Cyberpunk: Edgerunners 2 might be the year's most anticipated science fiction series, and here's when it releases and where to stream it.
+---------
+
+# Carrie Season 2 Remaking John Carpenter’s Iconic 1983 Adaptation After Popular Theory Addressed By Star
+
+TV, Carrie, Alison Thornton
+
+Mon, 19 Oct 2026 21:11:06 GMT
+
+https://screenrant.com/carrie-season-2-christine-remake-fan-theory-alison-thornton-response/
+
+There’s a major fan theory that Carrie season 2 might adapt a different Stephen King story, and one of the stars is reacting to the speculation.
+---------
+
+# You Can See Everything Is Heading For A Historic Oscars Accomplishment
+
+New Movies, You Can See Everything, Oscars
+
+Mon, 19 Oct 2026 21:00:18 GMT
+
+https://screenrant.com/you-can-see-everything-oscars-best-picture-nomination-first-documentary/
+
+A24's acclaimed Elizabeth Holmes documentary You Can See Everything is destined to make history, as a splashy debut strengthens its Oscar chances.
+---------
+
+# Syfy's 65-Episode 'The X-Files Meets Dan Brown' Series Belonged To A Much Bigger Shared Universe
+
+TV, Masked Recs
+
+Mon, 19 Oct 2026 21:00:18 GMT
+
+https://screenrant.com/warehouse-13-syfy-shared-universe-tv-series/
+
+An underrated Syfy procedural with shades of The X-Files hid cursed relics, bureaucratic agents and subtle crossovers across two other cult shows.
+---------
+
+# 5 Best New Prime Video Series To Binge-Watch This Week (October 19–23, 2026)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 19 Oct 2026 21:00:18 GMT
+
+https://screenrant.com/best-new-prime-video-shows-to-watch-week-october-19-2026/
+
+Binge-watch The Terminal List season 2, Carrie, Helluva Boss season 3, Neagley, and The Rainmaker on Prime Video from October 19–23, 2026.
+---------
+
+# Spider-Man: Brand New Day Already Has the Greatest Scene in MCU History
+
+Movies, Spider-Man: Brand New Day
+
+Mon, 19 Oct 2026 21:30:11 GMT
+
+https://www.cbr.com/spider-man-brand-new-day-best-final-scene-mcu-history/
+
+The Spider-Man franchise has produced some of the most emotional and memorable moments in the MCU, and Brand New Day has delivered another.
+---------
+
+# 5 Most Unwatchable Classic '80s Anime
+
+Anime, Innovation
+
+Mon, 19 Oct 2026 21:30:11 GMT
+
+https://www.cbr.com/unwatchable-classic-80s-anime-list/
+
+Anime like Saint Seiya were great in the '80s, but they're completely unwatchable today.
+---------
+
+# Jackie Chan's Explosive Action Thriller Is Getting a New Release in Just 2 Weeks
+
+Movies, The Shadow's Edge, Action, Thriller
+
+Mon, 19 Oct 2026 21:28:24 GMT
+
+https://www.cbr.com/shadows-edge-jackie-chan-streaming-where-to-watch/
+
+Jackie Chan's latest epic action movie is back.
+---------
+
+# Wicker: What Happens When You Create the Perfect Man?
+
+Movies, Wicker
+
+Mon, 19 Oct 2026 21:15:12 GMT
+
+https://www.cbr.com/video/wicker-what-happens-when-you-create-the-perfect-man/
+
+The Wicker Husband's unusual anatomy sparked one of the funniest debates behind Wicker (2026). Writers and directors Eleanor Wilson and Alex Huston Fischer explain how Weta Workshop spent 18 months developing the film's extraordinary prosthetics, including a surprisingly important conversation about nipples.
+---------
+
+# Order of the Sinking Star Is the Coziest Puzzle Game of 2026
+
+Games, Video Games, puzzles, Reviews, puzzle games
+
+Mon, 19 Oct 2026 21:15:12 GMT
+
+https://www.cbr.com/order-of-the-sinking-star-review/
+
+Order of the Sinking Star comes from puzzle master Jonathan Blow as this games contains over 500 hours of puzzles that gamers need to check out.
+---------
+
+# He-Man Finally Returns With New Physical Release Available for Preorder Now
+
+Games, He-Man, Masters of the Universe
+
+Mon, 19 Oct 2026 21:01:12 GMT
+
+https://www.cbr.com/he-man-returns-with-new-physical-release-available-for-preorder-now/
+
+He-Man and the Masters of the Universe are finally back in 2027 with a brand-new game, and fans can grab the physical release preorder right now.
+---------
+
+# Netflix’s New 7-Part Series Based on Classic Novel Lands at No. 3 With 782M Minutes Watched
+
+TV, East of Eden, Netflix
+
+Mon, 19 Oct 2026 21:01:12 GMT
+
+https://www.cbr.com/east-of-eden-nielsen-charts-september-28-2026/
+
+Netflix's new adaptation of East of Eden is one of the most streamed shows in the world with almost 800 million minutes viewed.
+---------
+
+# Jenna Ortega's New 116-Minute Sci-Fi Drama Continues 2-Year-Old Rotten Tomatoes Trend
+
+Movies, Rotten Tomatoes, Klara and the Sun
+
+Mon, 19 Oct 2026 20:40:56 GMT
+
+https://www.cbr.com/jenna-ortega-klara-and-the-sun-rotten-tomatoes-trend/
+
+The Wednesday star has just continued a Rotten Tomatoes score trend.
+---------
+
+# Black Clover Season 2, Episode 4 Finally Reveals Nacht’s Past as He Fights for His Life
+
+Anime, Black Clover, Shonen Jump, Crunchyroll
+
+Mon, 19 Oct 2026 20:35:12 GMT
+
+https://www.cbr.com/black-clover-season-2-episode-4-nacht-past-revealed/
+
+Black Clover Season 2, Episode 4 pushes Nacht to his breaking point as he fights for his life against two high-ranking demons.
+---------
+
+# Richard Riehle, Star Trek, Office Space, and Casino Actor, Dies at 78
+
+TV, Star Trek, Casino, Office Space
+
+Mon, 19 Oct 2026 20:29:28 GMT
+
+https://www.cbr.com/richard-riehle-dead-78-star-trek-casino-office-space/
+
+Veteran actor Richard Riehle has died.
+---------
+
+# ‘Obsession’ Officially Sets Netflix Release Date
+
+Movie News, Obsession, Horror, Netflix, Streaming
+
+Mon, 19 Oct 2026 21:30:12 GMT
+
+https://collider.com/obsession-streaming-netflix-release-date-november-17-2026/
+
+Obsession, the highest-grossing original horror movie of the century, begins streaming on Netflix in the U.S. next month.
+---------
+
+# 5 Near Perfect Thriller Series on Netflix You Can Binge in a Weekend
+
+TV, Adolescence, Bodyguard, The Gentlemen, Dept. Q
+
+Mon, 19 Oct 2026 21:05:33 GMT
+
+https://collider.com/near-perfect-thriller-series-netflix-binge-weekend/
+
+From Adolescence to The Gentlemen, you’ll cancel your weekend plans for these five Netflix thrillers.
+---------
+
+# Anya Taylor-Joy’s Explosive New Thriller Has Officially Taken Over the World
+
+Movie News, Sacrifice, Anya Taylor-Joy, Chris Evans, Netflix
+
+Mon, 19 Oct 2026 21:00:12 GMT
+
+https://collider.com/sacrifice-anya-taylor-joy-chris-evans-netflix-global-top-10-october-2026/
+
+Anya Taylor-Joy and Chris Evans’ new thriller Sacrifice has broken into Netflix’s global Top 10 just days after its release.
+---------
+
+# 10 Sci-Fi Movies That Aren't Futuristic Anymore
+
+Movie, 2001: A Space Odyssey, Metropolis, Akira, Blade Runner
+
+Mon, 19 Oct 2026 20:48:12 GMT
+
+https://collider.com/sci-fi-movies-not-futuristic-anymore/
+
+Plenty of classic sci-fi movies were once futuristic, but now technically aren't, like Soylent Green, Metropolis, and most of 2001: A Space Odyssey.
+---------
+
+# 3 Elite Series to Binge on Netflix This Week (Oct 19-23)
+
+TV, The Audacity, Designated Survivor, Castle Rock, Netflix
+
+Mon, 19 Oct 2026 20:47:12 GMT
+
+https://collider.com/netflix-shows-binge-october-19-2026/
+
+Castle Rock, Designated Survivor, and The Audacity make up our list of the best Netflix shows to binge the week of October 19.
+---------
+
+# Marvel Officially Replaces Sue Storm
+
+Books and Comics News, Fantastic Four, Marvel Comics, Marvel, Doctor Doom
+
+Mon, 19 Oct 2026 20:45:12 GMT
+
+https://collider.com/doctor-doom-invisible-woman-sue-storm-powers-doomquest-5/
+
+Marvel’s Doomquest #5 preview puts Doctor Doom inside Sue Storm’s body as he discovers what the Fantastic Four hero’s powers can do.
+---------
+
+# Jack Reacher Officially Returns Tomorrow
+
+Books and Comics News, Reacher, Jack Reacher, Alan Ritchson
+
+Mon, 19 Oct 2026 20:30:12 GMT
+
+https://collider.com/jack-reacher-chain-reaction-new-release-october-20/
+
+Jack Reacher returns in Chain Reaction on October 20, reuniting with Susan Turner for a murder investigation tied to the Pentagon.
+---------
+
+# ‘SNL UK’ Just Opened the Door to a Major ‘Saturday Night Live’ Formula Shake-Up
+
+TV Features, Saturday Night Live, Saturday Night Live UK, Donald Trump, Peacock
+
+Mon, 19 Oct 2026 20:24:12 GMT
+
+https://collider.com/snl-uk-saturday-night-live-crossover-james-austin-johnson-donald-trump/
+
+James Austin Johnson's surprise Trump cameo on SNL UK shows why crossovers could be the key to both shows' future success.
+---------
+
+# 'The Simpsons' Just Made Its Next Big Comeback Much Easier
+
+TV Features, The Simpsons, Disney+, Hulu, The Problem with Apu
+
+Mon, 19 Oct 2026 20:18:12 GMT
+
+https://collider.com/the-simpsons-treehouse-of-horror-dr-nick-comeback-after-apu/
+
+The Simpsons finally brought back Apu after a decade, but he's not the only long-lost character to return.
+---------
+
+# New President of the United States Officially Revealed by Marvel
+
+Books and Comics News, Ms. Marvel, Marvel, Marvel Comics, X-Men
+
+Mon, 19 Oct 2026 20:15:12 GMT
+
+https://collider.com/marvel-new-president-united-states-ms-marvel-kamala-khan/
+
+Marvel’s Inglorious X-Force #10 preview brings a familiar superhero to the White House as the team’s trip through time takes another turn.
+---------
+
+# 'Reacher' Favorite Joins Forces With Nicolas Cage for New 'Fight Club'-Style Crime Thriller
+
+Streaming, Nicolas Cage, Reacher, Drama
+
+Mon, 19 Oct 2026 21:20:23 GMT
+
+https://movieweb.com/clay-reacher-nicolas-cage-agnez-mo/
+
+This pop star-turned-actor is moving up the Hollywood ladder.
+---------
+
+# Prime Video's 3-Season Action War Epic Is the Best Ancient Rome Series in 16 Years
+
+Features, Britannia, Spartacus, War, Action, Thriller, Prime Video, STARZ
+
+Mon, 19 Oct 2026 21:00:17 GMT
+
+https://movieweb.com/brittania-streaming-recommendation/
+
+Prime Video's underrated Roman epic war TV series combines history and adventure, and it's a must-watch show.
+---------
+
+# Burt Reynolds' "Unflinching" 54-Year-Old Adventure Thriller Masterpiece Officially Sets New Release
+
+Movie News, Deliverance, Burt Reynolds, Thriller, Adventure, Blu-ray
+
+Mon, 19 Oct 2026 21:00:17 GMT
+
+https://movieweb.com/deliverance-burt-reynolds-4k-blu-ray-release/
+
+The Criterion Collection has officially announced a 4K Ultra HD Blu-ray release of Burt Reynolds' 1972 survival thriller, 'Deliverance.'
+---------
+
+# Star of Guy Ritchie's Hit Netflix Action Thriller Officially Not Returning for Season 3
+
+TV News, The Gentlemen, Netflix, Crime, Action
+
+Mon, 19 Oct 2026 20:53:15 GMT
+
+https://movieweb.com/the-gentlemen-season-3-daniel-ings-freddy/
+
+The crime show will have a cast shake-up in the upcoming season.
+---------
+
+# Brandon Sanderson's 'Mistborn' Is Officially Switching Genres After 7 Books
+
+Features, Mistborn, Fantasy
+
+Mon, 19 Oct 2026 20:31:45 GMT
+
+https://movieweb.com/mistborn-brandon-sanderson-genre-change/
+
+'Mistborn' will officially change genres with Era 3, and 'Ghostbloods' might benefit from a more advanced setting and new storytelling approach.
+---------
+
+# Netflix Officially Confirms Fate of New Gwyneth Paltrow A24 Thriller Series
+
+TV News, Gwyneth Paltrow, A24, Netflix, Drama, Thriller
+
+Mon, 19 Oct 2026 20:13:56 GMT
+
+https://movieweb.com/the-apology-season-2-netflix-order/
+
+Gwyneth Paltrow teams up with another Oscar-winner for this new show.
+---------
+
+# One of the Greatest Christmas Movies Ever Made Sets New Release
+
+Movie News, It's a Wonderful Life, Frank Capra, Donna Reed, James Stewart, Drama, Christmas
+
+Mon, 19 Oct 2026 19:42:13 GMT
+
+https://movieweb.com/its-a-wonderful-life-80th-anniversary/
+
+The past 80 years have been good to this holiday classic.
+---------
+
+# Nicolas Cage Blasts Away an Army of Assassins in Explosive New Action Thriller Trailer
+
+Movie Trailers, Nicolas Cage, Justin Long, Action
+
+Mon, 19 Oct 2026 19:00:18 GMT
+
+https://movieweb.com/best-pancakes-in-the-county-trailer/
+
+Nicolas Cage is in fine, manic form in the new trailer for 'Best Pancakes in the County.'
+---------
+
+# Remake of Matt Damon's Classic 135-Minute Thriller Adaptation Shoots to the Top of Streaming
+
+TV News, The Rainmaker, Hot on Streaming, Matt Damon, Thriller
+
+Mon, 19 Oct 2026 19:00:16 GMT
+
+https://movieweb.com/the-rainmaker-streaming-hit-october-2026/
+
+One of Matt Damon's best movies has been remade for television, and Season 2 is already a streaming hit after just one episode.
+---------
+
+# HBO's 8-Part Crime Thriller Officially Beats 'The Lincoln Lawyer' at Its Own Game
+
+Features, War, HBO Max, The Lincoln Lawyer, Crime, Thriller
+
+Mon, 19 Oct 2026 19:00:16 GMT
+
+https://movieweb.com/war-hbo-streaming-recommendation/
+
+'The Lincoln Lawyer' starring Manuel Garcia-Rulfo on Netflix is one of the best legal crime thrillers, but HBO's series is more interesting.
+---------
+
 # Apu’s The Simpsons Season 28 Return Sets A Dangerous Precedent
 
 TV, The Simpsons
