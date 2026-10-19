@@ -1,3 +1,377 @@
+# Final Fantasy 9: Not Alone Officially Announced
+
+Gaming, Final Fantasy 9, Final Fantasy
+
+Mon, 19 Oct 2026 04:30:18 GMT
+
+https://screenrant.com/final-fantasy-9-not-alone-music-box-october-2026-psa/
+
+Final Fantasy IX remains one of the most beloved games in the series, and there's a new product that celebrates its iconic music.
+---------
+
+# Halo Reboot’s Master Chief Replacement Is Dividing Fans
+
+Gaming, Halo, Master Chief
+
+Mon, 19 Oct 2026 04:00:26 GMT
+
+https://screenrant.com/halo-reboot-master-chief-replacement-fan-concern/
+
+Halo has some big questions hanging over it right now, and some fans think it's time to move on from Master Chief himself.
+---------
+
+# Manga's Greatest Masterpiece Makes Dragon Ball Feel Pointless
+
+Anime, Dragon Ball
+
+Mon, 19 Oct 2026 03:59:18 GMT
+
+https://screenrant.com/berserk-better-dragon-ball/
+
+Dragon Ball made anime fans out of millions worldwide, but the world of manga has a very different top dog.
+---------
+
+# 8 Things We Want To See From The DCU’s Live Action Robin
+
+Superheroes, Robin, DC Universe, The Brave and the Bold
+
+Mon, 19 Oct 2026 03:58:56 GMT
+
+https://screenrant.com/8-things-we-want-to-see-from-the-dcus-live-action-robin/
+
+Damian Wayne's Robin is expected to debut in the DCU alongside Batman in The Brave and the Bold, and we have more than a few expectations.
+---------
+
+# 'Silo Meets The Expanse' Sci-Fi Series Misses The Point Of The Superior Movie Version
+
+Classic TV, Masked Recs
+
+Mon, 19 Oct 2026 03:55:03 GMT
+
+https://screenrant.com/snowpiercer-tv-show-not-as-good-movie/
+
+A post-apocalyptic sci-fi TV series, which includes elements from both Silo and The Expanse, seems to miss the point of its superior movie version.
+---------
+
+# Alan Ritchson's Reacher Series Sets Up Its First Sequel
+
+Streaming TV, Reacher
+
+Mon, 19 Oct 2026 03:45:57 GMT
+
+https://screenrant.com/reacher-season-5-make-me-sequel-book/
+
+Alan Ritchson’s Reacher series has not only been renewed for seasons 5 and 6 on Prime Video but has set up a sequel for the story beyond season 5.
+---------
+
+# Charles M. Schulz Gets The Perfect Peanuts Tribute With Brand-New Sports Crossover
+
+Comics, Peanuts
+
+Mon, 19 Oct 2026 03:30:19 GMT
+
+https://screenrant.com/peanuts-charles-schulz-nhl-columbus-blue-jackets-crossover/
+
+The Peanuts gang and its creator himself have a well-known love for hockey, with the NHL commemorating the franchise for one special evening.
+---------
+
+# Pokémon Neo Ultra Takes Players Back To Alola For A New Challenge
+
+Gaming, Pokemon, Triple-A Games
+
+Mon, 19 Oct 2026 03:30:19 GMT
+
+https://screenrant.com/pokemon-neo-ultra-alola-challenge-mod/
+
+If you've been wanting to go back to Alola and are in the mood for a complex game, it's a perfect time to try out Pokémon Neo Ultra.
+---------
+
+# With One Unthinkable Act, Star Wars Ends The Darth Vader Redemption Debate
+
+Comics, Star Wars
+
+Mon, 19 Oct 2026 03:15:18 GMT
+
+https://screenrant.com/darth-vader-redemption-star-wars-unthinkable/
+
+Darth Vader was a monster long before he blew up Alderaan, and it’s proven in Charles Soule’s Marvel Comics story.
+---------
+
+# Crystal Lake Creator Confirms Why Peacock Series Had to Remove Major Friday the 13th Staple
+
+TV, Crystal Lake
+
+Mon, 19 Oct 2026 03:57:51 GMT
+
+https://www.cbr.com/peacock-crystal-lake-no-nudity/
+
+One major aspect of the Friday the 13th films was completely absent in Crystal Lake, but it wasn't for a lack of trying.
+---------
+
+# 10 Most Unplayable Games of All Time, Ranked
+
+Games, retro games
+
+Mon, 19 Oct 2026 03:55:14 GMT
+
+https://www.cbr.com/most-unplayable-games-all-time-ranked-list/
+
+Games like Bubsy 3D have always been completely unplayable.
+---------
+
+# 7 Strongest Blood Demon Arts in Demon Slayer, Ranked
+
+Anime, Demon Slayer
+
+Mon, 19 Oct 2026 03:45:15 GMT
+
+https://www.cbr.com/demon-slayer-strongest-blood-demon-arts/
+
+The strongest Blood Demon Arts are among the most powerful abilities in Demon Slayer.
+---------
+
+# Keira Knightley's 6-Episode Netflix Spy Thriller Finally Returns in 2 Weeks
+
+TV, Black Doves
+
+Mon, 19 Oct 2026 03:38:48 GMT
+
+https://www.cbr.com/black-doves-returns-netflix-season-2/
+
+Fans have been waiting two full years for the show's Netflix return.
+---------
+
+# Bandai's New Gundam Release Packs 3 Different Designs Into 1 High Grade Model Kit
+
+Anime, Mobile Suit Gundam
+
+Mon, 19 Oct 2026 03:30:15 GMT
+
+https://www.cbr.com/gundam-reben-wolf-high-grade-model-kit-three-configurations/
+
+One of the most underrated Gundam series of all time is officially the inspiration behind an incredibly customizable model kit.
+---------
+
+# Say Goodbye to Prime Video as the King of Fantasy as Apple TV Buries Amazon
+
+TV, Prime Video, Fantasy, Apple TV
+
+Mon, 19 Oct 2026 03:30:15 GMT
+
+https://www.cbr.com/apple-tv-beats-prime-video-cosmere-new-fantasy-king/
+
+For years, Amazon Prime Video has been the go-to streaming platform for fantasy fans, but that is changing.
+---------
+
+# 10 Funniest Far Side Comics That Have Witches and Magicians, Ranked
+
+Comics, The Far Side
+
+Mon, 19 Oct 2026 03:30:15 GMT
+
+https://www.cbr.com/funniest-far-side-comics-that-have-witches-and-magicians-ranked/
+
+Gary Larson, the mind behind The Far Side, is famous for his absurd style of humor, making him perfect for telling jokes about witches and magicians.
+---------
+
+# 11 Years After Paper Girls, Brian K. Vaughan and Cliff Chiang Reunite for a Brand-New Superhero Era
+
+Comics, Paper Girls, image comics, brian k vaughan
+
+Mon, 19 Oct 2026 03:17:24 GMT
+
+https://www.cbr.com/brian-k-vaughan-cliff-chiang-paper-girls-roam-new-series-interview/
+
+In a CBR exclusive interview with Brian K. Vaughan and Cliff Chiang, we talk about the legacy of Paper Girls and the launch of their new series, Roam
+---------
+
+# 10 RPGs With the Best Character Customization, Ranked
+
+Games, Lists, Video Games, Elden Ring, RPG
+
+Mon, 19 Oct 2026 03:15:14 GMT
+
+https://www.cbr.com/rpgs-best-character-customization-ranked/
+
+RPGs like Baldur's Gate and Elden Ring let players become their own hero
+---------
+
+# The Boys Recasts Homelander for New Release After Final Season
+
+Games, The Boys
+
+Mon, 19 Oct 2026 03:12:07 GMT
+
+https://www.cbr.com/the-boys-trigger-warning-homelander-cast/
+
+After five seasons on Prime Video, Antony Starr has been replaced as the voice of Homelander.
+---------
+
+# ‘The Simpsons’ Officially Fixed Its Biggest Mistake With the Return of This Character
+
+TV Features, The Simpsons, Sitcom, Horror, Fox
+
+Mon, 19 Oct 2026 04:50:36 GMT
+
+https://collider.com/the-simpsons-season-38-the-revengening-recast-apu-sunil-malhotra/
+
+The Simpsons finally brings back Apu after nine years, addressing the controversy that led to his disappearance with a new voice actor.
+---------
+
+# Star Trek’s So-Bad-It’s-Good 46-Minute Episode Is Still the Perfect Gothic Horror Watch
+
+TV Features, Star Trek, Star Trek: The Next Generation, Gates McFadden, Horror
+
+Mon, 19 Oct 2026 04:00:18 GMT
+
+https://collider.com/gates-mcfadden-star-trek-next-generation-sub-rosa-episode/
+
+Gates McFadden's Gothic horror Star Trek episode is still the perfect so-bad-it's-good hour of The Next Generation.
+---------
+
+# 7 Western Shows Where Every Episode Is a Masterpiece
+
+TV, Western, The English, 1883, Justified
+
+Mon, 19 Oct 2026 03:39:15 GMT
+
+https://collider.com/western-shows-every-episode-masterpiece/
+
+Deadwood, Longmire, The English, Godless, and more make up our list of Western shows where every episode is a masterpiece.
+---------
+
+# 'Tombstone' Changed Doc Holliday’s Actual Quote and Made Val Kilmer’s Scene Even Better
+
+Movie Features, Tombstone, Val Kilmer, Kurt Russell, Western
+
+Mon, 19 Oct 2026 03:22:53 GMT
+
+https://collider.com/tombstone-val-kilmer-real-life-doc-holliday-quote/
+
+The iconic 1993 Western movie Tombstone starring Kurt Russell and Val Kilmer altered history for the better.
+---------
+
+# 10 Miniseries That Are Better Because They Never Got a Season 2
+
+TV, TV Miniseries, Band of Brothers, The Penguin, The Queen's Gambit
+
+Mon, 19 Oct 2026 02:23:15 GMT
+
+https://collider.com/miniseries-better-without-season-2/
+
+Resisting the urge to stray into a second season, miniseries masterpieces like Midnight Mass and Chernobyl prove that less really is more.
+---------
+
+# 'Tracker' Officially Changes Up Colter Shaw for the First Time Since Season 2 | Review
+
+TV Reviews, Tracker, Justin Hartley, CBS, Action
+
+Mon, 19 Oct 2026 02:00:25 GMT
+
+https://collider.com/tracker-season-4-episode-3-review-colter-love-interest/
+
+Tracker takes Colter Shaw to Texas for a new case, and the show finally gives the rewardist a new love interest for the first time since Season 2.
+---------
+
+# 8 Most Influential Fantasy Movies of All Time, Ranked
+
+Movie, Fantasy, The Lord of the Rings: The Fellowship of the Ring, Harry Potter and the Sorcerer's Stone, The Chronicles of Narnia: The Lion, the Witch and the Wardrobe
+
+Mon, 19 Oct 2026 01:23:15 GMT
+
+https://collider.com/most-influential-fantasy-movies-all-time-ranked/
+
+How to Train Your Dragon, Spirited Away, The Wizard of Oz, and more make up our list of the most influential fantasy movies of all time.
+---------
+
+# Pokémon Officially Unveils 3 New Costumed Favorites for Halloween
+
+Gaming News, Pokémon, Pokemon GO, Video Game, iPhone
+
+Mon, 19 Oct 2026 01:16:14 GMT
+
+https://collider.com/pokemon-go-halloween-2026-event-costumed-characters/
+
+Pokémon GO’s Halloween 2026 event introduces three new costumed Pokémon, Shiny encounters, and seasonal rewards beginning October 27.
+---------
+
+# ‘The Rookie’ Is Officially Fixing the Show’s Biggest Problem
+
+TV Features, The Rookie, Troian Bellisario, Nathan Fillion, ABC
+
+Mon, 19 Oct 2026 01:10:15 GMT
+
+https://collider.com/the-rookie-nathan-fillion-abc-cast-troian-bellisario-season-9/
+
+Troian Bellisario joins Season 9 of The Rookie as a single mom restarting her life, a character harkening back to John Nolan’s (Nathan Fillion) story.
+---------
+
+# Shrek Officially Returns With New Release
+
+Gaming News, Shrek, Shrek 2, Video Game
+
+Mon, 19 Oct 2026 01:00:14 GMT
+
+https://collider.com/shrek-2-remastered-game-microsoft-store-leak/
+
+A Shrek 2 Remastered listing has surfaced with upgraded graphics, new features, and an exciting update for multiplayer fans.
+---------
+
+# After 5 Years, Marvel Officially Ends a Divisive Era at the Worst Possible Time
+
+Features, Marvel Cinematic Universe, Superhero
+
+Mon, 19 Oct 2026 03:00:26 GMT
+
+https://movieweb.com/marvel-disney-plus-tv-era-ending/
+
+The Marvel Cinematic Universe is moving away from its Disney+ era at the worst time, as it finally feels like the franchise has found its TV footing.
+---------
+
+# 10 Best Horror Thrillers You Missed in 2026
+
+Features, Horror, Thriller
+
+Mon, 19 Oct 2026 02:30:17 GMT
+
+https://movieweb.com/best-horror-thrillers-2026/
+
+There were plenty of excellent high-profile horror thrillers in 2026, but some of the most critically-acclaimed flew well under the radar.
+---------
+
+# 'Tulsa King' Season 4, Episode 1's Major Character Deaths Explained By Star
+
+Exclusives, Tulsa King, Neal McDonough, Crime, Drama, Comedy
+
+Mon, 19 Oct 2026 02:15:10 GMT
+
+https://movieweb.com/tulsa-king-season-4-cal-thresher-death-neal-mcdonough/
+
+'Tulsa King's Season 4 premiere hit the ground running with a shocking cliffhanger.
+---------
+
+# The 10 Greatest 'Lord of the Rings' Quotes About Friendship
+
+Movie Lists, The Lord of the Rings, Fantasy
+
+Mon, 19 Oct 2026 01:00:17 GMT
+
+https://movieweb.com/lord-of-the-rings-friendship-quotes/
+
+These 'Lord of the Rings' quotes are short enough for a coffee mug and profound enough to make a grown adult shed a tear or two.
+---------
+
+# 15 Years Later, Steven Spielberg's $374 Million Action-Adventure Sequel Gets Major Update
+
+Movie News, Peter Jackson, Steven Spielberg, The Adventures of Tintin, Adventure
+
+Mon, 19 Oct 2026 00:40:01 GMT
+
+https://movieweb.com/tintin-2-peter-jackson-next-movie/
+
+The Adventures of Tintin 2 may finally be moving forward, with Peter Jackson now calling it the next film he plans to direct.
+---------
+
 # Yellowstone's Monica Replacement Plans Clarified By Stars Amid Fan Reactions
 
 TV, Yellowstone, Marshals
