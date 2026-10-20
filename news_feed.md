@@ -1,3 +1,344 @@
+# Stargate SG-1: Serpent Replica Officially Announced For December 2026
+
+Gaming, Stargate, Triple-A Games
+
+Tue, 20 Oct 2026 05:30:17 GMT
+
+https://screenrant.com/stargate-sg1-serpent-replica-december-2026/
+
+The Stargate series continues to thrive for fans to this day, and the Stargate SG-1: Serpent Replica is a great example of why that is.
+---------
+
+# Game Of Thrones: The Radiant Conqueror Officially Announced
+
+Gaming, Game of Thrones, Game Of Thrones: Dragonfire, PC
+
+Tue, 20 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/game-of-thrones-dragonfire-radiant-conqueror/
+
+A brand-new release for Game of Thrones: Dragonfire titled The Radiant Conqueror has been officially unveiled, and fans will want to check it out.
+---------
+
+# One Of Prime Video's Best Sci-Fi Shows Takes Less Than 8 Hours To Binge
+
+Streaming TV, Masked Recs
+
+Tue, 20 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/tales-from-the-loop-binge-less-than-8-hours/
+
+A lot of the best sci-fi shows are also colossal time investments, but this 8 episode gem from Prime Video delivers a satisfyingly bite-sized saga.
+---------
+
+# Mass Effect Meets Valheim In New Sci-Fi RPG With Over 90,000 Wishlists
+
+Gaming, Mass Effect, Valheim, Steam, PC
+
+Tue, 20 Oct 2026 04:30:17 GMT
+
+https://screenrant.com/mass-effect-meets-valheim-in-new-sci-fi-rpg-with-over-90000-wishlists/
+
+Fans of Valheim and Mass Effect will absolutely want to check out this new space sim sci-fi RPG that's gaining a lot of traction.
+---------
+
+# Steam Officially Drops 4 New Free Games You Can Download And Keep Forever (October 19)
+
+Gaming
+
+Tue, 20 Oct 2026 04:00:24 GMT
+
+https://screenrant.com/steam-4-free-games-october-2026-keep-forever/
+
+Steam users can pick up five brand-new free games today, and the best part is that you get to keep them forever.
+---------
+
+# Why Narnia's The Magician's Nephew Trailer Using Led Zeppelin's Stairway To Heaven Is Perfect
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia
+
+Tue, 20 Oct 2026 03:46:06 GMT
+
+https://screenrant.com/narnia-magicians-nephew-trailer-led-zeppelin-stairway-to-heaven-song/
+
+The first trailer for Greta Gerwig's new Narnia movie has recently been released, featuring a historic song choice that is all kinds of bold.
+---------
+
+# Black Mirror's Most Basic Episode Is A Masterclass In Misery
+
+Streaming TV, Black Mirror
+
+Tue, 20 Oct 2026 03:30:18 GMT
+
+https://screenrant.com/black-mirror-eulogy-masterclass-misery/
+
+One of the most basic episodes in Black Mirror follows a very simple concept and story and still manages to become a masterclass in misery and grief.
+---------
+
+# The Legend Of Zelda: Symphonic Tale Officially Announced
+
+Gaming, The Legend of Zelda, Nintendo
+
+Tue, 20 Oct 2026 03:00:19 GMT
+
+https://screenrant.com/legend-of-zelda-symphonic-tale-announced/
+
+A brand-new Legend of Zelda project titled Symphonic Tale has been officially announced, giving fans an all-new release to get excited about.
+---------
+
+# Breaking Bad & Better Call Saul: Correct Watch Order Explained
+
+TV, Breaking Bad, El Camino: A Breaking Bad Movie, Better Call Saul
+
+Tue, 20 Oct 2026 02:40:19 GMT
+
+https://screenrant.com/breaking-bad-better-call-saul-camino-watching-order/
+
+There are a few different orders to watch Breaking Bad, Better Call Saul, and El Camino. Here’s the correct way to follow the Breaking Bad universe.
+---------
+
+# HBO's The Gilded Age Officially Cuts Two Stars Who've Been Part of the Show Since Season 1
+
+TV, The Gilded Age
+
+Tue, 20 Oct 2026 03:54:22 GMT
+
+https://www.cbr.com/hbo-the-gilded-age-characters-cut-season-4/
+
+After being a part of the HBO show's first three seasons, two stars of The Gilded Age have been left out in the cold for Season 4.
+---------
+
+# 10 Greatest RPG Masterpieces of the Last Decade
+
+Games, Role Playing Game, RPG
+
+Tue, 20 Oct 2026 03:46:12 GMT
+
+https://www.cbr.com/greatest-rpg-masterpieces-last-decade-list/
+
+RPGs like Clair Obscur stand as the best games of the modern era.
+---------
+
+# Netflix Adds Starz's Canceled 16-Part Comedy Drama Spinoff With 100% RT
+
+TV, Blindspotting
+
+Tue, 20 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/blindspotting-netflix-streaming-october-2026/
+
+The perfectly-rated series finally hits Netflix to find a new audience years after being canceled.
+---------
+
+# Patrick Stewart's Favorite Star Trek Episode Deserves to Be Called a Sci-Fi Masterpiece
+
+TV, Star Trek, Star Trek: The Next Generation, Sci-Fi
+
+Tue, 20 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/star-trek-the-next-generation-patrick-stewart-favorite-episode-the-inner-light/
+
+Patrick Stewart has named his favorite Star Trek: The Next Generation episode, and it is more than worthy of the actor's praise.
+---------
+
+# 10 Funniest Far Side Comics Featuring Postal Workers, Ranked
+
+Comics, The Far Side
+
+Tue, 20 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/funniest-far-side-comics-featuring-postal-workers-ranked/
+
+Many themes have been visited in The Far Side, and one of the most outstandingly hilarious features is the trials and tribulations of postal workers.
+---------
+
+# Judi Dench Reflects on Starring in Infamous 'Worst Picture' Razzie Winner: 'What a Waste'
+
+Movies, Cats
+
+Tue, 20 Oct 2026 03:21:27 GMT
+
+https://www.cbr.com/judi-dench-cats-movie/
+
+Judi Dench opens up on appearing in one of the most embarrassing flops in movie history.
+---------
+
+# New Solo Leveling Trailer Teases the Tragic Death of Sung Jinwoo
+
+Anime, Solo Leveling:ARISE, Solo Leveling
+
+Tue, 20 Oct 2026 03:05:12 GMT
+
+https://www.cbr.com/solo-leveling-arise-new-trailer-sung-jinwoo-final-death/
+
+Sung Jinwoo's entire journey in Solo Leveling began with his death, but a new trailer is hinting at a more permanent death he can never return from.
+---------
+
+# Marvel Made A-List Actor Feel Trapped in MCU Role, Says 'They Wouldn't Let Me' Quit
+
+Movies, Marvel Cinematic Universe
+
+Tue, 20 Oct 2026 02:52:31 GMT
+
+https://www.cbr.com/michael-douglas-trapped-marvel-ant-man-role/
+
+Requests to have his character killed off were denied before Marvel Studios finally acquiesced.
+---------
+
+# 7 Greatest Might Guy Battles In Naruto
+
+Anime, Naruto, Innovation, shonen anime
+
+Tue, 20 Oct 2026 02:45:12 GMT
+
+https://www.cbr.com/greatest-might-guy-battles-in-naruto/
+
+Not taking Might Guy seriously as a ninja is usually an enemy's first and last mistake.
+---------
+
+# 10 Free Steam Games That Are 10/10, No Notes
+
+Games
+
+Tue, 20 Oct 2026 02:30:12 GMT
+
+https://www.cbr.com/free-steam-games-flawless-no-notes-list/
+
+Steam games like Marvel Rivals prove that some of the best games are completely free.
+---------
+
+# Netflix Officially Redeems One of 2026's Biggest Box Office Bombs
+
+Movie Features, Netflix, The Breadwinner, Mandy Moore, Comedy
+
+Tue, 20 Oct 2026 04:42:12 GMT
+
+https://collider.com/netflix-redeems-box-office-bomb-the-breadwinner/
+
+'The Breadwinner', directed by Eric Appel, depicts a perfect family turned upside down as dad has to take the place of a stay at home mom.
+---------
+
+# 10 Netflix Adventure Shows Where Every Episode Is a Masterpiece
+
+TV, Netflix, Adventure, Castlevania, The Last Kingdom
+
+Tue, 20 Oct 2026 04:18:12 GMT
+
+https://collider.com/netflix-adventure-shows-every-episode-masterpiece/
+
+From the dark fantasy Castlevania to the sci-fi series Lost in Space, every episode of these Netflix adventure shows is a genuine masterpiece.
+---------
+
+# Tolkien Calls This the Most Tragic Moment in The Lord of the Rings
+
+Books and Comics, Books, The Lord of the Rings: The Two Towers, J.R.R. Tolkien, The Lord of the Rings
+
+Tue, 20 Oct 2026 04:14:12 GMT
+
+https://collider.com/j-r-r-tolkien-lord-of-the-rings-most-tragic-moment-gollum/
+
+According to Tolkien, a crucial moment concerning the tragic anti-hero Gollum shifted The Lord of the Rings' tone, even if it didn't seem like much.
+---------
+
+# 26 Years Later, the Greatest Action Epic Quote Still Officially Defines the Genre
+
+Movie Features, Gladiator, Ridley Scott, Russell Crowe, Action
+
+Tue, 20 Oct 2026 04:05:12 GMT
+
+https://collider.com/gladiator-ridley-scott-best-quote-epic-film-russell-crowe/
+
+In 2000, Ridley Scott and Russell Crowe made action history with this iconic line from Gladiator, their hit Roman epic.
+---------
+
+# Chris Pratt's 'The Terminal List' Officially Refuses To Back Down With an Action-Packed Season 2 | Review
+
+TV Reviews, The Terminal List, Chris Pratt, Prime Video
+
+Tue, 20 Oct 2026 04:00:14 GMT
+
+https://collider.com/the-terminal-list-season-2-review-chris-pratt-prime-video/
+
+The Terminal List Season 2 returns with even more explosive action and character depth, kicking off an impressive new chapter on Prime Video.
+---------
+
+# 10 Greatest Superhero Shows That Are Worth Watching Over and Over, Ranked
+
+TV, Superhero, Loki, The Flash, Smallville
+
+Tue, 20 Oct 2026 03:55:12 GMT
+
+https://collider.com/superhero-shows-worth-watching-over-and-over-ranked/
+
+From Superman & Lois to Batman: The Animated Series, these superhero shows are the types of series that are worth returning to for a rewatch.
+---------
+
+# ‘Family Guy’ Has Officially Dethroned 'The Simpsons' After 25 Seasons
+
+TV Features, The Simpsons, Family Guy, Seth MacFarlane, Mila Kunis, Fox, Hulu
+
+Tue, 20 Oct 2026 03:16:12 GMT
+
+https://collider.com/family-guy-halloween-special-hulu-the-simpsons/
+
+Family Guy's Halloween specials on Hulu have eclipsed The Simpsons’ iconic "Treehouse of Horror" episodes.
+---------
+
+# 'Jurassic Park's Best Line Is Still the Greatest Quote in Franchise History
+
+Movie Features, Jurassic Park, Jeff Goldblum, Universal
+
+Tue, 20 Oct 2026 03:11:12 GMT
+
+https://collider.com/jurassic-park-best-quote-sci-fi-jeff-goldblum/
+
+One of Jurassic Park's earliest quotes has come to define the sci-fi franchise 33 years later.
+---------
+
+# Tom Hanks’ Hit Mystery Thriller Officially Leaves Netflix November 1
+
+Movie News, Tom Hanks, Angels & Demons, Netflix, Thriller
+
+Tue, 20 Oct 2026 02:30:12 GMT
+
+https://collider.com/angels-and-demons-leaving-netflix-november-1-tom-hanks/
+
+One of Hollywood's biggest religious puzzle adaptations is about to disappear, leaving fans with very little time left to watch.
+---------
+
+# Star Wars Officially Takes Over Super Bowl LXI for 50th Anniversary
+
+TV News, Star Wars, Super Bowl, Anthony Daniels, ESPN
+
+Tue, 20 Oct 2026 02:00:22 GMT
+
+https://collider.com/star-wars-super-bowl-funday-football-telecast-disney-plus-channel-xd-espn/
+
+Disney and ESPN's next animated Funday Football telecast will bring the Super Bowl to the world of Star Wars with Anthony Daniels returning as C-3PO.
+---------
+
+# The One Question Nathan Fielder Still Can’t Get Elizabeth Holmes to Answer
+
+Features, You Can See Everything, Nathan Fielder, Documentary
+
+Tue, 20 Oct 2026 02:00:26 GMT
+
+https://movieweb.com/you-can-see-everything-how-much-elizabeth-holmes-knew/
+
+'You Can See Everything's three-hour runtime puts Nathan Fielder up close and personal with Holmes, but one key question still remains.
+---------
+
+# Crunchyroll's 173-Episode Fantasy Action Epic Is Officially One of the Biggest Shows on Streaming
+
+TV News, Black Clover, Crunchyroll, Hot on Streaming, Action, Fantasy, Anime
+
+Tue, 20 Oct 2026 01:00:16 GMT
+
+https://movieweb.com/black-clover-stream-crunchyroll-october-2026/
+
+Crunchyroll's hit fantasy anime is finally back with new episodes, and it's already a hit.
+---------
+
 # 7 Best Star Wars Book Villains Better Than Kylo Ren
 
 Books, Star Wars, Ben Solo/Kylo Ren
