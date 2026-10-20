@@ -1,3 +1,443 @@
+# 18 Years Later, William Shatner’s Best Quote In Boston Legal Is Still The Greatest Meta Joke In TV History
+
+Classic TV, Boston Legal
+
+Tue, 20 Oct 2026 19:30:18 GMT
+
+https://screenrant.com/boston-legal-william-shatner-denny-crane-spaceship-joke-best-meta-tv-comedy/
+
+William Shatner's memorable meta joke in Boston Legal is a series and TV best, showcasing his unique comedic talent and ability to be in on the joke.
+---------
+
+# I Wish Street Fighter Had Spent More Time With These Two Underused Heroes
+
+Movies, Street Fighter
+
+Tue, 20 Oct 2026 19:20:17 GMT
+
+https://screenrant.com/street-fighter-guile-dhalsim-sequel-op-ed/
+
+Street Fighter's massive cast meant that some of the characters felt underserved -- and they deserve more time in the spotlight in  a possible sequel.
+---------
+
+# David Corenswet Compares Man Of Tomorrow To The Empire Strikes Back, Teases Clark, Lois & Lex's Relationships
+
+Movies, Man of Tomorrow
+
+Tue, 20 Oct 2026 19:20:17 GMT
+
+https://screenrant.com/man-of-tomorrow-david-corenswet-empire-strikes-back-clark-lois-lex-relationships/
+
+David Corenswet compared Man of Tomorrow to The Empire Strikes Back, hinting that Superman's biggest challenge may come from those closest to him.
+---------
+
+# Taylor Sheridan’s 3-Part Spy Thriller Sets All-Time Paramount+ Record With New Release
+
+TV, Lioness, Lioness - Season 3
+
+Tue, 20 Oct 2026 19:18:32 GMT
+
+https://screenrant.com/taylor-sheridan-lioness-season-3-ending-paramount-plus-viewership-record/
+
+Taylor Sheridan's three-part spy thriller sets an all-time Paramount+ record with its new release, exactly one month after airing its finale.
+---------
+
+# When Call Of Duty: Modern Warfare 4 Goes Live In Your Region (Global Launch Times)
+
+Gaming, Call of Duty, Live Service Games, PC
+
+Tue, 20 Oct 2026 19:14:58 GMT
+
+https://screenrant.com/cod-modern-warfare-4-global-release-times/
+
+Call of Duty: Modern Warfare 4 has a slightly complicated approach to global release times, but it should end up being reasonably convenient for most.
+---------
+
+# GTA 6 Move Aside, Bully Is Back With An Unreal Engine 5 Remake
+
+Gaming, Grand Theft Auto 6, Rockstar Games, Bully, PC
+
+Tue, 20 Oct 2026 19:00:18 GMT
+
+https://screenrant.com/bully-unreal-engine-5-remake-demo/
+
+Grand Theft Auto 6 may not be the biggest Rockstar game of 2026 after all, as Bully has gotten a UE5 remake that looks incredible.
+---------
+
+# Xbox Project Helix Price & Release Window Revealed In New Report
+
+Gaming, Xbox, Triple-A Games
+
+Tue, 20 Oct 2026 18:57:42 GMT
+
+https://screenrant.com/xbox-project-helix-price-release-window-report/
+
+While everyone is waiting for a full reveal from Microsoft, the Xbox Project Helix speculation has reached a fever pitch, and it's unexpected.
+---------
+
+# Winona Ryder's New Wednesday Season 3 Character Teased By Jenna Ortega
+
+TV, Wednesday, Addams Family, Jenna Ortega, Winona Ryder
+
+Tue, 20 Oct 2026 18:43:19 GMT
+
+https://screenrant.com/wednesday-season-3-winona-ryder-tabitha-jenna-ortega-tease/
+
+Wednesday Addams actor Jenna Ortega reveals an intriguing new tease about Winona Ryder's upcoming Wednesday season 3 character, Tabitha.
+---------
+
+# 7 Far Side Comics With Perfect Pop Culture References
+
+Comics, The Far Side
+
+Tue, 20 Oct 2026 18:42:17 GMT
+
+https://screenrant.com/far-side-perfect-pop-culture-references-gary-larson/
+
+Gary Larson's references are impeccable.
+---------
+
+# John Green Reveals The Author Who Changed His Life
+
+Books
+
+Tue, 20 Oct 2026 18:40:58 GMT
+
+https://screenrant.com/john-green-authors-changed-life/
+
+Author John Green traces his literary roots back to his young adult reading experiences, revealing the books that shaped him as a person and writer.
+---------
+
+# DC's Absolute Universe Deluxe Hardcover Editions Unexpectedly Cancelled
+
+Comics, Absolute Universe, Absolute Batman
+
+Tue, 20 Oct 2026 19:22:22 GMT
+
+https://www.cbr.com/dc-absolute-universe-deluxe-hardcover-cancellations/
+
+A big surprise for DC's Absolute Universe.
+---------
+
+# Miraculous Gives Ladybug & Cat Noir a Brand-New Adventure Starting February 27
+
+Anime, Miraculous: Tales of Ladybug & Cat Noir
+
+Tue, 20 Oct 2026 19:21:12 GMT
+
+https://www.cbr.com/miraculous-ladybug-cat-noir-live-stage-spectacular-cities-dates/
+
+Fans of Miraculous: Tales of Ladybug & Cat Noir will officially be able to see their favorite teenage superheroes up-close and in-person next year.
+---------
+
+# The Simpsons' 37-Year Halloween Tradition Debuts Tim Burton Crossover
+
+TV, The Simpsons
+
+Tue, 20 Oct 2026 19:07:35 GMT
+
+https://www.cbr.com/the-simpsons-treehouse-of-horror-tim-burton-crossover/
+
+The Simpsons finally gets the Tim Burton treatment.
+---------
+
+# Netflix's Next Big Horror Binge Is a 30-Episode Mystery Box Show With 96% on RT
+
+TV, From, Netflix, Horror
+
+Tue, 20 Oct 2026 19:01:12 GMT
+
+https://www.cbr.com/from-streaming-on-netflix/
+
+One of the best horror mysteries has finally arrived on Netflix, and its 30 episodes could keep subscribers hooked long after Halloween.
+---------
+
+# 8 Spy Action Movies Perfect If You Love James Bond
+
+Movies, James Bond, Action, Thriller
+
+Tue, 20 Oct 2026 19:01:12 GMT
+
+https://www.cbr.com/best-spy-action-movies-for-james-bond-fans-list/
+
+Ian Fleming's James Bond franchise dominates the spy action genre, but there are plenty of masterpieces that rival the likes of Casino Royale.
+---------
+
+# Zelda's Sold-Out 40th Anniversary Switch 2 Is Getting Restocked
+
+Games, The Legend of Zelda, Nintendo
+
+Tue, 20 Oct 2026 18:45:12 GMT
+
+https://www.cbr.com/legend-of-zelda-sold-out-switch-2-restocked/
+
+Nintendo is officially restocking the special 40th anniversary Legend of Zelda edition of the Switch 2.
+---------
+
+# 4 Hunter x Hunter Characters Stronger Than Chrollo
+
+Anime, Hunter x Hunter, Innovation
+
+Tue, 20 Oct 2026 18:15:12 GMT
+
+https://www.cbr.com/hunter-x-hunter-characters-stronger-chrollo/
+
+The Phantom Troupe's leader is one of the strongest characters in Hunter X Hunter, but these powerful fighters could defeat Chrollo Lucilfer.
+---------
+
+# Netflix's R-Rated Steamy Thriller With 2B Minutes Viewed Confirms Major Change Before Return
+
+TV, The Hunting Wives
+
+Tue, 20 Oct 2026 18:13:40 GMT
+
+https://www.cbr.com/netflix-the-hunting-wives-season-2-trailer/
+
+The steamy thriller is getting even steamier.
+---------
+
+# Pokémon Reveals New Dual-Type Mega Evolutions Coming October 29
+
+Games, Pokemon, Pokemon TCG, Pokemon Trading Card Game
+
+Tue, 20 Oct 2026 18:00:12 GMT
+
+https://www.cbr.com/pokemon-new-dual-type-mega-evolutions-october-29/
+
+Pokémon Dual Fusion is adding new dual-type Mega Evolutions to the series, making the most of the mechanic's return in Pokémon Legends: Z-A.
+---------
+
+# The Terminator Replaces James Cameron For New Story in 2027
+
+Comics, Terminator
+
+Tue, 20 Oct 2026 18:00:12 GMT
+
+https://www.cbr.com/the-terminator-valentines-day-special-2027-release-details/
+
+A new Terminator story is on the way, but James Cameron won't be involved in the new title.
+---------
+
+# 'Reacher' Creator Eyes Up Tom Cruise-Era Character for Next Prime Video Spin-Off [Exclusive]
+
+Books and Comics News, Reacher, Jack Reacher, Lee Child, Alan Ritchson
+
+Tue, 20 Oct 2026 19:30:12 GMT
+
+https://collider.com/reacher-potential-spin-off-susan-turner-lee-andrew-child/
+
+Lee Child teases Susan Turner as a potential lead for another Reacher spin-off as Prime Video continues expanding the franchise.
+---------
+
+# The 10 Greatest Sci-Fi Book Quotes of the Last 25 Years, Ranked
+
+Books and Comics, Books, The Road, Science Fiction, The Martian
+
+Tue, 20 Oct 2026 19:23:12 GMT
+
+https://collider.com/best-sci-fi-book-quotes-last-25-years-ranked/
+
+Incredible sci-fi books like Cormac McCarthy's The Road and Pierce Brown's Red Rising have some of the absolute greatest quotes of the last 25 years.
+---------
+
+# 'Marshals' Is Officially Taking Over Taylor Sheridan’s Most Confusing 'Yellowstone' Storyline
+
+TV Features, Marshals, Luke Grimes, Yellowstone, CBS
+
+Tue, 20 Oct 2026 19:21:12 GMT
+
+https://collider.com/marshals-season-2-taylor-sheridan-yellowstone-kayce-vision-meaning/
+
+Marshals takes a deeper look at Kayce Dutton's complex character journey by incorporating one of his most confusing storylines from Yellowstone.
+---------
+
+# Cyberpunk Edgerunners 2: David's What-If Inspired Weak's Tragedy | Collider BTS
+
+TV, Cyberpunk: Edgerunners
+
+Tue, 20 Oct 2026 18:15:12 GMT
+
+https://collider.com/video/cyberpunk-edgerunners-2-david-s-what-if-inspired-weak-s-tragedy-collider-bts/
+
+What if David Martinez had survived the events of Cyberpunk: Edgerunners? That question helped inspire one of the central characters in Netflix's Cyberpunk: Edgerunners 2, according to co-creator and showrunner Bartosz Sztybor.
+---------
+
+# The 10 Most Hopeless TV Shows of All Time, Ranked
+
+TV, The Sopranos, The Wire, Game Of Thrones, Breaking Bad
+
+Tue, 20 Oct 2026 18:03:13 GMT
+
+https://collider.com/most-hopeless-tv-shows-all-time-ranked/
+
+Some of the most hopeless and downbeat shows in television history include dramas like The Sopranos and 24 alongside comedies like Peep Show.
+---------
+
+# Star Trek Officially Unites Kirk, Picard, Sisko, and More in Massive New Release
+
+TV News, Magic: The Gathering, Star Trek, Star Trek: The Original Series, Star Trek: The Next Generation
+
+Tue, 20 Oct 2026 18:00:12 GMT
+
+https://collider.com/star-trek-60th-anniversary-magic-the-gathering-cards-images/
+
+Wizards of the Coast are unleashing an all-new Star Trek set for the show's 60th anniversary. Read on for more.
+---------
+
+# 6 Most Amazing Marvel Video Games of All Time, Ranked
+
+Gaming, Marvel, Superhero, Video Game, Spider-Man
+
+Tue, 20 Oct 2026 17:52:12 GMT
+
+https://collider.com/most-amazing-marvel-video-games-all-time-ranked/
+
+Marvel's Spider-Man, Marvel: Ultimate Alliance, and Guardians of the Galaxy are all among the best, most amazing Marvel video games ever.
+---------
+
+# ‘9-1-1’ Season 10 Officially Proves It’s the King of Thursday Nights
+
+TV News, 9-1-1, ABC, Procedural, Drama
+
+Tue, 20 Oct 2026 17:34:54 GMT
+
+https://collider.com/9-1-1-season-10-premiere-ratings-abc/
+
+9-1-1 Season 10 premiere ratings put the series on top of the drama charts, delivering a standout night for ABC.
+---------
+
+# 10 Classic Horror Books That Still Feel Deeply Disturbing in 2026
+
+Books and Comics, Books, Horror, Frankenstein, Rebecca (1940)
+
+Tue, 20 Oct 2026 17:04:12 GMT
+
+https://collider.com/classic-horror-books-still-disturbing-2026/
+
+From Mary Shelley's Frankenstein to Daphne du Maurier's Rebecca, these classic horror books prove the most disturbing tales never need modern twists.
+---------
+
+# ‘Taskmaster’ Season 22 Turns an Obstacle Course Into a Bloody Disaster [Exclusive]
+
+Exclusives, Taskmaster, Comedy, Richard Ayoade, Matt Lucas
+
+Tue, 20 Oct 2026 17:00:12 GMT
+
+https://collider.com/taskmaster-season-22-sneak-peek-chloe-petts/
+
+A new exclusive Taskmaster Season 22 sneak peek sees Chloe Petts tackle a blindfolded obstacle course that leaves her with bloody knees.
+---------
+
+# Say Goodbye to 'Reacher', Prime Video's Best Action Thriller Is Just Hours Away From Its Long-Awaited Return
+
+Features, Reacher, The Terminal List, Action, Thriller, War, Prime Video, Chris Pratt
+
+Tue, 20 Oct 2026 19:00:16 GMT
+
+https://movieweb.com/the-terminal-list-season-2-return/
+
+Alan Ritchson is no match for Chris Pratt's hyper-violent one-man army in TV's best action show, which is hours away from its long-awaited return.
+---------
+
+# Netflix's New Smash Hit Thriller Series Has a Perfect 100% Score on Rotten Tomatoes
+
+TV News, The Diplomat, Netflix, Hot on Streaming, Thriller
+
+Tue, 20 Oct 2026 19:00:16 GMT
+
+https://movieweb.com/the-diplomat-stream-netflix-october-2026/
+
+Netflix's tense and twisting thriller is back, and it's better than ever.
+---------
+
+# M. Night Shyamalan Officially Confirms New Movie After 2027 Jake Gyllenhaal Thriller
+
+Movie News, M. Night Shyamalan, Remain, Horror
+
+Tue, 20 Oct 2026 18:37:41 GMT
+
+https://movieweb.com/m-night-shyamalan-new-movie/
+
+The director wants to keep busy.
+---------
+
+# 7 Biggest Questions After 'You Can See Everything's Ending, Explained
+
+Movie Lists
+
+Tue, 20 Oct 2026 18:30:16 GMT
+
+https://movieweb.com/you-can-see-everything-biggest-questions/
+
+Nathan Fielder's A24 documentary 'You Can See Everything' about Theranos founder Elizabeth Holmes and her partner Billy Evans is a must-watch.
+---------
+
+# 'Mayor of Kingstown' Season 5 Confirms Release Date for Reduced-Episode Final Season
+
+TV News, Mayor of Kingstown, Paramount Plus, Crime
+
+Tue, 20 Oct 2026 18:28:35 GMT
+
+https://movieweb.com/mayor-of-kingstown-season-5-release-date-images/
+
+Also, check out first-look images from the final season.
+---------
+
+# 'NCIS: Origins' Officially Brings Back Fan-Favorite From Original Series
+
+TV News, NCIS: Origins, NCIS, Emily Wickersham, Action, Drama, Crime, Mystery, Thriller
+
+Tue, 20 Oct 2026 18:15:01 GMT
+
+https://movieweb.com/ncis-origins-emily-wickersham-gibbs/
+
+Mark Harmon's 'NCIS' spin-off will bring back another major player from 'NCIS,' who spent eight seasons starring in the original show.
+---------
+
+# Amy Adams Appalls in Taika Waititi's New "Paddington Meets Blade Runner" Dystopian Dud | Review
+
+Movie Reviews, Klara and the Sun, Jenna Ortega, Amy Adams, Comedy, Sci-Fi, Drama
+
+Tue, 20 Oct 2026 17:00:16 GMT
+
+https://movieweb.com/klara-and-the-sun-review/
+
+Taika Waititi’s Klara and the Sun wants to be everything, but its jokes drown out its heart.
+---------
+
+# 'Dune 3' Teaser Officially Unleashes a New Main Hero 2 Months Ahead of Release
+
+Movie News, Dune: Part Three, Zendaya Coleman, Sci-Fi, Adventure, Action, Drama, Fantasy, Thriller
+
+Tue, 20 Oct 2026 17:00:10 GMT
+
+https://movieweb.com/dune-3-teaser-zendaya/
+
+A new trailer for 'Dune 3' turned the spotlight to one of the franchise's most iconic stars from the first two films.
+---------
+
+# 'Star Trek' & 'Office Space' Star Richard Riehle Dies Aged 78
+
+Movie News, Richard Riehle, Office Space, Star Trek, Joyride
+
+Tue, 20 Oct 2026 16:16:01 GMT
+
+https://movieweb.com/richard-riehle-dead/
+
+'Star Trek', 'Office Space', and 'Grounded for Life' star Richard Riehle has passed away
+---------
+
+# 10 Most Action-Packed TV Shows of the Last 25 Years
+
+TV Lists, Action
+
+Tue, 20 Oct 2026 16:00:17 GMT
+
+https://movieweb.com/most-action-packed-tv-shows-last-25-years/
+
+The most action-heavy TV series of the last 25 years, from car chases to shootouts to martial arts.
+---------
+
 # Taylor Sheridan’s Hit Crime Series Canceled After 5 Seasons Officially Returns In New Action-Packed Images
 
 TV, Mayor of Kingstown
