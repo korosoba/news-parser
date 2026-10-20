@@ -1,3 +1,399 @@
+# 7 Best Star Wars Book Villains Better Than Kylo Ren
+
+Books, Star Wars, Ben Solo/Kylo Ren
+
+Tue, 20 Oct 2026 00:45:17 GMT
+
+https://screenrant.com/star-wars-book-villains-better-than-kylo-ren/
+
+While the Star Wars movies tried to sell us on Kylo Ren, seven of the best Legends book villains beat him without much of a fight.
+---------
+
+# 5 Stephen King Adaptations Better Than Mike Flanagan's Carrie
+
+Classic TV, Stephen King
+
+Tue, 20 Oct 2026 00:45:17 GMT
+
+https://screenrant.com/stephen-king-adaptations-better-than-carrie/
+
+Mike Flanagan's latest Stephen King adaptation, Carrie, may have found its audience, but there are a number of Stephen King projects that outshine it.
+---------
+
+# Rings Of Power Season 3 Officially Justifies Its Missed Wizard Opportunity
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Tue, 20 Oct 2026 00:30:18 GMT
+
+https://screenrant.com/rings-of-power-gandalf-blue-wizard-justifies-missed-opportunity/
+
+Prime Video's Rings of Power has done a lot of maneuvering with its Wizard characters, but some unpopular changes are still ready to pay off.
+---------
+
+# Star Trek: Starfleet Academy Actors Tease "Really Complicated" Series Ending
+
+TV, Star Trek, Star Trek: Starfleet Academy
+
+Tue, 20 Oct 2026 00:15:21 GMT
+
+https://screenrant.com/star-trek-starfleet-academy-actors-series-ending-tease-complicated/
+
+Star Trek: Starfleet Academy season 2 is also the final season, and stars Sandrp Rosta, Bella Shepard, and Karim Diané tease how it all wraps up.
+---------
+
+# Netflix's 45-Episode Sci-Fi Masterpiece Is One Of The Rare Shows You Can Watch In Any Order
+
+Streaming TV, Masked Recs
+
+Tue, 20 Oct 2026 00:03:18 GMT
+
+https://screenrant.com/love-death-and-robots-episodes-watch-any-order/
+
+Short episodes, wildly different styles, and episodic stories combine to create Netflix's restless sci-fi playground that surprises with every visit.
+---------
+
+# Backrooms Meets Resident Evil In New 9/10 Horror Game
+
+Gaming, Indie, PC, Horror
+
+Tue, 20 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/steam-horror-game-9-10-tenebris-somnia/
+
+A brand-new horror game with 9/10 review scores seems like a remarkable mix between 2026’s Backrooms and the classic Resident Evil games.
+---------
+
+# 76 Years Later, The Greatest Horror Anthology Of All Time Is Still Absolutely Perfect
+
+Comics, Horror, Tales From the Crypt, Halloween
+
+Tue, 20 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/greatest-horror-anthology-tales-from-the-crypt/
+
+The original horror anthology remains untouchable.
+---------
+
+# 10 Best Quotes In Street Fighter, Ranked
+
+Movies, Street Fighter
+
+Tue, 20 Oct 2026 00:00:17 GMT
+
+https://screenrant.com/street-fighter-2026-movie-best-quotes/
+
+The 2026 live-action Street Fighter movie is full of respectful nods to the games and fun quotes that even reference the franchise's history.
+---------
+
+# Apple TV’s Shrinking Season 4 Hits Major Filming Milestone As New Era Begins
+
+TV, Shrinking
+
+Mon, 19 Oct 2026 23:35:32 GMT
+
+https://screenrant.com/shrinking-season-4-filming-wrapped-confirmed-jessica-williams/
+
+After the season 3 finale, Apple TV's Shrinking is heading into a new era with season 4, and it has hit a major filming milestone on the way there.
+---------
+
+# 10 Masterpiece ’80s Arcade Games Better Than Donkey Kong
+
+Games, Donkey Kong, Video Games, Pac-Man
+
+Tue, 20 Oct 2026 00:45:12 GMT
+
+https://www.cbr.com/masterpiece-80s-arcade-games-better-than-donkey-kong/
+
+Donkey Kong is a great game, there's a whole host of arcade games that outrank it by a mile.
+---------
+
+# Star Wars Quietly Developed a Secret 8-Episode Western Series From Spider-Man Director
+
+TV, Star Wars
+
+Tue, 20 Oct 2026 00:34:40 GMT
+
+https://www.cbr.com/star-wars-western-series-jon-watts/
+
+Star Wars gets a Western spin.
+---------
+
+# Time Is Running Out to Watch Clint Eastwood's $547M Controversial War Film
+
+Movies, War, American Sniper, Netflix
+
+Tue, 20 Oct 2026 00:30:12 GMT
+
+https://www.cbr.com/time-is-running-out-to-watch-clint-eastwood-controversial-war-film/
+
+One of the best and most controversial war movies of all-time is about to run out of time.
+---------
+
+# It's Official: The Goku vs. Saitama Debate Is Finally Over
+
+Anime, Dragon Ball, One-Punch Man, Goku
+
+Tue, 20 Oct 2026 00:20:11 GMT
+
+https://www.cbr.com/dragon-ball-goku-vs-one-punch-man-saitama-fight-death-battle/
+
+Dragon Ball's Goku has finally triumphed over One-Punch Man's Saitama to prove he's still the unparalleled barometer of strength for the anime fandom.
+---------
+
+# 10 Strongest G1 Autobots, Officially Ranked
+
+Anime, Transformers, Innovation
+
+Tue, 20 Oct 2026 00:15:12 GMT
+
+https://www.cbr.com/strongest-g1-autobots-officially-ranked/
+
+Generation 1 of Transformers introduced a massive number of Autobots, and the strongest of them are known for true battle supremacy over firepower.
+---------
+
+# The Unique Inspirations Behind Charles M. Schulz's Peanuts Characters
+
+Comics, Peanuts
+
+Tue, 20 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/peanuts-characters-unique-inspiration-list/
+
+Charles M. Schulz has been hailed for his Peanuts comic strip series, featuring some of the most beloved and complex child characters of all time.
+---------
+
+# Netflix's 8-Part 'Unfilmable' Thriller Is the Best Hard Sci-Fi on Streaming
+
+TV, 3 Body Problem, Netflix, Sci-Fi
+
+Mon, 19 Oct 2026 23:00:12 GMT
+
+https://www.cbr.com/netflix-3-body-problem-best-hard-sci-fi-streaming/
+
+Netflix adapted a popular novel into a complex hard sci-fi series that trusts viewers to engage with its scientific concepts.
+---------
+
+# Netflix Seals Fast & Furious Fate Ahead of Long-Awaited Sequel
+
+Movies, Fast & Furious, Netflix
+
+Mon, 19 Oct 2026 23:00:12 GMT
+
+https://www.cbr.com/netflix-removing-fast-furious-november-2026/
+
+The Fast & Furious franchise is mostly under one streaming roof for just a few more weeks.
+---------
+
+# Al Pacino & Robert De Niro's Crime Classic Lands on Netflix Ahead of Reboot
+
+Movies, Heat, Heat 2, Netflix
+
+Mon, 19 Oct 2026 23:00:12 GMT
+
+https://www.cbr.com/al-pacino-robert-de-niro-heat-crime-classic-netflix-october-2026/
+
+One of the greatest crime movies of all time is officially easier to watch than ever.
+---------
+
+# A Walk Among the Tombstones Has Liam Neeson's Best Quote
+
+Movies, A Walk Among The Tombstones
+
+Mon, 19 Oct 2026 23:00:12 GMT
+
+https://www.cbr.com/a-walk-among-the-tombstones-best-liam-neeson-thriller-quote/
+
+The eight words that comprise this spine-chilling quote are the key to unlocking the mysteries of 'A Walk Among the Tombstones' on a deeper level.
+---------
+
+# 8 Iconic Thriller Movies That Are Perfect From Start to Finish
+
+Movie, Thriller, The Silence of the Lambs, Rear Window, Se7en
+
+Tue, 20 Oct 2026 00:41:12 GMT
+
+https://collider.com/iconic-thriller-movies-perfect-start-to-finish/
+
+From The Fugitive to Se7en, these eight iconic thriller movies deliver immaculate tension and rewarding details that make them perfect rewatches.
+---------
+
+# Netflix Officially Breaks With Tradition After Historic Box Office Debut
+
+Movie News, La Bola Negra, Netflix, Box Office, Penelope Cruz
+
+Tue, 20 Oct 2026 00:30:12 GMT
+
+https://collider.com/la-bola-negra-netflix-box-office/
+
+La Bola Negra breaks a historic record with a massive per-theater average, giving Netflix a historic box office first.
+---------
+
+# Netflix Officially Removes $1B Franchise Hit
+
+Movie News, Universal, Adventure, Minions, Netflix
+
+Tue, 20 Oct 2026 00:15:12 GMT
+
+https://collider.com/minions-leaving-netflix-november-1-2026/
+
+Minions, the $1.16 billion animated blockbuster, is leaving Netflix on November 1 after remaining available through October 31.
+---------
+
+# CBS' 'Matlock' Replacement Becomes a Certified Hit
+
+TV News, Cupertino, CBS, Drama, Matlock
+
+Tue, 20 Oct 2026 00:00:12 GMT
+
+https://collider.com/cbs-cupertino-streaming-success-amazon-october-2026/
+
+With Matlock not on CBS' schedule this fall, the network's replacement is making a mark. Get all the details here.
+---------
+
+# 8 Years Later, The Coen Brothers Could Officially Be Getting Back Together
+
+Movie News, The Coen Brothers, The Ballad of Buster Scruggs, Ethan Coen, Joel Coen
+
+Mon, 19 Oct 2026 23:45:12 GMT
+
+https://collider.com/the-coen-brothers-reunion-film-lumiere-film-festival/
+
+Joel and Ethan Coen tease another movie together and reveal they’ve discussed new stories set in Minneapolis, where they filmed Fargo.
+---------
+
+# Hideo Kojima Officially Returns to ‘Cyberpunk’
+
+TV News, Cyberpunk: Edgerunners 2, Cyberpunk: Edgerunners, Cyberpunk 2077, Hideo Kojima
+
+Mon, 19 Oct 2026 23:30:12 GMT
+
+https://collider.com/cyberpunk-edgerunners-2-hideo-kojima-cameo-hideyoshi-oshima/
+
+Hideo Kojima will return as Hideyoshi Oshima in Cyberpunk: Edgerunners 2, which premieres October 20 on Netflix.
+---------
+
+# ‘Daredevil’s Deborah Ann Woll Officially Responds to Karen Page’s Post-Season 3 Fate [Exclusive]
+
+Exclusives, Deborah Ann Woll, Daredevil, Daredevil: Born Again, Disney+
+
+Mon, 19 Oct 2026 23:21:30 GMT
+
+https://collider.com/daredevil-season-3-ending-karen-page-fate-deborah-ann-woll/
+
+Deborah Ann Woll reveals Karen Page’s future following Daredevil: Born Again’s end: "She's just gonna go stop another Kingpin."
+---------
+
+# Prime Video’s New ‘Lupin’ Replacement Officially Hits the Streaming Charts
+
+TV News, Prime Video, Netflix, Lupin, Masterplan
+
+Mon, 19 Oct 2026 23:15:12 GMT
+
+https://collider.com/masterplan-prime-video-lupin-replacement-streaming-success-october/
+
+Prime Video has officially challenged Netflix with a Lupin replacement mere days before the French series returns with a new season. Find out more.
+---------
+
+# 8 Netflix Miniseries Endings That Are Genuine Masterpieces
+
+TV, Netflix, TV Miniseries, The Fall of the House of Usher, The Queen's Gambit
+
+Mon, 19 Oct 2026 23:14:12 GMT
+
+https://collider.com/netflix-miniseries-endings-masterpieces/
+
+It's a badge of honor to end a show well, and Netflix miniseries like The Fall of the House of Usher have endings that are true masterpieces.
+---------
+
+# The 10 Longest Action Movies of All Time, Ranked
+
+Movie, Kill Bill: The Whole Bloody Affair, Zack Snyder's Justice League, Sholay, The Lord of the Rings: The Return of the King
+
+Mon, 19 Oct 2026 23:08:12 GMT
+
+https://collider.com/longest-action-movies-all-time-ranked/
+
+If you're after very long action movies that are also epics, check out classics like Seven Samurai, Kill Bill: The Whole Bloody Affair, and Sholay.
+---------
+
+# Prime Video’s Ambitious 3-Part High Fantasy Series Deserves a Renewal After Its Unexpected Death Sentence
+
+Features, The Wheel of Time, Fantasy, Prime Video
+
+Tue, 20 Oct 2026 00:00:16 GMT
+
+https://movieweb.com/wheel-of-time-renewal/
+
+The entertainment industry was cruel to one of the greatest stories ever told.
+---------
+
+# The One Word Nathan Fielder Changed in 'You Can See Everything' Says More Than the Whole Movie
+
+Features, You Can See Everything, Nathan Fielder, Documentary
+
+Mon, 19 Oct 2026 23:30:16 GMT
+
+https://movieweb.com/you-can-see-everything-something-line/
+
+In his critically praised documentary 'You Can See Everything', Nathan Fielder aks the audience to question everything they've seen with one line.
+---------
+
+# David Tennant’s 3-Part Thriller Masterpiece Has One of the Best Seasons in TV History
+
+Features, Broadchurch, Thriller, David Tennant
+
+Mon, 19 Oct 2026 23:02:47 GMT
+
+https://movieweb.com/broadchurch-season-1-perfect/
+
+'Broadchurch' has three masterfully made TV seasons, but one of David Tennant's outings as Alec Hardy is the thing all thrillers should aspire to.
+---------
+
+# Amazon's "Addictive" New 8-Part Revenge Thriller Dethrones 'Reacher' as the No. 1 Series in the World
+
+TV News, Carrie, Thriller, Prime Video, Hot on Streaming
+
+Mon, 19 Oct 2026 22:30:16 GMT
+
+https://movieweb.com/carrie-beats-reacher-thriller-prime-video-stream-october-2026/
+
+Amazon has a new icon, and she's already outshining everyone's favorite action hero.
+---------
+
+# Sony Moves Forward With New Action-Adventure Adaptation of a Bestselling Fantasy Saga
+
+Movie News, Adventure, Action, Fantasy
+
+Mon, 19 Oct 2026 22:10:58 GMT
+
+https://movieweb.com/dorc-sony-movie-adaptation/
+
+Sony is bringing a hit fantasy story to the big screen, adapting a massive literary success.
+---------
+
+# New "Bourne Meets Big Lebowski" Action Thriller Confirmed From 'The Beekeeper 2' Director
+
+Movie News, Bourne, The Big Lebowski, Action, Timo Tjahjanto
+
+Mon, 19 Oct 2026 22:01:08 GMT
+
+https://movieweb.com/the-burnout-timo-tjahjanto/
+
+Timo Tjahjanto is staying in business with Miramax, which has tapped him to helm the new action comedy The Burnout.
+---------
+
+# 11 Years Later, SyFy's 50-Episode Space Opera Replacement Series Is Everything 'Firefly' Should Have Been
+
+Features, Thriller, Firefly, Killjoys
+
+Mon, 19 Oct 2026 22:00:16 GMT
+
+https://movieweb.com/killjoys-firefly-comparison/
+
+'Firefly,' starring Nathan Fillion, is a popular space opera TV series, but one SyFy show is even more impressive.
+---------
+
 # Blue Bloods’ Major Reagan Family Member Return Officially Unveiled
 
 TV, Boston Blue, Boston Blue - Season 2
