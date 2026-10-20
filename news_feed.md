@@ -1,3 +1,410 @@
+# Netflix’s Narnia Trailer With Bold Soundtrack Choice Just Broke Massive All-Time Record
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, Netflix
+
+Tue, 20 Oct 2026 22:45:56 GMT
+
+https://screenrant.com/netflix-narnia-magicians-nephew-trailer-all-time-record/
+
+Greta Gerwig and Netflix's Narnia adaptation is already on its way to being a hit as its trailer with a bold soundtrack choice just broke a record.
+---------
+
+# Denzel Washington Sets New Crime Thriller With Mission: Impossible Director
+
+Movies, Denzel Washington
+
+Tue, 20 Oct 2026 22:30:30 GMT
+
+https://screenrant.com/denzel-washington-christopher-mcquarrie-crime-thriller-movie-announced/
+
+A new crime thriller starring Denzel Washington is in the works, and it is helmed by the director of multiple Mission: Impossible movies.
+---------
+
+# DC Officially Names Its New Deathstroke, All Details
+
+Comics, Deathstroke
+
+Tue, 20 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/new-deathstroke-named-adeline-kane/
+
+Here's who's under the mask and why the antihero has new powers.
+---------
+
+# Netflix Willy Wonka Movie Makes Major Change From Previous Films
+
+Movies, Charlie vs. the Chocolate Factory, Charlie and the Chocolate Factory
+
+Tue, 20 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/willy-wonka-movie-major-change-charlie-vs-the-chocolate-factory-netflix/
+
+There have been three different adaptations of Charlie and the Chocolate Factory to date, and the upcoming fourth one could be geniuinely special.
+---------
+
+# 8 Near-Perfect Miniseries You Won't Want To Watch Twice
+
+Classic TV
+
+Tue, 20 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/tv-miniseries-hard-to-watch-twice/
+
+Miniseries explore a variety of subjects that make them gripping, but there are some that are almost impossible to watch more than once.
+---------
+
+# It's Officially The End Of An Era For Brand New Day As Marvel's Spider-Man Returns In 3 Months
+
+Streaming TV, Spider-Man
+
+Tue, 20 Oct 2026 22:17:05 GMT
+
+https://screenrant.com/your-friendly-neighborhood-spider-man-season-2-replace-brand-new-day/
+
+Spider-Man: Brand New Day is getting ready to end a successful era, as Marvel Studios' other Spider-Man comes back in just three months.
+---------
+
+# Asher's Future One Chicago Crossover Chances Addressed By Jessy Schram
+
+TV, Chicago Med, Jessy Schram
+
+Tue, 20 Oct 2026 22:16:51 GMT
+
+https://screenrant.com/asher-one-chicago-crossovers-future-jessy-schram/
+
+Exclusive: Chicago Med's Jessy Schram shared what she'd like to see done with Dr. Hannah Asher in the next One Chicago crossover on NBC.
+---------
+
+# Streaming Channel With Over 17M Subscribers Restored After Major Blackout
+
+TV, STARZ
+
+Tue, 20 Oct 2026 22:12:42 GMT
+
+https://screenrant.com/starz-streaming-service-restored-verizon-deal/
+
+A streaming channel with over 17 million subscribers has been restored following a major blackout that shut down the service for millions.
+---------
+
+# 4-Part Lost Meets Stephen King Horror Series Takes Over Netflix After Just 1 Day
+
+TV, From
+
+Tue, 20 Oct 2026 22:07:32 GMT
+
+https://screenrant.com/from-netflix-streaming-success-october-2026/
+
+The best elements of Lost and Stephen King collide in the horror series that has taken over Netflix only one day after coming to the platform.
+---------
+
+# ABC's 3-Part Mystery Thriller Is Officially A Streaming Hit Again
+
+TV, Twin Peaks, ABC
+
+Tue, 20 Oct 2026 22:07:20 GMT
+
+https://screenrant.com/abc-twin-peaks-apple-vod-streaming-success-october-2026/
+
+ABC's classic mystery thriller series that ran for three seasons is officially enjoying a major resurgence as a No. 1 streaming sensation.
+---------
+
+# Transformers Confirms November 12 Release Date With New Official Trailer
+
+Anime, Transformers
+
+Tue, 20 Oct 2026 22:35:11 GMT
+
+https://www.cbr.com/transformers-eternal-war-new-trailer-release-date/
+
+Transformers fans just got another look at the next highly anticipated official title in a new trailer for Eternal War.
+---------
+
+# Laurence Fishburne’s 88-Minute Action Thriller Quietly Becomes 1 of Streaming's Biggest Movies
+
+Movies, Armored, Netflix, Thriller
+
+Tue, 20 Oct 2026 22:30:12 GMT
+
+https://www.cbr.com/armored-heist-thriller-netflix-success-october-2026/
+
+This poorly received action film from 2009 is suddenly climbing the streaming charts.
+---------
+
+# 5 Greatest Sukuna Battles In the Jujutsu Kaisen Anime
+
+Anime, Jujutsu Kaisen
+
+Tue, 20 Oct 2026 22:15:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-greatest-sukuna-battles/
+
+Jujutsu Kaisen's anime has thoroughly proved how terrifying and powerful Ryomen Sukuna is through his incredible battles.
+---------
+
+# Warner Bros. Confirms Uncut, Uncensored Release for 74 Classic Cartoons in New Format
+
+Movies, King-Size Comedy: Tex Avery and the Looney Tunes Revolution, The Wacky World of Tex Avery, Animation
+
+Tue, 20 Oct 2026 22:15:02 GMT
+
+https://www.cbr.com/tex-avery-the-definitive-screwball-classics-collection-blu-ray/
+
+74 classic Warner Bros. cartoons are about to become available in a brand-new format.
+---------
+
+# 6 Masterpiece Movies to Watch if You Loved Sense and Sensibility
+
+Movies, Sense and Sensibility
+
+Tue, 20 Oct 2026 22:00:12 GMT
+
+https://www.cbr.com/best-movies-to-watch-for-jane-austen-sense-and-sensibility-fans-list/
+
+Loved Georgia Oakley's 2026 Sense and Sensibility? These 6 Marvelous movies including other Jane Austen adaptations should be your next watch.
+---------
+
+# Judge Dredd Has Already Told the Superhero Genre's Future
+
+Comics, Judge Dredd
+
+Tue, 20 Oct 2026 22:00:12 GMT
+
+https://www.cbr.com/judge-dredd-has-already-told-the-superhero-genres-future/
+
+It seems the superhero genre is taking on a new shape, and Judge Dredd had already predicted that future.
+---------
+
+# He-Man's Live-Action Return Gets New Physical Release Today
+
+Movies, Masters of the Universe, Fantasy
+
+Tue, 20 Oct 2026 21:31:20 GMT
+
+https://www.cbr.com/masters-of-the-universe-4k-steelbook-blu-ray-dvd/
+
+The Masters of the Universe return today.
+---------
+
+# Netflix Is Removing Sandra Bullock's $1.2 Billion Franchise Hit in Frustrating Update
+
+Movies, Minions, Netflix
+
+Tue, 20 Oct 2026 21:30:12 GMT
+
+https://www.cbr.com/sandra-bullock-minions-leaving-netflix-november-2026/
+
+Bullock's most successful movie is getting ready to leave Netflix very soon
+---------
+
+# 10 '80s Arcade Games That Are 10/10, No Notes
+
+Games, Nintendo, Video Games, Star Wars
+
+Tue, 20 Oct 2026 21:15:11 GMT
+
+https://www.cbr.com/80s-arcade-games-flawless-start-to-finish/
+
+These '80s arcade favorites are still perfect today.
+---------
+
+# Backrooms Replacement Officially in the Works Inspired by Mind-Bending Reddit Story
+
+Movies, Horror
+
+Tue, 20 Oct 2026 20:58:51 GMT
+
+https://www.cbr.com/future-me-reddit-story-feature-film-adaptation/
+
+The unsettling story is getting the feature film treatment.
+---------
+
+# Denzel Washington Officially Finds the Perfect Equalizer Replacement
+
+Movie News, Denzel Whitaker, Christopher McQuarrie, The Equalizer, Thriller
+
+Tue, 20 Oct 2026 22:47:33 GMT
+
+https://collider.com/denzel-washington-christopher-mcquarrie-crime-thriller/
+
+Denzel Washington is officially leaving The Equalizer behind for a new crime thriller from Mission: Impossible's Christopher McQuarrie.
+---------
+
+# Netflix's 'Jaws' Meets 'Widow's Bay' Horror Series Officially Takes Over the World With 86.4 Million Hours Watched
+
+TV News, Jaws, Widow's Bay, Below, Netflix
+
+Tue, 20 Oct 2026 22:47:20 GMT
+
+https://collider.com/netflix-below-streaming-success-october-2026/
+
+Josh Hartnett's new supernatural thriller has officially secured the top spot on Netflix. Read on for more details.
+---------
+
+# A Quiet Place's Biggest Cillian Murphy Fan Theory Officially Confirmed by Star [Exclusive]
+
+Movie News, Jack O'Connell, Cillian Murphy, A Quiet Place Part III, Horror
+
+Tue, 20 Oct 2026 22:00:12 GMT
+
+https://collider.com/a-quiet-place-part-3-jack-oconnell-cillian-murphy-brothers/
+
+Jack O'Connell exclusively reveals that he and Cillian Murphy play brothers in A Quiet Place Part III and teases the sequel's family story.
+---------
+
+# Gabriel Basso Officially Leaves 'The Night Agent' for New Apple TV Thriller
+
+TV News, Gabriel Basso, Julia Garner, Lewis Pullman, Mary-Louise Parker
+
+Tue, 20 Oct 2026 21:57:55 GMT
+
+https://collider.com/gabriel-basso-julia-garner-cast-apple-tv-thriller-guilty-creatures/
+
+The Night Agent's Gabriel Basso and Ozark's Julia Garner are officially leaving Netflix behind for Apple TV's new Thriller
+---------
+
+# 10 Forgotten Mystery Books That Have Aged Like Fine Wine
+
+Books and Comics, Books, Mystery, Thriller, Horror
+
+Tue, 20 Oct 2026 21:55:12 GMT
+
+https://collider.com/forgotten-mystery-books-aged-like-fine-wine/
+
+Books like The Red House Mystery and The Devil Drives have become largely forgotten by modern audiences despite aging beautifully by 2026 standards.
+---------
+
+# 5 Years Later, an NCIS Fan-Favorite Is Officially Back
+
+TV News, NCIS, NCIS: Origins, Mark Harmon, Procedural
+
+Tue, 20 Oct 2026 21:44:32 GMT
+
+https://collider.com/ncis-ellie-bishop-return-origins-season-3-cast-emily-wickersham/
+
+Ellie Bishop is officially back on the case, with Emily Wickersham officially returning to NCIS this month. Read on for more.
+---------
+
+# 7 Fantasy Shows With Witches That Are 10/10 Masterpieces
+
+TV, Fantasy, Agatha All Along, The Witcher
+
+Tue, 20 Oct 2026 21:44:12 GMT
+
+https://collider.com/fantasy-shows-witches-masterpieces/
+
+Disney+'s Agatha All Along, Netflix's The Witcher, and Prime Video's The Wheel of Time are among the greatest fantasy shows that feature witches.
+---------
+
+# 8 Fantasy Books That Are Definitely Not for Kids
+
+Books and Comics, Fantasy, Books, George R.R. Martin, Game Of Thrones
+
+Tue, 20 Oct 2026 21:42:12 GMT
+
+https://collider.com/fantasy-books-definitely-not-for-kids/
+
+Dark, mature fantasy books like George R. R. Martin's A Storm of Swords and Glen Cook's The Black Company are not for kids.
+---------
+
+# The 8 Most Universally Acclaimed Detective Books of All Time, Ranked
+
+Books and Comics, Mystery, Thriller, Books, Agatha Christie
+
+Tue, 20 Oct 2026 21:23:12 GMT
+
+https://collider.com/most-universally-acclaimed-detective-books-all-time-ranked/
+
+The Maltese Falcon by Dashiell Hammett and The Big Sleep by Raymond Chandler are among the most universally acclaimed detective books ever.
+---------
+
+# 'Ahsoka' Season 2 Is Making a Major Change to Its Sci-Fi Formula
+
+TV Features, Ahsoka, Star Wars Rebels, Star Wars: The Clone Wars, Disney+
+
+Tue, 20 Oct 2026 21:21:12 GMT
+
+https://collider.com/ahsoka-season-2-sci-fi-genre-shift-star-wars/
+
+When Ahsoka returns for Season 2, it'll shift from sci-fi to fantasy, and tackle an iconic story from Star Wars: The Clone Wars.
+---------
+
+# Harlan Coben’s Best 8-Part Mystery Thriller Officially Confirms the Start of a New Era
+
+Features, Harlan Coben, I Will Find You, Netflix, Thriller
+
+Tue, 20 Oct 2026 22:00:16 GMT
+
+https://movieweb.com/i-will-find-you-american-adaptations/
+
+Harlan Coben's eight-episode Netflix thriller adaptation not only tells a memorable story, but it's an exciting change.
+---------
+
+# Taylor Sheridan's 3-Part Action Thriller Dominates Streaming With Record-Breaking Finale
+
+TV News, Lioness, Taylor Sheridan, Action, Thriller, Crime, Mystery, Drama, Paramount Plus
+
+Tue, 20 Oct 2026 21:13:07 GMT
+
+https://movieweb.com/lioness-season-3-finale-streaming-ratings/
+
+Taylor Sheridan continues his run of TV dominance after one of his biggest shows broke records with its most recent episode.
+---------
+
+# Brad Pitt's 155-Minute Near-Perfect Action Blockbuster Is Officially a 300-Day Streaming Smash Hit
+
+Movie News, F1, Hot on Streaming, Brad Pitt, Action
+
+Tue, 20 Oct 2026 21:00:16 GMT
+
+https://movieweb.com/f1-brad-pitt-streaming-hit-300-days-october-2026/
+
+Brad Pitt's biggest movie ever continues to prove its worth on streaming, but where's the sequel we've all been waiting for?
+---------
+
+# Dwayne Johnson Transforms Into a 70-Year-Old Man in New Fantasy Adventure Movie Set Photos
+
+Movie News, Dwayne Johnson, Musical, Fantasy, Adventure
+
+Tue, 20 Oct 2026 20:56:21 GMT
+
+https://movieweb.com/lizard-music-dwayne-johnson-set-photos/
+
+In 'Lizard Music,' Johnson will transform into a frail 70-year-old man, with makeup by the same artist who did Tom Cruise's makeup in 'Digger.'
+---------
+
+# Keanu Reeves Officially Joins Forces With Fellow Action Icon for Remake of Modern Crime Thriller Classic
+
+Movie News, Keanu Reeves, James Wan, Action, Crime, Don Lee
+
+Tue, 20 Oct 2026 20:30:47 GMT
+
+https://movieweb.com/keanu-reeves-gangster-cop-devil-action-thriller/
+
+The new iteration of the action-packed film has assembled an impressive creative team.
+---------
+
+# New 95-Minute Action Thriller Reboot Officially Beats $350M 'Star Wars' Movie at the Box Office
+
+Movie News, Resident Evil, Box Office Milestones, The Mandalorian and Grogu, Action, Thriller, Horror, Science Fiction
+
+Tue, 20 Oct 2026 20:00:16 GMT
+
+https://movieweb.com/resident-evil-mandalorian-grogu-box-office-october-2026/
+
+'Star Wars' bet big and ultimately lost to a risky horror reboot.
+---------
+
+# New Near-Perfect Fantasy Adventure Epic Officially Sets Digital Streaming Date After Less Than 1 Month
+
+Movie News, Forgotten Island, Comedy, Fantasy, Adventure
+
+Tue, 20 Oct 2026 19:35:41 GMT
+
+https://movieweb.com/forgotten-island-digital-release/
+
+Witness a friendship you'll never forget when 'Forgotten Island' hits digital streaming this month.
+---------
+
 # 18 Years Later, William Shatner’s Best Quote In Boston Legal Is Still The Greatest Meta Joke In TV History
 
 Classic TV, Boston Legal
