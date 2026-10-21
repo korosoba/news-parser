@@ -1,3 +1,443 @@
+# Next Mass Effect Game Canceled As EA Shuts Down BioWare
+
+Gaming, Mass Effect, EA, PC
+
+Wed, 21 Oct 2026 17:21:32 GMT
+
+https://screenrant.com/mass-effect-canceled-bioware-shut-down/
+
+In a massive new announcement, EA is officially shutting down BioWare and cancelling the highly anticipated next Mass Effect game.
+---------
+
+# Daisy Ridley Starring In New Reimagining Of Classic 62-Year-Old Sci-Fi Series
+
+TV, Daisy Ridley, Voyage to the Bottom of the Sea
+
+Wed, 21 Oct 2026 17:20:41 GMT
+
+https://screenrant.com/daisy-ridley-voyage-to-the-bottom-of-the-sea-series-casting/
+
+Daisy Ridley, who played Rey in the Star Wars sequel trilogy, has been cast in the lead role of a new series that will remake a 1960s sci-fi classic.
+---------
+
+# 2026’s Video Game Movie War Has One Clear Winner
+
+Movies
+
+Wed, 21 Oct 2026 17:20:18 GMT
+
+https://screenrant.com/2026-video-game-movies-box-office-winner/
+
+While 2026 has been a strong year for movie adaptations of video game worlds and franchises, one release has a serious advantage over the rest.
+---------
+
+# Pokémon Opening Official Stores Outside Asia For The First Time Ever
+
+Gaming, Pokemon, Triple-A Games
+
+Wed, 21 Oct 2026 17:16:13 GMT
+
+https://screenrant.com/pokemon-centers-official-stores-opening-london-usa/
+
+After years of waiting, The Pokémon Company has announced that Pokémon Center stores will permanently open outside of Asia for the first time ever.
+---------
+
+# NBC Sets New Reboot Of Iconic 37-Year-Old Series With Sitcom Legend
+
+TV, Coach
+
+Wed, 21 Oct 2026 17:06:30 GMT
+
+https://screenrant.com/nbc-coach-reboot-series-ty-burrell/
+
+NBC and a sitcom legend are rebooting one of the network's most popular shows nearly four decades later, reviving the series for a modern audience.
+---------
+
+# Hulu’s New Rival To Blumhouse Horror Hit Is A Massive Streaming Hit After Just 1 Day
+
+Movies, Hulu
+
+Wed, 21 Oct 2026 17:00:19 GMT
+
+https://screenrant.com/phony-tv-blumhouse-other-mommy-rival-hulu-disney-plus-streaming-success-october-2026/
+
+Hulu's new rival to a Blumhouse horror hit becomes a massive streaming success after just one day on the platform.
+---------
+
+# Elder Scrolls: Elsweyr Expansion Officially Confirmed
+
+Tabletop, The Elder Scrolls, tabletop games
+
+Wed, 21 Oct 2026 17:00:19 GMT
+
+https://screenrant.com/elder-scrolls-elsweyr-expansion-confirmed/
+
+A new Elsweyr gameplay expansion has been confirmed for The Elder Scrolls’ latest hit game; if you’re a fan of the Khajiit’s homeland, check it out.
+---------
+
+# Clayface Streaming Release Window: When The Movie Is Likely Going To Hit HBO Max
+
+Movies, Clayface, DC Universe
+
+Wed, 21 Oct 2026 17:00:19 GMT
+
+https://screenrant.com/clayface-movie-hbo-max-streaming-release-updates/
+
+Clayface, the latest movie in James Gunn's DC Universe, is now in theaters, and here's when to expect it on digital/PVOD and streaming on HBO Max.
+---------
+
+# HBO's 6-Part 'The IT Crowd Meets The Social Network' Tech Sitcom Has A Near-Perfect Ending
+
+Classic TV, Masked Recs
+
+Wed, 21 Oct 2026 17:00:19 GMT
+
+https://screenrant.com/silicon-valley-hbo-sitcom-strong-ending/
+
+It's rare that a sitcom has a satisfying ending and doesn't outstay its welcome, but Silicon Valley had a near-perfect six-season run on HBO.
+---------
+
+# Prime Video's Military Thriller Series Returns With Rotten Tomatoes Score Debut
+
+TV, The Terminal List, Chris Pratt
+
+Wed, 21 Oct 2026 16:57:50 GMT
+
+https://screenrant.com/the-terminal-list-season-2-rotten-tomatoes-score/
+
+As Prime Video's action-thriller is finally back after a long hiatus, the Rotten Tomatoes score for the new episodes has officially debuted.
+---------
+
+# Modern Family Star Is Rebooting a Classic '90s Sitcom for NBC
+
+TV, Ty Burrell, Coach
+
+Wed, 21 Oct 2026 17:12:57 GMT
+
+https://www.cbr.com/nbc-coach-reboot-ty-burrell/
+
+NBC reimagines one of the most popular sitcoms of the 1990s.
+---------
+
+# Stephen King's 8-Part Sci-Fi Horror Is Getting a Major Season 2 Upgrade
+
+TV, The Institute, Stephen King, MGM+
+
+Wed, 21 Oct 2026 17:00:12 GMT
+
+https://www.cbr.com/stephen-king-the-institute-season-2-alfie-allen-upgrade/
+
+The television adaptation of one of sci-fi horror legend Stephen King's newest novels is heading into an exciting and game-changing second season.
+---------
+
+# 21 Strongest Demon Slayer Characters, Ranked
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Kimetsu No Yaiba, Innovation
+
+Wed, 21 Oct 2026 17:00:12 GMT
+
+https://www.cbr.com/strongest-demon-slayer-characters-ranked/
+
+From demons to swordsmen, Demon Slayer has some of the most powerful characters in anime, but how do they rank against each other?
+---------
+
+# The Lord of the Rings Returns With New Rings of Power Season 3 Trailer Ahead of New Episodes
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video
+
+Wed, 21 Oct 2026 16:31:43 GMT
+
+https://www.cbr.com/the-rings-of-power-season-3-trailer-lord-of-the-rings/
+
+Middle-earth is at war in the new The Lord of the Rings: The Rings of Power trailer.
+---------
+
+# Minecraft Dungeons 2 Officially Reveals 20,000 Free Game Giveaway Starting October 26
+
+Games, Minecraft
+
+Wed, 21 Oct 2026 16:31:30 GMT
+
+https://www.cbr.com/minecraft-dungeons-2-free-game-giveaway-dominos/
+
+Minecraft has entered a partnership that will give away 20,000 copies of its latest spin-off, Minecraft Dungeons 2, among other prizes.
+---------
+
+# Dune: Part Three Beats The Odyssey's IMAX Record With 33,000 Tickets Sold in 1 Day
+
+Movies, Dune: Part Three, IMAX, The Odyssey
+
+Wed, 21 Oct 2026 16:20:41 GMT
+
+https://www.cbr.com/dune-part-three-beats-the-odyssey-imax-record/
+
+Let the record-breaking commence for Denis Villeneuve's Dune: Part Three.
+---------
+
+# 10 Greatest Anime Series Since 2000
+
+Anime, Gintama, Attack On Titan
+
+Wed, 21 Oct 2026 16:15:12 GMT
+
+https://www.cbr.com/greatest-anime-series-since-2000/
+
+The past 26 years have featured many groundbreaking anime that have become modern classics, like Hunter x Hunter, Paranoia Agent, and Gintama.
+---------
+
+# DC Comics Confirms Massive Wonder Woman Plans For Milestone Year
+
+Comics, DC Comics, Wonder Woman
+
+Wed, 21 Oct 2026 16:00:12 GMT
+
+https://www.cbr.com/wonder-woman-year-of-wonder-2027-details/
+
+DC is pulling out all the stops for the Princess of Themyscira in 2027.
+---------
+
+# 10 '80s Animated Movies With More Personality Than Modern CGI, Ranked
+
+Movies, Animation
+
+Wed, 21 Oct 2026 16:00:12 GMT
+
+https://www.cbr.com/best-80s-animated-movies-better-than-modern-cgi-list/
+
+Animation in the modern age is at risk of being taken over by CGI, but these ten '80s movies with personality prove that newer doesn't mean better.
+---------
+
+# Thundercats Officially Return For An All-New Era That Changes Everything
+
+Comics, Thundercats, ThunderCats
+
+Wed, 21 Oct 2026 15:45:52 GMT
+
+https://www.cbr.com/thundercats-officially-return-for-all-new-era/
+
+This is a version of the Thundercats that will change everything, literally everything.
+---------
+
+# The Next Mass Effect Game Is Officially Cancelled
+
+Gaming News, Mass Effect, Mass Effect: Andromeda, Mass Effect Legendary Edition, Video Game
+
+Wed, 21 Oct 2026 17:26:32 GMT
+
+https://collider.com/mass-effect-game-cancelled/
+
+The next Mass Effect game has been officially cancelled as EA shuts down a legendary video game developer.
+---------
+
+# Manny Jacinto’s Scene-Stealing ‘Forgotten Island’ Character Takes Center Stage in New Sneak Peek [Exclusive]
+
+Exclusives, Forgotten Island, Manny Jacinto, DreamWorks, Fantasy
+
+Wed, 21 Oct 2026 17:00:12 GMT
+
+https://collider.com/forgotten-island-sneak-peek-home-release-manny-jacinto/
+
+A new sneak peek ahead of the home release of Forgotten Island spotlights Manny Jacinto's big blue demon baby, Bungi.
+---------
+
+# 10 Best Adventure Movies of 2026 So Far, Ranked
+
+Movie, Adventure, Whalefall, The Odyssey, Project Hail Mary
+
+Wed, 21 Oct 2026 16:34:12 GMT
+
+https://collider.com/best-adventure-movies-2026-so-far/
+
+2026 has been a great year for adventure movies so far, seeing the release of great new adventure films like Hoppers, The Odyssey and Whalefall.
+---------
+
+# The Lord of the Rings Officially Returns With Stunning New Trailer
+
+TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Hunt for Gollum, Prime Video, J.R.R. Tolkien
+
+Wed, 21 Oct 2026 16:31:28 GMT
+
+https://collider.com/lord-of-the-rings-the-rings-of-power-season-3-release-date-prime-video/
+
+The Rings of Power Season 3 returns with a new trailer after Prime Video's Lord of the Rings series surpassed 185 million viewers.
+---------
+
+# Netflix’s 100% Rotten Tomatoes Supernatural Thriller Is Your Next Dark Obsession
+
+TV, Thriller, Drama, The East Palace, Netflix
+
+Wed, 21 Oct 2026 16:12:13 GMT
+
+https://collider.com/netflix-the-east-palace-series-masterpiece-thriller/
+
+Choi Jung-Kyu's court drama 'The East Palace' captures the thrilling journey of a ghost slayer and noblewoman tasked with a haunting investigation.
+---------
+
+# Hulu's New True Crime Series Unleashes a Total Nightmare [Exclusive]
+
+TV News, Hulu, True Crime, Brian Grazer, Ron Howard
+
+Wed, 21 Oct 2026 16:00:12 GMT
+
+https://collider.com/swipe-right-on-the-devil-sneak-peek/
+
+Swipe Right With the Devil, Hulu's new true crime docuseries, premieres tomorrow. Watch an exclusive preview clip now.
+---------
+
+# Taylor Sheridan’s Record-Breaking Western Is Getting a Surprising New Life on Netflix
+
+TV Features, Netflix, Bass X Machina, Western, Lawmen: Bass Reeves
+
+Wed, 21 Oct 2026 15:02:12 GMT
+
+https://collider.com/taylor-sheridan-lawman-bass-reeves-replacement-series-netflix-bass-x-machina/
+
+Taylor Sheridan's record-breaking Western gets a bold sci-fi reinvention with Netflix's Bass X Machina, premiering November 3.
+---------
+
+# DC Studios Boss Peter Safran Confirms a Major Batman Detail in ‘Clayface’
+
+Exclusives, Clayface, Peter Safran, DCU, Batman
+
+Wed, 21 Oct 2026 14:56:57 GMT
+
+https://collider.com/clayface-movie-batman-dc-studios-peter-safran-interview/
+
+DC Studios Peter Safran also discusses casting Tom Rhys Harries, introducing the DCU's live-action Gotham City, and his 10-year plan with James Gunn.
+---------
+
+# Liza Soberano Has a Brutal Request for the Next 'Final Destination' Movie
+
+Exclusives, Final Destination, Liza Soberano, Forgotten Island, Ladies Night
+
+Wed, 21 Oct 2026 14:00:12 GMT
+
+https://collider.com/final-destination-liza-soberano-forgotten-island/
+
+On Ladies Night, Forgotten Island’s Liza Soberano reveals her hopes of joining the Final Destination franchise and her one very specific condition.
+---------
+
+# Daredevil and Bullseye Are Officially Marvel's Next Big Villain Team-Up
+
+Books and Comics News, Daredevil, Marvel Zombies, Marvel Comics, Superhero
+
+Wed, 21 Oct 2026 13:15:12 GMT
+
+https://collider.com/marvel-zombies-war-zone-daredevil-bullseye/
+
+The latest issue of Marvel Zombies: War Zone unites Daredevil and Bullseye in the most horrifying way imaginable. Check it out here!
+---------
+
+# 'The Rings of Power' Season 3 Trailer Officially Unleashes Sauron's Most Iconic Villains as One Ring Is Revealed
+
+TV News, The Lord of the Rings: The Rings of Power, Prime Video, Fantasy, Drama, Action, Adventure
+
+Wed, 21 Oct 2026 16:48:30 GMT
+
+https://movieweb.com/the-rings-of-power-season-3-trailer/
+
+Sauron's rise to power takes center stage in a new look at Prime Video's 'The Lord of the Rings: The Rings of Power' Season 3.
+---------
+
+# 4 Years Later, Prime Video's Hit Action Thriller Returns Better Than Ever on Rotten Tomatoes
+
+TV News, The Terminal List, Chris Pratt, Prime Video, Action, Thriller
+
+Wed, 21 Oct 2026 16:38:01 GMT
+
+https://movieweb.com/the-terminal-list-season-2-rotten-tomatoes-score/
+
+Prime Video's hit action thriller returns after four years with a promising Rotten Tomatoes score.
+---------
+
+# Leonardo DiCaprio's Long-Awaited Action Thriller Sequel Casting Officially Addressed by 2026's Biggest Star
+
+Movie News, Heat 2, Crime, Thriller, Mystery
+
+Wed, 21 Oct 2026 16:23:09 GMT
+
+https://movieweb.com/heat-2-inde-navarrette-casting/
+
+One of 2026's biggest stars set the record straight on their potential casting alongside Oscar-winner Leonardo DiCaprio in a massive sequel.
+---------
+
+# 'A Quiet Place 3's Biggest Cillian Murphy Theory Confirmed as New Role Is Made Official
+
+Movie News, A Quiet Place Part III, Horror, Thriller, Science Fiction, Jack O'Connell, Cillian Murphy
+
+Wed, 21 Oct 2026 16:14:50 GMT
+
+https://movieweb.com/a-quiet-place-part-iii-jack-o-connell-cillian-murphy-connection/
+
+'A Quiet Place Part III's casting update directly impacts Cillian Murphy's role.
+---------
+
+# Brad Pitt's 116-Minute Action Thriller Blockbuster Returns to Streaming Ahead of Long-Awaited Sequel
+
+Movie News, World War Z, Paramount Plus, Hot on Streaming, Brad Pitt, Action, Thriller, Sci-Fi, World War Z 2
+
+Wed, 21 Oct 2026 16:01:15 GMT
+
+https://movieweb.com/world-war-z-stream-paramount-october-2026/
+
+With a sequel finally in development, Brad Pitt's non-stop action thriller is officially back on streaming.
+---------
+
+# 5 'Transformers' Autobots Stronger Than Megatron
+
+Movie Lists, Transformers, The Transformers, The Transformers: The Movie, Sci-Fi
+
+Wed, 21 Oct 2026 16:01:15 GMT
+
+https://movieweb.com/transformers-autobots-stronger-megatron/
+
+Megatron may be intimidating, but his bark is worse than his bite, especially for these Autobots, who are stronger than the Decepticon leader.
+---------
+
+# Denzel Washington's "Unconventional" Netflix Heist Thriller Confirms New Title
+
+Movie News, Here Comes the Flood, Denzel Washington, Crime
+
+Wed, 21 Oct 2026 15:26:21 GMT
+
+https://movieweb.com/here-comes-the-flood-the-take-denzel-washington/
+
+This star-studded crime drama will be Washington's next project.
+---------
+
+# 8 Best Far Side Strips That Would Make Great Movies
+
+Movie Lists, Comedy, The Far Side, comics, Gary Larson
+
+Wed, 21 Oct 2026 15:00:17 GMT
+
+https://movieweb.com/far-side-strips-great-movies/
+
+These 'Far Side' comics have box-office gold premises, from a disco-dancing Christmas tree to a lucky stiff’s lottery ticket.
+---------
+
+# All 5 'Toy Story' Movies, Ranked
+
+Movie Lists, Toy Story, Pixar, Toy Story 5
+
+Wed, 21 Oct 2026 15:00:17 GMT
+
+https://movieweb.com/toy-story-movies-ranked-best/
+
+Ranking all five Toy Story movies, from the 1995 original through 'Toy Story 5.'
+---------
+
+# 11 Years Later, Disney Is Officially Rebooting One of the Most Iconic Shows of the 2010s
+
+TV News, Glee, Disney, Disney+, Hulu, Musical, Comedy, Drama, Romance
+
+Wed, 21 Oct 2026 14:09:29 GMT
+
+https://movieweb.com/glee-reboot-disney-hulu/
+
+One of the biggest shows from the previous decade, which had viewers tapping their feet every week, is reportedly coming back for more.
+---------
+
 # Zelda: Ocarina Of Time Remake File Size Officially Confirmed
 
 Gaming, Nintendo, Nintendo Switch 2, The Legend of Zelda: Ocarina of Time
