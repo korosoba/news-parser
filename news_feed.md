@@ -1,3 +1,377 @@
+# Chicago Med's Gruesome Medical Props Revealed (Exclusive)
+
+TV, Chicago Med, Halloween 2026
+
+Wed, 21 Oct 2026 23:47:38 GMT
+
+https://screenrant.com/the-gore-of-chicago-med/
+
+Exclusive: New Chicago Med images shows off the exceptionally-crafted props that go into creating graphic injuries and sicknesses on the NBC show.
+---------
+
+# Black Clover Season 2, Episode 4 Release Date & Time
+
+Anime, Black Clover
+
+Wed, 21 Oct 2026 23:30:18 GMT
+
+https://screenrant.com/black-clover-season-2-episode-4-release-date-time/
+
+The Spade Kingdom raid gets noticeably darker this weekend as the Black Bulls finally start facing the worst underworld threats.
+---------
+
+# Guy Ritchie’s MobLand Successor Is Officially Confirmed
+
+Streaming TV, MobLand, Guy Ritchie
+
+Wed, 21 Oct 2026 23:30:18 GMT
+
+https://screenrant.com/capital-guy-ritchie-mobland-sequel-in-development/
+
+While MobLand's gripping second season continues on Paramount+, Guy Ritchie already has the show's successor lined up with a rival streaming platform.
+---------
+
+# Iconic Robin’s Return Chances Addressed By Star Ahead Of DC’s New Batman Movie
+
+Movies, The Brave and the Bold, Batman, DC Universe
+
+Wed, 21 Oct 2026 23:19:52 GMT
+
+https://screenrant.com/batman-brave-bold-dcu-robin-return-jacob-tremblay-response/
+
+EXCLUSIVE: One of the many actors to have played Robin opens up about potentially joining James Gunn's DC Universe for the new Batman reboot.
+---------
+
+# Doctor Doom And Reed Richards Finally Kiss In Marvel's Mainstream Lore
+
+Comics, Doctor Doom, Marvel
+
+Wed, 21 Oct 2026 23:00:18 GMT
+
+https://screenrant.com/doctor-doom-reed-richards-kiss/
+
+After decades of being enemies and occasional allies, Doctor Doom and Mister Fantastic have actually kissed due to a bizarre series of events.
+---------
+
+# Legend Of Zelda: Minish Cap 3D Remake Gameplay Released
+
+Gaming, The Legend of Zelda, The Legend of Zelda: The Minish Cap, Nintendo, PC
+
+Wed, 21 Oct 2026 23:00:18 GMT
+
+https://screenrant.com/legend-of-zelda-minish-cap-3d-remake-gameplay-video/
+
+A brand-new gameplay video of the Legend of Zelda: Minish Cap's 3D remake has surfaced, revealing to fans exactly what they can expect.
+---------
+
+# 'Modern Day Peaky Blinders' Series Is So Good, It's Already Renewed For 2 More Seasons
+
+TV, Masked Recs
+
+Wed, 21 Oct 2026 23:00:18 GMT
+
+https://screenrant.com/this-city-is-ours-renewed-2-more-seasons/
+
+The BBC's gritty Liverpool underworld crime drama channels Peaky Blinders' tense power shifts while shredding any sense of safety or certainty.
+---------
+
+# Hulu's New Remake Of Jim Carrey's 30-Year-Old Cult Classic Gets Glowing Early Review
+
+TV, The Cable Guy, Hulu, Jake Johnson
+
+Wed, 21 Oct 2026 22:53:13 GMT
+
+https://screenrant.com/jim-carrey-cable-guy-hulu-remake-review-glowing-jake-johnson/
+
+Exclusive: The upcoming TV remake of Jim Carrey’s cult classic movie gets an exciting new update, over four months after Hulu ordered its pilot.
+---------
+
+# The MCU's Phase 6 Officially Introduces A New Daredevil Villain Ahead Of Born Again Season 3
+
+Streaming TV, Masked Recs
+
+Wed, 21 Oct 2026 22:50:17 GMT
+
+https://screenrant.com/paladin-new-mcu-villain-before-daredevil-born-again-season-3/
+
+A new Daredevil villain has entered the MCU ahead of Daredevil: Born Again season 3, and he comes with quite a few surprises for the Marvel franchise.
+---------
+
+# X-Men Just Officially Announced Historic New Team, All Members And Powers
+
+Comics, X-Men
+
+Wed, 21 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/x-men-new-team-scavenged-members-explained/
+
+New team 'THE SCAVENGED' explained.
+---------
+
+# Taylor Sheridan's Lioness Is Losing to a 30-Year-Old Sitcom on Streaming
+
+TV, Lioness
+
+Wed, 21 Oct 2026 23:12:46 GMT
+
+https://www.cbr.com/lioness-paramount-plus-streaming-october-2026/
+
+Lioness is starting to lose some steam as a classic sitcom rises on the streaming charts.
+---------
+
+# Apple TV's 92% RT Masterpiece Is 1 of the Most Realistic Hard Sci-Fi Shows in TV History
+
+TV, For All Mankind, Apple TV, Sci-Fi
+
+Wed, 21 Oct 2026 23:01:14 GMT
+
+https://www.cbr.com/apple-tv-for-all-mankind-believable-hard-sci-fi-masterpiece/
+
+Its commitment to realism, scientific accuracy, and long-term worldbuilding makes this show an essential watch for fans of grounded sci-fi.
+---------
+
+# Dragon Ball Z Officially Returns With a Brand-New World Tournament
+
+Anime, Dragon Ball, Dragon Ball Z, Minecraft
+
+Wed, 21 Oct 2026 22:35:14 GMT
+
+https://www.cbr.com/dragon-ball-z-minecraft-dlc-legends-update/
+
+Goku and Vegeta are taking a break from training to build up their bodies in order to build something even bigger with Minecraft's Dragon Ball Z DLC.
+---------
+
+# New Harry Potter Book Officially Confirmed for 2027
+
+Books, Harry Potter, Fantasy
+
+Wed, 21 Oct 2026 22:30:14 GMT
+
+https://www.cbr.com/harry-potter-art-revised-expanded-book-confirmed-fantasy-january-2027/
+
+Ahead of HBO Max's new television reboot, return to the Wizarding World of Harry Potter for a brand-new book that hits shelves in 2027.
+---------
+
+# Prime Video's Mass Effect Series Gets Unexpected Update After BioWare Closure
+
+TV, Mass Effect, Prime Video
+
+Wed, 21 Oct 2026 22:28:15 GMT
+
+https://www.cbr.com/mass-effect-tv-series-prime-video-bioware-closure/
+
+Mass Effect may have a future away from games.
+---------
+
+# Chris Evans Can't Dethrone Ben Affleck's New Thriller After 11 Days at Netflix's No. 1
+
+Movies, Animals, Sacrifice, Netflix
+
+Wed, 21 Oct 2026 22:17:00 GMT
+
+https://www.cbr.com/animals-sacrifice-thriller-netflix-october-2026/
+
+Ben Affleck comes out on top of this streaming battle.
+---------
+
+# 5 Greatest Political Thriller Gundam Anime, Ranked
+
+Anime, Gundam, Mobile Suit Gundam 00, Mobile Suit Gundam Wing, Mobile Suit Gundam SEED, Mobile Suit Gundam: Iron-Blooded Orphans, Mobile Suit Gundam
+
+Wed, 21 Oct 2026 22:16:14 GMT
+
+https://www.cbr.com/greatest-gundam-political-thriller-anime-ranked/
+
+Gundam's political thrillers prove that the fight for power can be deadlier than war itself, with consequences that reach far beyond the battlefield.
+---------
+
+# 5 Greatest Western Movies of the 20th Century, Ranked
+
+Movies, Western, Unforgiven, The Searchers
+
+Wed, 21 Oct 2026 22:00:15 GMT
+
+https://www.cbr.com/best-western-movies-20th-century-ranked-list/
+
+The 20th century contains too many masterpiece Western movies to count, but some stand out among the absolute best.
+---------
+
+# 10 Batman Villains Who Could Take Down the Justice League, Ranked
+
+Comics, Batman
+
+Wed, 21 Oct 2026 22:00:15 GMT
+
+https://www.cbr.com/batman-villains-who-could-take-down-the-justice-league-ranked/
+
+Batman has one of the greatest rosters of villains in comic book history, but how many of them could best the Justice League?
+---------
+
+# Star Wars Gaming Renaissance Set to Continue With Long-Awaited Battlefront 3
+
+Games, Star Wars
+
+Wed, 21 Oct 2026 21:45:02 GMT
+
+https://www.cbr.com/star-wars-battlefront-3-dice-respawn-ea/
+
+Layoffs and studio closures have rocked Electronic Arts after its recent buyout, but the lone good news is the upcoming development of Battlefront 3.
+---------
+
+# Hugh Jackman's R-Rated Fantasy Remake Officially Hits a Bullseye on Streaming
+
+Movie News, Hugh Jackman, The Death of Robin Hood, HBO Max, Jodie Comer
+
+Wed, 21 Oct 2026 23:45:14 GMT
+
+https://collider.com/hugh-jackman-the-death-of-robin-hood-streaming-success-hbo-max-october-2026/
+
+Hugh Jackman's latest fantasy film, The Death of Robin Hood, is dominating streaming despite its box office challenges.
+---------
+
+# 10 Scary Movies We Knew Would Be Masterpieces in the First 10 Minutes
+
+Movie, Horror, Get Out, Sinners, Poltergeist
+
+Wed, 21 Oct 2026 23:44:14 GMT
+
+https://collider.com/scary-movie-masterpieces-first-10-minutes/
+
+Sinners, Get Out, It Follows, Poltergeist, and more make up our list of scary movies we knew would be masterpieces in the first 10 minutes.
+---------
+
+# ‘Georgie & Mandy’s First Marriage’ Officially Finds the Perfect Sheldon Replacement
+
+TV News, Georgie & Mandy's First Marriage, CBS, Montana Jordan, Young Sheldon
+
+Wed, 21 Oct 2026 23:34:27 GMT
+
+https://collider.com/georgie-and-mandys-first-marriage-season-3-episode-5-preview-images/
+
+Georgie & Mandy’s First Marriage officially adds the perfect Sheldon Cooper replacement in new Season 3 images.
+---------
+
+# David Fincher Officially Reveals Why He Changed Quentin Tarantino's New Script
+
+Movie News, David Fincher, Quentin Tarantino, Brad Pitt, The Further Mis-Adventures of Cliff Booth
+
+Wed, 21 Oct 2026 23:30:15 GMT
+
+https://collider.com/david-fincher-quentin-tarantino-cliff-booth-script-changes/
+
+David Fincher has revealed how long Quentin Tarantino's original script for The Further Mis-Adventures of Cliff Booth was, and why he cut some of it.
+---------
+
+# 8 MCU Movies That Are Undisputed Masterpieces
+
+Movie, MCU, Guardians of the Galaxy, Iron Man, Black Panther
+
+Wed, 21 Oct 2026 23:21:14 GMT
+
+https://collider.com/mcu-movies-undisputed-masterpieces/
+
+Black Panther, Guardians of the Galaxy, and Avengers: Infinity War are universally recognized as true masterpieces, the top tier of the MCU.
+---------
+
+# 10 God-Tier Horror Movies, Ranked
+
+Movie, Horror, The Exorcist, The Shining, Psycho
+
+Wed, 21 Oct 2026 23:21:14 GMT
+
+https://collider.com/god-tier-horror-movies-ranked/
+
+From Get Out to Alien, these ten god-tier horror films define the absolute peak of cinematic terror and psychological dread.
+---------
+
+# 'Cyberpunk 2077' Officially Gets a New Release
+
+Gaming News, Cyberpunk 2077, Cyberpunk: Edgerunners, Sci-Fi, PlayStation 5
+
+Wed, 21 Oct 2026 23:16:14 GMT
+
+https://collider.com/cyberpunk-2077-new-release-gunnar-optiks-glasses/
+
+Cyberpunk 2077 expands with a new collection of officially licensed GUNNAR eyewear inspired by Night City's powerful corporations.
+---------
+
+# Apple TV’s 10/10 Spy Thriller Officially Preps for Season 7 Return
+
+TV News, Slow Horses, Apple TV, Gary Oldman, Jack Lowden
+
+Wed, 21 Oct 2026 23:00:15 GMT
+
+https://collider.com/apple-tv-slow-horses-season-7-release-window-2027/
+
+Apple TV's Slow Horses has officially wrapped up Season 6, with the next chapter expected to arrive in 2027.
+---------
+
+# Tom Hanks Officially Became the Undisputed King of Streaming
+
+Movie Features, Tom Hanks, The Green Mile, Forrest Gump, Tubi
+
+Wed, 21 Oct 2026 22:57:14 GMT
+
+https://collider.com/tom-hanks-the-green-mile-forrest-gump-tubi-top-10/
+
+Tubi just proved Tom Hanks is one of Hollywood's most versatile actors, with The Green Mile and Forrest Gump topping its streaming charts.
+---------
+
+# 8 Most Shocking Deaths in 'Slow Horses,' Ranked
+
+TV, Slow Horses, Apple TV, Thriller, Drama
+
+Wed, 21 Oct 2026 22:03:14 GMT
+
+https://collider.com/slow-horses-most-shocking-deaths-ranked/
+
+Apple TV's Slow Horses features no shortage of bloodshed, but which death from the spy thriller show has been the most shocking for audiences so far?
+---------
+
+# Jon Bernthal's Near-Perfect Action Epic Officially Beats $1.5 Billion Superhero Classic at the Box Office
+
+Movie News, The Odyssey, Box Office Milestones, The Avengers, Superhero, Action, Drama
+
+Wed, 21 Oct 2026 22:00:17 GMT
+
+https://movieweb.com/the-odyssey-the-avengers-box-office-october-2026/
+
+Jon Bernthal's career milestone scores another win as it wraps up its impressive theatrical run.
+---------
+
+# Netflix's New 7-Part Western Epic Remains an Undisputed Streaming Hit With 25M Views
+
+TV News, East of Eden, Hot on Streaming, Western, Netflix
+
+Wed, 21 Oct 2026 21:00:16 GMT
+
+https://movieweb.com/east-of-eden-netflix-streaming-hit-october-2026/
+
+Netflix's take on a literary masterpiece continues to soar on streaming, and it shares an interesting connection with the original 1955 adaptation.
+---------
+
+# Henry Cavill's Debut Spy Action Thriller on Prime Is Better Than Any James Bond Since
+
+Features, The Man From U.N.C.L.E., Henry Cavill, Action, Thriller, Prime Video, James Bond, Spectre, No Time to Die
+
+Wed, 21 Oct 2026 21:00:16 GMT
+
+https://movieweb.com/the-man-from-uncle-streaming-recommendation/
+
+11 years ago, Henry Cavill starred in the action thriller 'The Man from U.N.C.L.E.,' which is, arguably, better than any James Bond movie since then.
+---------
+
+# Tom Cruise & Morgan Freeman's 124-Minute Sci-Fi Thriller Officially Scores New Streaming Home
+
+Movie News, Oblivion, Coming/Leaving Streaming, Tom Cruise, Morgan Freeman, Sci-Fi, Thriller
+
+Wed, 21 Oct 2026 21:00:16 GMT
+
+https://movieweb.com/oblivion-tom-cruise-streaming-starz-october-2026/
+
+Before 'Top Gun: Maverick' took flight, there was this sci-fi hidden gem starring two of Hollywood's biggest actors.
+---------
+
 # Marvel's VisionQuest Theories On Client's Identity & RDJ's Doctor Doom Clarified By MCU Show Creator
 
 TV, VisionQuest, Marvel Cinematic Universe
