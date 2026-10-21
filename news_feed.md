@@ -1,3 +1,355 @@
+# Netflix Only Needed 12 Episodes To Make A Zombie Show Better Than The Walking Dead
+
+Streaming TV, Masked Recs
+
+Wed, 21 Oct 2026 06:00:18 GMT
+
+https://screenrant.com/all-of-us-are-dead-better-zombie-show-than-the-walking-dead/
+
+In just 12 episodes, Netflix managed to deliver an incredible zombie thriller that is arguably better than The Walking Dead in more ways than one.
+---------
+
+# Netflix Deserves Credit For Successfully Adapting One Of The Best Games Of The Century
+
+Streaming TV, Masked Recs
+
+Wed, 21 Oct 2026 06:00:18 GMT
+
+https://screenrant.com/tomb-raider-legend-of-lara-croft-netflix-adaptation-best-games-century/
+
+This Netflix series with multiple seasons perfectly adapted one of the best games of the century, and it deserves credit for exciting adventures.
+---------
+
+# Elden Ring: Malenia Returns In New 2027 Release
+
+Gaming, Elden Ring, Elden Ring: Tarnished Edition, PC
+
+Wed, 21 Oct 2026 06:00:18 GMT
+
+https://screenrant.com/elden-ring-malenia-2027-return/
+
+Malenia, Blade of Miquella and Goddess of Rot, is among the most famous and stunning bosses in Elden Ring, returning with new 2027 release.
+---------
+
+# Red Dead Redemption 2 Free Download Officially Available Until October 26
+
+Gaming, Red Dead Redemption 2, Triple-A Games, PC
+
+Wed, 21 Oct 2026 05:30:17 GMT
+
+https://screenrant.com/red-dead-redemption-2-online-freebie-october-26/
+
+Although Red Dead Redemption 2 might be in the rear view for a lot of people now that Grand Theft Auto 5 is nearly here, there's a freebie to grab.
+---------
+
+# Mike Flanagan Deserves Credit For Updating Stephen King’s Horror Masterpiece
+
+Streaming TV, Stephen King, Mike Flanagan
+
+Wed, 21 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/mike-flanagan-deserves-credit-updating-stephen-king-carrie/
+
+Mike Flanagan’s latest Stephen King small-screen adaptation does an incredibly job of updating one of the greatest horror novels written by the author
+---------
+
+# The Expanse Franchise Is Officially Replacing The Rocinante Crew In 2027 Return
+
+Gaming, The Expanse, PC
+
+Wed, 21 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/expanse-osiris-reborn-new-crew-confirmed/
+
+The iconic Rocinante crew are getting the boot in the official upcoming return of The Expanse, arriving in Spring 2027.
+---------
+
+# Dungeon Crawler Carl Officially Returns In One Month
+
+Gaming, Dungeon Crawler Carl, PC
+
+Wed, 21 Oct 2026 04:30:18 GMT
+
+https://screenrant.com/dungeon-crawler-carl-unstoppable-november-2026-release-psa/
+
+Dungeon Crawler Carl is officially returning in November 2026 with a major new adaptation ahead of the launch of Book 9.
+---------
+
+# Steam Officially Makes 22 Games 100% Free To Keep Forever
+
+Gaming, Steam, PC
+
+Wed, 21 Oct 2026 04:15:19 GMT
+
+https://screenrant.com/steam-22-free-games-october-2026/
+
+If you're in the market for free games, then you're in luck, as Steam has made 22 games 100% free, and they're yours to keep forever.
+---------
+
+# The Terminal List Season 2: Chris Pratt's Action Thriller Is Bigger & Better Than Ever | Review
+
+Streaming TV, The Terminal List - Season 2, The Terminal List
+
+Wed, 21 Oct 2026 04:01:21 GMT
+
+https://screenrant.com/the-terminal-list-season-2-review/
+
+The Terminal List season 2 bring Chris Pratt's action thriller back in full force, with a high-octane batch of episodes even better than the first.
+---------
+
+# Cyberpunk Edgerunners: Burn Bright Confirmed For Spring 2027
+
+Gaming, Cyberpunk 2077, Cyberpunk: Edgerunners, PC
+
+Wed, 21 Oct 2026 04:00:26 GMT
+
+https://screenrant.com/cyberpunk-tcg-edgerunners-burn-bright-spring-2027/
+
+A brand-new Cyberpunk Edgerunners project has already been announced. Titled Burn Bright, it's scheduled to release in Spring 2027.
+---------
+
+# The Terminal List Season 2 Review: Prime Video's Hit Military Book Adaptation is Better Than Ever
+
+TV, The Terminal List
+
+Wed, 21 Oct 2026 04:00:14 GMT
+
+https://www.cbr.com/the-terminal-list-season-2-review/
+
+Chris Pratt's military book adaptation is back for Season 2, and it brings The Terminal List to a new level.
+---------
+
+# Dragon Ball Officially Brings Back Its Original Formula 1 Era After 36 Years
+
+Anime, Dragon Ball, weekly shonen jump
+
+Wed, 21 Oct 2026 03:59:12 GMT
+
+https://www.cbr.com/dragon-ball-akira-toriyama-formula-1-original-draft-release/
+
+The Akira Toriyama Archive winds the clock back over three decades to when the Dragon Ball series collaborated with a major Formula One racing team.
+---------
+
+# Crystal Lake's Sneaky Cameo From Friday the 13th Star Spotted by Fans
+
+TV, Crystal Lake
+
+Wed, 21 Oct 2026 03:58:52 GMT
+
+https://www.cbr.com/crystal-lake-friday-the-13th-cameo/
+
+Major Friday the 13th fans might notice a familiar face when watching Crystal Lake.
+---------
+
+# It's the End of an Era for Star Trek as We Say Goodbye to Captain Kirk and The Last Starship
+
+Comics, Star Trek
+
+Wed, 21 Oct 2026 03:54:42 GMT
+
+https://www.cbr.com/star-trek-end-last-starship-captain-kirk-interview/
+
+In a CBR exclusive interview with the creators and editor of Star Trek: The Last Starship, we talked about the end of the hit series
+---------
+
+# 5 Strongest One Piece Characters Who Never Ate a Devil Fruit
+
+Anime, One Piece
+
+Wed, 21 Oct 2026 03:46:12 GMT
+
+https://www.cbr.com/one-piece-strongest-characters-no-devil-fruit/
+
+Devil Fruits can be overpowered, but some of the strongest One Piece characters never needed them
+---------
+
+# Pluribus Season 2 Finally Gets a Major Progress Update Nearly One Year Later
+
+TV, Pluribus
+
+Wed, 21 Oct 2026 03:31:22 GMT
+
+https://www.cbr.com/pluribus-season-2-filming-start/
+
+Pluribus fans have been waiting for this news.
+---------
+
+# Stephen King's 8-Part Fantasy Series Shows Game of Thrones & Fallout How It's Done
+
+TV, Stephen King, The Dark Tower, Fantasy
+
+Wed, 21 Oct 2026 03:31:12 GMT
+
+https://www.cbr.com/stephen-king-the-dark-tower-tv-adaptation-rival-got-fallout/
+
+Mike Flanagan is adapting Stephen King's most immersive universe, and it could be streaming's next big fantasy hit.
+---------
+
+# 10 Funniest Far Side Comics That Prove Gary Larson Loves Meta Humor
+
+Comics, The Far Side
+
+Wed, 21 Oct 2026 03:31:12 GMT
+
+https://www.cbr.com/funniest-far-side-comics-that-prove-gary-larson-loves-meta-humor/
+
+The Far Side has famously created many absurd and sardonic comics over the years, including several that are pretty meta, showcasing Larson's talent.
+---------
+
+# 10 Best Nintendo Arcade Games of All Time, Ranked
+
+Games, Nintendo, Video Games
+
+Wed, 21 Oct 2026 03:15:12 GMT
+
+https://www.cbr.com/best-nintendo-arcade-games-donkey-kong-mario-bros/
+
+Nintendo's greatest arcade hits include Donkey Kong and Mario Bros.
+---------
+
+# Fortnite Comes Under Fire After Adding Nikki from Obsession: 'This Is Gross and Weird'
+
+Games, Fortnite, Obsession
+
+Wed, 21 Oct 2026 03:03:36 GMT
+
+https://www.cbr.com/obsession-fortnite-skin-backlash/
+
+Debuting Nikki from Obsession in Fortnite has led to an online outcry from players saying it's an inappropriate addition to the game.
+---------
+
+# 22 Years Later, the Best Book Quote in Modern Sci-Fi Still Packs a Punch
+
+Books and Comics, Books, Cloud Atlas, Science Fiction, History
+
+Wed, 21 Oct 2026 04:07:12 GMT
+
+https://collider.com/cloud-atlas-best-quote-sci-fi-still-hits-2026/
+
+Cloud Atlas includes the single greatest last line in modern sci-fi, a powerful sentence that reminds us that change always starts with one person.
+---------
+
+# 'John Wick's Best Line Is Still the Greatest Quote in Franchise History
+
+Movie Features, John Wick, Keanu Reeves, Lionsgate
+
+Wed, 21 Oct 2026 03:26:13 GMT
+
+https://collider.com/john-wick-best-quote-action-movie-keanu-reeves/
+
+John Wick was a game-changing movie for Keanu Reeves' career and the action genre in general, and the movie's best line defines it.
+---------
+
+# 'VisionQuest’s Ruaridh Mollica Answers Every Burning Question After That Pivotal Episode 4 Gala
+
+Interviews, VisionQuest, Disney Plus, Marvel TV, Elizabeth Olsen
+
+Wed, 21 Oct 2026 03:00:13 GMT
+
+https://collider.com/visionquest-episode-3-4-ruaridh-mollica-tommy-maximoff-disney-plus/
+
+VisionQuest’s Ruaridh Mollica breaks down the biggest moments from Episodes 3 and 4 and addresses those viral Wanda and Tommy parallels.
+---------
+
+# Netflix Is Officially Removing the Best Batman Movie Ever
+
+Movie News, Batman Begins, Christopher Nolan, Superhero, Netflix
+
+Wed, 21 Oct 2026 02:45:12 GMT
+
+https://collider.com/christopher-nolan-batman-begins-leaving-netflix-november-2026/
+
+One of the most influential superhero movies ever made, Batman Begins, is about to be removed from Netflix in certain regions. Find out more.
+---------
+
+# DC’s R-Rated Batman Spin-Off Officially Takes Over Theaters in 3 Days
+
+Movie News, Clayface, Tom Rhys Harries, DC, james watkins
+
+Wed, 21 Oct 2026 02:31:12 GMT
+
+https://collider.com/dc-horror-clayface-release-date-october-2026/
+
+The DCU's first horror movie, Clayface, starring Tom Rhys Harres as the Batman villain, finally arrives in theaters in just three days,
+---------
+
+# HBO Max Officially Revives One of the Best Sci-Fi Shows of the 21st Century
+
+TV News, Orphan Black, HBO Max, Tatiana Maslany, Sci-Fi
+
+Wed, 21 Oct 2026 02:15:13 GMT
+
+https://collider.com/orphan-black-streaming-hbo-max-peacock-october-2026/
+
+HBO Max has acquired exclusive streaming rights to Tatiana Maslany's hit sci-fi thriller series, Orphan Black.
+---------
+
+# Michael Bublé and Drew Scott Reveal Ryan Reynolds’ Unexpected Warning About Their Prime Video Series
+
+TV, Property Brothers, Michael Bublé, Drew Scott, Prime Video
+
+Wed, 21 Oct 2026 02:13:12 GMT
+
+https://collider.com/video/prime-video-hometown-giants-michael-buble-drew-scott-interview/
+
+<a href="https://collider.com/the-voice-season-27-michael-buble-adam-david-winner/"><strong>Michael Bublé</strong></a> and <a href="https://collider.com/tag/property-brothers/"><strong><em>Property Brothers</em></strong></a> star <a href="https://collider.com/property-brothers-under-pressure-drew-jonathan-scott-hgtv-interview-advice/"><strong>Drew Scott</strong></a> have a lot in common. They’re both Canadian, they’ve been friends for decades, and they share a love of hockey. Now, the pair are giving fans a closer look at what it takes to run a team in <a href="https://collider.com/amazon/">Prime Video</a>’s new docuseries, <strong><em>Hometown Giants</em></strong>. As part-owners of the Western Hockey League’s <strong>Vancouver Giants</strong>, Bublé and Scott are hoping to turn things around for a team that hasn’t won a championship since 2007. The six-part series, now available to stream, follows the Giants’ 2025–26 season, taking viewers behind the scenes as the very young, up-and-
+---------
+
+# Jason Statham’s New 2026 Thriller Officially Hits 150-Day Streaming Streak
+
+Movie News, Jason Statham, Shelter, Action, STARZ
+
+Wed, 21 Oct 2026 02:00:22 GMT
+
+https://collider.com/jason-statham-shelter-streaming-success-starz-october-2026/
+
+Despite underperforming in theaters, Jason Statham's well-received action-thriller film Shelter has emerged as a major streaming hit over the year.
+---------
+
+# ‘VisionQuest’ Raises the Stakes With a Shocking Identity Twist | Review
+
+TV Reviews, VisionQuest, Disney Plus, Marvel TV, Paul Bettany
+
+Wed, 21 Oct 2026 02:00:22 GMT
+
+https://collider.com/visionquest-episode-4-recap-disney-plus/
+
+VisionQuest Episode 4 sees Vision enlist Tommy and Lisa’s help to sneak into a gala, where they learn more about Butcherbird and her motivations.
+---------
+
+# Liam Neeson’s New Military Thriller Officially Debuts on Streaming
+
+Movie News, Liam Neeson, Zachary Levi, The Fix, Argo
+
+Wed, 21 Oct 2026 01:45:12 GMT
+
+https://collider.com/liam-neeson-the-fix-streaming-pvod-october-2026/
+
+Starring Liam Neeson and Zachary Levi, the action-thriller film The Fix has officially debuted on streaming.
+---------
+
+# 8 Funniest ‘Peanuts’ Quotes That Prove It’s the Greatest Comic Strip in History
+
+Movie Lists, Peanuts, comics
+
+Wed, 21 Oct 2026 03:00:18 GMT
+
+https://movieweb.com/peanuts-funniest-quotes/
+
+Charles Schulz didn't just write punchlines. Peanuts found humor in its characters' flaws without ever losing sight of their humanity.
+---------
+
+# 10 Near-Perfect Mystery Thriller TV Shows Recommended by Stephen King
+
+TV Lists, Mystery, Thriller, Stephen King
+
+Wed, 21 Oct 2026 02:00:28 GMT
+
+https://movieweb.com/thriller-tv-shows-stephen-king-loves/
+
+Stephen King may be a beloved and bestselling author of fantasy, sci-fi, and horror novels, but he recommends some great thriller TV, too.
+---------
+
 # What Happened To Austin Dennison In The Diplomat Season 4
 
 Streaming TV, The Diplomat
