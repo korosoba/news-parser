@@ -1,3 +1,421 @@
+# Marvel's VisionQuest Theories On Client's Identity & RDJ's Doctor Doom Clarified By MCU Show Creator
+
+TV, VisionQuest, Marvel Cinematic Universe
+
+Wed, 21 Oct 2026 20:42:55 GMT
+
+https://screenrant.com/marvel-visionquest-client-theories-doctor-doom-terry-matalas/
+
+VisionQuest creator Terry Matalas addresses fan theories about the mysterious Client who placed a bounty on Vision in Marvel's Disney+ series.
+---------
+
+# Season 2 Of Netflix’s Blade Runner Replacement Debuts To Incredible Rotten Tomatoes Score
+
+TV, Netflix, Masked Recs
+
+Wed, 21 Oct 2026 20:39:38 GMT
+
+https://screenrant.com/cyberpunk-edgerunners-2-rotten-tomatoes-score-blade-runner/
+
+Netflix's best anime has finally released its second season, and the anthology series' new outing has received an impressive Rotten Tomatoes score.
+---------
+
+# Star Wars' Huge New Villain Is Ripping Off... Disney's Incredibles?!
+
+Star Wars
+
+Wed, 21 Oct 2026 20:30:17 GMT
+
+https://screenrant.com/star-wars-new-robot-powers-disney/
+
+Star Wars' latest villain mirrors a very specific kind of antagonist seen in other sci-fi properties, particularly one from Disney's The Incredibles.
+---------
+
+# 10 Biggest Takeaways From Rewatching The Hunger Games
+
+Movies, The Hunger Games, The Hunger Games: Sunrise on the Reaping
+
+Wed, 21 Oct 2026 20:30:17 GMT
+
+https://screenrant.com/hunger-games-10-biggest-takeaways-rewatching-original-movie/
+
+The Hunger Games is worth another watch before Haymitch’s prequel. Knowing who survives leaves more time to notice what it takes to bring Katniss home
+---------
+
+# Emily Blunt’s Modern Sci-Fi Classic Is Officially Getting A New Streaming Home In 2 Weeks
+
+Movies, Looper
+
+Wed, 21 Oct 2026 20:28:08 GMT
+
+https://screenrant.com/emily-blunt-looper-modern-classic-netflix-streaming-release-november-2026/
+
+After wowing critics and audiences alike 14 years ago, a modern sci-fi classic starring Emily Blunt is now set to move to a new streaming home.
+---------
+
+# Apple TV's Slow Horses Enters New Streaming Age After Exciting James Bond Casting Report
+
+TV, Slow Horses
+
+Wed, 21 Oct 2026 20:25:39 GMT
+
+https://screenrant.com/slow-horses-bond-report-apple-tv-streaming-charts-rise-october-2026/
+
+Apple TV's Slow Horses enters a new streaming age, and it happens right after season 6's finale, with the spy thriller series' future secured.
+---------
+
+# 3 Years After The Series' End, Attack On Titan Returns For One Last Deluxe Release
+
+Anime, Attack on Titan
+
+Wed, 21 Oct 2026 20:25:07 GMT
+
+https://screenrant.com/attack-on-titan-last-attack-blu-ray-steelbook/
+
+Three years after its anime finale, Attack on Titan returns with a deluxe 4K SteelBook release featuring an extra scene fans won't want to miss.
+---------
+
+# Nintendo Switch 2 Sales Starting Early Ahead Of Black Friday
+
+Gaming, Nintendo Switch 2, Square Enix, Triple-A Games
+
+Wed, 21 Oct 2026 20:15:01 GMT
+
+https://screenrant.com/nintendo-switch-2-sales-amazon-square-enix/
+
+Nintendo Switch 2 owners trying to stock up on games for the holiday season don't need to wait until Black Friday for some attractive deals.
+---------
+
+# How The Simpsons’ Treehouse Of Horror XVII Team Creates The Scariest Homer Story Ever
+
+Interviews, Halloween, Halloween 2026, The Simpsons
+
+Wed, 21 Oct 2026 20:08:04 GMT
+
+https://screenrant.com/the-simpsons-treehouse-of-horror-xvii-interview-exclusive/
+
+During an exclusive interview, the team behind "Treehouse of Horror XXXVII" broke down the origins of the "This is Halloween" parody that opens it.
+---------
+
+# Prime Video All But Confirms Where In Tolkien's Story The Rings Of Power Season 3 Will End
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Wed, 21 Oct 2026 20:00:17 GMT
+
+https://screenrant.com/the-rings-of-season-season-3-ending-point-teaser/
+
+Prime Video has released a new teaser for The Rings of Power season 3, and it gives a very strong idea of how much Tolkien story will be covered.
+---------
+
+# After 11 Years, Yona of the Dawn's Anime Sequel Gets a Major Production Upgrade
+
+Anime, Yona of the Dawn
+
+Wed, 21 Oct 2026 20:35:14 GMT
+
+https://www.cbr.com/pierrot-films-yona-of-the-dawn-anime-sequel-confirm/
+
+The latest production update confirms modern, high-quality animation for Yona of the Dawn's official sequel series.
+---------
+
+# 10 Complete Isekai Anime Series That Are 10/10, No Note
+
+Anime, Isekai, Innovation
+
+Wed, 21 Oct 2026 20:15:15 GMT
+
+https://www.cbr.com/perfect-complete-isekai-anime-series-no-notes/
+
+Isekai anime have the potential to get lost in their worldbuilding, but these finished masterpieces do everything perfectly.
+---------
+
+# Sydney Sweeney's Steamy $400M Thriller Remains an HBO Max Favorite as Sequel Begins Filming
+
+Movies, The Housemaid, The Housemaid's Secret, Thriller
+
+Wed, 21 Oct 2026 20:00:15 GMT
+
+https://www.cbr.com/sydney-sweeney-the-housemaid-thriller-hbo-success-october-2026/
+
+Sydney Sweeney's psychological thriller based on a book, The Housemaid, remains a streaming hit as sequel begins production.
+---------
+
+# Shadow the Hedgehog Finally Gets His Own Spotlight in New Sonic the Hedgehog Series
+
+Comics, Sonic the Hedgehog
+
+Wed, 21 Oct 2026 20:00:15 GMT
+
+https://www.cbr.com/sonic-the-hedgehog-godzilla-shadow-the-hedgehog/
+
+Sonic the Hedgehog's latest adventure brings one of Sonic's most adored characters to the center of the battle.
+---------
+
+# The 10 Most Suspenseful Sci-Fi Movies of All Time, Ranked
+
+Movies, Sci-Fi
+
+Wed, 21 Oct 2026 19:30:14 GMT
+
+https://www.cbr.com/best-suspense-sci-fi-movies-list/
+
+The sci-fi genre perfectly blends with countless other types of storytelling, and these films are the most suspenseful the genre offers.
+---------
+
+# Studio Ghibli's New Howl-Inspired Anime Extends Exclusive Run Into 2027
+
+Anime, Studio Ghibli, Howl's Moving Castle
+
+Wed, 21 Oct 2026 19:20:15 GMT
+
+https://www.cbr.com/studio-ghibli-night-of-the-valley-of-witches-extended-screening-confirm/
+
+Studio Ghibli's latest anime release, which pays tribute to Howl's iconic castle, earns a special extended run at Ghibli's official screening room.
+---------
+
+# Fourth Wing Author Praises Amazon's Casting of Violet and Xaden in Prime Video Series
+
+TV, Fourth Wing
+
+Wed, 21 Oct 2026 19:13:35 GMT
+
+https://www.cbr.com/fourth-wing-violet-sorrengail-xaden-riorson-confirmed/
+
+Amazon officially confirms the casting for the lead characters of the Fourth Wing series.
+---------
+
+# HBO Sets New Penguin Follow-Up & Abandons Robert Pattinson's Batman Universe
+
+TV, The Penguin, Batman, HBO Max
+
+Wed, 21 Oct 2026 19:07:12 GMT
+
+https://www.cbr.com/poison-ivy-tv-series-hbo/
+
+Another Batman villain is headed to HBO, but not The Batman villains.
+---------
+
+# It's Official, Mass Effect Is Over As We Know It
+
+Games, Mass Effect, bioware, EA, Video Games
+
+Wed, 21 Oct 2026 19:05:15 GMT
+
+https://www.cbr.com/mass-effect-over-as-we-know-it-ea-buyout-bioware/
+
+The recent $55 billion EA buyout will change gaming forever, but what does that mean for BioWare and the Mass Effect franchise?
+---------
+
+# ‘Gilmore Girls’ Meets ‘Schitt’s Creek’ in This 4-Season Series That’s Now Streaming Free
+
+TV Features, Hart of Dixie, Gilmore Girls, Schitt's Creek, Series
+
+Wed, 21 Oct 2026 20:29:14 GMT
+
+https://collider.com/hart-of-dixie-series-free-streaming-pluto-tv/
+
+Hart of Dixie blends small-town romance and comedy. Discover why to watch all four seasons free on Pluto TV.
+---------
+
+# Will Smith’s New Prime Video Action Thriller Officially Hits Major Milestone
+
+Movie News, Will Smith, David Gordon Green
+
+Wed, 21 Oct 2026 20:28:27 GMT
+
+https://collider.com/supermax-will-smith-prime-video-filming-wrapped/
+
+Will Smith’s Supermax has wrapped filming. The Prime Video thriller follows two FBI agents investigating an impossible prison murder.
+---------
+
+# 10 Fantasy Books That Are Perfect From Start to Finish
+
+Books and Comics, The Hobbit, Dungeon Crawler Carl, The Last Unicorn, Fantasy
+
+Wed, 21 Oct 2026 20:28:15 GMT
+
+https://collider.com/fantasy-books-perfect-start-to-finish/
+
+The Hobbit, The Last Unicorn, The Dark Tower, The Poppy War, Dungeon Crawler Carl, and more make up our list of perfect fantasy books.
+---------
+
+# Taylor Sheridan’s ‘Call of Duty’ Movie Has a ‘Smile 2’ Star Training “24/7” [Exclusive]
+
+Exclusives, Inde Navarrette, Taylor Sheridan, Call of Duty, Ray Nicholson
+
+Wed, 21 Oct 2026 20:20:58 GMT
+
+https://collider.com/call-of-duty-movie-ray-nicholson-inde-navarrette-taylor-sheridan/
+
+Ray Nicholson and Inde Navarrette reveal their interest in joining Taylor Sheridan and Peter Berg’s upcoming Call of Duty adaptation.
+---------
+
+# The 10 Greatest Delinquent Anime, Ranked
+
+TV, Anime, Tokyo Revengers, Wind Breaker, Banana Fish
+
+Wed, 21 Oct 2026 20:05:14 GMT
+
+https://collider.com/best-delinquent-anime-ranked/
+
+Delinquent anime showcases tales of punks and rebels fighting the system, and timeless shows like Banana Fish and Tokyo Revengers are among the best.
+---------
+
+# Taylor Sheridan’s ‘Yellowstone’ Replacement Officially Casts a New Kayce Dutton
+
+TV News, Marshals, CBS, Drama, Procedural
+
+Wed, 21 Oct 2026 20:00:19 GMT
+
+https://collider.com/marshals-season-2-young-kayce-dutton-new-actor/
+
+Marshals Season 2 appears to introduce a new actor as young Kayce Dutton in flashbacks, while Luke Grimes remains the present-day Kayce.
+---------
+
+# Marvel's New Rogue Dropped 'X-Men' Casting Hints 1 Month Before the Official Reveal [Exclusive]
+
+Movie News, X-Men, Inde Navarrette, Obsession, MCU
+
+Wed, 21 Oct 2026 19:49:34 GMT
+
+https://collider.com/xmen-inde-navarrette-rogue-mystique-casting-comments/
+
+Inde Navarrette reveals she knew she was Marvel’s Rogue while discussing Mystique and secretly teasing her upcoming X-Men role.
+---------
+
+# DC's New 'Joker' Replacement Officially Defeats 'Supergirl' in First Reviews
+
+Movie News, Clayface, DCU, DC, James Gunn
+
+Wed, 21 Oct 2026 19:26:43 GMT
+
+https://collider.com/clayface-rotten-tomatoes-score-is-it-good/
+
+The official reviews for Clayface are in, and reactions are all over the map for the DCU's first-ever R-rated horror movie. Read on for more.
+---------
+
+# ‘The Penguin’ Creator Officially Returns With New Series for Massive Batman Villain
+
+TV News, Poison Ivy, DC Comics, Warner Bros., HBO
+
+Wed, 21 Oct 2026 19:23:07 GMT
+
+https://collider.com/hbo-poison-ivy-series-batman-spin-off-lauren-lefranc/
+
+A Poison Ivy spin-off series is officially in the works at DC and HBO, with The Penguin creator Lauren LeFranc set to executive produce.
+---------
+
+# Dungeon Crawler Carl Officially Returns Next Month
+
+Books and Comics News, Dungeon Crawler Carl, Books, Sci-Fi, Peacock
+
+Wed, 21 Oct 2026 19:20:39 GMT
+
+https://collider.com/dungeon-crawler-carl-unstoppable-game-november-2026-release/
+
+Dungeon Crawler Carl: Unstoppable arrives in November with solo and co-op play through the series’ deadly World Dungeon.
+---------
+
+# Daisy Ridley Moves From 'Star Wars' To Streaming in New Classic Sci-Fi Adventure Remake From Paramount+
+
+TV News, Daisy Ridley, Voyage to the Bottom of the Sea, Paramount Plus
+
+Wed, 21 Oct 2026 20:43:01 GMT
+
+https://movieweb.com/voyage-to-the-bottom-of-the-sea-daisy-ridley/
+
+'Star Wars' icon Daisy Ridley is headed to into brand-new uncharted territory in Paramount's upcoming remake of 'Voyage to the Bottom of the Sea.'
+---------
+
+# New Batman Villain Series Officially Confirmed at HBO From 'The Penguin' Showrunner
+
+TV News, The Penguin, DCU, The Batman
+
+Wed, 21 Oct 2026 20:01:13 GMT
+
+https://movieweb.com/poison-ivy-hbo-dc-series/
+
+Lauren LeFranc is set to produce a series based on Poison Ivy, a Batman villain.
+---------
+
+# 32 Years Later, Monica's Smartest 'Friends' Quote Is Still Unbeaten in TV History
+
+Features, Friends, Comedy, Courteney Cox
+
+Wed, 21 Oct 2026 20:00:16 GMT
+
+https://movieweb.com/friends-monica-smartest-quote/
+
+'Friends' provided several moments that brought about a strong sense of self-reflection, but none more so than one from the pilot. Read on.
+---------
+
+# 'Clayface' Rotten Tomatoes Score Officially Revealed
+
+Movie News, Clayface, Horror, Thriller, Sci-Fi, Superhero, Crime, Mystery
+
+Wed, 21 Oct 2026 19:39:13 GMT
+
+https://movieweb.com/clayface-rotten-tomatoes/
+
+DC Studios' first true horror movie, 'Clayface,' is almost in theaters as critics share their first reactions to what's on the way.
+---------
+
+# 7 Months Later, the First $1 Billion Movie of 2026 Confirms Netflix Streaming Date
+
+Movie News, The Super Mario Galaxy Movie, Animation, Fantasy, Anya Taylor-Joy
+
+Wed, 21 Oct 2026 19:15:18 GMT
+
+https://movieweb.com/super-mario-galaxy-movie-netflix-streaming/
+
+After 7 months, 'The Super Mario Galaxy Movie' is finally heading to Netflix.
+---------
+
+# DC's New "Joker Meets Venom" Batman Villain Movie Is A Horror Train Wreck | Review
+
+Movie Reviews, Clayface, DCU, Superhero, Horror
+
+Wed, 21 Oct 2026 19:00:17 GMT
+
+https://movieweb.com/clayface-review/
+
+The latest cinematic installment of the DC Universe offers more gross body horror than compelling character study, and has few redeeming moments.
+---------
+
+# New "John Wick Meets Taken" 90-Minute Action Thriller Remains the No. 1 Movie on Streaming
+
+Movie News, One Mile: Chapter One, Action, Thriller, Paramount Plus, Hot on Streaming
+
+Wed, 21 Oct 2026 19:00:17 GMT
+
+https://movieweb.com/one-mile-action-paramount-plus-stream-october-2026/
+
+One of the best low-budget action movies of the year continues to get the redemption it deserves.
+---------
+
+# New Chris Rock A24 Movie Officially Confirms Netflix Streaming Debut
+
+Movie News, Chris Rock, Misty Green, A24, Drama, Netflix
+
+Wed, 21 Oct 2026 18:57:29 GMT
+
+https://movieweb.com/misty-green-neflix-release-date/
+
+Chris Rock's movie about navigating fame is coming to Netflix.
+---------
+
+# DC Studios Finally Confirms Batman Status in 'Clayface' Ahead of DCU Debut
+
+Movie News, Batman, DCU, The Brave and the Bold, Clayface, Superhero
+
+Wed, 21 Oct 2026 17:46:00 GMT
+
+https://movieweb.com/clayface-batman-active/
+
+Peter Safran reveals whether or not Bruce Wayne has suited up as Batman during the events of the horror film 'Clayface.'
+---------
+
 # Next Mass Effect Game Canceled As EA Shuts Down BioWare
 
 Gaming, Mass Effect, EA, PC
