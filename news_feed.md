@@ -1,3 +1,388 @@
+# What Happened To Austin Dennison In The Diplomat Season 4
+
+Streaming TV, The Diplomat
+
+Wed, 21 Oct 2026 01:00:18 GMT
+
+https://screenrant.com/the-diplomat-season-4-austin-dennison-death-explained/
+
+The Diplomat season 4 surprised us with a shocking twist for one of its characters, but it was a necessary evil to get Kate where she needed to be.
+---------
+
+# Mass Effect: Legendary Edition Finally Has Multiplayer
+
+Gaming, Mass Effect, Mass Effect Legendary Edition, PC
+
+Wed, 21 Oct 2026 01:00:18 GMT
+
+https://screenrant.com/mass-effect-legendary-edition-multiplayer-mod/
+
+Mass Effect fans can finally rejoice as, after being a highly requested feature for years, multiplayer has been added to the Legendary Edition.
+---------
+
+# Why Greta Gerwig's Narnia Movie Starting With The Magician's Nephew Is A Brilliant Decision
+
+Movies, The Chronicles of Narnia, Greta Gerwig
+
+Wed, 21 Oct 2026 01:00:18 GMT
+
+https://screenrant.com/narnia-magicians-nephew-sixth-book-greta-gerwig-perfect-choice/
+
+Greta Gerwig’s Narnia starts with book six, giving Digory and Polly their turn before Lucy finds a world audiences could already have grown to love.
+---------
+
+# Young Sheldon’s Messy Final Season Nearly Ruined Another Big Bang Theory Spinoff
+
+TV, Young Sheldon, Georgie & Mandy's First Marriage
+
+Wed, 21 Oct 2026 00:50:21 GMT
+
+https://screenrant.com/young-sheldon-final-season-georgie-mandy-first-marriage-raegan-revord-missy-impact/
+
+Exclusive: The author of the new book about Young Sheldon's run revealed how the final season nearly resulted in negatively affecting Georgie & Mandy.
+---------
+
+# Alan Ritchson’s Canceled 49-Episode Action Series Has An Even Better Spinoff
+
+Classic TV, Alan Ritchson
+
+Wed, 21 Oct 2026 00:30:18 GMT
+
+https://screenrant.com/alan-ritchsons-canceled-49-episode-action-series-has-an-even-better-spinoff/
+
+It's hard to believe, but king of TV action Alan Ritchson only recently had a series in the genre canceled. But its spinoff is worth another look.
+---------
+
+# Marvel Announces Wolverine's New Powers, With Extra Claws Added To Character Design
+
+Comics, Wolverine
+
+Wed, 21 Oct 2026 00:30:18 GMT
+
+https://screenrant.com/wolverine-powers-change-new-claws/
+
+Marvel has just revealed an all-new design for Wolverine, giving him a feral transformation complete with a whole bunch of extra claws.
+---------
+
+# 2026's Record-Breaking Hit Officially Rejected From Major Awards Run
+
+Movies, Michael, Golden Globes
+
+Wed, 21 Oct 2026 00:15:59 GMT
+
+https://screenrant.com/michael-movie-golden-globes-awards-rejected-comedy-musical/
+
+The movie broke box office records in 2026, but its remarkable success was not enough to secure a place in a major awards race.
+---------
+
+# Baldur’s Gate 3 Returns With New Official Sequel In 2027, All Details
+
+Comics, Baldur's Gate
+
+Tue, 20 Oct 2026 23:57:18 GMT
+
+https://screenrant.com/baldurs-gate-3-sequel-series-details/
+
+Astarion, Karlach, and other fan-favorite heroes are officially returning in 2027 with new adventures that expand the world of Baldur’s Gate 3.
+---------
+
+# CBS Is Finally Replacing NCIS: New Orleans After 5 Years
+
+TV, NCIS: New Orleans, NCIS, CBS
+
+Wed, 21 Oct 2026 01:00:12 GMT
+
+https://www.cbr.com/cbs-new-scott-bakula-detective-show-replace-ncis-new-orleans/
+
+A new show could replace NCIS: New Orleans on CBS five years after Scott Bakula's Navy spinoff ended in 2021 after a seven-year run on the network.
+---------
+
+# 6 Time-Travel Movies Like Back to the Future
+
+Movies, Back to the Future, Sci-Fi, Groundhog Day
+
+Wed, 21 Oct 2026 01:00:12 GMT
+
+https://www.cbr.com/time-travel-movies-like-back-to-the-future-list/
+
+Back to the Future has been king of the time travel adventure genre for four decades, but there are still some great gems for fans to get into.
+---------
+
+# Bring Baldur's Gate 3 to Your Dinner Table This Holiday Season
+
+Books, Baldur's Gate 3, Dungeons and Dragons, books, Reviews
+
+Wed, 21 Oct 2026 00:45:11 GMT
+
+https://www.cbr.com/baldurs-gate-a-feast-for-a-tenday-cookbook-review/
+
+With holiday dinner menus already in the planning stages, Andrew Wheeler's BG3-inspired cookbook offers plenty of festive fare to wow your guests.
+---------
+
+# 10 Greatest Adventure Books Of All Time, Ranked
+
+Books, Adventure
+
+Wed, 21 Oct 2026 00:30:12 GMT
+
+https://www.cbr.com/best-adventure-books-of-ranked-list/
+
+The best adventure books of all time combine unforgettable characters with dangerous journeys and worlds that continue to capture readers to this day.
+---------
+
+# Legendary Space Opera Finally Heads to Steam 1 Year After Launch
+
+Anime, Foundation
+
+Wed, 21 Oct 2026 00:20:12 GMT
+
+https://www.cbr.com/foundation-galactic-frontier-steam-release/
+
+Isaac Asimov's legendary sci-fi universe arrives on Steam with Foundation: Galactic Frontier, one year after the game's original launch.
+---------
+
+# 10 Isekai Anime Series With No Bad Episodes, Ranked
+
+Anime, KonoSuba: God's Blessing on This Wonderful World!, Magic Knight Rayearth, Isekai
+
+Wed, 21 Oct 2026 00:15:12 GMT
+
+https://www.cbr.com/isekai-anime-series-no-bad-episodes-ranked/
+
+Anime is filled with fun isekai fantasies, but titles like KonoSuba, Escaflowne, and Magic Knight Rayearth represent the genre's strongest offerings.
+---------
+
+# Forget Alien, Kristen Stewart's Sci-Fi With 1 of the Best Endings of 2020s Is a Streaming Hit
+
+Movies, Underwater, Prime Video, Alien
+
+Wed, 21 Oct 2026 00:00:12 GMT
+
+https://www.cbr.com/underwater-prime-video-streaming-success-october-2026/
+
+This deep sea creature feature is climbing the streaming charts.
+---------
+
+# 10 Meanest Peanuts Characters, Ranked
+
+Comics, Peanuts
+
+Wed, 21 Oct 2026 00:00:12 GMT
+
+https://www.cbr.com/meanest-peanuts-characters-ranked/
+
+Kids can be mean sometimes, especially when it comes to children like Lucy and Shermy in Charles M. Schulz's popular Peanuts comic strip series.
+---------
+
+# PlayStation 6 & Xbox Helix Prices Cause Doubt About Next-Gen Leap
+
+Games, Sony, Microsoft
+
+Tue, 20 Oct 2026 23:49:54 GMT
+
+https://www.cbr.com/ps6-xbox-helix-prices-reaction-next-gen-games/
+
+As presumptions about the price of the next console generation mount, players seem to be doubtful that new hardware can deliver transformative play.
+---------
+
+# Dwayne Johnson Is Unrecognizable After Transforming Into 70-Year-Old Man for New Movie
+
+Movies, dwayne johnson
+
+Tue, 20 Oct 2026 23:34:29 GMT
+
+https://www.cbr.com/dwayne-johnson-first-look-lizard-music/
+
+The Rock looks totally unrecognizable in his most transformative role yet.
+---------
+
+# Stephen King's Sci-Fi Novel Has One of the Most Unsettling Endings in Literary History
+
+Books and Comics, Sci-Fi, Horror, Stephen King, Books
+
+Wed, 21 Oct 2026 01:04:12 GMT
+
+https://collider.com/stephen-king-revival-book-ending/
+
+Stephen King has written some great horror books, and a few works of science fiction, but few rival Revival when it comes to unsettling endings.
+---------
+
+# 'NCIS' Wilmer Valderrama Reacts to the Major Changes Coming for Torres in Season 24
+
+Exclusives, NCIS, Wilmer Valderrama, CBS, Procedural
+
+Wed, 21 Oct 2026 01:01:12 GMT
+
+https://collider.com/ncis-season-24-episode-3-wilmer-valderrama-nick-torres/
+
+Wilmer Valderrama teases major Nick Torres changes in NCIS Season 24 as "Sleeping Dogs" forces the agent to confront his dark past.
+---------
+
+# Disney’s Hit Harry Potter Replacement Is Officially Taking Over Hulu
+
+TV News, Percy Jackson & the Olympians, Percy Jackson & The Olympians, Hulu, Fantasy
+
+Wed, 21 Oct 2026 01:00:12 GMT
+
+https://collider.com/percy-jackson-and-the-olympians-streaming-hulu-november-2026/
+
+Percy Jackson and the Olympians is heading to another streaming platform in November, ahead of its highly anticipated third season.
+---------
+
+# ‘VisionQuest’ Makes Major Strides With a Game-Changing Cliffhanger | Review
+
+TV Reviews, VisionQuest, Paul Bettany, Disney+, MCU
+
+Wed, 21 Oct 2026 01:00:12 GMT
+
+https://collider.com/visionquest-episode-3-recap-disney-plus/
+
+VisionQuest Episode 3 allows Vision and Tommy’s relationship to make big strides while delivering more insight into Paladin and the other Stark AIs.
+---------
+
+# Disney's 5-Part Adventure Franchise Officially Takes Over Netflix
+
+TV News, Netflix, Ice Age, Disney, Ray Romano
+
+Wed, 21 Oct 2026 00:59:19 GMT
+
+https://collider.com/ice-age-franchise-streaming-success-netflix-october-2026/
+
+Ahead of the sixth installment, all five Ice Age movies have broken into Netflix's Top 10. Read on for all the details
+---------
+
+# 8 Fantasy Shows With the Highest Rotten Tomatoes Scores, Ranked
+
+TV, Fantasy, Rotten Tomatoes, Avatar: The Last Airbender, Interview with the Vampire
+
+Wed, 21 Oct 2026 00:55:12 GMT
+
+https://collider.com/fantasy-shows-highest-rotten-tomatoes-scores-ranked/
+
+Avatar: The Last Airbender, Interview with the Vampire, and more make up our list of fantasy shows with the highest Rotten Tomatoes scores.
+---------
+
+# Michael Fassbender’s Sci-Fi Video Game Adaptation Officially Returns to Streaming Ahead of Netflix Reboot
+
+Movie News, Assassin's Creed, Hulu, Science Fiction
+
+Wed, 21 Oct 2026 00:45:12 GMT
+
+https://collider.com/michael-fassbender-assassins-creed-streaming-hulu-november-2026/
+
+Michael Fassbender's Assassin's Creed movie is heading to Hulu in November, ahead of Netflix's upcoming live-action series.
+---------
+
+# The 10 Most Subversive Psychological Thrillers, Ranked
+
+Movie, Psychological Thriller, Horror, Audition, Peeping Tom
+
+Wed, 21 Oct 2026 00:33:12 GMT
+
+https://collider.com/most-subversive-psychological-thrillers-ranked/
+
+Peeping Tom, Funny Games, and Psycho are all among the most subversive movies in the psychological thriller genre.
+---------
+
+# Russell Crowe’s Best Movie of All Time Officially Returns to Theaters
+
+Movie News, Russell Crowe, A Beautiful Mind, Jennifer Connelly, Judd Hirsch
+
+Wed, 21 Oct 2026 00:30:12 GMT
+
+https://collider.com/russell-crowe-a-beautiful-mind-theater-return-november-2026/
+
+Russell Crowe's A Beautiful Mind is back in theaters in 2026, with the Ron Howard movie celebrating its 25th anniversary.
+---------
+
+# Jack Reacher's Most "Grotesque" Problem Has Officially Been Solved [Exclusive]
+
+Books and Comics News, Jack Reacher, Reacher, Lee Child, Alan Ritchson
+
+Wed, 21 Oct 2026 00:30:12 GMT
+
+https://collider.com/reacher-lee-child-jack-reacher-technology-change-andrew-child/
+
+Lee Child reveals why Jack Reacher’s relationship with technology had to change and the instruction he gave Andrew Child.
+---------
+
+# Ultron Finally Completes His 2015 Plot Almost 3 Avengers Movies Later
+
+TV Shows, VisionQuest, Marvel Cinematic Universe, Superhero, Avengers: Age of Ultron
+
+Wed, 21 Oct 2026 01:00:17 GMT
+
+https://movieweb.com/visionquest-age-of-ultron-plot-complete/
+
+James Spader's Marvel comeback allows Ultron to return to the forefront of the franchise, and his actions are cause for concern. Read on for more.
+---------
+
+# Denzel Washington Is Back in Action in New Crime Thriller From ’Mission: Impossible’ Director
+
+Movie News, Denzel Washington, Action, Thriller, Crime, Christopher McQuarrie
+
+Wed, 21 Oct 2026 00:39:35 GMT
+
+https://movieweb.com/denzel-washington-crime-thriller-christopher-mcquarrie/
+
+Denzel Washington has signed on to star in Christopher McQuarrie's upcoming crime film
+---------
+
+# Stephen King's 4-Episode Apocalyptic Thriller Resurfaces as One of the Biggest Series on Streaming
+
+TV News, Stephen King, The Stand, Thriller, Hot on Streaming
+
+Wed, 21 Oct 2026 00:30:17 GMT
+
+https://movieweb.com/the-stand-stephen-king-thriller-stream-october-2026/
+
+As Carrie White dominates streaming, another of King's notable adaptations has found a second life with home viewers.
+---------
+
+# 16 Years Later, Brandon Sanderson's Greatest Quote From His Best Novel Is Still Unbeaten in 21st Century Fantasy
+
+Features, The Stormlight Archive, Brandon Sanderson, Fantasy
+
+Wed, 21 Oct 2026 00:00:17 GMT
+
+https://movieweb.com/stormlight-archive-kaladin-quote/
+
+This is the gold standard for Brandon Sanderson and modern fantasy.
+---------
+
+# New 'Lord of the Rings' Star Officially Addresses Replacing Viggo Mortensen as Aragorn
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Jamie Dornan, Viggo Mortensen, Fantasy, Adventure, Drama, Action
+
+Tue, 20 Oct 2026 23:20:21 GMT
+
+https://movieweb.com/lord-of-the-rings-jamie-dornan-aragorn/
+
+After Viggo Mortensen's long run as Aragorn, a new star will take on the iconic role in the next 'Lord of the Rings' movie.
+---------
+
+# Netflix's New High Fantasy Universe Is Already Much Bigger Than Peak 'Game of Thrones'
+
+Features, Fantasy, Netflix, Game Of Thrones
+
+Tue, 20 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/dungeons-dragons-ravenloft-bigger-game-of-thrones/
+
+Netflix's upcoming 'Ravenloft' series has the potential to kickstart a whole high fantasy universe, making it already bigger than 'Game of Thrones.'
+---------
+
+# Tom Hanks' Best-Kept '80s Secret Snags New Release Following Streaming Reboot Success
+
+Movie News, The 'Burbs, Comedy, Tom Hanks, Joe Dante, Blu-ray
+
+Tue, 20 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/the-burbs-tom-hanks-4k-blu-ray-release/
+
+Joe Dante and Tom Hanks' dark comedy cult classic, 'The 'Burbs,' is officially receiving a 4K Ultra HD Blu-ray steelbook, courtesy of Shout! Factory.
+---------
+
 # Netflix’s Narnia Trailer With Bold Soundtrack Choice Just Broke Massive All-Time Record
 
 Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, Netflix
