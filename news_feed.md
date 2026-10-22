@@ -1,3 +1,355 @@
+# Shutter Island Ending Explained (In Detail)
+
+Movies, Shutter Island
+
+Thu, 22 Oct 2026 02:00:29 GMT
+
+https://screenrant.com/shutter-island-movie-ending-explained/
+
+Confused about the ending of Shutter Island? Here's what really happened and what the ending of Martin Scorsese's mind-bending movie means.
+---------
+
+# 5 Best Free Demos In Steam Next Fest 2026
+
+Gaming, Steam
+
+Thu, 22 Oct 2026 02:00:28 GMT
+
+https://screenrant.com/best-free-demos-steam-next-fest-2026/
+
+Looking for games to try during Steam Next Fest 2026? Check out five free demos worth playing, from cozy adventures to dark worlds and RPGs.
+---------
+
+# Hugh Jackman's Logan-Style R-Rated Action Thriller Deserves Its Streaming Redemption On HBO Max
+
+Movies, Masked Recs, Hugh Jackman, The Death of Robin Hood
+
+Thu, 22 Oct 2026 02:00:28 GMT
+
+https://screenrant.com/hugh-jackmans-logan-style-r-rated-action-thriller-deserves-its-streaming-redemption-on-hbo-max/
+
+Hugh Jackman’s brutal take on Robin Hood struggled in theaters. Now on HBO Max, its outlaw deserves more attention than his box office suggests.
+---------
+
+# Forget House Of The Dragon, HBO's Biggest Show Of The Year Officially Premieres In 2 Months
+
+Streaming TV, Harry Potter
+
+Thu, 22 Oct 2026 01:30:18 GMT
+
+https://screenrant.com/harry-potter-premiere-hbo-december-biggest-release/
+
+House of the Dragon proved to be a massive event for HBO in 2026, but as the year comes to a close, the platform has something even bigger in store.
+---------
+
+# 9 TV Shows From The 2000s That '90s Kids Still Love Today
+
+Classic TV
+
+Thu, 22 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/2000s-tv-shows-90s-kids-still-love/
+
+Not all 2000s TV shows have held up well, but some have remained Millennial must-watches still beloved by 90s kids today.
+---------
+
+# How Much The Harry Potter Cast Was Paid At The Beginning & End
+
+Movies, Harry Potter
+
+Thu, 22 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/harry-potter-movies-cast-actors-salary-how-much/
+
+The Harry Potter movie franchise launched Daniel Radcliffe, Emma Watson, and Rupert Grint to stardom. That was reflected in how much they were paid.
+---------
+
+# DC’s Lord of the Rings Replacement Just Found Its Aragorn
+
+Comics, DC Comics
+
+Thu, 22 Oct 2026 00:30:18 GMT
+
+https://screenrant.com/dc-lord-rings-replacement-found-aragorn-dark-knights-steel/
+
+DC Comics' new Lord of the Rings replacement story just found its Aragorn counterpart in the latest chapters of Dark Knights of Steel II.
+---------
+
+# All 14 DC Characters Recast In James Gunn's DCU So Far
+
+Movies, DC Universe
+
+Thu, 22 Oct 2026 00:20:43 GMT
+
+https://screenrant.com/dc-universe-characters-actors-recast/
+
+Clayface marks another release in James Gunn's DC Universe, and the franchise has already recast several characters from Zack Snyder's DCEU.
+---------
+
+# Disney+'s Sci-Fi Time Travel Series Officially Rounds Out Cast
+
+TV
+
+Thu, 22 Oct 2026 02:44:07 GMT
+
+https://www.cbr.com/spaceship-earth-disney-plus-cast/
+
+Disney's full cast for the sci-fi time travel series has been revealed.
+---------
+
+# 10 Hardest Atari 2600 Games of All Time, Ranked
+
+Games, Video Games, Superman
+
+Thu, 22 Oct 2026 02:30:14 GMT
+
+https://www.cbr.com/hardest-atari-2600-games-of-all-time-ranked/
+
+Arcade simplicity meets brutal precision across joystick classics that demand timing and relentless patience in these hard Atari 2600 games.
+---------
+
+# 6 Greatest Shojo Anime of 2026, So Far
+
+Anime, In the Clear Moonlit Dusk, Tamon's B-Side, Innovation
+
+Thu, 22 Oct 2026 02:15:14 GMT
+
+https://www.cbr.com/best-shojo-anime-2026-so-far/
+
+The 2026 anime lineup has given shojo fans plenty to love. These six titles are leading the year so far.
+---------
+
+# Dragon Ball Officially Confirms Disappointing 2027 Release Update
+
+Anime, Dragon Ball, Dragon Ball Super, Shonen Jump
+
+Thu, 22 Oct 2026 02:06:14 GMT
+
+https://www.cbr.com/dragon-ball-xenoverse-3-second-half-2027-release/
+
+Dragon Ball Xenoverse 3 gets a disappointing launch update as Bandai Namco reveals new details about the long-awaited sequel.
+---------
+
+# Sorry Reacher, Stephen King's New 8-Part Horror Reboot Isn't Giving Up Prime Video's No. 1 Spot
+
+TV, Carrie, Prime Video, Horror
+
+Thu, 22 Oct 2026 02:00:25 GMT
+
+https://www.cbr.com/carrie-horror-prime-video-success-october-2026/
+
+The reboot of a Stephen King classic is taking over streaming.
+---------
+
+# Every Mainline Pokémon Game, Officially Ranked
+
+Games, Pokemon, Video Games, Pokémon
+
+Thu, 22 Oct 2026 01:46:14 GMT
+
+https://www.cbr.com/pokemon-mainline-games-ranked/
+
+Many Pokémon games have been released over the past thirty years, and some mainline entries are far better than others.
+---------
+
+# Netflix's New 6-Part Thriller Is the No. 1 Show in the World With 156 Million Hours Viewed
+
+TV, Below, Netflix, Thriller
+
+Thu, 22 Oct 2026 01:30:14 GMT
+
+https://www.cbr.com/below-thriller-netflix-success-october-2026/
+
+Netflix's new creature feature series Below is officially the No. 1 show in the world with over 150 million hours watched within its first two weeks.
+---------
+
+# 10 Perfect Fantasy Anime Series With No Bad Episodes
+
+Anime, Berserk, Frieren: Beyond Journey's End, Puella Magi Madoka Magica
+
+Thu, 22 Oct 2026 01:26:14 GMT
+
+https://www.cbr.com/perfect-fantasy-anime-series-no-bad-episodes/
+
+These perfect fantasy anime masterpieces are flawless from start to finish.
+---------
+
+# Every The Witcher Book, Ranked
+
+Books, The Witcher, Fantasy, books, Innovation
+
+Thu, 22 Oct 2026 01:00:14 GMT
+
+https://www.cbr.com/every-witcher-book-ranked-list/
+
+How do the nine installments of Andrzej Sapkowski's dark fantasy series The Witcher compare to one another?
+---------
+
+# A 33-Year-Old Fantasy Classic Is Beating Nearly Every Movie & Show on Disney+
+
+Movies, The Nightmare Before Christmas, Disney+, Fantasy
+
+Thu, 22 Oct 2026 01:00:14 GMT
+
+https://www.cbr.com/the-nightmare-before-christmas-fantasy-disney-plus-success-october-2026/
+
+This holiday classic has gripped audiences for generations.
+---------
+
+# 'Terminator' Meets Apple TV's 'Foundation' in Netflix's 13-Episode Sci-Fi Series
+
+TV Features, Vivy: Fluorite Eye's Song, Foundation, The Terminator, Netflix
+
+Thu, 22 Oct 2026 02:40:14 GMT
+
+https://collider.com/terminator-foundation-netflix-vivy-fluorites-eye-song-sci-fi/
+
+Netflix's Vivy: Fluorite Eye's Song combines the science fiction concepts and themes of Terminator and Foundation in a must-see anime series.
+---------
+
+# Peter Jackson Officially Confirms the Status of Stephen Colbert’s Lord of the Rings Sequel
+
+Movie News, The Lord of the Rings, Peter Jackson, Stephen Colbert, The Lord of the Rings: Shadow of the Past
+
+Thu, 22 Oct 2026 01:46:14 GMT
+
+https://collider.com/the-lord-of-the-rings-stephen-colbert-sequel-script-update-peter-jackson/
+
+The status of Stephen Colbert’s Lord of the Rings movie has been officially confirmed by Peter Jackson.
+---------
+
+# NBC’s Cancelled Cult Sci-Fi Series Officially Returns With New Netflix Spin-Off in 2027
+
+TV News, Manifest, NBC, Netflix, Jeff Rake
+
+Thu, 22 Oct 2026 01:30:14 GMT
+
+https://collider.com/netflix-manifest-spin-off-arrivals-filming-start-january-2027/
+
+Netflix's new spin-off of Manifest, Arrivals: A New Manifest Mystery, begins filming in January 2027 and has revealed several key characters.
+---------
+
+# Florence Pugh’s Netflix Western Is Officially a Colossal Streaming Hit
+
+TV News, East of Eden, Netflix, Florence Pugh, Western
+
+Thu, 22 Oct 2026 01:15:14 GMT
+
+https://collider.com/netflix-western-east-of-eden-streaming-success-october-2026/
+
+Despite competition from flashier titles, Netflix's East of Eden has emerged as a major hit for the streamer. Find out more.
+---------
+
+# This 9-Minute Action Sequence Remains the Greatest Scene in Sci-Fi History
+
+Movie Features, Children of Men, Clive Owen, Sci-Fi, Action
+
+Thu, 22 Oct 2026 01:03:14 GMT
+
+https://collider.com/children-of-men-clive-owen-best-action-scene-sci-fi/
+
+Alfonso Cuarón's Children of Men features a breathtaking nine-minute sequence that remains one of sci-fi's greatest and most unique action scenes.
+---------
+
+# Tom Holland's Failed Indiana Jones Replacement Officially Resurfaces on Streaming
+
+Movie News, Tom Holland, Uncharted, Mark Wahlberg, Spider-Man: Brand New Day
+
+Thu, 22 Oct 2026 01:00:14 GMT
+
+https://collider.com/tom-holland-uncharted-streaming-success-hbo-max-october-2026/
+
+Tom Holland's Uncharted adaptation is seeing renewed popularity on streaming as fans wait for a sequel.
+---------
+
+# Netflix’s Answer to Taylor Sheridan’s ‘Sicario’ Officially Makes Streaming History
+
+Movie News, Sicario, Netflix, Facing El Chapo, Thriller
+
+Thu, 22 Oct 2026 00:45:14 GMT
+
+https://collider.com/netflix-sicario-replacement-facing-el-chapo-streaming-success-october-2026/
+
+Netflix's blockbuster Sicario replacement, Facing El Chapo, has emerged as its second-biggest Mexican original of all time. Find out more.
+---------
+
+# The BBC’s 3-Part ‘MobLand’ Replacement Officially Renewed
+
+TV News, This City Is Ours, MobLand, BBC, Tom Hardy
+
+Thu, 22 Oct 2026 00:30:15 GMT
+
+https://collider.com/sean-bean-this-city-is-ours-season-3-renewed/
+
+The BBC has decided the fate of its gritty MobLand replacement ahead of Season 2. Here’s all to know.
+---------
+
+# The 6 Best Fantasy Films of the 2020s So Far, Ranked
+
+Movie, Fantasy, The Green Knight, The Odyssey, Guillermo del Toro’s Pinocchio
+
+Thu, 22 Oct 2026 00:17:14 GMT
+
+https://collider.com/best-fantasy-films-2020s-so-far-ranked/
+
+From Wolfwalkers to The Odyssey, these masterful 2020s fantasy films use surreal worlds to dissect raw human emotion.
+---------
+
+# Netflix’s 2-Part ‘Cyberpunk 2077’ Adaptation Is Officially a Netflix Smash Hit
+
+TV News, Cyberpunk: Edgerunners, Netflix, Cyberpunk 2077, Anime
+
+Thu, 22 Oct 2026 00:15:14 GMT
+
+https://collider.com/cyberpunk-edgerunners-season-2-streaming-debut-success-netflix-october-2026/
+
+Cyberpunk: Edgerunners' second season has officially launched on Netflix, and a massive audience is already returning to Night City.
+---------
+
+# 12 Near-Perfect Prime Video Miniseries You Can Binge in One Sitting
+
+TV Lists, Prime Video, TV Miniseries
+
+Thu, 22 Oct 2026 02:00:27 GMT
+
+https://movieweb.com/prime-video-near-perfect-miniseries/
+
+Prime Video has many great longer TV shows, but these miniseries have compelling storylines and can be watched in one sitting.
+---------
+
+# Denzel Washington's 129-Minute Crime Thriller Classic Locks in New Release After 20 Years
+
+Movie News, Inside Man, Denzel Washington, Spike Lee, Crime, Thriller, Blu-ray
+
+Thu, 22 Oct 2026 01:00:16 GMT
+
+https://movieweb.com/inside-man-denzel-washington-4k-blu-ray/
+
+Kino Lorber is officially preparing a 4K Blu-ray release of Spike Lee's crime thriller classic 'Inside Man,' starring Denzel Washington.
+---------
+
+# 'Scrubs' Finally Drops Its First True Masterpiece in 17 Years
+
+Features, Scrubs, Comedy
+
+Thu, 22 Oct 2026 00:30:17 GMT
+
+https://movieweb.com/scrubs-revival-first-masterpiece/
+
+"My Finale" is still one of the best sitcom episodes of all time, but 'Scrubs' has offered up an installment that matches its quality. Read on.
+---------
+
+# New "Cloverfield Meets Ghostbusters" Sci-Fi Thriller Movie Adaptation Officially Confirmed
+
+Movie News, Sci-Fi
+
+Thu, 22 Oct 2026 00:10:36 GMT
+
+https://movieweb.com/headliners-movie-adaptation/
+
+The hit co-op horror game 'The Headliners' is getting a big-screen adaptation.
+---------
+
 # Chicago Med's Gruesome Medical Props Revealed (Exclusive)
 
 TV, Chicago Med, Halloween 2026
