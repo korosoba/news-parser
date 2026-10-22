@@ -1,3 +1,421 @@
+# "TV's Greatest Western" Deserves Credit For Mixing Shakespeare And Tarantino
+
+Classic TV, Masked Recs
+
+Thu, 22 Oct 2026 21:45:19 GMT
+
+https://screenrant.com/deadwood-western-script-is-shakespeare-and-tarantino/
+
+Deadwood's Emmy-nominated script merged two completely opposite writing styles, helping to make the TV series into a Western genre legend
+---------
+
+# Everything Coming To Disney+ & Hulu In November 2026 (All Movies & Shows)
+
+Streaming TV, Disney+, Hulu
+
+Thu, 22 Oct 2026 21:30:19 GMT
+
+https://screenrant.com/everything-coming-to-disney-plus-hulu-november-2026/
+
+November 2026 is bringing a wide variety of movies and TV shows to Disney+ and Hulu, along with new episodes of shows that debuted in October.
+---------
+
+# Forget Back To The Future, This 1985 Sci-Fi Is A Lost Masterpiece All 1970s Kids Loved
+
+Movies, Masked Recs, Sci-Fi, Cocoon, Back to the Future
+
+Thu, 22 Oct 2026 21:21:20 GMT
+
+https://screenrant.com/cocoon-sci-fi-lost-masterpiece-back-to-the-future/
+
+1985 was the year Back to the Future changed sci-fi forever, but a lost masterclass in genre storytelling from the same year deserves more love.
+---------
+
+# HBO's New #1 Drama Is Officially Switching Casts For Season 2
+
+Streaming TV, HBO
+
+Thu, 22 Oct 2026 21:18:15 GMT
+
+https://screenrant.com/hbo-war-drama-switching-casts-season-2/
+
+HBO's thrilling new drama sucked viewers in, jumping to #1 on the TV charts, but viewers should prepare for a big change in season 2.
+---------
+
+# Netflix Officially Loses Ground After Biggest Competitor Destroys Streaming In Latest Report
+
+TV, Netflix
+
+Thu, 22 Oct 2026 21:01:51 GMT
+
+https://screenrant.com/netflix-loses-streaming-ground-youtube-report/
+
+According to a new report, Netflix is losing the streaming wars to one of its biggest competitor in the industry, placing it several steps behind.
+---------
+
+# 12 Greatest Opening Lines In Movie History, Ranked
+
+Movies
+
+Thu, 22 Oct 2026 21:00:19 GMT
+
+https://screenrant.com/best-opening-lines-movies-ranked/
+
+Unforgettable introductions and chilling revelations, these iconic movie opening lines turned carefully chosen words into film history.
+---------
+
+# Left 4 Dead 2 Remake Officially Unveiled By NVIDIA
+
+Gaming, Left 4 Dead 2, Left 4 Dead, PC, Nvidia
+
+Thu, 22 Oct 2026 21:00:19 GMT
+
+https://screenrant.com/left-4-dead-2-remake-rtx-nvidia-trailer/
+
+A Left 4 Dead 2 remake with stunning new visuals has been officially showcased by NVIDIA in a surprising new reveal.
+---------
+
+# The Final Contenders For The Next James Bond, Ranked
+
+Movies, James Bond
+
+Thu, 22 Oct 2026 20:43:13 GMT
+
+https://screenrant.com/james-bond-next-007-actor-final-candidates-ranked/
+
+Daniel Craig will be replaced as James Bond for the spy's next movie, and these are the final contenders reported for the role, ranked.
+---------
+
+# WB’s Harry Potter Series Is Officially Launching Hogwarts Battle In New Episodes
+
+TV, Harry Potter: Wizards of Baking, Harry Potter
+
+Thu, 22 Oct 2026 20:42:01 GMT
+
+https://screenrant.com/harry-potter-wizards-baking-season-3-hogwarts-war-trailer/
+
+The 25th anniversary of the first Harry Potter film is coming up in November, and to mark the occasion, a new Hogwarts battle is brewing.
+---------
+
+# Chris Pratt's 2-Part Action Thriller Returns With a Massive Rotten Tomatoes Divide
+
+TV, The Terminal List, Prime Video, Rotten Tomatoes
+
+Thu, 22 Oct 2026 21:40:40 GMT
+
+https://www.cbr.com/the-terminal-list-prime-video-season-2-rotten-tomatoes-score/
+
+Critics and audiences are in disagreement over Season 2 of The Terminal List.
+---------
+
+# 5 American Anime Series That Are Unwatchable Today
+
+Anime
+
+Thu, 22 Oct 2026 21:30:14 GMT
+
+https://www.cbr.com/american-anime-series-unwatchable-today-lists/
+
+Many American studios tried to create series that copied the best anime, but shows like Kappa Mikey are better left in the past.
+---------
+
+# The Mummy Has the Best Opening Scene in Action History
+
+Movies, The Mummy
+
+Thu, 22 Oct 2026 21:30:14 GMT
+
+https://www.cbr.com/the-mummy-best-opening-scene-action-adventure-history/
+
+The Mummy immersed viewers in a fascinating world of Ancient Egypt, immediately starting from the first scene.
+---------
+
+# 20 Years Later, Disney Is Officially Reviving a Beloved Halloween Movie Franchise
+
+Movies, Halloweentown
+
+Thu, 22 Oct 2026 21:29:25 GMT
+
+https://www.cbr.com/halloweentown-5-disney/
+
+The franchise is being resurrected after lying dormant for the past two decades.
+---------
+
+# Michael Gray, Shazam! TV Show Star, Dies at 75
+
+TV, Shazam!, Shazam
+
+Thu, 22 Oct 2026 21:25:12 GMT
+
+https://www.cbr.com/michael-gray-dead-75-shazam-tv-show/
+
+The actor died earlier this month of natural causes.
+---------
+
+# Fire Emblem: Fortune's Weave Is Officially 1 of 2026's Best Switch 2 Games, So Far
+
+Games, Fire Emblem, Nintendo, Reviews
+
+Thu, 22 Oct 2026 21:15:15 GMT
+
+https://www.cbr.com/fire-emblem-fortunes-weave-review/
+
+Fire Emblem: Fortune's Weave lives up to its own ambition by delivering a grand interconnecting story with astonishing gameplay.
+---------
+
+# Chris Pratt's Action Thriller Just Beat Alan Ritchson's Entire Reacher Franchise on Prime Video
+
+TV, The Terminal List, Reacher, Neagley, Prime Video
+
+Thu, 22 Oct 2026 21:00:15 GMT
+
+https://www.cbr.com/the-terminal-list-beats-reacher-prime-video-october-2026/
+
+Chris Pratt's returning series just knocked out Reacher.
+---------
+
+# Red Rising is Game of Thrones Meets Star Wars
+
+Movies, Paramount, Francis Lawrence, Star Wars, Game Of Thrones
+
+Thu, 22 Oct 2026 21:00:15 GMT
+
+https://www.cbr.com/red-rising-game-of-thrones-meets-star-wars-space-opera/
+
+A new space opera coming at Paramount Pictures will combine the best elements of Game of Thrones and Star Wars, under The Hunger Games' director.
+---------
+
+# Jujutsu Kaisen's New 8-Player Nintendo Switch 2 Game Becomes Playable Again December 19
+
+Anime, Jujutsu Kaisen
+
+Thu, 22 Oct 2026 20:35:05 GMT
+
+https://www.cbr.com/jujutsu-kaisen-rumble-survivation-playtest-jump-festa-2027/
+
+Jujutsu Kaisen's upcoming battle royale video game reaches an exciting new milestone this holiday season.
+---------
+
+# 10 Greatest Sanji Episodes In One Piece, Ranked
+
+Anime, One Piece, Innovation
+
+Thu, 22 Oct 2026 20:15:15 GMT
+
+https://www.cbr.com/greatest-sanji-episodes-one-piece-ranked-list/
+
+Sanji is the most nuanced Straw Hat Pirate in One Piece, and these episodes showcase his multitudes.
+---------
+
+# The 10 Greatest Grimdark Books of All Time, Ranked
+
+Books and Comics, Books, Fantasy, A Song of Ice and Fire, George R.R. Martin
+
+Thu, 22 Oct 2026 21:46:15 GMT
+
+https://collider.com/best-grimdark-books-all-time-ranked/
+
+Iconic titles like A Game of Thrones and seminal texts like The Worm Ouroboros are among the best examples of the amoral and bleak grimdark subgenre.
+---------
+
+# Ali Hazelwood Confirms Olive and Adam’s Relationship Status in ‘The Love Hypothesis’ Sequel [Exclusive]
+
+Exclusives, Romance, The Love Hypothesis, Prime Video, Lili Reinhart
+
+Thu, 22 Oct 2026 21:20:15 GMT
+
+https://collider.com/the-love-hypothesis-ali-hazelwood-two-body-problem-sequel-update/
+
+Ali Hazelwood reveals what’s next for Olive and Adam in The Two-Body Problem, the sequel to The Love Hypothesis.
+---------
+
+# The 10 Most Universally Acclaimed Books of the 21st Century, Ranked
+
+Books and Comics, Books, Harry Potter, Brandon Sanderson, Cormac McCarthy
+
+Thu, 22 Oct 2026 21:19:15 GMT
+
+https://collider.com/most-universally-acclaimed-books-21st-century-ranked/
+
+Demon Copperhead by Barbara Kingsolver and Words of Radiance by Brandon Sanderson are among the 21st century's best-loved books.
+---------
+
+# Forget Modern Sci-Fi, 'Klara and the Sun's Jenna Ortega and Taika Waititi Find Soul in Classic Cinema
+
+Interviews, Klara and the Sun, Taika Waititi, Jenna Ortega, Amy Adams
+
+Thu, 22 Oct 2026 21:14:43 GMT
+
+https://collider.com/klara-and-the-sun-interview-taika-waititi-and-jenna-ortega/
+
+The new film, based on Kazuo Ishiguro’s hit 2021 novel, takes some cues from Hollywood classics.
+---------
+
+# 20 Years Later, Christopher Nolan's Most Underrated Movie Is a Different Experience Every Time
+
+Movie Features, Christopher Nolan, The Prestige, Christian Bale, Hugh Jackman
+
+Thu, 22 Oct 2026 21:09:15 GMT
+
+https://collider.com/christopher-nolan-the-prestige-anniversary/
+
+Christopher Nolan's 'The Prestige' is being re-released for its twentieth anniversary and fans of the director are revisiting the film's twist.
+---------
+
+# Tom Hardy's 'MobLand' Officially Prepares for War in New Trailer
+
+TV News, MobLand, Tom Hardy, Paramount Plus, Drama
+
+Thu, 22 Oct 2026 21:03:35 GMT
+
+https://collider.com/tom-hardy-guy-ritchie-mobland-season-2-midseason-trailer/
+
+It's the beginning of the end for Tom Hardy and Guy Ritchie's MobLand Season 2, in a new midseason trailer. See it here!
+---------
+
+# 10 Great Movies That Confirm Fantasy Is the Best Genre
+
+Movie, Fantasy, The Lord of the Rings: The Fellowship of the Ring, The Wizard of Oz, Barbie
+
+Thu, 22 Oct 2026 20:57:15 GMT
+
+https://collider.com/movies-confirm-fantasy-is-best-genre/
+
+From animated masterpieces like Beauty and the Beast to pioneering classics like The Wizard of Oz, these movies prove fantasy is cinema's best genre.
+---------
+
+# 'Outlander's Sam Heughan Officially Joins Taylor Sheridan's Favorite Streamer
+
+TV News, Sam Heughan, Viola Davis, John Logan, Paramount Plus
+
+Thu, 22 Oct 2026 20:50:08 GMT
+
+https://collider.com/sam-heughan-cast-paramount-plus-thriller-ascent/
+
+Outlander's Sam Heughan is officially leaving the fantasy franchise behind for a new thriller at Paramount+. Read on for more.
+---------
+
+# Alden Ehrenreich Officially Reveals His ‘Miami Vice ’85’ Transformation [Exclusive]
+
+Movie News, Alden Ehrenreich, Miami Vice, Joseph Kosinski, A Talent for Murder
+
+Thu, 22 Oct 2026 20:20:16 GMT
+
+https://collider.com/miami-vice-85-alden-ehrenreich-transformation-mustache/
+
+Alden Ehrenreich reveals details of his ’80s transformation for Joseph Kosinski’s Miami Vice ’85, including a Tom Selleck-style mustache.
+---------
+
+# Taylor Sheridan's Hit 'Yellowstone' Sequel Officially Preps for 2027 Return
+
+TV News, Dutton Ranch, Taylor Sheridan, Paramount Plus, Western
+
+Thu, 22 Oct 2026 20:18:29 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-dutton-ranch-season-2-filming-date-2027/
+
+Yellowstone star Kelly Reilly has officially confirmed when Season 2 of Taylor Sheridan's Dutton Ranch starts filming.
+---------
+
+# 4 Years Later, Netflix's Forgotten 7-Part Mystery Thriller Officially Returning With New Cast
+
+TV News, The Watcher, Madelaine Petsch, Netflix, Mystery, Thriller
+
+Thu, 22 Oct 2026 21:31:47 GMT
+
+https://movieweb.com/the-watcher-season-2-new-cast/
+
+Netflix adds four series regulars to its returning seven-episode mystery thriller.
+---------
+
+# Prime Video's "Game of Thrones Meets Star Trek" Sci-Fi Series Still Moving Forward Following Major Shutdown
+
+TV News, Mass Effect, Sci-Fi, Prime Video
+
+Thu, 22 Oct 2026 21:28:04 GMT
+
+https://movieweb.com/mass-effect-tv-series-update/
+
+Despite video game publisher BioWare being shut down, the 'Mass Effect' series is still in development at Amazon Prime.
+---------
+
+# Netflix's New 20-Episode Sci-Fi Action Thriller Races to the Top of Streaming After Just 1 Day
+
+TV News, Cyberpunk: Edgerunners, Hot on Streaming, Sci-Fi, Action, Thriller, Netflix, Anime
+
+Thu, 22 Oct 2026 21:00:18 GMT
+
+https://movieweb.com/cyberpunk-edgerunners-streaming-hit-netflix-october-2026/
+
+Netflix has officially found its newest global streaming hit thanks to the return of what some have called a sci-fi masterpiece.
+---------
+
+# Forget 'The Terminal List,' There's a Better 'Reacher' Season 4 Replacement Out This Week
+
+Features, Reacher, The Terminal List, Action
+
+Thu, 22 Oct 2026 21:00:18 GMT
+
+https://movieweb.com/reacher-chain-reaction-book-release/
+
+Season 2 of The Terminal List is a great option for Reacher fans. However, a better replacement just came out.
+---------
+
+# Taylor Sheridan's Best-Reviewed Western Sequel Officially Hits Major Milestone Ahead of Its Return
+
+TV News, Taylor Sheridan, Dutton Ranch, Paramount Plus, Western
+
+Thu, 22 Oct 2026 20:56:19 GMT
+
+https://movieweb.com/dutton-ranch-season-2-filming-update/
+
+Kelly Reilly has offered the clearest sign yet that Dutton Ranch season 2 is still on track.
+---------
+
+# 20 Years Later, Disney's Cult-Classic Fantasy Franchise Officially Moves Forward With a Fifth Movie
+
+Movie News, Halloweentown, Disney, Fantasy
+
+Thu, 22 Oct 2026 20:25:30 GMT
+
+https://movieweb.com/halloweentown-five-announced-disney/
+
+'Halloweentown 5' is in development at Disney Channel and Disney+ from 'Forbidden Fruits' writer Lily Houghton and 'Gossip Girl' writer Ryan Koehn.
+---------
+
+# 10 Netflix Detective Thriller Shows With No Bad Seasons
+
+TV Lists, Thriller, Netflix
+
+Thu, 22 Oct 2026 20:00:18 GMT
+
+https://movieweb.com/netflix-detective-thriller-shows-perfect/
+
+These Netflix thriller TV shows about smart detectives working on important cases have perfect and consistent runs.
+---------
+
+# 'Top Gun' & 'Alien' Star Tom Skerrit Dies at 93
+
+Movie News, Tom Skerritt, Top Gun, Alien, M*A*S*H
+
+Thu, 22 Oct 2026 19:47:25 GMT
+
+https://movieweb.com/tom-skerritt-dies-aged-93/
+
+After more than 60 years on the big and small screen, Tom Skerrit is no longer with us, leaving behind an incredible legacy of work.
+---------
+
+# Netflix Officially Being Dominated as Its Biggest Competitor Gains Momentum Over Streaming
+
+Movie News, Streaming, Netflix, YouTube
+
+Thu, 22 Oct 2026 19:43:21 GMT
+
+https://movieweb.com/netflix-youtube-nielsen-gauge/
+
+Will anyone catch the global streaming giant? YouTube is currently dominating Netflix on the Nielsen Gauge.
+---------
+
 # Bestselling The Gentlemen Meets Yellowstone Crime Novel Getting TV Adaptation
 
 TV, The Gentlemen, Yellowstone
