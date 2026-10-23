@@ -1,3 +1,377 @@
+# Zelda: Wind Waker Meets Dark Souls In New RPG You Can Play Free Now
+
+Gaming, The Legend of Zelda, The Legend of Zelda: The Wind Waker, Dark Souls, PC, Steam
+
+Fri, 23 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/zelda-wind-waker-meets-dark-souls-mousward-free-steam-demo/
+
+A brand-new RPG that combines the best elements of The Legend of Zelda: Wind Waker with Dark Souls is available for free right now.
+---------
+
+# Game Of Thrones Is Officially Bringing Back Arya Stark And The Night King In 2027's War For Westeros
+
+Gaming, Game of Thrones: War for Westeros, Game of Thrones
+
+Fri, 23 Oct 2026 04:15:19 GMT
+
+https://screenrant.com/game-of-thrones-war-for-westeros-arya-night-king-return/
+
+Command iconic heroes in Game of Thrones: War for Westeros set for 2027, featuring epic real-time strategy battles.
+---------
+
+# The Elder Scrolls Is Officially Switching Genre In New RPG
+
+Gaming, The Elder Scrolls, The Elder Scrolls IV: Oblivion Remastered
+
+Fri, 23 Oct 2026 04:00:19 GMT
+
+https://screenrant.com/elder-scrolls-shadow-of-oblivion-genre-switch/
+
+The Elder Scrolls VI might still not be here, but there are plenty of ways to have fun with the franchise otherwise.
+---------
+
+# Nicolas Cage's True Detective Casting Quietly Completes His Lovecraftian Trilogy
+
+Streaming TV, True Detective
+
+Fri, 23 Oct 2026 03:30:19 GMT
+
+https://screenrant.com/true-detective-season-5-nicolas-cage-lovecraftian-horror-trilogy/
+
+Nicolas Cage has officially been cast in True Detective season 5, and it is hard not to see how it potentially completes his Lovecraftian trilogy.
+---------
+
+# Hulu's New X-Files Series Hints It's Secretly A Sequel
+
+Streaming TV, The X-Files
+
+Fri, 23 Oct 2026 03:15:19 GMT
+
+https://screenrant.com/x-files-hulu-reboot-sequel-hint-mulder-scully/
+
+New details from Hulu’s highly-anticipated The X-Files series seemingly suggest that it is more of sequel to the original show than a proper reboot.
+---------
+
+# 20 Glee Characters Who Need To Return In Disney+'s Reboot
+
+Network TV, Glee
+
+Fri, 23 Oct 2026 03:00:06 GMT
+
+https://screenrant.com/glee-characters-return-disney-reboot/
+
+While most of the original cast members are a lock for the Glee reboot, Disney+'s revival of the cultural phenomenon should include some others.
+---------
+
+# Michael Keaton's Upcoming Western Movie Adds 3 New Stars To Its Cast
+
+Movies, Rode to Ruin
+
+Fri, 23 Oct 2026 02:37:06 GMT
+
+https://screenrant.com/michael-keaton-rode-to-ruin-richard-gadd-bill-camp-ray-mckinnon/
+
+Michael Keaton's highly anticipating new Western movie just added three major actors to its massive cast including the star of Baby Reindeer.
+---------
+
+# Silo Season 1 Ending Explained
+
+TV, Silo
+
+Fri, 23 Oct 2026 02:30:19 GMT
+
+https://screenrant.com/silo-season-1-ending-explained/
+
+Apple TV+'s Silo season 1 introduces many mysteries and nagging questions in its dystopian drama and waits till its ending moments to resolve them.
+---------
+
+# Madea Family Tree From All 13 Movies Explained
+
+Movies, Tyler Perry's Madea
+
+Fri, 23 Oct 2026 02:18:19 GMT
+
+https://screenrant.com/madea-family-tree-explained/
+
+Over the course of 13 movies, audiences have met the complicated family of Tyler Perry’s Madea. This is how each family member is related.
+---------
+
+# Wicker Ending Explained: How The Basket Weaver Swindles The Entire Village
+
+Movies, Wicker
+
+Fri, 23 Oct 2026 02:00:29 GMT
+
+https://screenrant.com/wicker-ending-explained/
+
+A wicker man, forbidden love, and devastating betrayal collide in Wicker. Discover the shocking twists, dark secrets, and more from Wicker.
+---------
+
+# Star Wars Meets Marvel's Superheroes in Marvel's Official January 2027 Solicitations
+
+Comics, Marvel Comics, solicitations
+
+Fri, 23 Oct 2026 03:53:19 GMT
+
+https://www.cbr.com/star-wars-meets-marvel-superheroes-marvel-january-2027-solicitations/
+
+The Marvel Universe meets the world of Star Wars among many other new comics in Marvel's January 2027 solicitations
+---------
+
+# 7 Dark Fantasy Anime Series Where Every Episode Is a Masterpiece
+
+Anime, Dororo, Berserk
+
+Fri, 23 Oct 2026 03:45:14 GMT
+
+https://www.cbr.com/dark-fantasy-anime-series-every-episode-masterpiece/
+
+Dark fantasy is a tricky genre to get right, but totemic titles like Berserk, Dororo, and Madoka Magica make it look easy.
+---------
+
+# 8 Years Later, Dean Winchester's Greatest Supernatural Quote Remains 100% Undisputed
+
+TV, Supernatural, The CW, Horror, Innovation
+
+Fri, 23 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/supernatural-dean-winchester-most-undisputed-quote/
+
+Dean Winchester's most impactful line in Supernatural still resonates with fans and remains the best quote in the series.
+---------
+
+# 10 Hilarious Far Side Comics Starring Demons
+
+Comics, The Far Side
+
+Fri, 23 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/hilarious-far-side-comics-starring-demons/
+
+The Far Side contains an abundance of controversial material, including some amazingly light-hearted and hilarious strips featuring demons.
+---------
+
+# 10 Hardest '90s Arcade Games of All Time, Ranked
+
+Games, Video Games, Mortal Kombat II, Street Fighter
+
+Fri, 23 Oct 2026 03:15:14 GMT
+
+https://www.cbr.com/hardest-90s-arcade-games-of-all-time-ranked/
+
+These fighting games and beat 'em ups terrorized arcade players with their extreme difficulty in the 90s.
+---------
+
+# Legendary Space Opera Drops Massive $600 Transforming Fortress for 45th Anniversary
+
+Anime, Super Dimension Fortress Macross, merchandise, toys, collectibles
+
+Fri, 23 Oct 2026 03:05:15 GMT
+
+https://www.cbr.com/super-dimension-fortress-macross-sdf-1-new-anniversary-release/
+
+One of the most iconic mecha from a beloved anime space opera is getting the 45th anniversary collectible fans didn't know they needed.
+---------
+
+# 'Spooky as Hell' Horror Show Stephen King Called a 10/10 Masterpiece Scores New Streaming Win
+
+TV, Servant, Apple TV, Horror
+
+Fri, 23 Oct 2026 02:58:11 GMT
+
+https://www.cbr.com/servant-apple-tv-streaming-success-october-2026/
+
+M. Night Shyamalan's Servant is back in the streaming charts.
+---------
+
+# Heated Rivalry Star's New 8-Part Mystery Series Debuts to Strong Rotten Tomatoes Score
+
+TV, Yaga, AMC, Rotten Tomatoes
+
+Fri, 23 Oct 2026 02:51:32 GMT
+
+https://www.cbr.com/yaga-amc-rotten-tomatoes-critic-score/
+
+Critics are praising this new horror mystery ahead of its release.
+---------
+
+# 4 God-Level Characters in Hunter x Hunter, Ranked
+
+Anime, Hunter x Hunter
+
+Fri, 23 Oct 2026 02:45:14 GMT
+
+https://www.cbr.com/hunter-x-hunter-god-level-characters-ranked/
+
+Hunter x Hunter has introduced a handful of god-level characters since the manga first began in 1998.
+---------
+
+# 10 Masterpiece '80s Arcade Games Better Than Galaga
+
+Games, Video Games, Pac-Man, Gaming
+
+Fri, 23 Oct 2026 02:15:14 GMT
+
+https://www.cbr.com/masterpiece-80s-arcade-games-better-than-galaga/
+
+As a classic space shooter, Galaga is legendary, but there are others that have surpassed it.
+---------
+
+# 7 Stephen King Books You Can Read in a Weekend
+
+Books and Comics, Stephen King, Carrie, The Dark Tower, Misery
+
+Fri, 23 Oct 2026 04:51:14 GMT
+
+https://collider.com/stephen-king-books-read-one-weekend/
+
+Carrie, Joyland, The Dark Tower: The Gunslinger, Misery, and more make up our list of Stephen King books you can read in a weekend.
+---------
+
+# 14 Years Later, This 25-Minute Opener Is Still the Best in Modern Sci-Fi Gaming
+
+Gaming, Video Game, Mass Effect 3, Science Fiction, BioWare
+
+Fri, 23 Oct 2026 04:08:14 GMT
+
+https://collider.com/mass-effect-3-prologue-hits-hard-bioware-shutting-down/
+
+The prologue of Mass Effect 3, where the Reapers attack and take over Earth, hits harder than ever, especially after the news about BioWare's fate.
+---------
+
+# 6 Stephen King Books You Can Finish in a Weekend
+
+Books and Comics, Stephen King, Carrie, The Mist, Haven
+
+Fri, 23 Oct 2026 04:07:14 GMT
+
+https://collider.com/stephen-king-books-read-in-one-weekend/
+
+From the horror classic Carrie to the underrated The Girl Who Loved Tom Gordon, these Stephen King books are perfect for a weekend of reading.
+---------
+
+# One of the Greatest WWII Movies of All Time Is Waiting To Be Rediscovered on Streaming
+
+Movie Features, A Bridge Too Far, Sean Connery, Robert Redford, Gene Hackman
+
+Fri, 23 Oct 2026 03:50:36 GMT
+
+https://collider.com/a-bridge-too-far-ww2-movie-streaming/
+
+Decades after its release, A Bridge Too Far remains one of the most ambitious and underappreciated World War II movies ever made.
+---------
+
+# 5 Near-Perfect Thriller Series if You Love Sicario
+
+TV, Narcos: Mexico, Ozark, Dope Thief, Sicario
+
+Fri, 23 Oct 2026 03:19:15 GMT
+
+https://collider.com/sicario-replacement-near-perfect-tv-shows-to-watch/
+
+Ozark, Narcos: Mexico and three other thriller series to watch if you love Sicario, plus everything we know about Sicario 3.
+---------
+
+# Hulu’s 12-Part Crime Show Is So Good, It Deserves a Reboot 9 Years Later
+
+TV Features, Bones, David Boreanaz, Emily Deschanel, Fox
+
+Fri, 23 Oct 2026 03:04:15 GMT
+
+https://collider.com/hulu-bones-crime-show-so-good-reboot/
+
+Bones was a smash hit when it first debuted and spawned 12 seasons of procedural fun, but 9 years after its finale, it's time for a reboot.
+---------
+
+# Alan Ritchson's 'Backrooms' Replacement Resurfaces On Free Streaming
+
+Movie Features, Dark Web: Cicada 3301, Alan Ritchson, Jack Reacher, Reacher
+
+Fri, 23 Oct 2026 03:03:15 GMT
+
+https://collider.com/alan-ritchson-thriller-dark-web-streaming-free-tubi-october-2026/
+
+Alan Ritchson's directorial debut, Dark Web: Cicada 3301, is an action conspiracy thriller now streaming free on Tubi.
+---------
+
+# The 10 Best HBO Original Comedy Shows, Ranked
+
+TV, HBO, Comedy, Curb Your Enthusiasm, Silicon Valley
+
+Fri, 23 Oct 2026 02:22:15 GMT
+
+https://collider.com/best-hbo-original-comedy-series-ranked/
+
+From Barry to Curb Your Enthusiasm, these are the best original comedy shows from HBO, ranked.
+---------
+
+# A24 Gives 2026's Biggest Surprise Hit Additional Theaters After Phenomenal Box-Office Debut
+
+Movie News, A24, You Can See Everything, Nathan Fielder, Box Office
+
+Fri, 23 Oct 2026 02:00:25 GMT
+
+https://collider.com/you-can-see-everything-box-office-gains-1800-theaters/
+
+A24's You Can See Everything will officially challenge DC Studios' Clayface for the number-one spot at the weekend box office. Find out more.
+---------
+
+# 20 Years Later, Kyle Chandler's Network Drama Is Still One of the Best Ever Made
+
+TV Features, Friday Night Lights, Kyle Chandler, Peter Berg, Connie Britton
+
+Fri, 23 Oct 2026 01:36:14 GMT
+
+https://collider.com/kyle-chandler-friday-night-lights-best-network-drama/
+
+It's been 20 years since Friday Night Lights premiered, but Kyle Chandler's network drama is still one of the best series ever made.
+---------
+
+# The 10 Greatest Calvin Quotes in ‘Calvin and Hobbes’ History
+
+Movie Lists, Calvin and Hobbes, comics
+
+Fri, 23 Oct 2026 03:50:18 GMT
+
+https://movieweb.com/calvin-hobbes-best-calvin-quotes/
+
+Calvin's dialogue effortlessly balanced humor and philosophy, whether he was pondering his place in the universe or racing in his wagon with Hobbes.
+---------
+
+# Warner Bros.' 103-Minute Movie Hailed as "One of the Year's Best" Officially Sets a Major Box Office Record
+
+Movie News, Coyote Vs. Acme, Comedy, Supergirl, Box Office Milestones, Action
+
+Fri, 23 Oct 2026 02:00:28 GMT
+
+https://movieweb.com/coyote-vs-acme-overtakes-supergirl-box-office/
+
+After once being shelved as a tax write-off, Coyote vs. Acme has now overtaken Supergirl at the box office.
+---------
+
+# 9 Biggest Questions After 'Clayface's Ending, Explained
+
+Movie Lists, Clayface
+
+Fri, 23 Oct 2026 01:45:13 GMT
+
+https://movieweb.com/clayface-biggest-questions/
+
+Clayface cleverly expands James Gunn's DC Universe with lore developments, character introductions, and more.
+---------
+
+# Netflix Finds New 4-Part Sci-Fi Thriller Hit With Rival Streamer's Most-Watched Show
+
+TV News, From, Netflix, Hot on Streaming, Sci-Fi, Thriller
+
+Fri, 23 Oct 2026 01:00:18 GMT
+
+https://movieweb.com/from-stream-netflix-october-2026/
+
+Netflix's latest sci-fi hit is "borrowed" from a major streaming rival.
+---------
+
 # 1899 Ending Explained (In Detail)
 
 TV, 1899
