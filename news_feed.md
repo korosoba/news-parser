@@ -1,3 +1,443 @@
+# Forget Landman, Billy Bob's Original Loud-Mouth Role Officially Returns To Streaming At The Perfect Time
+
+Movies, Bad Santa, Bad Santa 2, Landman, Billy Bob Thornton
+
+Fri, 23 Oct 2026 19:17:02 GMT
+
+https://screenrant.com/billy-bob-thornton-bad-santa-franchise-paramount-plus-streaming-release-november-2026/
+
+Landman is currently filming its third season, but Billy Bob Thornton can be seen in another loud-mouthed role very soon on a streaming platform.
+---------
+
+# It's Officially The Start Of A New Era For Tulsa King's Mitch In Season 4
+
+TV, Tulsa King, Tulsa King - Season 4, Garrett Hedlund
+
+Fri, 23 Oct 2026 19:15:19 GMT
+
+https://screenrant.com/tulsa-king-season-4-new-era-start-mitch-garrett-hedlund/
+
+Garrett Hedlund talks Tulsa King season 4, Mitch entering a new era as he shifts his priorities, and has a status update on Cleo's involvement.
+---------
+
+# 2 Years Later, Netflix's Best Fantasy Series Returns With First Look At Season 2
+
+Streaming TV, Netflix
+
+Fri, 23 Oct 2026 19:00:22 GMT
+
+https://screenrant.com/delicious-in-dungeon-season-2-first-look-characters-netflix-fantasy/
+
+Netflix's next fantasy series release is a returning action-fueled show that brings back four major characters, each with an updated design.
+---------
+
+# One Piece Franchise Officially Switches Genres In New Release
+
+Gaming, One Piece: Grand Gourmet, Triple-A Games
+
+Fri, 23 Oct 2026 19:00:19 GMT
+
+https://screenrant.com/one-piece-genre-switch-grand-gourmet/
+
+One Piece has been around for a really long time, but in 2026 it's officially switching genres, and fans are beyond excited for it.
+---------
+
+# Alien Sequel: What Did Brian Duffield Actually Do?
+
+Movies, Alien, Originals
+
+Fri, 23 Oct 2026 19:00:19 GMT
+
+https://screenrant.com/video/alien-sequel-what-did-brian-duffield-actually-do/
+
+Brian Duffield has finally addressed the rumors surrounding his involvement in the Alien franchise, but his explanation raises a fascinating new question about the future of the Xenomorph universe.
+---------
+
+# Netflix's 7-Part 'Clint Eastwood Meets Deadwood' Masterpiece Is Shockingly Accurate
+
+Classic TV, Masked Recs
+
+Fri, 23 Oct 2026 19:00:19 GMT
+
+https://screenrant.com/godless-accuracy-netflix-series-western/
+
+Many Western TV shows take creative liberties with history, but Netflix's forgotten seven episode Western masterpiece is more accurate than it seems.
+---------
+
+# Nathan Fillion's New Sci-Fi Series Regains Ground On Streaming In Surprise Resurgence
+
+TV, Lanterns, DC Universe
+
+Fri, 23 Oct 2026 18:53:52 GMT
+
+https://screenrant.com/nathan-fillion-lanterns-hbo-max-streaming-charts-rise-october-2026/
+
+Nathan Fillion's new sci-fi series is officially finding new life on streaming just when it seemed like the hit show was about to go out.
+---------
+
+# 6 Biggest Questions After Slow Horses Season 6, Episode 6's Ending
+
+Streaming TV, Slow Horses
+
+Fri, 23 Oct 2026 18:46:20 GMT
+
+https://screenrant.com/slow-horses-season-6-finale-questions-explained/
+
+Slow Horses season 6 came to a spectacular close with some of the most hard-hitting moments from the series' history, leaving the future in flux.
+---------
+
+# Jonathan Nolan's 36-Episode Dystopian Masterpiece Is Coming True In 2026
+
+Classic TV, Jonathan Nolan
+
+Fri, 23 Oct 2026 18:31:20 GMT
+
+https://screenrant.com/westworld-coming-true-in-2026/
+
+This dystopian sci-fi world is one of the most terrifying to contemplate. However, its story has been slowly coming true in the years since it ended.
+---------
+
+# How Dracula's New Release Reinvents Bram Stoker's 126-Year-Old Classic Explained By Star
+
+TV, Dracula, Horror, Audible, David Jonsson
+
+Fri, 23 Oct 2026 18:14:55 GMT
+
+https://screenrant.com/bram-stoker-dracula-audible-reinvention-david-jonsson/
+
+David Jonsson talks Audible's new Dracula adaptation, his previous favorite iterations of the novel and how it reinvents Bram Stoker's classic.
+---------
+
+# New Solo Leveling Episode Introduces Sung Jinwoo's Worst Nightmare
+
+Anime, Solo Leveling, Solo Leveling:ARISE
+
+Fri, 23 Oct 2026 19:20:15 GMT
+
+https://www.cbr.com/solo-leveling-hunter-origin-velvet-episode/
+
+Solo Leveling's new webtoon episode introduces a brand new successor to the Beast Monarch, and she's even more vicious than the one who killed Jinwoo.
+---------
+
+# Wildwood: Travis Knight on Making Puppets Feel Alive
+
+Movies, Wildwood
+
+Fri, 23 Oct 2026 19:15:15 GMT
+
+https://www.cbr.com/video/wildwood-travis-knight-on-making-puppets-feel-alive/
+
+Wildwood couldn't include everything from Colin Meloy's beloved novel, and director Travis Knight explains why adapting a book of more than 500 pages required some difficult creative decisions.
+---------
+
+# Greatest Anime Villain Defeats of All Time, Ranked
+
+Anime, Dragon Ball Z, Yu Yu Hakusho, Innovation, anime villains
+
+Fri, 23 Oct 2026 19:15:15 GMT
+
+https://www.cbr.com/best-anime-villain-defeats-all-time-ranked-list/
+
+Anime has delivered some legendary villain takedowns. These 10 stand out as the greatest in the medium's history.
+---------
+
+# The Most Iconic 2000s Anime Characters, Ranked
+
+Anime, Naruto, Inuyasha, Innovation
+
+Fri, 23 Oct 2026 19:15:15 GMT
+
+https://www.cbr.com/most-iconic-2000s-anime-characters-ranked/
+
+From shonen legends to unforgettable antiheroes, these anime characters became symbols of the 2000s.
+---------
+
+# Star Trek's New Villain Officially Replaces Q For A New Era
+
+Comics, Star Trek, Star Trek: Deep Space Nine
+
+Fri, 23 Oct 2026 19:00:15 GMT
+
+https://www.cbr.com/star-trek-new-villain-officially-replaces-q/
+
+Star Trek has a new reality-bending villain, and they might just be the most horrifying replacement for Q that fans have ever seen.
+---------
+
+# 10 Forgotten Action Movie Masterpieces From the 1980s
+
+Movies, Action, To Live and Die in L.A., The Octagon
+
+Fri, 23 Oct 2026 19:00:15 GMT
+
+https://www.cbr.com/best-1980s-action-movie-no-one-remembers-list/
+
+There's a whole lot more to 1980s action movies than the usual big names, and some of the decade's best are still waiting to be rediscovered.
+---------
+
+# Sega Genesis Gets Brand-New Physical Release 37 Years Later
+
+Games, Sega Genesis
+
+Fri, 23 Oct 2026 18:56:55 GMT
+
+https://www.cbr.com/sega-genesis-new-physical-release-toki-port/
+
+37 years after its debut, a classic arcade game is getting new physical copies ported to several retro consoles, including the Sega Genesis.
+---------
+
+# 7 Biggest Lore Changes in the Original Star Wars Books
+
+Books, Star Wars, Sci-Fi, books, Innovation
+
+Fri, 23 Oct 2026 18:30:13 GMT
+
+https://www.cbr.com/star-wars-novelization-differences-list/
+
+The novelizations of the original Star Wars trilogy deviated from the films in some interesting ways.
+---------
+
+# The Lord of the Rings Is Giving Sauron a Dark New Upgrade That Gandalf Can't Beat
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video
+
+Fri, 23 Oct 2026 18:19:18 GMT
+
+https://www.cbr.com/lotr-rings-of-power-season-3-dark-wizard-sauron-alliance/
+
+The latest trailer for The Lord of the Rings: The Rings of Power Season 3 sees Sauron allied with the fearsome Dark Wizard.
+---------
+
+# Avatar: The Last Airbender Officially Brings Back Zaheer & Jinora for Brand-New Spirit World Story
+
+Anime, Avatar: The Last Airbender, The Legend of Korra, Avatar Legends (RPG)
+
+Fri, 23 Oct 2026 18:17:59 GMT
+
+https://www.cbr.com/avatar-legends-rpg-spirit-worlds-kickstarter/
+
+Avatar: The Last Airbender fans can officially look forward to two beloved characters taking center stage in a brand-new adventure.
+---------
+
+# ‘Young Sheldon’ Star Officially Calls Out Jim Parsons’ “Dreaded” Finale Scene 2 Years Later
+
+TV News, Young Sheldon, CBS, Annie Potts, Jim Parsons
+
+Fri, 23 Oct 2026 18:36:21 GMT
+
+https://collider.com/young-sheldon-finale-jim-parsons-annie-potts-reaction/
+
+Annie Potts explains why Jim Parsons’ adult Sheldon scene in the Young Sheldon finale “broke my heart” and why she wanted a different ending.
+---------
+
+# DreamWorks' Epic Fantasy Adventure Officially Exits 2,000 Theaters
+
+Movie News, Forgotten Island, DreamWorks, Animation, Box Office
+
+Fri, 23 Oct 2026 18:19:00 GMT
+
+https://collider.com/forgotten-island-removed-from-2000-theaters/
+
+DreamWorks' latest fantasy release, Forgotten Island, is rapidly losing theaters ahead of its PVOD debut. Find out more.
+---------
+
+# Wildwood Built 130 Sets to Make Its Fantasy Feel Real | Collider Access
+
+Movie, Wildwood
+
+Fri, 23 Oct 2026 18:15:15 GMT
+
+https://collider.com/video/wildwood-built-130-sets-to-make-its-fantasy-feel-real-collider-access/
+
+Ever wondered how an animated movie can feel so real when everything is built in miniature? Collider takes you inside LAIKA Studios for an exclusive look at the making of Wildwood, where an enormous fantasy world is being brought to life one handcrafted detail at a time.
+---------
+
+# The Best Survival Horror Movie of 2026 Officially Loses 1,400 Theaters
+
+Movie News, Resident Evil, Zach Cregger, Austin Abrams, Box Office
+
+Fri, 23 Oct 2026 18:09:31 GMT
+
+https://collider.com/resident-evil-removed-from-1400-theaters/
+
+Zach Cregger's horror blockbuster, Resident Evil, is nearing the end of its theatrical run amid heavy competition from new releases at the box office.
+---------
+
+# Alan Ritchson’s ‘Reacher’ Could Break Its Biggest Formula Rule in Season 6
+
+TV Features, Reacher, Alan Ritchson, Lee Child, Prime Video
+
+Fri, 23 Oct 2026 17:29:15 GMT
+
+https://collider.com/reacher-season-6-the-midnight-line-direct-sequel-prime-video/
+
+If Reacher follows a specific pair of novels in Seasons 5 and 6, it'll add a new layer to the storytelling.
+---------
+
+# After Their 'Off Campus' Explosion, The Beaches Are Ready to Make New Music
+
+Interviews, The Beaches, Off Campus, Prime Video, Sterling Point
+
+Fri, 23 Oct 2026 17:19:23 GMT
+
+https://collider.com/the-beaches-interview-off-campus-new-album/
+
+The Beaches have played Coachella, Lollapalooza, Bonnaroo, and more. Now, they're ready for a break (and new music).
+---------
+
+# 6 Great Horror Books Where Every Chapter Is Perfect
+
+Books and Comics, It, The Shining, Frankenstein, Stephen King
+
+Fri, 23 Oct 2026 17:05:15 GMT
+
+https://collider.com/best-horror-books-every-chapter-perfect/
+
+There are a few truly perfect horror books that don't miss a beat for a single chapter, including classics like IT, House of Leaves, and Frankenstein.
+---------
+
+# New Harry Potter Book Officially Confirmed for 2027 Release
+
+Books and Comics News, Harry Potter, Wizarding World of Harry Potter, Wizarding World, Harry Potter and the Sorcerer's Stone
+
+Fri, 23 Oct 2026 17:02:25 GMT
+
+https://collider.com/harry-potter-art-book-expanded-release-date-january-2027/
+
+A new Harry Potter book is officially set to be released in January 2027. Get all of the details about the expansive release.
+---------
+
+# 'Clayface' Officially Opens With Less Than 45% of 'Supergirl's Box Office Preview Haul
+
+Movie News, Clayface, DCU, Supergirl, DC
+
+Fri, 23 Oct 2026 16:08:33 GMT
+
+https://collider.com/clayface-supergirl-preview-box-office-comparison/
+
+Clayface earns an estimated $3.5 million in previews, putting its early box office roughly $4.3 million behind Supergirl.
+---------
+
+# Georgia Tennant Officially Returns to ‘Doctor Who’ for New 2027 Adventure
+
+TV News, Doctor Who, Science Fiction, BBC, David Tennant
+
+Fri, 23 Oct 2026 16:00:15 GMT
+
+https://collider.com/doctor-who-jenny-the-doctors-daughter-georgia-tennant-zero-chill-audio-drama-big-finish/
+
+Georgia Tennant is officially returning as Jenny, the Doctor's Daughter, in a new Doctor Who production next year. Read on for more.
+---------
+
+# Prime Video's 8-Episode Revenge Thriller Remains No. 1 in the World as Amazon Announces New Season
+
+TV News, Carrie, Thriller, Prime Video, Hot on Streaming
+
+Fri, 23 Oct 2026 19:00:18 GMT
+
+https://movieweb.com/carrie-thriller-stream-october-2026/
+
+Amazon's latest sensation keeps showing her powers on the global streaming charts.
+---------
+
+# 10 DC Easter Eggs & Batman References in 'Clayface'
+
+Movie Lists, Clayface, DCU, Horror, Batman
+
+Fri, 23 Oct 2026 19:00:18 GMT
+
+https://movieweb.com/clayface-easter-eggs-references/
+
+'Clayface,' the DC horror film starring Tom Rhys Harries, features references to Batman, along with some classic movies and comics.
+---------
+
+# Michael B. Jordan Is Locked & Loaded in an Intense New Look at Miami Vice '85
+
+TV News, Miami Vice, Michael B. Jordan, Action
+
+Fri, 23 Oct 2026 18:46:42 GMT
+
+https://movieweb.com/miami-vice-85-michael-b-jordan-set-videos/
+
+The Oscar winner brings his 'Sinners' swagger to 'Miami Vice' in new behind-the-scenes footage.
+---------
+
+# Prime Video's New "The Traitors Meets Fallout" Series Opens The Vault in Intense First Look
+
+TV News, Fallout, The Traitors, Thriller
+
+Fri, 23 Oct 2026 18:10:06 GMT
+
+https://movieweb.com/fallout-shelter-the-experiment-prime-video-release-date/
+
+Amazon has unveiled the first teaser.
+---------
+
+# Rebecca Ferguson's New Fantasy Adventure Movie Officially Confirms Streaming Release Date 2 Months Later
+
+Movie News, Rebecca Ferguson, Fantasy, Adventure, The Magic Faraway Tree
+
+Fri, 23 Oct 2026 18:07:16 GMT
+
+https://movieweb.com/magic-faraway-tree-hbo-max-streaming-date/
+
+Swedish star Rebecca Ferguson is back in action with a new fantasy adventure movie, which will soon be available to view at home.
+---------
+
+# Forget ‘Lioness,’ the Best Spy Thriller in TV History Remains Unbeaten 13 Years Later
+
+Features, The Americans, Lioness, Thriller
+
+Fri, 23 Oct 2026 18:00:19 GMT
+
+https://movieweb.com/the-americans-lioness-comparison/
+
+'Lioness' is a great spy thriller from Taylor Sheridan starring Zoe Saldana and Nicole Kidman, but this series is even more memorable.
+---------
+
+# Netflix's New Star-Studded War Epic Hailed as "Powerful & Poignant" in First Reviews
+
+Movie News, The Mosquito Bowl, Peter Berg, Action, War, Sports
+
+Fri, 23 Oct 2026 17:49:18 GMT
+
+https://movieweb.com/the-mosquito-bowl-reviews-netflix/
+
+Peter Berg's new World War II epic 'The Mosquito Bowl' receives early praise.
+---------
+
+# Guy Ritchie's Forgotten 126-Minute Fantasy Action Flop Is Officially Being Cut From Streaming
+
+Movie News, Guy Ritchie, King Arthur: Legend of the Sword, Fantasy, Action, Coming/Leaving Streaming
+
+Fri, 23 Oct 2026 16:00:18 GMT
+
+https://movieweb.com/king-arthur-legend-of-the-sword-guy-ritchie-stream-november-2026/
+
+Nine years later, it's safe to say this one deserves a re-evaluation.
+---------
+
+# 10 Flawless Psychological Thriller Miniseries With No Weak Episodes
+
+TV Lists, Thriller, TV Miniseries
+
+Fri, 23 Oct 2026 16:00:18 GMT
+
+https://movieweb.com/psychological-thriller-miniseries-flawless/
+
+These psychological thriller miniseries have the twists, turns, and great characters you would expect, and every episode matters.
+---------
+
+# 'Rocky 7' Is Happening, Sylvester Stallone Officially Releases First Sequel Details
+
+Movie News, Rocky, Sylvester Stallone, Drama, Action, Sports, Adventure
+
+Fri, 23 Oct 2026 15:46:26 GMT
+
+https://movieweb.com/rocky-7-sylvester-stallone-script-written/
+
+Sylvester Stallone has hopes to continue the 'Rocky' franchise, giving an update on where the next chapter in his story stands.
+---------
+
 # Xbox Might Close Another Legendary Studio On November 13
 
 Gaming, Xbox, Triple-A Games, PC
