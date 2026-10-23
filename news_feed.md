@@ -1,3 +1,399 @@
+# 1899 Ending Explained (In Detail)
+
+TV, 1899
+
+Fri, 23 Oct 2026 00:15:18 GMT
+
+https://screenrant.com/1899-netflix-ending-explained/
+
+By twisting its characters' perceptions of reality, Netflix's 1899 ending presents many baffling sci-fi mysteries that demand explanations.
+---------
+
+# All 9 Upcoming Stephen King Movies & TV Shows
+
+Streaming TV, Stephen King
+
+Fri, 23 Oct 2026 00:00:19 GMT
+
+https://screenrant.com/stephen-king-upcoming-movie-tv-show-adaptations/
+
+Stephen King is the king of horror, but his genre blending skills have resulted in a unique style that is often adapted, with many upcoming projects.
+---------
+
+# 11 Years Later, Ultron Officially Achieves His MCU Endgame
+
+Streaming TV, VisionQuest, Avengers: Age of Ultron, Marvel Cinematic Universe
+
+Thu, 22 Oct 2026 23:45:18 GMT
+
+https://screenrant.com/11-years-later-ultron-officially-achieves-his-mcu-endgame/
+
+It's been 11 years since the release of the MCU's second Avengers movie, and James Spader's Ultron has finally achieved one of his biggest goals.
+---------
+
+# FROM: Netflix Just Officially Added One Of The Best Sci-Fi Horror Series Of The 2020s
+
+Streaming TV, Masked Recs
+
+Thu, 22 Oct 2026 23:40:19 GMT
+
+https://screenrant.com/netflix-best-sci-fi-horror-series-2020s-from-new-watch/
+
+FROM seasons 1-3 are now ready to watch on Netflix, adding 30 episodes of the acclaimed sci-fi horror series ahead of its fifth and final season.
+---------
+
+# Dragon Ball Super: Beerus Episode 3 Release Date & Time
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball Super, Dragon Ball
+
+Thu, 22 Oct 2026 23:30:19 GMT
+
+https://screenrant.com/dragon-ball-super-beerus-episode-3-release-date-time/
+
+The upcoming Dragon Ball Super episode finally sets the stage for an incredibly tense party and a truly legendary rage moment.
+---------
+
+# How Old Missy Is In Young Sheldon & The Big Bang Theory
+
+Classic TV, Young Sheldon, The Big Bang Theory
+
+Thu, 22 Oct 2026 23:30:19 GMT
+
+https://screenrant.com/how-old-missy-is-young-sheldon-big-bang-theory/
+
+Missy is one of Young Sheldon's protagonists despite only appearing occasionally on TBBT, but how old is Missy Cooper in Young Sheldon and TBBT?
+---------
+
+# Nathan Fillion's New Sci-Fi Series Is Officially Running Out Of Steam On Streaming
+
+TV, Lanterns, DC Universe
+
+Thu, 22 Oct 2026 23:14:43 GMT
+
+https://screenrant.com/nathan-fillion-lanterns-show-hbo-max-stream-october-2026/
+
+Nathan Fillion's new sci-fi series is officially running out of steam on streaming, over two months after it first premiered on the service.
+---------
+
+# Ali Hazelwood's New Release & Top Romance Book Recommendations
+
+Books, Romance
+
+Thu, 22 Oct 2026 23:09:19 GMT
+
+https://screenrant.com/ali-hazelwood-interview-bad-in-bed/
+
+Hazelwood's audio-first romance pairs sharp STEM heroines with playful chemistry and narrators who elevate every scene.
+---------
+
+# Nathan Fillion’s 14-Episode Stargate Replacement Officially Saved An Entire Sci-Fi Subgenre
+
+Classic TV, Nathan Fillion
+
+Thu, 22 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/firefly-nathan-fillion-stargate-replacement-saved-space-westerns/
+
+Short lived but fiercely beloved, Fillion's first cult hit fused Western grit with sci-fi space opera elements in an iconic and influential series.
+---------
+
+# Every R-Rated Sydney Sweeney Movie Released On Streaming In October, Ranked
+
+Movies, Sydney Sweeney
+
+Thu, 22 Oct 2026 22:59:12 GMT
+
+https://screenrant.com/sydney-sweeney-r-rated-movies-streaming-october-2026-ranked/
+
+Multiple Sydney Sweeney R-rated movies have arrived on streaming in October, with one of them even available for free, and this is how they rank.
+---------
+
+# 5 Classic Franchises That Shaped Dragon Ball
+
+Anime, Dragon Ball, Akira Toriyama, Innovation
+
+Fri, 23 Oct 2026 00:15:14 GMT
+
+https://www.cbr.com/classic-franchises-shaped-dragon-ball/
+
+Dragon Ball is one of anime's biggest hits, but there are some surprising sources of inspiration behind Akira Toriyama's signature shonen masterpiece.
+---------
+
+# Charlie Brown's Greatest Peanuts Moments, Ranked
+
+Comics, Peanuts
+
+Fri, 23 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/charlie-brown-greatest-peanuts-moments-ranked/
+
+Throughout his decades-long run with the Peanuts comic strip, Charlie Brown has had some truly memorable and hilarious moments that define him.
+---------
+
+# 10 Strongest Gundams, Ranked by Raw Power
+
+Anime, Gundam, mecha
+
+Thu, 22 Oct 2026 23:15:14 GMT
+
+https://www.cbr.com/strongest-gundams-ranked-by-raw-power/
+
+Some Gundams punch through enemies, while others fire beams that make entire fleets look like little more than target practice.
+---------
+
+# Tim Burton's 21-Year-Old Gothic Fantasy Classic Is Beating Stephen King on HBO Max
+
+Movies, Corpse Bride, tim burton, HBO Max
+
+Thu, 22 Oct 2026 23:00:15 GMT
+
+https://www.cbr.com/tim-burtons-21-year-old-gothic-fantasy-classic-is-beating-stephen-king-on-hbo-max/
+
+One of Burton's most beloved movies is being revisited again, and is doing better than one of the greatest horror movies ever made.
+---------
+
+# The 93% RT Gangster Drama That Gave Tom Hardy His Greatest TV Role
+
+TV, Peaky Blinders, tom hardy, bbc, Innovation
+
+Thu, 22 Oct 2026 23:00:15 GMT
+
+https://www.cbr.com/tom-hardy-peaky-blinders-best-tv-role/
+
+Tom Hardy has been doing TV almost as much as he's been doing feature work, and this gangster series still features his best performance.
+---------
+
+# Solo Leveling Officially Brings Back Go Gunhee in New Prequel
+
+Anime, Solo Leveling:ARISE, Solo Leveling
+
+Thu, 22 Oct 2026 22:35:15 GMT
+
+https://www.cbr.com/solo-leveling-arise-go-gunhee-hunter-origin-backstory/
+
+Sung Jinwoo's beloved mentor gets a major power-up that turns him from 'grandpa' to 'daddy' in a brand-new Solo Leveling webtoon episode.
+---------
+
+# 10 Best '90s Shojo Anime That Deserve a Modern Remake
+
+Anime, Shojo, Fushigi Yûgi - The Mysterious Play, Innovation
+
+Thu, 22 Oct 2026 22:15:14 GMT
+
+https://www.cbr.com/best-90s-shojo-anime-deserve-modern-remake/
+
+The '90s were unquestionably one of the best eras for shoujo anime, and these classics would be perfect for a modern remake.
+---------
+
+# New Alan Ritchson Hit Dethroned by Mark Wahlberg’s 107-Minute Action Thriller After Just 1 Day
+
+Movies, By Any Means, Runner, Thriller
+
+Thu, 22 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/by-all-means-thriller-apple-tv-store-success-october-2026/
+
+Wahlberg's latest action thriller is a smash hit just one day after its home release.
+---------
+
+# 8 Forgotten Action Movie Masterpieces From the 1990s
+
+Movies, Action, Thriller, mel gibson
+
+Thu, 22 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/best-forgotten-90s-action-movies-list/
+
+The ‘90s gave audiences too many action classics to count, but even some of the most entertaining have become obscure over time.
+---------
+
+# Every Member of Marvel's Midnight Fantastic Four, Explained
+
+Comics, Fantastic Four, Marvel Comics
+
+Thu, 22 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/every-member-of-marvels-midnight-fantastic-four-explained/
+
+Marvel Comics has a brand-new Fantastic Four, and every single member of the team is a different kind of nightmare just waiting to be unleashed.
+---------
+
+# 'Ted Lasso' Officially Loses Streaming Crown After Nearly 3 Months
+
+TV News, Ted Lasso, Slow Horses, Apple TV, Streaming
+
+Fri, 23 Oct 2026 00:15:14 GMT
+
+https://collider.com/ted-lasso-vs-slow-horses-streaming-success-apple-tv-october-2026/
+
+Ted Lasso has officially lost the top spot on Apple TV to the streamer's long-running spy thriller. Read on for more.
+---------
+
+# Syfy’s 5-Part Cult Thriller Is Officially Getting the Reboot It Deserves
+
+TV Features, Z Nation, SyFy, Horror, Black Summer
+
+Fri, 23 Oct 2026 00:13:15 GMT
+
+https://collider.com/z-nation-reboot-syfy-zombie-tv-show/
+
+Z Nation returns with Resurrection, exploring new zombie threats and beloved characters in a thrilling sequel.
+---------
+
+# The 10 Best Film Noir Movies of the Last 75 Years, Ranked
+
+Movie, Film Noir, Ace in the Hole, Nightcrawler, No Country for Old Men
+
+Fri, 23 Oct 2026 00:11:15 GMT
+
+https://collider.com/best-film-noir-movies-last-75-years-ranked/
+
+From '50s classics like Ace in the Hole to modern hits like Nightcrawler, these noir gems prove the genre thrives even long after its '40s heyday.
+---------
+
+# Mark Wahlberg’s Newest Crime Movie Officially Debuts on Streaming After Disastrous Box Office Run
+
+Movie News, Mark Wahlberg, By Any Means, Yahya Abdul-Mateen II, Crime
+
+Fri, 23 Oct 2026 00:00:15 GMT
+
+https://collider.com/mark-wahlberg-crime-thriller-by-any-means-streaming-digital-october-2026/
+
+Mark Wahlberg's new true-crime movie, By Any Means, has debuted on the PVOD viewership charts after a disappointing box-office run.
+---------
+
+# 5 Best Thrillers To Watch on Paramount + This Weekend
+
+Movie, Parasite, No Country for Old Men, Shutter Island, Killer Joe
+
+Thu, 22 Oct 2026 23:49:05 GMT
+
+https://collider.com/near-perfect-thrillers-to-watch-on-paramount-this-weekend/
+
+The 5 best thrillers to watch on Paramount+ this weekend, including Parasite, No Country for Old Men, Shutter Island, Killer Joe, and V for Vendetta.
+---------
+
+# The Star of Netflix's 8-Million View Sensation Officially Lands Her Next Big Role
+
+TV News, Netflix, My Brilliant Career, Feral, Streaming
+
+Thu, 22 Oct 2026 23:45:14 GMT
+
+https://collider.com/netflix-adaptation-feral-cast-philippa-northeast/
+
+A My Brilliant Career star is officially reuniting with Netflix for a brand-new role. Read on for more details.
+---------
+
+# 7 Thriller Books That Are a Masterclass in Suspense
+
+Books and Comics, Thriller, Gone Girl, Shutter Island, Agatha Christie
+
+Thu, 22 Oct 2026 23:39:14 GMT
+
+https://collider.com/thriller-books-masterclass-suspense/
+
+From Gillian Flynn's Gone Girl to Agatha Christie's And Then There Were None, these thriller books feature the best and most suspenseful writing.
+---------
+
+# 'The Paper' Just Flipped the Script on One of 'The Office's Most Important Storylines
+
+TV Features, The Paper, The Office, Peacock, Domhnall Gleeson
+
+Thu, 22 Oct 2026 23:32:15 GMT
+
+https://collider.com/the-paper-season-2-change-the-office-romance-storyline/
+
+In its second season, The Paper has taken a big page out of The Office's playbook, sending away one half of its main romantic relationship.
+---------
+
+# Rebecca Ferguson’s 5-Part Sci-Fi Masterpiece Officially Nears Massive Streaming Milestone
+
+TV News, Silo, Rebecca Ferguson, Apple TV, Sci-Fi
+
+Thu, 22 Oct 2026 23:30:15 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-silo-streaming-success-apple-tv-october-2026/
+
+Rebecca Ferguson's cult classic sci-fi series Silo has hit an incredible 600-day streak on the Apple TV viewership charts. Find out more.
+---------
+
+# Netflix’s Spielbergian Horror Series Officially Swims Past a Monster-Sized Milestone
+
+TV News, Netflix, Below, Josh Hartnett, Steven Spielberg
+
+Thu, 22 Oct 2026 23:15:15 GMT
+
+https://collider.com/netflix-below-streaming-hit-october-2026/
+
+Netflix's new Spielbergian series, Below, has emerged as a massive blockbuster for the streamer after just two weeks of release.
+---------
+
+# 10 Binge-Worthy Netflix Fantasy Shows That Are Better Than 'Harry Potter'
+
+TV Lists, Fantasy, Netflix, Harry Potter
+
+Fri, 23 Oct 2026 00:00:17 GMT
+
+https://movieweb.com/netflix-fantasy-shows-better-harry-potter/
+
+These Netflix series push the fantasy genre into places 'Harry Potter' never dared to go, making them better viewing experiences overall.
+---------
+
+# Original 'Lord of the Rings' Actor Confirms 'Hunt for Gollum' Return
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, The Lord of the Rings, Fantasy
+
+Thu, 22 Oct 2026 23:43:25 GMT
+
+https://movieweb.com/lord-of-the-rings-lawrence-makoare-hunt-for-gollum/
+
+Lawrence Makoare, who played The Witch-King in 'The Return of the King,' is set to play an undisclosed role in 'The Hunt for Gollum.'
+---------
+
+# Guy Ritchie & Charlie Hunnam's Solid Crime Thriller That's Now a Netflix Smash Is Getting a New Release
+
+Movie News, The Gentlemen, Guy Ritchie, Crime, Thriller, Blu-ray
+
+Thu, 22 Oct 2026 23:00:18 GMT
+
+https://movieweb.com/the-gentlemen-4k-blu-ray-release/
+
+Guy Ritchie's hit crime thriller 'The Gentlemen' is receiving a new 4K Blu-ray Steelbook release from Lionsgate Home Entertainment.
+---------
+
+# Paramount+'s New 8-Part Heist Thriller Remake Teases a Masked Gunman in Tense First Look
+
+TV News, Minnie Driver, Thriller, Crime, Drama
+
+Thu, 22 Oct 2026 22:35:57 GMT
+
+https://movieweb.com/the-day-minnie-driver-first-look-photos/
+
+Minnie Driver's upcoming heist thriller takes a page from the '24' playbook.
+---------
+
+# 4 Years Later, Disney's $261M Super-Powered Fantasy Hit Finally Gets Major Sequel Update
+
+Movie News, Encanto, Animation, Musical, Fantasy, Comedy, Drama, Family
+
+Thu, 22 Oct 2026 22:09:44 GMT
+
+https://movieweb.com/encanto-2-disney-update/
+
+One of Disney's most popular movies from the 2020s still does not have a sequel, as one of its producers gives an update on its status.
+---------
+
+# Apple TV’s 8-Part Sci-Fi Epic Is So Good, You’ll Spend the Whole Weekend Watching It
+
+Features, Star City, Apple TV, Sci-Fi
+
+Thu, 22 Oct 2026 22:00:18 GMT
+
+https://movieweb.com/star-city-apple-tv-recommendation/
+
+The Cold War has been used in TV shows for decades, but adding a bit of sci-fi into the formula makes it feel fresh. Read on for more.
+---------
+
 # "TV's Greatest Western" Deserves Credit For Mixing Shakespeare And Tarantino
 
 Classic TV, Masked Recs
