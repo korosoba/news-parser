@@ -1,3 +1,421 @@
+# 3 Best Movies To Watch On Prime Video This Weekend (October 24-25)
+
+Movies, Prime Video, Recommendation
+
+Fri, 23 Oct 2026 22:23:39 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-october-24-25/
+
+The best movies on Prime Video this weekend are Christian Bale's new R-rated Sci-Fi, Mckenna Grace's bloody horror, and a clever new heist film.
+---------
+
+# Netflix's New Star-Studded War Epic Divides Critics In First Reviews
+
+Movies, The Mosquito Bowl, Netflix
+
+Fri, 23 Oct 2026 22:20:34 GMT
+
+https://screenrant.com/netflix-the-mosquito-bowl-movie-first-reviews/
+
+Netflix is going deep into the war genre with a new star-studded epic, but early reviews suggest critics are divided on the adaptation.
+---------
+
+# Sydney Sweeney's R-Rated Thriller Is Officially One Of The Biggest Of 2026 On Streaming
+
+Movies, The Housemaid, Sydney Sweeney
+
+Fri, 23 Oct 2026 22:08:32 GMT
+
+https://screenrant.com/sydney-sweeney-the-housemaid-hbo-max-2026-stream-movies/
+
+After starring on Euphoria and The White Lotus, Sydney Sweeney found success again with a big-screen thriller, which is now a huge hit on streaming.
+---------
+
+# Avengers: Doomsday Gets Exciting Casting Update As Oscar-Nominated Star Confirms Cameo
+
+Movies, Marvel Cinematic Universe, Avengers: Doomsday
+
+Fri, 23 Oct 2026 22:08:30 GMT
+
+https://screenrant.com/avengers-doomsday-sandra-hullerdoes-cameo-casting-update/
+
+With two months to go until Avengers: Doomsday's theatrical release, an Oscar-nominated actor is confirmed to cameo in the Marvel movie.
+---------
+
+# Ridley Scott's New Alien Movie In the Works As Sci-Fi Franchise Taps Writer
+
+Movies, Alien
+
+Fri, 23 Oct 2026 22:06:39 GMT
+
+https://screenrant.com/alien-new-movie-ridley-scott-aaron-guzikowski-writer/
+
+Ridley Scott's upcoming Alien movie just hired a familiar face to write the screenplay for the most recent chapter in the long-running franchise.
+---------
+
+# 10 Must-Read Books After Klara and the Sun
+
+Books, Klara and the Sun, Sci-Fi
+
+Fri, 23 Oct 2026 22:01:21 GMT
+
+https://screenrant.com/best-books-like-klara-and-the-sun/
+
+Explore ten engaging books to read after Klara and the Sun, highlighting themes of family, AI, and hope.
+---------
+
+# Marvel Unveils New Nick Fury For The Hero's Next Major Appearance
+
+Marvel Comics, Nick Fury, Marvel
+
+Fri, 23 Oct 2026 22:00:19 GMT
+
+https://screenrant.com/marvel-new-nick-fury-sr/
+
+Samuel L. Jackson's iconic Nick Fury is officially replaced by a different iteration of the character in Marvel's upcoming 2027 thriller.
+---------
+
+# Disney’s Next Major Star Wars Release Has Already Made One Mistake Destined To Kill Hype
+
+Comics, Star Wars
+
+Fri, 23 Oct 2026 21:49:15 GMT
+
+https://screenrant.com/star-wars-marvel-crossover-mistake-meta/
+
+Disney is giving Star Wars its greatest crossover series ever in early 2027, but it may not be as immersive as many fans would hope for it to be.
+---------
+
+# James Bond Final Contender Has Been Auditioning For 4 Years Thanks To 98% RT Series
+
+Streaming TV, James Bond
+
+Fri, 23 Oct 2026 21:46:19 GMT
+
+https://screenrant.com/james-bond-jack-lowden-slow-horses-audition/
+
+Jack Lowden is one of the final actors in the running to play James Bond, and the actor's skills on Slow Horses prove why he should be 007.
+---------
+
+# Project Hail Mary's Rocky Actor Reveals A Tender Discovery He & Ryan Gosling Made On Set
+
+Interviews, Project Hail Mary
+
+Fri, 23 Oct 2026 21:30:20 GMT
+
+https://screenrant.com/project-hail-mary-rocky-james-ortiz-rehearsal-interview/
+
+Project Hail Mary actor and puppeteer James Ortiz explains how he melded both art forms to create Rocky, and what he discovered about Grace on set.
+---------
+
+# 10 Otome Games Better Than Love and Deepspace
+
+Games, Video Games, Obey Me!, Mobile, Gaming, Innovation
+
+Fri, 23 Oct 2026 22:15:15 GMT
+
+https://www.cbr.com/otome-games-better-than-love-and-deepspace/
+
+Love and Deepspace is one of the most successful otome games of all time, but these otome games can give it a run for its money.
+---------
+
+# Netflix Is Losing 1 of the Greatest Cult Action Movies of the 1970s
+
+Movies, The Warriors, Netflix
+
+Fri, 23 Oct 2026 22:00:15 GMT
+
+https://www.cbr.com/the-warriors-leaving-netflix-november-2026/
+
+One of the biggest action movies of the 1970s is leaving Netflix very soon.
+---------
+
+# 6 Best Horror Movie Easter Eggs Already Found in Marvel Midnight Series
+
+Comics, Marvel, Horror
+
+Fri, 23 Oct 2026 22:00:15 GMT
+
+https://www.cbr.com/marvel-midnight-horror-movie-easter-eggs/
+
+Marvel Midnight wears its spooky cinema influences on its sleeve.
+---------
+
+# 5 Slasher Horror Masterpieces That Matter More Than Any Others in the Genre's History
+
+Movies, Horror, Halloween, Friday The 13th
+
+Fri, 23 Oct 2026 22:00:15 GMT
+
+https://www.cbr.com/most-important-slasher-perfect-horror-movies-list/
+
+The slasher has been one of Hollywood’s greatest creations, raking in billions over the decades through some of the genre’s most important movies.
+---------
+
+# 10 Best Turn-Based RPGs of All Time, Ranked
+
+Games, Role Playing Game, Innovation
+
+Fri, 23 Oct 2026 21:45:15 GMT
+
+https://www.cbr.com/greatest-turn-based-rpgs-of-all-time-list/
+
+Turn-based RPGs like Clair Obscur: Expedition 33 put action RPGs to shame.
+---------
+
+# Ridley Scott Officially Returning to Alien With New Movie
+
+Movies, Alien, Alien: Covenant, Prometheus
+
+Fri, 23 Oct 2026 21:40:09 GMT
+
+https://www.cbr.com/new-alien-movie-ridley-scott-return-prometheus-covenant-sequel/
+
+The Alien: Covenant sequel is finally happening.
+---------
+
+# Law & Order: SVU Fan-Favorite Star Officially Returns After 8 Years
+
+TV, Law & Order: Special Victims Unit, NBC
+
+Fri, 23 Oct 2026 21:33:11 GMT
+
+https://www.cbr.com/law-order-svu-stephanie-march-returns/
+
+Eight years after her last appearance on Law & Order: SVU, Stephanie March is set to return as Alexandra Cabot in an upcoming episode.
+---------
+
+# Apple TV's Mistborn Fantasy Movie is Harry Potter meets Ocean's Eleven
+
+Movies, Mistborn
+
+Fri, 23 Oct 2026 21:30:15 GMT
+
+https://www.cbr.com/apple-tv-mistborn-fantasy-movie-harry-potter-meets-oceans-eleven/
+
+Fantasy will get the twist it always needed when the highly anticipated movie airs on Apple TV.
+---------
+
+# 10 Fantasy Anime Series With No Bad Seasons, Ranked
+
+Anime, Fantasy, Innovation, Frieren: Beyond Journey's End, Mushoku Tensei
+
+Fri, 23 Oct 2026 21:15:15 GMT
+
+https://www.cbr.com/fantasy-anime-no-bad-seasons-ranked/
+
+Not every fantasy anime has the staying power to carry out multiple seasons, but these prime examples keep fans coming back for more.
+---------
+
+# Nielsen’s Most-Watched This Week: Prime Video's New Stephen King Show Hits No. 1 With 1.26B Minutes
+
+TV, Carrie
+
+Fri, 23 Oct 2026 21:01:15 GMT
+
+https://www.cbr.com/nielsen-most-watched-streaming-october-5-2026/
+
+The show has already scored a Season 2 renewal and its debut numbers prove why.
+---------
+
+# The 10 Most Hopeless Books of All Time, Ranked
+
+Books and Comics, Horror, Nineteen Eighty-Four, Blonde, Pet Sematary
+
+Fri, 23 Oct 2026 22:00:15 GMT
+
+https://collider.com/most-hopeless-books-all-time-ranked/
+
+The most hopeless books of all time include horror novels like Pet Sematary alongside daunting postmodernist works like Libra and Gravity's Rainbow.
+---------
+
+# 'Project Hail Mary' Star Officially Joins the MCU for 'Avengers: Doomsday'
+
+Movie News, Avengers: Doomsday, Sandra Hüller, Robert Downey Jr, Project Hail Mary
+
+Fri, 23 Oct 2026 21:53:28 GMT
+
+https://collider.com/avengers-doomsday-cast-sandra-huller/
+
+Project Hail Mary's Sandra Hüller is officially returning to the sci-fi genre for a secret cameo role in Avengers: Doomsday. Read on for more.
+---------
+
+# Prime Video Officially Loses Ryan Gosling's Greatest Sci-Fi Movie Next Month
+
+Movie, Prime Video, Blade Runner 2049, Totally Killer, The Bride!
+
+Fri, 23 Oct 2026 21:49:15 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-october-24-2026/
+
+Blade Runner 2049, Totally Killer, and The Bride make up our list of the best movies streaming on Prime Video this weekend.
+---------
+
+# Forget 'Reacher,' Prime Video's 7-Season Crime Thriller Deserves More Attention
+
+TV Features, Bosch, Reacher, Series, Prime Video
+
+Fri, 23 Oct 2026 21:43:15 GMT
+
+https://collider.com/reacher-replacement-series-prime-video-bosch/
+
+Discover why Bosch, Prime Video’s seven-season crime thriller starring Titus Welliver, deserves more attention than Reacher.
+---------
+
+# Ridley Scott Officially Reunites With 'Raised by Wolves' Creator for New Alien Movie
+
+Movie News, Alien, Ridley Scott, Aaron Guzikowski, Science Fiction
+
+Fri, 23 Oct 2026 21:42:37 GMT
+
+https://collider.com/ridley-scott-alien-sequel-aaron-guzikowski-writing/
+
+Raised by Wolves creator Aaron Guzikowski is officially reuniting with Ridley Scott to write a brand-new Alien movie. Read on for more.
+---------
+
+# 3 Best Thriller Books To Read This Weekend (Oct 24-25)
+
+Books and Comics, Books, The Spy Who Came In From The Cold, The Turn of the Screw, Thriller
+
+Fri, 23 Oct 2026 21:35:15 GMT
+
+https://collider.com/best-thriller-books-read-this-weekend-oct-24/
+
+If you're looking for a great thriller book this weekend, you can't go wrong with classics like The Turn of the Screw or newer gems like The Witch.
+---------
+
+# 5 James Cameron Movies That Are Undisputed Masterpieces
+
+Movie, James Cameron, Avatar, Titanic, The Terminator
+
+Fri, 23 Oct 2026 21:06:15 GMT
+
+https://collider.com/james-cameron-movies-undisputed-masterpieces/
+
+From the epic romance of Titanic to the sci-fi action sequel Aliens, these James Cameron movies are universally recognized as true masterpieces.
+---------
+
+# Only 5 TV Shows Are Even More Groundbreaking Than 'The Sopranos'
+
+TV, The Sopranos, M*A*S*H, Twin Peaks, Buffy The Vampire Slayer
+
+Fri, 23 Oct 2026 20:52:15 GMT
+
+https://collider.com/tv-shows-more-groundbreaking-than-the-sopranos/
+
+Only a few shows have revolutionized TV arguably even more than The Sopranos, including classics like M*A*S*H, Twin Peaks, and The Prisoner.
+---------
+
+# This ‘Star Trek’ Line Still Perfectly Defines the Sci-Fi Franchise 60 Years Later
+
+TV Features, Star Trek, Star Trek: Deep Space Nine, Sci-Fi, Gene Roddenberry
+
+Fri, 23 Oct 2026 20:27:15 GMT
+
+https://collider.com/star-trek-most-powerful-line-deep-space-nine-kira-damar/
+
+One devastating line from Star Trek: Deep Space Nine perfectly captures the ideals that have defined the sci-fi franchise for 60 years.
+---------
+
+# Prime Video's First 'Fallout' Spin-Off Series Officially Debuts Trailer
+
+TV News, Fallout, Fallout Shelter: The Experiment, Prime Video, Reality
+
+Fri, 23 Oct 2026 20:12:54 GMT
+
+https://collider.com/prime-video-fallout-shelter-trailer-release-date-january-2027/
+
+Prime Video has officially unveiled the first trailer for its new Fallout spin-off releasing in January 2027.
+---------
+
+# New 'Alien' Movie Officially Announced From Ridley Scott as 'Romulus' Sequel Status Is Confirmed
+
+Movie News, Alien, Alien: Romulus, Alien: Covenant, Ridley Scott
+
+Fri, 23 Oct 2026 22:22:55 GMT
+
+https://movieweb.com/alien-movie-aaron-guzikowski-writer/
+
+After two years of uncertainty, new details about the next 'Alien' movie are here.
+---------
+
+# Major 'Avengers: Doomsday' Cameo Officially Confirmed Ahead of MCU Crossover Event
+
+Movie News, Avengers: Doomsday, Sandra Hüller, Action, Superhero, Sci-Fi, Adventure
+
+Fri, 23 Oct 2026 22:02:02 GMT
+
+https://movieweb.com/avengers-doomsday-cameo-sandra-huller/
+
+On top of almost three dozen confirmed stars, a new cameo was just teased for Marvel Studios' 'Avengers: Doomsday.'
+---------
+
+# NBC's New Thriller Hit Officially Lands Full-Season Order After Drawing 14 Million Viewers
+
+TV News, Line of Fire, Crime, Peacock
+
+Fri, 23 Oct 2026 21:57:53 GMT
+
+https://movieweb.com/line-of-fire-nbc-more-episodes/
+
+This makes it the first new show this season to get its order extended.
+---------
+
+# After 4 Years, Jack Reacher Is Officially the King of Action TV
+
+Features, Reacher, The Terminal List, Action
+
+Fri, 23 Oct 2026 21:46:18 GMT
+
+https://movieweb.com/reacher-better-than-the-terminal-list/
+
+A major Prime Video series has been singled out as Reacher's competition, but critic reviews reveal one clear winner.
+---------
+
+# Ben Affleck's 104-Minute Retro Action Thriller Officially Confirms New Streaming Home
+
+Movie News, Reindeer Games, Ben Affleck, Coming/Leaving Streaming, Action, Thriller
+
+Fri, 23 Oct 2026 21:00:18 GMT
+
+https://movieweb.com/reindeer-games-ben-affleck-streaming-paramount-plus-october-2026/
+
+Before 'Animals' and 'The Rip' became huge hits for Netflix, Ben Affleck starred in this throwback action thriller as Santa with a gun.
+---------
+
+# 11 Greatest Finishing Moves in Martial Arts Action Movie History
+
+Movie Lists, Martial Arts, Action
+
+Fri, 23 Oct 2026 21:00:18 GMT
+
+https://movieweb.com/martial-arts-movies-greatest-finishing-moves/
+
+From bloody stabs to brutal kicks, it's easy to see why these epic martial arts moves brought each fight to a thundering close.
+---------
+
+# Near-Perfect 95-Minute Movie Hailed as One of the Year's Best Officially Lands on Digital Streaming
+
+Movie News, If I Go Will They Miss Me, Drama, Danielle Brooks
+
+Fri, 23 Oct 2026 20:42:34 GMT
+
+https://movieweb.com/if-i-go-will-they-miss-me-digital-streaming/
+
+One of the highest rated movies of the year, 'If I Go Will They Miss Me,' is officially available for home viewing.
+---------
+
+# 'Clayface' Officially Breaks DCU Record as Jaw-Dropping Audience Score Is Revealed
+
+Movie News, Clayface, Horror, Thriller, Sci-Fi, Rotten Tomatoes
+
+Fri, 23 Oct 2026 20:22:18 GMT
+
+https://movieweb.com/clayface-audience-score-dcu/
+
+'Clayface,' the third new movie released in the DC Universe, is already setting a high mark in one arena as it debuts in theaters.
+---------
+
 # Forget Landman, Billy Bob's Original Loud-Mouth Role Officially Returns To Streaming At The Perfect Time
 
 Movies, Bad Santa, Bad Santa 2, Landman, Billy Bob Thornton
