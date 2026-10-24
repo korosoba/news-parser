@@ -1,3 +1,355 @@
+# Jurassic Park: When Dinosaurs Ruled The Earth Officially Arrives This November
+
+Gaming, Jurassic Park, PC
+
+Sat, 24 Oct 2026 05:00:19 GMT
+
+https://screenrant.com/jurassic-park-when-dinosaurs-ruled-the-earth-november-2026/
+
+Jurassic Park returns with When Dinosaurs Ruled the Earth, a highly anticipated release that brings back the original story in a new adaptation.
+---------
+
+# Stephen King's Best TV Adaptation Is A Sci-Fi Masterpiece That Takes Less Than 8 Hours To Binge
+
+Classic TV, Stephen King
+
+Sat, 24 Oct 2026 05:00:19 GMT
+
+https://screenrant.com/11-22-63-sci-fi-series-stephen-king-short-watch/
+
+Hulu’s tight, self-contained Stephen King miniseries balances bittersweet romance and high stakes time travel in its twisty sci-fi storyline.
+---------
+
+# Fallout 5 Official Release Date Update Leaves Gamers Torn
+
+Gaming, Fallout 5, Fallout
+
+Sat, 24 Oct 2026 04:30:19 GMT
+
+https://screenrant.com/fallout-5-official-release-window-update-gamers-react/
+
+Fallout 5 enters pre-production; find out what details are known and the impact of the hit TV series.
+---------
+
+# Stargate: Pegasus Chronicles Is A True Celebration Of The Series
+
+Gaming, Stargate, Triple-A Games
+
+Sat, 24 Oct 2026 04:15:18 GMT
+
+https://screenrant.com/stargate-pegasus-chronicles-fan-tribute/
+
+Stargate has endured after all these years, and now you can celebrate it in style, going through the entire series as a whole.
+---------
+
+# Resident Evil Legend Leon Kennedy Officially Returns January 2027
+
+Gaming, Resident Evil
+
+Sat, 24 Oct 2026 04:00:21 GMT
+
+https://screenrant.com/resident-evil-leon-kennedy-switch-2-remake-collection-january-2027/
+
+Leon Kennedy is back in the Resident Evil remake collection launching January 2027. Get ready for classic horror!
+---------
+
+# Prime Video's 5-Season Action Series Deserves Kudos For Predicting Real-Life Events
+
+TV, Masked Recs
+
+Sat, 24 Oct 2026 03:45:20 GMT
+
+https://screenrant.com/the-boys-deserve-credit-predicting-future/
+
+Prime Video's subversive R-rated saga turned satire into eerie real-life foresight with striking echoes of actual political and media events.
+---------
+
+# Dave Bautista’s Kratos Casting In God Of War Respects Zack Snyder’s 5-Year-Old Vision
+
+Streaming TV, God of War
+
+Sat, 24 Oct 2026 03:30:19 GMT
+
+https://screenrant.com/bautista-god-of-war-kratos-respects-zack-snyder-vision/
+
+Dave Bautista’s casting as Kratos in Prime Video’s God of War adaptation seems perfect because it fully respects Zack Snyder’s vision for the actor.
+---------
+
+# Hokum Ending Explained: What's Haunting Ohm And How Does The Witch Factor Into It?
+
+Movies, Hokum
+
+Sat, 24 Oct 2026 03:00:19 GMT
+
+https://screenrant.com/hokum-ending-explained/
+
+Hokum's creepy witch isn't the only thing haunting Adam Scott's Ohm, with the narrative steadily revealing what led the author to rural Ireland.
+---------
+
+# 5 Weakest MCU Supervillains, Ranked
+
+Movies, MCU, superheroes, Innovation
+
+Sat, 24 Oct 2026 03:45:14 GMT
+
+https://www.cbr.com/marvel-cinematic-universe-weakest-supervillains-list/
+
+These superpowered antagonists were far from the greatest threats to the Marvel Cinematic Universe.
+---------
+
+# 10 Strongest Pokémon Owned by Ash's Rivals, Ranked
+
+Anime, Pokemon
+
+Sat, 24 Oct 2026 03:45:14 GMT
+
+https://www.cbr.com/pokemon-strongest-owned-by-ash-ketchum-rivals-ranked/
+
+Ash Ketchum may be the strongest Pokémon trainer ever, but his rivals have also wielded many powerful partners.
+---------
+
+# Marvel Recruits Oscar Nominee for MCU Debut in Avengers: Doomsday
+
+Movies, Avengers: Doomsday
+
+Sat, 24 Oct 2026 03:38:39 GMT
+
+https://www.cbr.com/avengers-doomsday-sandra-huller-role/
+
+Amid all of the returning Marvel and X-Men stars, an Oscar-nominated actress makes her MCU debut in Avengers: Doomsday.
+---------
+
+# Apple TV’s Stephen King-Approved Horror Thriller Delivered 4 Flawless Seasons
+
+TV, Servant, Apple TV, Stephen King, Horror
+
+Sat, 24 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/apple-tv-flawless-servant-stephen-king-approved/
+
+M. Night Shyamalan's underseen Apple TV horror show not only had a great start, but it only got better as the series moved forward.
+---------
+
+# 10 Funniest Peanuts Comics That Actually Feature Adults
+
+Comics, Peanuts
+
+Sat, 24 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/funniest-peanuts-comics-that-actually-feature-adults/
+
+Peanuts is known for never portraying adults as anything more than trombone noises, but there are some funny comics that actually feature adults.
+---------
+
+# 7 Most Unplayable NES Platformers, Ranked
+
+Games, Video Games, Nintendo, Innovation
+
+Sat, 24 Oct 2026 03:15:14 GMT
+
+https://www.cbr.com/most-unplayable-nes-platformers-ranked/
+
+NES had some of the most unforgettable platformers in its day, but not all of them live up to today's standards.
+---------
+
+# Delicious in Dungeon Meets Sword Art Online in New Action Roguelike Coming to Steam
+
+Anime, Steam, Delicious in Dungeon, Sword Art Online
+
+Sat, 24 Oct 2026 03:05:15 GMT
+
+https://www.cbr.com/godwatch-dungeon-steam-winter-2026-release/
+
+An upcoming roguelike indie game takes players on an epic journey to save their sister through a labyrinthian dungeon reminiscent of SAO's Aincrad.
+---------
+
+# Johnny Depp's Ebenezer Trolls Fans Asking for Money in Most On-Brand Marketing Stunt Ever
+
+Movies, Ebenezer
+
+Sat, 24 Oct 2026 02:47:47 GMT
+
+https://www.cbr.com/ebenezer-marketing-campaign-venmo/
+
+Fans are feeling burned by the marketing campaign for Johnny Depp's new Christmas movie.
+---------
+
+# 10 Most Powerful Digimon Mega Evolutions, Ranked
+
+Anime, Digimon
+
+Sat, 24 Oct 2026 02:45:14 GMT
+
+https://www.cbr.com/digimon-most-powerful-mega-evolutions-ranked/
+
+Mega-level Digimon are generally the strongest, and these are the most powerful of them all.
+---------
+
+# 10 Best Steam Next Fest Demos You Can Play Right Now
+
+Games, Video Games, Steam
+
+Sat, 24 Oct 2026 02:15:14 GMT
+
+https://www.cbr.com/best-steam-next-fest-demos-play-right-now/
+
+Out of the thousands of demos on Steam, these 10 demos need to get played by gamers before it's too late.
+---------
+
+# This Masterpiece From Brandon Sanderson's Cosmere Has the Best Third Act in Fantasy Books
+
+Books and Comics, Books, Fantasy, Mistborn, Brandon Sanderson
+
+Sat, 24 Oct 2026 04:05:14 GMT
+
+https://collider.com/mistborn-hero-of-ages-brandon-sanderson-fantasy-book-best-third-act/
+
+The Hero of Ages, the final book in Brandon Sanderson's Mistborn trilogy, is a masterful fantasy epic with the greatest third act in modern fantasy.
+---------
+
+# One of the Decade's Greatest Thriller Shows Officially Lands on a New Streamer
+
+TV Features, From, Horror, Netflix, Harold Perrineau
+
+Sat, 24 Oct 2026 03:58:14 GMT
+
+https://collider.com/from-tv-series-netflix-new-streaming-home-october-2026/
+
+The hit horror thriller From is now streaming its first three seasons on Netflix — and you'll want to pick up the show for a Halloween binge.
+---------
+
+# 'House of the Dragon's Long History Behind Vhagar Explained
+
+TV Features, House of the Dragon
+
+Sat, 24 Oct 2026 03:41:15 GMT
+
+https://collider.com/house-of-the-dragon-vhagar-history-explained/
+
+Vhagar has a long history with the Targaryens that goes far beyond the Dance of the Dragons and what we see of her in House of the Dragon.
+---------
+
+# 9 Years Later, Taylor Sheridan's Best Thriller Quote Beats Anything He Ever Did On 'Yellowstone'
+
+Movie Features, Yellowstone, Wind River, Taylor Sheridan, Jeremy Renner
+
+Sat, 24 Oct 2026 03:09:14 GMT
+
+https://collider.com/taylor-sheridan-wind-river-quote-better-than-yellowstone/
+
+Taylor Sheridan's Wind River is a gripping depiction of the epidemic of missing Indigenous women, which is catalyzed in one perfect quote.
+---------
+
+# Catherine Zeta-Jones' 'The Mummy' Replacement Is Officially Back on Streaming
+
+Movie Features, The Phantom, The Mummy, Billy Zane, Paramount Pictures
+
+Sat, 24 Oct 2026 03:09:14 GMT
+
+https://collider.com/catherine-zeta-jones-the-phantom-the-mummy-streaming-october-2026/
+
+1996's The Phantom, an underrated comic book superhero action extravaganza, is the perfect watch for fans of The Mummy.
+---------
+
+# 'The Social Network's Long-Awaited Follow-Up Officially Removed From Almost 2,000 Theaters
+
+Movie News, The Social Reckoning, The Social Network, Jeremy Strong, Mark Zuckerberg
+
+Sat, 24 Oct 2026 02:50:14 GMT
+
+https://collider.com/aaron-sorkin-the-social-reckoning-removed-from-2000-theaters/
+
+Aaron Sorkin's The Social Network follow-up is losing theaters after struggling with critics and at the box office.
+---------
+
+# Studio Ghibli’s 10/10 Fantasy Masterpiece Officially Returns for New Release
+
+Movie News, My Neighbor Totoro, Studio Ghibli, Fantasy, Anime
+
+Sat, 24 Oct 2026 02:40:15 GMT
+
+https://collider.com/studio-ghibli-my-neighbor-totoro-japanese-new-year-stamps-images/
+
+One of Studio Ghibli's most beloved fantasy movies is officially returning with a new release. Read on for more details.
+---------
+
+# HBO’s Ambitious History-Making 5-Season Comedy Is the Perfect Weekend Binge
+
+TV Features, Hacks, HBO Max, Hannah Einbinder, Jean Smart
+
+Sat, 24 Oct 2026 02:28:15 GMT
+
+https://collider.com/hacks-hbo-max-record-breaking-comedy-rewatch/
+
+HBO Max's record-breaking comedy Hacks made Emmy history with its final season, but its biggest strengths shine on a rewatch.
+---------
+
+# Jake Gyllenhaal's $552 Million Disaster Thriller Officially Finds a New Streaming Home
+
+Movie News, Jake Gyllenhaal, The Day After Tomorrow, Dennis Quaid, Sci-Fi
+
+Sat, 24 Oct 2026 02:24:27 GMT
+
+https://collider.com/jake-gyllenhaal-the-day-after-tomorrow-streaming-netflix-november-2026/
+
+Jake Gyllenhaal's hit disaster movie, The Day After Tomorrow, officially debuts on Netflix 22 years after making half a billion dollars.
+---------
+
+# 8 Underrated Crime Movies You Probably Haven't Seen Before
+
+Movie, Crime, Battles Without Honor and Humanity, Going in Style, Armored Car Robbery
+
+Sat, 24 Oct 2026 02:22:15 GMT
+
+https://collider.com/underrated-crime-movies-you-havent-seen-before/
+
+From Pixote to Battles Without Honor or Humanity, these are the best underrated crime movies!
+---------
+
+# Paramount's 119-Minute Action Hit Officially Loses Box Office Crown To The Highest-Rated Movie in History
+
+Movie News, Box Office Milestones, Street Fighter, You Can See Everything, Action, Drama
+
+Sat, 24 Oct 2026 03:00:18 GMT
+
+https://movieweb.com/street-fighter-loses-box-office-you-can-see-everything/
+
+A24’s You Can See Everything passed Street Fighter at the box office.
+---------
+
+# Netflix's New Steamy R-Rated Hit Is Already the #1 Show on Streaming
+
+TV News, Nobody Wants This, Netflix, Hot on Streaming
+
+Sat, 24 Oct 2026 02:00:27 GMT
+
+https://movieweb.com/nobody-wants-this-stream-netflix-october-2026/
+
+Netflix's hit R-rated drama is back for its third season, and it's already a hit.
+---------
+
+# 8 HBO Crime Thrillers That Are 10/10, No Notes
+
+TV Lists, Thriller, HBO Max, Crime
+
+Sat, 24 Oct 2026 02:00:27 GMT
+
+https://movieweb.com/hbo-best-crime-thrillers/
+
+These HBO crime thriller TV shows are high-quality, and they feature gripping premises, smart characters, and surprising plot twists.
+---------
+
+# Liam Neeson's 141-Minute Action Thriller Sets New Release After Flying Under the Radar
+
+Movie News, The Fix, Liam Neeson, Zachary Levi, Action, Thriller, Blu-ray
+
+Sat, 24 Oct 2026 01:00:18 GMT
+
+https://movieweb.com/the-fix-liam-neeson-blu-ray-release/
+
+Universal Pictures Home Entertainment is preparing a Blu-ray release of Guy Moshe's action thriller 'The Fix,' starring Liam Neeson and Zachary Levi.
+---------
+
 # Terry's Mayor Of Kingstown Death Explained (& If It Was Mike's Fault)
 
 Streaming TV, Mayor of Kingstown
