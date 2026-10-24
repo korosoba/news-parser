@@ -1,3 +1,432 @@
+# 10 Greatest Justice League Victories In DC History
+
+Comics, DC Comics, Justice League
+
+Sat, 24 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/greatest-justice-league-victories-dc-comics/
+
+The Justice League has saved the universe countless times, but these iconic triumphs stand out as their absolute finest.
+---------
+
+# Shadow Of Backrooms Officially Announced For 2027
+
+Gaming, Steam
+
+Sat, 24 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/shadow-of-backrooms-2027-announcement/
+
+Discover the chilling co-op horror game 'Shadow of Backrooms' set to release in 2027. Explore endless liminal rooms!
+---------
+
+# Chloe Bennet's Quake Joining The MCU Takes Another Step Forward
+
+Streaming TV, Marvel Cinematic Universe
+
+Sat, 24 Oct 2026 21:33:19 GMT
+
+https://screenrant.com/zodiac-mcu-quake-chloe-bennet-return-hint/
+
+As speculation mounts that Marvel's new MCU series, Zodiac, will continue Agents of SHIELD,  the return of Chloe Bennet as Quake draws closer.
+---------
+
+# Every DCU Movie & TV Show, Ranked From Worst To Best
+
+Movies, DC Universe
+
+Sat, 24 Oct 2026 21:30:46 GMT
+
+https://screenrant.com/dcu-movies-tv-shows-ranked-worst-best/
+
+James Gunn's DC Universe has just released a new project, and this is how all the movies and TV shows in the new DCU rank with no more 2026 releases.
+---------
+
+# Netflix's 22-Episode Assassin Masterpiece Is The Perfect John Wick Replacement
+
+Anime, Netflix, Masked Recs
+
+Sat, 24 Oct 2026 21:30:19 GMT
+
+https://screenrant.com/sakamoto-days-netflix-perfect-john-wick-replacement/
+
+John Wick fans waiting for Keanu Reeves to return should definitely check out this 22-episode Netflix assassin hit.
+---------
+
+# Creature Commandos Season 2's Place In The DCU Timeline Confirmed By James Gunn
+
+TV, Creature Commandos
+
+Sat, 24 Oct 2026 21:21:57 GMT
+
+https://screenrant.com/creature-commandos-season-2-dcu-released-confirmed-james-gunn/
+
+James Gunn offers another exciting announcement regarding where the highly anticipated second season of Creature Commandos stands in the DCU.
+---------
+
+# James Gunn Reveals How Clayface Fits Into The DCU's Future
+
+Movies, Clayface, DC Universe, Horror, James Gunn
+
+Sat, 24 Oct 2026 21:17:36 GMT
+
+https://screenrant.com/james-gunn-clayface-dcu-canon-future/
+
+James Gunn hints at how James Watkins Clayface could factor into possible DCU crossovers, emphasizing his vision of a shared universe.
+---------
+
+# Apple TV's 36-Episode Thriller Series Shows Every Other Streaming Service How It's Done
+
+Streaming TV, Masked Recs, Apple TV
+
+Sat, 24 Oct 2026 21:16:19 GMT
+
+https://screenrant.com/slow-horses-apple-tv-release-schedule-streaming-services/
+
+Apple TV has been quietly establishing itself as one of the most competent and confident streaming platforms with solid shows like Slow Horses.
+---------
+
+# 10 Best Mystery & Thriller Books For True Crime Fans
+
+Books, Mystery, Thriller
+
+Sat, 24 Oct 2026 21:00:20 GMT
+
+https://screenrant.com/best-mystery-thriller-books-true-crime-fans/
+
+From true crime-obsessed main characters to podcast-style audiobooks, these ten mystery and thriller books are tailor-made for true crime fans.
+---------
+
+# Guy Ritchie's Unofficial Crime Trilogy Is Officially Complete
+
+Streaming TV, Guy Ritchie
+
+Sat, 24 Oct 2026 21:00:20 GMT
+
+https://screenrant.com/guy-ritchie-capital-crime-trilogy-complete/
+
+Guy Ritchie has a new crime show coming soon, Capital, that will be the third in his unofficial TV crime trilogy alongside MobLand and The Gentlemen.
+---------
+
+# New 8-Part Witchy Series Turns Into Global Streaming Hit After 1 of the Highest Ratings of 2026
+
+TV, Yaga
+
+Sat, 24 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/yaga-supernatural-global-success-october-2026/
+
+The series turned into an instant hit with viewers.
+---------
+
+# 10 Most Influential Batman Stories, Ranked
+
+Comics, Batman, DC Comics, Absolute Batman
+
+Sat, 24 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/most-influential-batman-comics-list/
+
+These 10 comic book stories have influenced Batman's iconic lore for decades.
+---------
+
+# Dragon Ball Z Officially Brings Back Golden Frieza With Massive New $990 Release
+
+Anime, Dragon Ball, merchandise, collectibles, Dragon Ball Z: Resurrection 'F'
+
+Sat, 24 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/dragon-ball-z-golden-frieza-tsume-statue-990/
+
+Pre-orders are now open for the new high-end Golden Frieza figure which officially hits the shelves in 2027.
+---------
+
+# Prime Video’s 8-Part Reacher Replacement Fixes Everything the Original Refuses to Change
+
+TV, Neagley, Reacher, Innovation
+
+Sat, 24 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/prime-video-neagley-reacher-comparison/
+
+Neagley is a solid follow-up to Reacher, and the show has the opportunity to fix some of the problems that have, and will, plague Reacher to its end.
+---------
+
+# Star Trek: Generations Gave Picard his Hardest Star Trek Line
+
+Movies, Star Trek Generations
+
+Sat, 24 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/star-trek-generations-picard-hardest-quote-franchise-history/
+
+Jean-Luc Picard is one of the most beloved captains in all of Star Trek, and he has also dropped some of the best words of wisdom.
+---------
+
+# 5 Cult Classic '80s Anime Movies That Never Went Mainstream
+
+Anime, Angel's Egg, Vampire Hunter D
+
+Sat, 24 Oct 2026 21:15:14 GMT
+
+https://www.cbr.com/cult-classic-80s-anime-movies/
+
+While these anime movies from the 80s have devoted fanbases, they deserved more fame and recognition.
+---------
+
+# HBO Max Is Losing 1 of the Weirdest Horror Movies of the Last Decade
+
+Movies, Men
+
+Sat, 24 Oct 2026 21:00:15 GMT
+
+https://www.cbr.com/men-horror-leaving-hbo-max-november-2026/
+
+One of the most divisive horror films of the decade is just days away from losing its streaming home on a fan-favorite platform.
+---------
+
+# 10 Masterpiece Movies Better Than The Dark Knight
+
+Movies, The Dark Knight, Batman, The Godfather, Innovation
+
+Sat, 24 Oct 2026 21:00:15 GMT
+
+https://www.cbr.com/best-movies-better-than-the-dark-knight-list/
+
+Christopher Nolan's The Dark Knight is a nearly flawless action thriller, but these 10 masterpiece movies are even better.
+---------
+
+# Dragon Ball Officially Begins a New Era Under Toyotarou
+
+Anime, Dragon Ball, Dragon Ball Super
+
+Sat, 24 Oct 2026 20:35:14 GMT
+
+https://www.cbr.com/dragon-ball-super-toyotarou-replacing-toriyama/
+
+After 40 years, Akira Toriyama's Dragon Ball is over; it's Toyotarou's time now.
+---------
+
+# 10 Strongest He-Man Villains, Ranked
+
+TV, He-Man, He-Man and the Masters of the Universe
+
+Sat, 24 Oct 2026 20:30:15 GMT
+
+https://www.cbr.com/strongest-he-man-villains-ranked/
+
+He-Man features some of the strongest villains in fiction
+---------
+
+# One of the Decade’s Greatest Sitcoms Is Finally Free To Stream 8 Years Later
+
+TV Features, Detroiters, Tim Robinson, Sam Richardson, Comedy Central
+
+Sat, 24 Oct 2026 21:47:15 GMT
+
+https://collider.com/detroiters-streaming-free-pluto-tv-october-2026/
+
+Detroiters, starring Tim Robinson and Sam Richardson, is still a must-watch sitcom — and now it's just become free to stream.
+---------
+
+# The 10 Greatest TV Anthology Seasons of All Time, Ranked
+
+TV, Anthology, The Twilight Zone, Black Mirror, True Detective
+
+Sat, 24 Oct 2026 21:41:14 GMT
+
+https://collider.com/best-anthology-tv-show-seasons-all-time-ranked/
+
+Explore the best anthology seasons in TV history, featuring unique storytelling and standout episodes in series like Black Mirror and True Detective.
+---------
+
+# Chris Pratt’s Brutal 'Reacher' Replacement Is Officially Back for Season 2
+
+TV News, The Terminal List, The Terminal List: Dark Wolf, Chris Pratt
+
+Sat, 24 Oct 2026 21:30:15 GMT
+
+https://collider.com/chris-pratt-terminal-list-season-2-return-prime-video-october-2026/
+
+Chris Pratt returns as James Reece in Season 2 of The Terminal List, bringing more brutal action and high-stakes military thrills to Prime Video.
+---------
+
+# 'The Batman' Director’s Greatest Sci-Fi Epic Is Officially Leaving Free Streaming
+
+Movie News, Dawn of the Planet of the Apes, Matt Reeves, Sci-Fi, Tubi
+
+Sat, 24 Oct 2026 21:15:15 GMT
+
+https://collider.com/matt-reeves-dawn-of-the-planet-of-the-apes-leaving-tubi-november-2026/
+
+Matt Reeves' sci-fi epic Dawn of the Planet of the Apes is about to be removed from its free streaming home. Find out more.
+---------
+
+# The 6 Best Fantasy Books Released Since 2010, Ranked
+
+Books and Comics, Fantasy, Books, Brandon Sanderson, Best of the 2010s
+
+Sat, 24 Oct 2026 21:14:15 GMT
+
+https://collider.com/best-fantasy-books-since-2010-ranked/
+
+From The Way of Kings to Babel, these six modern fantasy books build impossible worlds to reflect our heaviest real-life realities.
+---------
+
+# 'Star Trek's Best Episode of All Time Is One You Can Rewatch Over and Over Again
+
+TV Features, Star Trek, Sci-Fi, William Shatner, Star Trek: The Original Series
+
+Sat, 24 Oct 2026 21:11:15 GMT
+
+https://collider.com/star-trek-best-episode-amok-time/
+
+Star Trek's first episode of its second season, "Amok Time," endures as the best episode you can rewatch countless times.
+---------
+
+# Prime Video’s Terrifying Wilderness Nightmare Is Officially Your Next Halloween Watch
+
+Movie News, Prime Video, The Ritual, The Invisible Man, Dark Nature
+
+Sat, 24 Oct 2026 21:00:15 GMT
+
+https://collider.com/dark-nature-prime-video-streaming-success-october-2026/
+
+The Ritual meets The Invisible Man in this horror sleeper hit trending on Prime Video ahead of Halloween.
+---------
+
+# Travis Knight Reveals LAIKA’s Next Movies Will Be “Unlike Anything” It’s Done Before [Exclusive]
+
+Exclusives, Laika, Laika Studios, Travis Knight, Wildwood
+
+Sat, 24 Oct 2026 20:45:15 GMT
+
+https://collider.com/laika-next-movies-travis-knight-piranesi-night-gardener-update/
+
+Travis Knight shares updates on LAIKA’s future, including new genres, The Night Gardener, and the challenge of adapting Piranesi.
+---------
+
+# Matt Damon's Star-Studded Sci-Fi Epic Officially Makes a Major Streaming Comeback
+
+Movie News, Matt Damon, Contagion, HBO Max, Laurence Fishburne
+
+Sat, 24 Oct 2026 20:30:15 GMT
+
+https://collider.com/matt-damon-contagion-streaming-hit-hbo-max-october-2026/
+
+Following this summer's success in The Odyssey, Matt Damon's viral thriller is scoring big on streaming once again.
+---------
+
+# Dexter Morgan’s Greatest ‘Dexter’ Line Is Still One of TV’s Best 20 Years Later
+
+TV Features, Dexter, Dexter: Resurrection, Dexter: New Blood, Paramount Plus
+
+Sat, 24 Oct 2026 20:06:14 GMT
+
+https://collider.com/dexter-greatest-series-quote-season-6-line/
+
+A single line in Dexter Season 6 not only hits hard but also defines the titular killer.
+---------
+
+# 10 Classic American Thriller Movies That Are Flawless Masterpieces
+
+Movie Lists, Thriller
+
+Sat, 24 Oct 2026 22:00:17 GMT
+
+https://movieweb.com/american-thriller-movies-perfect/
+
+These classic American thriller movies have big stars, compelling storylines, and surprising endings, and they still hold up today.
+---------
+
+# 'The Matrix' Star's Near-Perfect 8-Part Crime Thriller Is Already One of the Biggest Shows on Streaming
+
+TV News, Yaga, AMC+, Hot on Streaming, Thriller
+
+Sat, 24 Oct 2026 21:00:19 GMT
+
+https://movieweb.com/yaga-stream-amc-october-2026/
+
+A new folklore-inspired crime thriller is taking over streaming.
+---------
+
+# The Greatest Crime Thriller In 12 Years Is an 8-Part Sleeper Hit You Can Binge in a Weekend
+
+Features, Long Bright River, Thriller, Crime
+
+Sat, 24 Oct 2026 20:45:18 GMT
+
+https://movieweb.com/long-bright-river-streaming-recommendation/
+
+There have been many impressive crime thriller TV shows released in the past decade, but this one has a particularly talented lead actor.
+---------
+
+# Alexander Skarsgård’s Raunchy Fantasy Film Is Magic With Audiences on Rotten Tomatoes
+
+Movie News, Wicker, Romance, Alexander Skarsgard
+
+Sat, 24 Oct 2026 20:38:56 GMT
+
+https://movieweb.com/wicker-alexander-skarsgard-rotten-tomatoes-audience-score/
+
+Wait, does this quirky fantastical plot actually work?
+---------
+
+# Netflix's 8-Part Gothic Horror Series Was So Good, Even Stephen King Gave It Kudos
+
+Features, The Fall of the House of Usher, Horror, Netflix
+
+Sat, 24 Oct 2026 20:30:18 GMT
+
+https://movieweb.com/fall-of-the-house-of-usher-stephen-king-praise/
+
+One of Netflix's best horror series was even praise by Stephen King, and it masterfully blends gothic thrills, social commentary, and drama.
+---------
+
+# Chris Pratt's Hit Action Thriller Series Scores Big With Audiences on Rotten Tomatoes
+
+TV News, The Terminal List, Chris Pratt, Action, Thriller, Drama
+
+Sat, 24 Oct 2026 20:15:01 GMT
+
+https://movieweb.com/the-terminal-list-season-2-rotten-tomatoes-rating/
+
+The new season has once again divided critics and audiences.
+---------
+
+# A24's George R.R. Martin Fantasy Epic Is Reportedly Its Most Expensive Movie Ever With a Jaw-Dropping Budget
+
+Movie News, A24, Fantasy, Alex Garland, Elden Ring
+
+Sat, 24 Oct 2026 20:12:01 GMT
+
+https://movieweb.com/a24s-elden-ring-budget/
+
+A24 expands from indie darlings to sprawling fantasy spectacle with a visionary director and a star-studded ensemble.
+---------
+
+# The "Greatest Action Film Ever Made" Is Officially Being Cut From Streaming
+
+Movie News, First Blood, Tubi, Coming/Leaving Streaming, Action, Rambo
+
+Sat, 24 Oct 2026 20:00:18 GMT
+
+https://movieweb.com/rambo-first-blood-leaving-streaming-tubi-november-2026/
+
+44 years after it was first released, one of the most iconic action movies of all time is being removed from free streaming.
+---------
+
+# 20 Years Later, the Best ‘Mistborn’ Quote Is Still the Most Inspiring in Fantasy History
+
+Features, Mistborn, Fantasy
+
+Sat, 24 Oct 2026 20:00:18 GMT
+
+https://movieweb.com/mistborn-best-quote-hope/
+
+The greatest 'Mistborn' quote comes from the very first book, and it speaks to one of the fantasy genre's most enduring themes.
+---------
+
 # New Fantasy Epic Adaptation Breaks All-Time Studio Record In New Budget Report
 
 Movies, Elden Ring
