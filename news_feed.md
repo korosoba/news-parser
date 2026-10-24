@@ -1,3 +1,366 @@
+# New Fantasy Epic Adaptation Breaks All-Time Studio Record In New Budget Report
+
+Movies, Elden Ring
+
+Sat, 24 Oct 2026 19:31:58 GMT
+
+https://screenrant.com/a24-elden-ring-production-budget-report-revealed/
+
+A24's upcoming fantasy epic is record-breaking with its eye-watering production budget reportedly revealed as it reaches major milestone.
+---------
+
+# Apple TV Sci-Fi Show Creator Slams The MCU's Multiverse Saga
+
+Movies, Marvel Cinematic Universe
+
+Sat, 24 Oct 2026 19:30:59 GMT
+
+https://screenrant.com/marvel-multiverse-saga-criticism-blake-crouch-dark-matter/
+
+The creator of an Apple TV science-fiction show exploring the multiverse does not like how the Marvel Cinematic Universe tackles other realities.
+---------
+
+# Star Trek's Next Frontier Begins The Franchise's Dark New Era
+
+Comics, Wonder Woman, DC Comics
+
+Sat, 24 Oct 2026 19:30:19 GMT
+
+https://screenrant.com/wonder-woman-next-big-era-2027-new-writer/
+
+DC Comics announced that 2027 will be the Year of Wonder, but it will also be a groundbreaking year for Wonder Woman writer Stephanie Williams.
+---------
+
+# Prime Video's R-Rated Superhero Would Solo The Entire Boys Universe In Hours
+
+Streaming TV, The Boys
+
+Sat, 24 Oct 2026 19:30:19 GMT
+
+https://screenrant.com/invincible-mark-grayson-solo-the-boys-universe/
+
+The Boys universe is often praised for its dark yet accurate take on superheroes, but another Prime Video hero would solo every character with ease.
+---------
+
+# Xbox Exec Is Officially Out After Only Three Months
+
+Gaming, Xbox, PC
+
+Sat, 24 Oct 2026 19:18:17 GMT
+
+https://screenrant.com/xbox-leadership-coo-helen-chiang-out/
+
+Xbox has been in a period of major change this year, and it doesn't look like the new leadership is any safer than previous executives.
+---------
+
+# New Avengers: Doomsday Teaser Addresses Steve Rogers & Sam Wilson Captain America Debate
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Sat, 24 Oct 2026 19:14:31 GMT
+
+https://screenrant.com/avengers-doomsday-trailer-captain-america-steve-rogers-sam-wilson-debate/
+
+Marvel's new Avengers: Doomsday teaser heats up the MCU movie's major Captain America debate, and the comics show the perfect solution for the matter.
+---------
+
+# Groundbreaking 6-Part Crime Series Is Coming To Netflix At The Perfect Time
+
+TV, Power
+
+Sat, 24 Oct 2026 19:00:19 GMT
+
+https://screenrant.com/power-tv-show-netflix-streaming-release-november-2026/
+
+A groundbreaking six-part crime series is coming to Netflix at the perfect time, with two more spinoffs and another related series on the way.
+---------
+
+# 31 Years Ago, This Passionate Quote Instantly Created One Of Star Trek: Deep Space Nine’s Greatest Characters
+
+TV, Star Trek, Star Trek: Deep Space Nine
+
+Sat, 24 Oct 2026 19:00:19 GMT
+
+https://screenrant.com/star-trek-ds9-nog-quote-greatest-character-turn/
+
+Star Trek: Deep Space Nine was brilliant at elevating ancillary characters and making fans fall in love with them, and this quote is a prime example.
+---------
+
+# Man of Tomorrow: Superman Could Lose His Movie Again
+
+Movies, Originals, Man of Tomorrow
+
+Sat, 24 Oct 2026 19:00:19 GMT
+
+https://screenrant.com/video/man-of-tomorrow-has-one-major-problem-to-avoid/
+
+Man of Tomorrow is shaping up to be one of the DCU's biggest crossover events, but James Gunn's ambitious Superman sequel could be putting its most important characters at risk of getting lost in the crowd.
+---------
+
+# New Red Dead Redemption 2 Update Adds A Nemesis System
+
+Gaming, Red Dead Redemption 2
+
+Sat, 24 Oct 2026 19:00:19 GMT
+
+https://screenrant.com/red-dead-redemption-2-nemesis-system-mod-fan/
+
+Red Dead Redemption 2 is better and bigger than ever with its most immersive and expansive NPC update, which just came out in early access.
+---------
+
+# Sylvester Stallone Defends Casting Daughter In Hit Taylor Sheridan Drama: 'Of Course It’s Nepotism'
+
+TV, Tulsa King, sylvester stallone
+
+Sat, 24 Oct 2026 19:05:05 GMT
+
+https://www.cbr.com/sylvester-stallone-tulsa-king-scarlet-stallone-casting-nepotism/
+
+The successful actor didn't shy away from giving one of the most refreshing answers.
+---------
+
+# After a 3-Year Wait, Netflix's Hit Mystery Thriller Series Is the Most-Watched Show on Streaming
+
+TV, Lupin, Netflix, Mystery
+
+Sat, 24 Oct 2026 19:00:15 GMT
+
+https://www.cbr.com/lupin-mystery-crime-thriller-netflix-success-october-2026/
+
+Netflix's acclaimed mystery thriller, Lupin, returned as an instant streaming hit.
+---------
+
+# Yellowstone Is Ready to Switch Formats for Good After Marshals & Dutton Ranch
+
+TV, Yellowstone, Dutton Ranch, Marshals
+
+Sat, 24 Oct 2026 19:00:15 GMT
+
+https://www.cbr.com/yellowstone-should-switch-formats-after-marshals-dutton-ranch/
+
+The Yellowstone franchise is not slowing down anytime soon, but these spin-offs demonstrate what the universe needs to reconsider about its formula.
+---------
+
+# Street Fighter's Coldest Villain Line Still Has Not Been Beaten
+
+Movies, Street Fighter, Action, Innovation
+
+Sat, 24 Oct 2026 19:00:15 GMT
+
+https://www.cbr.com/street-fighter-1994-movie-coldest-villain-quote/
+
+The 1994 Street Fighter film's most memorable piece of dialogue was an evil quote delivered by Raul Julia as M. Bison.
+---------
+
+# Every Version of Goten in Dragon Ball, Ranked By Power
+
+Anime, Dragon Ball, Akira Toriyama, shonen anime, Innovation
+
+Sat, 24 Oct 2026 18:15:15 GMT
+
+https://www.cbr.com/dragon-ball-every-goten-version-ranked-by-power/
+
+Dragon Ball's Goten isn't always in the spotlight, but he's still experienced some powerful forms that better prepare him for battle!
+---------
+
+# Kaiju No. 8 Officially Returns With Final Anime Movie in 2027
+
+Anime, Kaiju No. 8, Shonen Jump, Crunchyroll
+
+Sat, 24 Oct 2026 18:00:14 GMT
+
+https://www.cbr.com/kaiju-no-8-final-anime-movie-2027/
+
+Kaiju No. 8 officially returns in 2027 with its final chapter as a brand-new theatrical movie.
+---------
+
+# Over 50 Years Later, A Forgotten G.I. Joe Rival Officially Gets A Reboot
+
+Comics, Action Man, G.I. Joe
+
+Sat, 24 Oct 2026 18:00:14 GMT
+
+https://www.cbr.com/action-man-idw-publishing-2026-reboot/
+
+A beloved G.I. Joe spin-off has received a special edition, so fans can revisit the 2016 mini-series over a decade later.
+---------
+
+# FX’s 13-Episode Detective Drama Is Still One of the Genre’s Best Hidden Gems
+
+TV, Terriers, FX, Crime, Innovation
+
+Sat, 24 Oct 2026 17:30:15 GMT
+
+https://www.cbr.com/fx-terriers-best-hidden-crime-gems/
+
+Terriers had a dreadful title and criminally low ratings, but it was one of the best private investigator shows of the last several decades.
+---------
+
+# 10 Turn-Based RPGs With Virtually Perfect Combat Systems
+
+Games, Video Games, Baldur's Gate 3, RPG
+
+Sat, 24 Oct 2026 17:15:15 GMT
+
+https://www.cbr.com/turn-based-rpgs-perfect-combat-systems/
+
+RPGs like Fire Emblem and Baldur's Gate have helped to refine turn-based combat to perfection.
+---------
+
+# 6 Greatest Thriller Movie Trilogies of All Time
+
+Movie, Thriller, The Dark Knight, The Bourne Identity, Oldboy
+
+Sat, 24 Oct 2026 19:36:15 GMT
+
+https://collider.com/best-thriller-movie-trilogies-all-time/
+
+Cinematic triptychs like the Bourne and Dark Knight trilogies are perfect examples of how the thriller can excel in a contained, continuous format.
+---------
+
+# Clint Eastwood's 138-Minute Crime Masterpiece Officially Loses Its Free Streaming Home
+
+Movie News, Mystic River, Sean Penn, Clint Eastwood, Tubi
+
+Sat, 24 Oct 2026 19:30:15 GMT
+
+https://collider.com/clint-eastwood-crime-masterpiece-mystic-river-leaving-tubi-november-2026/
+
+Clint Eastwood's critically acclaimed Boston-set crime drama, Mystic River, is about to be removed from its streaming home. Find out more.
+---------
+
+# 8 Best Steamy Adult Series To Stream on Hulu
+
+TV, Hulu, Normal People, Tell Me Lies, Rivals
+
+Sat, 24 Oct 2026 19:24:15 GMT
+
+https://collider.com/best-steamy-shows-hulu/
+
+From Welcome to Chippendales to Reasonable Doubt, these eight steamy Hulu series turn complicated adult desire into addictive screen drama.
+---------
+
+# 8 2000s Games That Are Amazing From Start to Finish
+
+Gaming, Video Game, 2000s, The Legend of Zelda, Nintendo
+
+Sat, 24 Oct 2026 19:18:15 GMT
+
+https://collider.com/video-games-2000s-amazing-start-to-finish/
+
+Metroid Prime, The Legend of Zelda: Twilight Princess, and Super Mario Galaxy are among the best video games of the 2000s.
+---------
+
+# 7 Miniseries That Get Better With Every Episode
+
+TV, TV Miniseries, Watchmen, Mare of Easttown, The Queen's Gambit
+
+Sat, 24 Oct 2026 19:07:14 GMT
+
+https://collider.com/miniseries-better-every-episode/
+
+From The Patient to The Queen's Gambit, these seven phenomenal miniseries turn escalating episodic tension into absolute narrative perfection.
+---------
+
+# Tim Burton's Sci-Fi Fantasy Masterpiece Is Officially a Halloween Streaming Hit
+
+Movie News, Tim Burton, Edward Scissorhands, Disney+, Streaming
+
+Sat, 24 Oct 2026 19:00:15 GMT
+
+https://collider.com/tim-burton-edward-scissorhands-streaming-hit-disney-plus-october-2026/
+
+Halloween's favorite filmmaker, Tim Burton, is finding his way back up the streaming charts as Edward Scissorhands soars.
+---------
+
+# The 6 Best Al Pacino Gangster Movies, Ranked
+
+Movie, The Godfather: Part II, The Godfather, The Irishman, Scarface
+
+Sat, 24 Oct 2026 18:53:15 GMT
+
+https://collider.com/best-al-pacino-gangster-movies-ranked/
+
+Al Pacino is one of the best actors of all time, especially in his various gangster movies, including classics like The Godfather and Scarface.
+---------
+
+# '9-1-1' Officially Confirms Its Season 10 Buck Replacement
+
+TV Features, 9-1-1, Oliver Stark, ABC, Procedural
+
+Sat, 24 Oct 2026 18:38:15 GMT
+
+https://collider.com/9-1-1-season-10-buck-replacement-harry-parallels/
+
+Harry's character arc in 9-1-1 Season 10 parallels Buck's journey as a probie in Season 1, giving Buck the opportunity to help guide and mentor Harry.
+---------
+
+# Netflix’s Acclaimed Political Thriller Officially Returns for Season 4
+
+Movie News, The Diplomat, Allison Janney, Keri Russell, Netflix
+
+Sat, 24 Oct 2026 18:30:15 GMT
+
+https://collider.com/the-diplomat-season-4-netflix-streaming-october-2026/
+
+Netflix's acclaimed political thriller returns for Season 4, bringing Keri Russell back for another chapter of high-stakes political intrigue.
+---------
+
+# 'Mare of Easttown' Meets 'Wind River' in Amanda Seyfried’s 8-Part Thriller Masterpiece
+
+TV Features, Long Bright River, Amanda Seyfried, Peacock
+
+Sat, 24 Oct 2026 18:27:15 GMT
+
+https://collider.com/long-bright-river-amanda-seyfried-crime-thriller-masterpiece/
+
+Amanda Seyfried gives a career-best performance in Peacock's gripping crime thriller miniseries Long Bright River.
+---------
+
+# The 10 Most Suspenseful Crime Thriller Movies of the Last 25 Years, Ranked
+
+Movie Lists, Crime, Thriller
+
+Sat, 24 Oct 2026 19:00:18 GMT
+
+https://movieweb.com/crime-thriller-movies-most-suspenseful/
+
+The most suspenseful thriller movies of the last 25 years will keep you on edge throughout, even after you think you've finally cracked the case.
+---------
+
+# Taylor Sheridan's New 2-Part Action Western Hit Officially Takes the Crown as TV's Most Watched Show
+
+TV News, Action, Marshals, Taylor Sheridan, Western
+
+Sat, 24 Oct 2026 18:11:41 GMT
+
+https://movieweb.com/marshals-season-2-cbs-ratings/
+
+CBS had a huge premiere week, but the biggest winner was Marshals.
+---------
+
+# 26 Years Later, Jason Statham's 102-Minute Crime Masterpiece Still Beats Any Action Movie He Ever Made
+
+Features, Crime, Action, Snatch, Jason Statham
+
+Sat, 24 Oct 2026 18:00:18 GMT
+
+https://movieweb.com/snatch-jason-statham-best-movie/
+
+Here's another reason to rewatch Statham's wildly entertaining British crime caper.
+---------
+
+# Prime Video's 103-Minute John Wick Substitute Action Thriller Shoots Even Higher in the Streaming Ranks
+
+Movie News, Prime Video, Thriller, Action, Hot on Streaming
+
+Sat, 24 Oct 2026 18:00:18 GMT
+
+https://movieweb.com/vengeance-prime-video-action-thriller-stream-october-2026/
+
+If you're into revenge thrillers, this should be on your watchlist.
+---------
+
 # David Fincher’s R-Rated Thriller That Grossed 6x Its Budget Is Coming To Paramount+ In 2 Weeks
 
 Movies, Gone Girl
