@@ -1,3 +1,377 @@
+# Terry's Mayor Of Kingstown Death Explained (& If It Was Mike's Fault)
+
+Streaming TV, Mayor of Kingstown
+
+Sat, 24 Oct 2026 00:30:20 GMT
+
+https://screenrant.com/terry-mayor-of-kingstown-death-explained/
+
+Terry's role in Mayor of Kingstown was imperative to the series even though the character was never seen, and Mike could be to blame for his death.
+---------
+
+# The 48-Episode TV Version Of 2001: A Space Odyssey Panned By Isaac Asimov Deserves Another Chance
+
+Classic TV, 2001: A Space Odyssey, Isaac Asimov
+
+Sat, 24 Oct 2026 00:30:19 GMT
+
+https://screenrant.com/space-1999-tv-version-of-2001-deserves-another-chance/
+
+The visually stunning TV equivalent of Stanley Kubrick's 2001 has faced criticism from sci-fi legend Isaac Asimov, but it deserves a rewatch.
+---------
+
+# How Clayface Sets Up The DCU's Batman Movie & What We Know About The Character's Future
+
+Movies, Clayface, DC Universe
+
+Sat, 24 Oct 2026 00:06:39 GMT
+
+https://screenrant.com/clayface-movie-dcu-batman-setup-future/
+
+Clayface is here, and the new DC Universe movie sets up the franchise's live-action Gotham, and there are a few ways it sets the stage for DCU Batman.
+---------
+
+# Cyberpunk: Edgerunners 2 Ending And How The Series Connects To Season 1 Explained
+
+Anime, Cyberpunk: Edgerunners
+
+Sat, 24 Oct 2026 00:02:39 GMT
+
+https://screenrant.com/cyberpunk-edgerunners-2-ending-explained/
+
+After an explosive season, Cyberpunk: Edgerunners 2 ends with a truly impressive finale that will leave fans stunned.
+---------
+
+# The Gentlemen Season 3: Cast Changes, Filming Updates & Everything We Know
+
+Streaming TV, The Gentlemen
+
+Sat, 24 Oct 2026 00:00:19 GMT
+
+https://screenrant.com/the-gentlemen-season-3-news-updates-cast-changes/
+
+All of the latest on The Gentlemen Season 3, from cast changes to filming updates and plot details.
+---------
+
+# The Legend Of Zelda As We Know It Officially Ends In 2027
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Tears of the Kingdom, Triple-A Games
+
+Sat, 24 Oct 2026 00:00:19 GMT
+
+https://screenrant.com/legend-of-zelda-2027-end-of-era/
+
+The Legend of Zelda is going to bring forth the end of an era in 2027, at least in the way that we know it now, so get your goodbyes in order.
+---------
+
+# Sylvester Stallone & Tom Hardy Square Off For Paramount+’s Mob Series Crown
+
+Streaming TV, Tulsa King, MobLand
+
+Fri, 23 Oct 2026 23:16:19 GMT
+
+https://screenrant.com/sylvester-stallone-tom-hardy-paramount-plus-mob-series-crown/
+
+Tulsa King season 4 and MobLand season 2 are battling for Paramount+’s mob series crown as Sylvester Stallone and Tom Hardy lead the new hits.
+---------
+
+# Se7en Meets Zodiac in Netflix’s 74-Episode Psychological Thriller That’ll Keep You Hooked
+
+Anime, Netflix, Masked Recs
+
+Fri, 23 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/monster-se7en-meets-zodiac-netflix/
+
+This hit streaming sensation blends Zodiac's slow investigation with the horrifying psychological manipulation found in Se7en.
+---------
+
+# 8 Biggest Changes Clayface Makes To DC Comics' Batman Villain
+
+Movies, Clayface, DC Universe
+
+Fri, 23 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/clayface-matt-hagen-dc-comics-movie-character-changes/
+
+Although DC Studios' new Clayface movie takes inspiration from the comics and classic animation, there are some key changes in the new DCU movie.
+---------
+
+# Prime Video's 8-Part Stephen King Series Is So Good, It's Renewed After Just 2 Weeks
+
+Streaming TV, Stephen King, Halloween 2026
+
+Fri, 23 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/carrie-season-2-renewed-prime-video-good/
+
+Mike Flanagan's first show for Prime Video, an adaptation of Stephen King's seminal novel Carrie, has officially been given a second season.
+---------
+
+# 10 Action Anime With No Bad Episodes
+
+Anime, Action, Innovation
+
+Sat, 24 Oct 2026 00:45:14 GMT
+
+https://www.cbr.com/best-action-anime-no-bad-episodes/
+
+Maintaining the high action that drives these anime from start to finish is no small feat.
+---------
+
+# Netflix Is Officially Losing HBO Max's Raunchy 18-Episode Comedy After Just 1 Year
+
+TV, Minx, HBO Max, Netflix
+
+Sat, 24 Oct 2026 00:30:15 GMT
+
+https://www.cbr.com/minx-leaving-netflix-november-2026/
+
+There's not much time left to stream Minx.
+---------
+
+# Gundam Turns Its Most Realistic War Anime Into a New Military-Style Model Guide
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: The 08th MS Team, merchandise
+
+Sat, 24 Oct 2026 00:20:14 GMT
+
+https://www.cbr.com/gundam-forward-08th-ms-team-30th-anniversary-international-release/
+
+One of the Mobile Suit Gundam franchise's most realistic entries is getting the international model guide release it deserves.
+---------
+
+# 8 Cartoon Network and Toonami Anime That Have Aged Like Fine Wine
+
+Anime, Sailor Moon
+
+Sat, 24 Oct 2026 00:15:15 GMT
+
+https://www.cbr.com/cartoon-network-toonami-anime-aged-like-fine-wine/
+
+Cartoon Network and Toonami introduced many to anime, and these series from that golden era are still perfect today.
+---------
+
+# Robert Redford's Star-Studded Western Finds Redemption on Streaming 21 Years After Flopping Hard
+
+Movies, An Unfinished Life, Paramount Plus, Robert Redford
+
+Sat, 24 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/an-unfinished-life-paramount-plus-streaming-success-october-2026/
+
+An Unfinished Life is suddenly rising in the streaming charts.
+---------
+
+# 10 Hardest NES RPGs of All Time, Ranked
+
+Games, Nintendo, Role Playing Game
+
+Sat, 24 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/hardest-nes-rpgs-zelda-castlevania-final-fantasy/
+
+Final Fantasy and Crystalis are just two of the hardest NES RPGs ever made.
+---------
+
+# At 80 Years Old, Sylvester Stallone Plots Rocky 7 and Shares Story Details
+
+Movies, Rocky
+
+Fri, 23 Oct 2026 23:50:41 GMT
+
+https://www.cbr.com/rocky-7-script-sylvester-stallone/
+
+Sylvester Stallone has already written a script for Rocky 7 with the story taking the character in a totally different direction.
+---------
+
+# 10 Best Shonen Manga to Read If You Love Fullmetal Alchemist
+
+Anime, Fullmetal Alchemist, Manga, Innovation
+
+Fri, 23 Oct 2026 23:45:14 GMT
+
+https://www.cbr.com/best-shonen-manga-for-fullmetal-alchemist-fans/
+
+Hiromu Arakawa's unparalleled storytelling in Fullmetal Alchemist resonates deeply with readers, and those looking for something similar have options.
+---------
+
+# The Exorcist Star Ellen Burstyn Sure Doesn't Sound Excited for Mike Flanagan's New Movie
+
+Movies, The Exorcist, The Exorcist: Martyrs
+
+Fri, 23 Oct 2026 23:17:05 GMT
+
+https://www.cbr.com/ellen-burstyn-the-exorcist-mike-flanagan-reboot/
+
+Following her return in The Exorcist: Believer, Ellen Burstyn is certainly not stoked about the next film of the franchise.
+---------
+
+# 7 Times Sakura Proved Herself In Boruto
+
+Anime, Boruto: Naruto Next Generations, Naruto, Innovation
+
+Fri, 23 Oct 2026 23:15:14 GMT
+
+https://www.cbr.com/sakura-proves-herself-in-boruto/
+
+Sakura Haruno got a lot of flack in early Naruto for not pulling her weight on Team 7, but Boruto is a powerful display of how far she's come.
+---------
+
+# Netflix’s New Western Miniseries Is Officially a Certified Streaming Hit
+
+TV News, East of Eden, Florence Pugh, Netflix, Christopher Abbott
+
+Sat, 24 Oct 2026 00:50:14 GMT
+
+https://collider.com/florence-pugh-east-of-eden-netflix-streaming-success-october-2026-1-billion-minutes-watched/
+
+Netflix's epic East of Eden adaptation, starring Florence Pugh, clocked more than 1 billion minutes watched in its second week on the Nielsen chart.
+---------
+
+# Jason Statham’s Explosive Action Sequel Officially Exits Streaming in 1 Week
+
+Movie News, Mechanic Resurrection, The Mechanic, Jason Statham, Netflix
+
+Sat, 24 Oct 2026 00:40:15 GMT
+
+https://collider.com/jason-statham-mechanic-resurrection-leaving-netflix-november-2026/
+
+Jason Statham's 2016 action thriller Mechanic: Resurrection is reportedly leaving Netflix in November 2026.
+---------
+
+# ‘Carrie’ Signals an Even Bigger Issue With Mike Flanagan's Streaming Hits
+
+TV Features, Carrie, Mike Flanagan, Stephen King, Brian De Palma
+
+Sat, 24 Oct 2026 00:39:15 GMT
+
+https://collider.com/carrie-mike-flanagan-horror-series-negative/
+
+Mike Flanagan's Carrie adaptation strays from its core themes and expands the King universe to its detriment.
+---------
+
+# Apple TV’s 18-Episode Dark Comedy Thriller Is the Perfect ‘Big Little Lies’ Replacement
+
+TV Features, Apple TV, Bad Sisters, Sharon Horgan, Thriller
+
+Sat, 24 Oct 2026 00:33:14 GMT
+
+https://collider.com/apple-tv-bad-sisters-2-season-masterpiece-thriller/
+
+Apple TV's 'Bad Sisters' is a dark comedy sensation, capturing a dysfunctional band of sisters who will stop at nothing to protect eachother.
+---------
+
+# Christian Bale's Gothic Monster Romance Is Officially Streaming on Prime Video
+
+Movie News, Christian Bale, The Bride!, Prime Video, Jessie Buckley
+
+Sat, 24 Oct 2026 00:30:15 GMT
+
+https://collider.com/christian-bale-the-bride-streaming-prime-video-october-2026/
+
+The Bride!, Christian Bale's unique Bonnie and Clyde-like gothic monster romance, is now available on Prime Video. Here's what we know.
+---------
+
+# Stephen King’s New Horror Hit Officially Passes Massive Streaming Milestone Ahead of Season 2
+
+TV News, Carrie, Stephen King, Mike Flanagan, Prime Video
+
+Sat, 24 Oct 2026 00:20:15 GMT
+
+https://collider.com/stephen-king-carrie-streaming-success-prime-video-october-2026-1-billion-minutes-watched/
+
+Stephen King's Prime Video series Carrie topped the Nielsen streaming charts in its debut week, with more than 1.2 billion minutes watched.
+---------
+
+# Ridley Scott’s Near-Perfect Sci-Fi Series Is Officially a Streaming Hit Before Season 2
+
+TV News, Alien: Earth, Ridley Scott, Hulu, Sci-Fi
+
+Sat, 24 Oct 2026 00:10:15 GMT
+
+https://collider.com/ridley-scott-alien-earth-streaming-success-hulu-october-2026/
+
+Ridley Scott's near-perfect sci-fi series is surging to the top of watchlists before it returns for Season 2.
+---------
+
+# 5 HBO Thriller Shows Where Every Episode Is a Masterpiece
+
+TV, HBO, Thriller, True Detective, Industry
+
+Sat, 24 Oct 2026 00:02:15 GMT
+
+https://collider.com/hbo-thriller-shows-every-episode-masterpiece/
+
+From the crime anthology True Detective to the financial drama Industry, every episode of these HBO thriller shows is a genuine masterpiece.
+---------
+
+# Henry Cavill and Rebecca Ferguson's Action Epic Is Officially a Top 10 Hit on Streaming
+
+Movie News, Mission: Impossible - Fallout, Henry Cavill, Tom Cruise, Paramount Plus
+
+Sat, 24 Oct 2026 00:00:14 GMT
+
+https://collider.com/henry-cavill-mission-impossible-fallout-streaming-success-paramount-plus-october-2026/
+
+Henry Cavill's 2018 action thriller co-starring Rebecca Ferguson has officially smashed back into the global streaming top 10.
+---------
+
+# Forget ‘Fallout,’ Walton Goggins’ Best TV Western Is Officially a Must-Watch on Hulu
+
+TV News, Justified, Timothy Olyphant, Bosch, Yellowstone
+
+Fri, 23 Oct 2026 23:45:14 GMT
+
+https://collider.com/timothy-olyphant-walton-goggins-justified-streaming-hulu-october-2026/
+
+Walton Goggins' six-season Western crime thriller with shades of Bosch and Yellowstone is officially streaming on Hulu.
+---------
+
+# 71 Years Later, The Lord of the Rings' Final Line Is Still the Best 3 Words in Fantasy History
+
+Features, The Lord of the Rings, Fantasy
+
+Sat, 24 Oct 2026 00:00:18 GMT
+
+https://movieweb.com/lord-of-the-rings-final-quote/
+
+There's more to Lord of the Rings than just destroying the Ring. Tolkien's final words in 'The Return of the King' illustrate what the story is about.
+---------
+
+# 34 Years Later, Patrick Stewart's Favorite Star Trek Episode Is a Standalone Sci-Fi Masterpiece
+
+Features, Star Trek: The Next Generation, Star Trek, Sci-Fi, Patrick Stewart
+
+Fri, 23 Oct 2026 23:00:17 GMT
+
+https://movieweb.com/star-trek-inner-light-best-episode/
+
+1992's 'Next Generation' episode "The Inner Light" is one of the most acclaimed episodes in 'Star Trek's history.
+---------
+
+# Rebecca Ferguson's Near-Perfect Sci-Fi Thriller Is Officially a 600-Day Streaming Smash Hit
+
+TV News, Silo, Rebecca Ferguson, Hot on Streaming, Sci-Fi, Thriller
+
+Fri, 23 Oct 2026 23:00:17 GMT
+
+https://movieweb.com/silo-rebecca-ferguson-streaming-hit-600-days-apple-tv-october-2026/
+
+One of the best sci-fi thrillers ever made hasn't lost any of its momentum on streaming.
+---------
+
+# Pierce Brown Gives Promising Update on His Paramount "Star Wars Meets Hunger Games" Sci-Fi Epic
+
+Movie News, Red Rising, Francis Lawrence, Sci-Fi
+
+Fri, 23 Oct 2026 22:54:58 GMT
+
+https://movieweb.com/red-rising-pierce-brown-sci-fi-movie-update/
+
+"Howlers" assemble.
+---------
+
 # 3 Best Movies To Watch On Prime Video This Weekend (October 24-25)
 
 Movies, Prime Video, Recommendation
