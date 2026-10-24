@@ -1,3 +1,399 @@
+# David Fincher’s R-Rated Thriller That Grossed 6x Its Budget Is Coming To Paramount+ In 2 Weeks
+
+Movies, Gone Girl
+
+Sat, 24 Oct 2026 17:00:21 GMT
+
+https://screenrant.com/david-fincher-gone-girl-paramount-plus-streaming-release-november-2026/
+
+David Fincher's R-rated thriller is one of the genre's most intense movies, and after a successful box office run, it is coming to Paramount+ soon.
+---------
+
+# Two And A Half Men's Original Choice To Replace Charlie Sheen Was Better Than Ashton Kutcher
+
+Classic TV, Two and a Half Men
+
+Sat, 24 Oct 2026 17:00:21 GMT
+
+https://screenrant.com/two-and-a-half-men-hugh-grant-better-charlie-sheen-replacement/
+
+Ashton Kutcher ended up replacing Charlie Sheen after he left Two and a Half Men, but Chuck Lorre originally had another actor in mind: Hugh Grant.
+---------
+
+# 2026 Officially Proves A Beloved Classic Action Movie Tradition Has Been Revived
+
+Movies, Action
+
+Sat, 24 Oct 2026 16:56:20 GMT
+
+https://screenrant.com/2026-action-movie-tradition-wrestlers/
+
+The assorted movie roster that has built up over the course of 2026 has served to bring one classic action movie tradition to new heights.
+---------
+
+# Today's Wordle Hints & Answer - October 24, 2026 (Puzzle #1953)
+
+Gaming, Wordle, Mobile
+
+Sat, 24 Oct 2026 16:46:15 GMT
+
+https://screenrant.com/todays-wordle-hints-answer-october-24-2026-puzzle-1953/
+
+The structure of today's Wordle is both familiar and different, acting close enough to past patterns to trick even veteran players out of a streak.
+---------
+
+# 5 Best Versions Of Robin Hood In Movies, Ranked
+
+Movies
+
+Sat, 24 Oct 2026 16:43:04 GMT
+
+https://screenrant.com/robin-hood-movies-best-versions-actors-ranked/
+
+Robin Hood has taken many forms on screen, but these five stand out for their charm, daring, and unforgettable takes on the legendary outlaw.
+---------
+
+# 10 Incredible Books With Premises So Weird They Shouldn’t Work
+
+Books, Fantasy, Science Fiction
+
+Sat, 24 Oct 2026 16:31:22 GMT
+
+https://screenrant.com/best-books-weird-premises-still-work/
+
+From talking cats to disappearing memories these ten novels build strange rules and push them to human consequences.
+---------
+
+# One Piece Season 3 Exposes How Weak The Straw Hats Really Are
+
+Streaming TV, One Piece
+
+Sat, 24 Oct 2026 16:30:21 GMT
+
+https://screenrant.com/one-piece-season-3-straw-hats-weak/
+
+One Piece season 3 will be the biggest, boldest, most action-packed run of episodes yet, but it'll also expose just how weak Luffy's crew really is.
+---------
+
+# Disney Set To Lose Rights To Beloved 1990s Film Franchise
+
+Comics, Disney
+
+Sat, 24 Oct 2026 16:20:22 GMT
+
+https://screenrant.com/rocketeer-disney-lose-rights/
+
+Disney could lose rights to one of its most underrated sci-fi properties soon due to copyright claims, which could impact future projects by 2028.
+---------
+
+# Sheriff Country Begins Mickey & Boone Down A Frustrating Future
+
+Network TV, Sheriff Country
+
+Sat, 24 Oct 2026 16:16:21 GMT
+
+https://screenrant.com/sheriff-country-season-2-mickey-boone-slow-burn-frustrating/
+
+Sheriff Country is delaying Mickey and Boone's romance in season 2 amidst new character dynamics, but building a slow burn is the show's best bet.
+---------
+
+# Alexander Skarsgård's New Fantasy Movie Wicker Officially Sets Rotten Tomatoes Audience Record
+
+Movies, Wicker, Alexander Skarsgard
+
+Sat, 24 Oct 2026 16:13:35 GMT
+
+https://screenrant.com/alexander-skarsgard-wicker-movie-rotten-tomatoes-audience-score-record/
+
+After Wicker earned significant media buzz, Alexander Skarsgård's new fantasy movie is now in theaters and has set a Rotten Tomatoes audience record.
+---------
+
+# Sony's $690 Million Spider-Man Sequel is Days Away from Leaving a Major Streaming Platform
+
+Movies, Spider-Man: Across the Spider-Verse
+
+Sat, 24 Oct 2026 17:00:15 GMT
+
+https://www.cbr.com/spider-man-across-the-spiderverse-leaving-hbo-max-november-2026/
+
+The sequel to the biggest animated Spider-Man film of all time is set to leave one of the biggest streaming platforms in just a matter of days.
+---------
+
+# 5 Emma Frost Stories X-Men Star Samara Weaving Should Read as Preparation
+
+Comics, Emma Frost, X-Men, marvel studios, Marvel Comics
+
+Sat, 24 Oct 2026 17:00:15 GMT
+
+https://www.cbr.com/5-emma-frost-stories-x-men-star-samara-weaving-should-read-as-preparation/
+
+The X-Men's Emma Frost is about to hit the big time with actress Samara Weaving stepping into her skin, and here are the top five takes on the queen.
+---------
+
+# Ocarina of Time Remake Finally Confirms 28-Year-Old Zelda Fan Theory
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Sat, 24 Oct 2026 16:45:15 GMT
+
+https://www.cbr.com/ocarina-of-time-remake-finally-confirms-28-year-old-zelda-fan-theory/
+
+Since Ocarina of Time came out in 1998, Zelda fans have wondered whether Kaepora Gaebora was actually Rauru. The remake is finally ending the debate.
+---------
+
+# Tracker Season 4 Brings Jensen Ackles Back at the Perfect Time for Colter Shaw’s Story
+
+TV, Tracker
+
+Sat, 24 Oct 2026 16:30:15 GMT
+
+https://www.cbr.com/tracker-season-4-jensen-ackles-return-perfect-time/
+
+Tracker fans will be delighted to know that Jensen Ackles will be back soon as Russell, and his return couldn't have come at a better time.
+---------
+
+# 5 Avengers: Doomsday Theories So Good Marvel Needs To Make Them MCU Canon
+
+Movies, Avengers: Doomsday, MCU, Innovation
+
+Sat, 24 Oct 2026 16:30:15 GMT
+
+https://www.cbr.com/avengers-doomsday-theories-that-need-to-come-true-list/
+
+Avengers: Doomsday is right around the corner, and these five theories are so good, we need them to come true.
+---------
+
+# DC's New R-Rated Villain Movie Matches Logan's Rating After Setting New Batman Record
+
+Movies, Clayface, Logan
+
+Sat, 24 Oct 2026 16:17:56 GMT
+
+https://www.cbr.com/dc-clayface-logan-cinemascore/
+
+The film's early box office numbers aren't great, but it has an encouraging reception.
+---------
+
+# 6 Autobots Stronger Than Optimus Prime's Most Powerful Form
+
+Anime, Transformers, optimus prime, Innovation
+
+Sat, 24 Oct 2026 16:16:16 GMT
+
+https://www.cbr.com/autobots-stronger-than-optimus-prime-most-powerful-form/
+
+Optimus Prime set the Autobots’ standard across the Transformers franchise, yet the Matrix of Leadership holds the wisdom of earlier Primes.
+---------
+
+# Batman Villain Bane Is Given A Name in Dark Knights of Steel II
+
+Comics, Batman, bane, Dark Knights of Steel
+
+Sat, 24 Oct 2026 16:00:15 GMT
+
+https://www.cbr.com/dark-knights-of-steel-ii-4-bane-real-name/
+
+Bane's identity is finally revealed.
+---------
+
+# Something Is Killing The Children Prequel Officially Confirmed Before Blumhouse's Movie Drops
+
+Comics, Something is Killing the Children, Something Is Killing The Children
+
+Sat, 24 Oct 2026 16:00:15 GMT
+
+https://www.cbr.com/something-is-killing-the-children-hope-is-a-knife-out-now/
+
+Fans of Something is Killing the Children are officially getting a new prequel story ahead of the hotly-anticipated live-action adaptation.
+---------
+
+# Pokémon Officially Returns to Its Diamond & Pearl Era With a Brand-New Sinnoh Collection
+
+Anime, Pokemon, merchandise, Clothing, Pokemon Diamond and Pearl
+
+Sat, 24 Oct 2026 16:00:15 GMT
+
+https://www.cbr.com/pokemon-center-new-sinnoh-collection/
+
+Pokémon fans can revisit the Sinnoh region and its most iconic characters with a brand-new merch line that's as sleek as it is stylish.
+---------
+
+# Brad Pitt's $540 Million Horror Hit Officially Conquers Streaming Ahead of the Sequel
+
+Movie News, Brad Pitt, World War Z, Paramount Plus, Horror
+
+Sat, 24 Oct 2026 16:30:16 GMT
+
+https://collider.com/brad-pitt-world-war-z-streaming-hit-paramount-plus-october-2026/
+
+As Resident Evil slows down in theaters, a Brad Pitt-led zombie movie is taking over the streaming charts. Read on for details.
+---------
+
+# The 6 Most Intelligent Characters in Classic Movies, Ranked
+
+Movie, Double Indemnity, Billy Wilder, Orson Welles, Classics
+
+Sat, 24 Oct 2026 16:18:15 GMT
+
+https://collider.com/classic-movies-most-intelligent-characters/
+
+Harry Lime in The Third Man and Phyllis Dietrichson in Double Indemnity are among the most intelligent characters in classic movies.
+---------
+
+# Russell Crowe’s ‘Mindhunter’ Replacement Officially Loses Steam
+
+Movie News, Russell Crowe, Unabomber, Netflix, Mindhunter
+
+Sat, 24 Oct 2026 16:00:15 GMT
+
+https://collider.com/unabomber-russell-crowe-netflix-top-10-drop-october-2026/
+
+Russell Crowe’s Unabomber ends its Netflix Top 10 run after becoming one of the streamer’s latest true-crime thrillers.
+---------
+
+# ’Saturday Night Live’s Most Unexpected Reinvention Is Your Next Weekend Binge
+
+TV Features, Saturday Night Live UK, Series, SNL, Comedy
+
+Sat, 24 Oct 2026 15:39:15 GMT
+
+https://collider.com/where-to-watch-snl-uk-saturday-night-live-season-2-peacock/
+
+Find out where to watch Saturday Night Live UK Season 2, including streaming options in the U.S., U.K., Canada, Australia, and New Zealand.
+---------
+
+# Jenna Ortega’s New Sci-Fi Movie Officially Removed From 1,000 Theaters in Debut Weekend
+
+Movie News, Jenna Ortega, Taika Waititi, Klara and the Sun, Box Office
+
+Sat, 24 Oct 2026 15:30:15 GMT
+
+https://collider.com/jenna-ortega-klara-and-the-sun-limited-theatrical-run/
+
+Jenna Ortega’s Klara and the Sun arrives in theaters after poor early reviews and a limited opening footprint.
+---------
+
+# Prime Video’s Most Rewatchable Fantasy Series Is Making a Major Shift in Season 3
+
+TV Features, The Lord of the Rings: The Rings of Power, Prime Video, J.R.R. Tolkien, Fantasy
+
+Sat, 24 Oct 2026 15:24:15 GMT
+
+https://collider.com/rings-of-power-season-3-story-time-jump/
+
+Prime Video's The Rings of Power is set to make a major shift in Season 3 with a time jump that will redefine Middle-earth.
+---------
+
+# Netflix’s Answer to ‘Slow Horses’ Officially Returns in 10 Days
+
+TV News, Netflix, Black Doves, Slow Horses, Keira Knightley
+
+Sat, 24 Oct 2026 15:00:15 GMT
+
+https://collider.com/black-doves-season-2-netflix-release-date-november-5/
+
+Black Doves Season 2 brings Keira Knightley and Ben Whishaw back to Netflix in just 10 days.
+---------
+
+# HBO Max Just Added an 8-Part War Thriller for ‘Zero Dark Thirty’ Fans
+
+TV News, High Value Target: The Hunt for Saddam, Joel Kinnaman, HBO Max, Zero Dark Thirty
+
+Sat, 24 Oct 2026 14:30:15 GMT
+
+https://collider.com/high-value-target-joel-kinnaman-hbo-max-streaming-october-2026/
+
+Joel Kinnaman’s 8-part High Value Target: The Hunt for Saddam is now available to stream on HBO Max.
+---------
+
+# Disney’s Biggest Box Office Bomb of 2026 Officially Begins Its Streaming Redemption Arc
+
+Movie News, Moana, Dwayne Johnson, Disney+, Box Office
+
+Sat, 24 Oct 2026 14:00:15 GMT
+
+https://collider.com/moana-2026-disney-plus-streaming-box-office-redemption/
+
+Disney’s live-action Moana arrives on Disney+ after an underwhelming theatrical run that earned nearly $324 million worldwide.
+---------
+
+# Netflix's 8-Part Sci-Fi Sleeper Hit Delivers the Best Lovecraftian Horror of the 2020s
+
+Features, Archive 81, Horror, Thriller, H.P. Lovecraft, Lovecraft Country, Netflix
+
+Sat, 24 Oct 2026 17:00:19 GMT
+
+https://movieweb.com/archive-81-streaming-recommendation/
+
+The underrated cosmic horror show is perfect for a weekend binge-watch, and readers of H.P. Lovecraft will not be disappointed.
+---------
+
+# Jason Statham & Mark Wahlberg's 111-Minute Action Thriller Remake Lands on Streaming Ahead of Sequel
+
+Movie News, The Italian Job, Jason Statham, Mark Wahlberg, Action, Thriller
+
+Sat, 24 Oct 2026 16:00:19 GMT
+
+https://movieweb.com/the-italian-job-statham-wahlberg-streaming-october-2026/
+
+After 23 years, Jason Statham and Mark Wahlberg's blockbuster action thriller remake is finally getting the sequel it deserves.
+---------
+
+# Brad Pitt's 'Once Upon a Time in Hollywood' Sequel Officially Debuts Its Gritty First 17 Minutes
+
+Movie News, Quentin Tarantino, The Further Mis-Adventures of Cliff Booth, David Fincher, Drama, Comedy
+
+Sat, 24 Oct 2026 15:42:42 GMT
+
+https://movieweb.com/mis-adventures-of-cliff-booth-preview/
+
+Tarantino wants Cliff Booth's adventures to continue beyond movies.
+---------
+
+# Anya Taylor-Joy's 110-Minute Thriller With a Mind-Blowing Twist To Seek Redemption on Free Streaming
+
+Movie News, Anya Taylor-Joy, Marrowbone, Thriller, Tubi, Coming/Leaving Streaming
+
+Sat, 24 Oct 2026 15:00:18 GMT
+
+https://movieweb.com/marrowbone-anya-taylor-joy-stream-free-tubi-november-2026/
+
+Seriously, that twist will re-arrange your brain.
+---------
+
+# 10 Greatest Non-Western Movies Clint Eastwood Ever Made
+
+Movie Lists, Clint Eastwood, Action, Thriller, War, Drama, Western
+
+Sat, 24 Oct 2026 15:00:18 GMT
+
+https://movieweb.com/clint-eastwood-best-non-western-movies/
+
+Clint Eastwood is known for his classic Westerns, but he's excelled across every genre as an award-winning actor and director.
+---------
+
+# Doctor Doom Officially Takes Over in New Avengers: Doomsday Teaser as Two Captain Americas Reunite
+
+Movie News, Doctor Doom, Avengers: Doomsday, Action, Superhero
+
+Sat, 24 Oct 2026 14:51:40 GMT
+
+https://movieweb.com/avengers-doomsday-world-series-teaser/
+
+The newest Avengers: Doomsday footage leans more on spectacle than story.
+---------
+
+# The Best World War II Series Since ‘Band of Brothers’ Is a $250 Million Epic You Can Binge in a Weekend
+
+Features, Masters of the Air, Band of Brothers, The Pacific, Steven Spielberg, War, Tom Hanks, Action, Thriller, Saving Private Ryan
+
+Sat, 24 Oct 2026 14:00:17 GMT
+
+https://movieweb.com/masters-of-the-air-streaming-recommendation/
+
+'Band of Brothers,' the HBO war miniseries from Tom Hanks and Steven Spielberg, is excellent, but so is this high-budget World War ii series.
+---------
+
 # 37 Years After Their Debut, Star Trek Officially Redeems The Borg
 
 Comics, Star Trek, IDW Publishing
