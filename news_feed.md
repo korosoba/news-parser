@@ -1,3 +1,421 @@
+# 39 Years Later, Calvin And Hobbes' Best Quote On Grief Is Still Undefeated
+
+Comics, Calvin and Hobbes
+
+Sun, 25 Oct 2026 17:37:55 GMT
+
+https://screenrant.com/calvin-and-hobbes-best-quote-grief/
+
+When it comes to grief, Calvin and Hobbes delivered one of the best quotes in comic strip history. But be warned: you’ll likely need a box of tissues.
+---------
+
+# Bloodborne Gets PS1 Treatment In New Steam RPG You Can Try Free
+
+Gaming, Steam, RPG, Indie Games
+
+Sun, 25 Oct 2026 17:31:19 GMT
+
+https://screenrant.com/steam-rpg-play-free-demo-bloodborne-meets-ps1/
+
+A new RPG on Steam is what Bloodborne on PlayStation 1 would look like, and if you’re a fan of gothic soulslikes, you can try it for free now.
+---------
+
+# The Character Exit That Hurt Battlestar Galactica The Most
+
+Classic TV, Battlestar Galactica
+
+Sun, 25 Oct 2026 17:31:19 GMT
+
+https://screenrant.com/the-character-exit-that-hurt-battlestar-galactica-the-most/
+
+One tragic Battlestar Galactica exit had long-term negative consequences, harming other characters and sparking divisive storylines.
+---------
+
+# 7 Reasons Why Cassie Cain is DC’s Most Underrated Hero
+
+Comics, Batgirl, DC Comics
+
+Sun, 25 Oct 2026 17:31:19 GMT
+
+https://screenrant.com/why-cassie-cain-dc-most-underrated-hero-batgirl/
+
+Though she might not be as well known as Barbara Gordon, Cassie Cain is one of DC's most underrated heroes and one of the Bat Family's best fighters.
+---------
+
+# 10 MCU Characters Who Deserve A Comeback As Much As Star-Lord
+
+Movies, Marvel Cinematic Universe
+
+Sun, 25 Oct 2026 17:17:03 GMT
+
+https://screenrant.com/mcu-characters-comeback-starlord/
+
+Chris Pratt has confirmed Star-Lord's MCU return is in the works. These Marvel characters deserve the same second chance to shine on the big screen.
+---------
+
+# Hugh Jackman’s Underrated Adaptation Of 8-Novel Fantasy Franchise Returns To Streaming In 2 Weeks
+
+Movies, Rise of the Guardians
+
+Sun, 25 Oct 2026 17:01:20 GMT
+
+https://screenrant.com/hugh-jackman-rise-of-the-guardians-hbo-max-streaming-release-november-2026/
+
+Hugh Jackman's underrated adaptation of an eight-novel fantasy franchise returns to streaming in just two weeks.
+---------
+
+# The Rings Of Power Replacing Galadriel Creates A Problem For Season 3
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Sun, 25 Oct 2026 17:01:20 GMT
+
+https://screenrant.com/the-rings-of-power-sauron-replace-galadriel-problem/
+
+Prime Video stakes huge budget on a prequel that shifts focus from Galadriel to an increasingly sympathetic version of LotR's most iconic villain.
+---------
+
+# Wildwood Star & Authors Address Sequel Chances After 100% RT Score
+
+Movies, Wildwood
+
+Sun, 25 Oct 2026 16:55:52 GMT
+
+https://screenrant.com/wildwood-movie-sequel-colin-meloy-carson-ellis-peyton-elizabeth-lee-response/
+
+EXCLUSIVE: After receiving a 100% score on Rotten Tomatoes, the Wildwood cast and authors address whether there will be a movie sequel.
+---------
+
+# ABC Does Right By Its Longest-Running Series After 19 Years
+
+Network TV, Grey's Anatomy
+
+Sun, 25 Oct 2026 16:45:19 GMT
+
+https://screenrant.com/greys-anatomy-texas-spinoff-break-19-year-medical-spinoff-drought/
+
+Loyal viewers want the same genre but in a different setting when it comes to television franchises, and that's something ABC is realizing.
+---------
+
+# Game Of Thrones Universe Star Reportedly Joining MCU's X-Men Reboot In Key Role
+
+Movies, X-Men
+
+Sun, 25 Oct 2026 16:43:45 GMT
+
+https://screenrant.com/xmen-beast-peter-claffey-casting-a-knight-of-the-seven-kingdoms-report/
+
+Marvel's X-Men reboot has reportedly added A Knight of the Seven Kingdoms star to its cast ahead of the highly anticipated Avengers: Doomsday release.
+---------
+
+# CBS's Fall Schedule Confirms Matlock’s Replacement Series
+
+TV, Matlock, Cupertino, CBS
+
+Sun, 25 Oct 2026 17:30:14 GMT
+
+https://www.cbr.com/cupertino-cbs-new-legal-drama/
+
+CBS has a replacement for its outstanding legal series as audiences await new episodes of Matlock Season 3 amid its scheduling setback.
+---------
+
+# 10 Greatest Franchises You Didn't Know Had a TCG
+
+Games, Tabletop, Naruto, Game Of Thrones, Innovation, TCG
+
+Sun, 25 Oct 2026 17:15:14 GMT
+
+https://www.cbr.com/greatest-franchises-you-didnt-know-had-a-tcg/
+
+Everyone has heard of Magic: The Gathering, Pokemon, and Yu-Gi-Oh!, but several incredible franchises also had trading card games lost to time.
+---------
+
+# Animal Crossing Returns With New 25th Anniversary Collection Available Now
+
+Games, Nintendo, Animal Crossing
+
+Sun, 25 Oct 2026 17:05:14 GMT
+
+https://www.cbr.com/animal-crossing-returns-new-anniversary-collection-available-now/
+
+Animal Crossing fans don't need to wait any longer for a new release, as one is available today.
+---------
+
+# What's Coming to Peacock in November 2026? Everything Arriving Next Month
+
+TV, Peacock
+
+Sun, 25 Oct 2026 17:00:14 GMT
+
+https://www.cbr.com/what-coming-peacock-november-2026-full-list/
+
+November comes with a lot of reasons to be thankful for Peacock.
+---------
+
+# Peter Krause’s New NBC Crime Drama Is TV's New Anti-Blue Bloods
+
+TV, Line of Fire, NBC, Innovation
+
+Sun, 25 Oct 2026 16:30:14 GMT
+
+https://www.cbr.com/nbc-line-of-fire-peter-krause-new-crime-drama/
+
+Blue Bloods has been a television staple for 14 seasons, but this Peter Krause-led action thriller is aiming to be TV's newest cornerstone drama.
+---------
+
+# 10 Flawless Action Anime That Are Perfect From Start To Finish
+
+Anime, Naruto, Attack on Titan
+
+Sun, 25 Oct 2026 16:15:15 GMT
+
+https://www.cbr.com/flawless-action-anime-perfect-from-start-to-finish/
+
+These masterpiece action anime keep their audience entertained with every episode.
+---------
+
+# Netflix's 7-Part Americana Series Becomes a Streaming Hit With 39% Increase
+
+TV, East of Eden, Netflix, Television
+
+Sun, 25 Oct 2026 16:00:15 GMT
+
+https://www.cbr.com/netflix-east-of-eden-nielsen-october-2026/
+
+One of Netflix's newest shows is gaining even more popularity a week after its release.
+---------
+
+# Batman Becomes Joker in DC's New Justice League Collection Featuring Superman and Wonder Woman
+
+Anime, Batman, Superman, merchandise
+
+Sun, 25 Oct 2026 16:00:15 GMT
+
+https://www.cbr.com/dc-justice-league-batman-joker-reversible-plush/
+
+Just in time for Halloween, DC unleashes a new Justice League collection in which Batman becomes his own worst enemy.
+---------
+
+# 5 Most Original Sci-Fi Movies Of All Time, Ranked
+
+Movies, Sci-Fi, 2001: A Space Odyssey, Everything Everywhere All at Once
+
+Sun, 25 Oct 2026 16:00:15 GMT
+
+https://www.cbr.com/most-original-sci-fi-movies-ranked-list/
+
+There are so many sci-fi movies out there, it's often hard to find something truly original, but these movies are some of the genre's strongest ever.
+---------
+
+# It's Officially The End of an Era For Judge Dredd
+
+Comics, Judge Dredd, Action
+
+Sun, 25 Oct 2026 15:42:16 GMT
+
+https://www.cbr.com/officially-the-end-of-an-era-for-judge-dredd/
+
+Decades later, things are about have changed wildly for Judge Dredd.
+---------
+
+# 29 Years Later, Lee Child Officially Steps Away From Writing Jack Reacher [Exclusive]
+
+Books and Comics News, Reacher, Jack Reacher, Lee Child
+
+Sun, 25 Oct 2026 17:30:15 GMT
+
+https://collider.com/reacher-lee-child-confirms-departure-book-series/
+
+Lee Child reveals why he stepped away from writing Jack Reacher and explains why giving the character to another author feels natural.
+---------
+
+# 10 Movies That Were Genuine Monocultural Events
+
+Movie, Barbie, Avengers: Endgame, Oppenheimer, Box Office
+
+Sun, 25 Oct 2026 17:04:15 GMT
+
+https://collider.com/movies-monocultural-events/
+
+Enormously successful movies like Barbie, Goldfinger, and Avengers: Endgame achieved true monocultural status.
+---------
+
+# Forget ‘Scream,’ This Beloved ‘90s Sitcom Has a Near-Perfect 23-Minute Slasher
+
+TV Features, Boy Meets World, ABC, Scream, Horror
+
+Sun, 25 Oct 2026 16:43:15 GMT
+
+https://collider.com/best-tv-halloween-episode-boy-meets-world-scream-inspired/
+
+Boy Meets World delivered a Scream-inspired slasher episode that's still one of the best Halloween watches nearly 30 years later.
+---------
+
+# Taylor Sheridan’s ‘Yellowstone’ Spin-Off Will Officially Not Return in 2026
+
+Movie News, Dutton Ranch, Yellowstone, Taylor Sheridan, Paramount Plus
+
+Sun, 25 Oct 2026 16:30:14 GMT
+
+https://collider.com/taylor-sheridan-yellowstone-spin-off-dutton-ranch-season-2-release-window-2027/
+
+Taylor Sheridan's best Yellowstone spin-off will not return in 2026 despite being renewed for Season 2 much earlier in the year.
+---------
+
+# Every Christopher Nolan Sci-Fi and Fantasy Movie, Ranked
+
+Movie, The Odyssey, Christopher Nolan, Interstellar, Inception
+
+Sun, 25 Oct 2026 16:23:15 GMT
+
+https://collider.com/christopher-nolan-sci-fi-fantasy-movies-ranked/
+
+Christopher Nolan has directed five movies classified as either sci-fi or fantasy, including Inception and The Odyssey, but which one's the best?
+---------
+
+# Forget 'The White Lotus,' This 4-Episode Thriller Miniseries Is the Perfect Replacement
+
+TV Features, Heat, The White Lotus, Thriller, Mike White
+
+Sun, 25 Oct 2026 16:23:15 GMT
+
+https://collider.com/the-white-lotus-replacement-series-heat-miniseries-danny-dyer/
+
+In 2023, Channel 5 released the one-season miniseries Heat, and it’s a must-watch for The White Lotus fans.
+---------
+
+# DC Mastered the Formula Marvel Couldn't Figure Out
+
+Movie Features, Clayface, DC, Horror, Marvel
+
+Sun, 25 Oct 2026 16:06:15 GMT
+
+https://collider.com/clayface-dc-horror-marvel-superhero/
+
+DC's Clayface finally figured out how to tell a villain story in a way Marvel wasn't able to, centering the story on a specific genre.
+---------
+
+# DC’s First Horror Movie Officially Breaks Franchise's Box Office Slump
+
+Movie News, Clayface, Box Office, Horror, DCU
+
+Sun, 25 Oct 2026 16:00:15 GMT
+
+https://collider.com/clayface-box-office-opening-25-million-dc-studios/
+
+Clayface gets off to a solid start at the domestic box office as DC Studios looks for its next theatrical hit.
+---------
+
+# Disney+'s Fantasy Series Is a Streaming Hit on Netflix 1 Month Before Its Return
+
+TV Features, Percy Jackson & the Olympians, Percy Jackson & The Olympians, Netflix, Disney+
+
+Sun, 25 Oct 2026 15:54:15 GMT
+
+https://collider.com/percy-jackson-and-the-olympians-disney-plus-netflix-charts/
+
+Percy Jackson and the Olympians is finding a new life on Netflix, and now is the perfect time to binge the series before Season 3 premieres.
+---------
+
+# A24’s 3-Hour Viral Sensation Is Officially Becoming a Box Office Monster
+
+Movie News, You Can See Everything, Nathan Fielder, Box Office, A24
+
+Sun, 25 Oct 2026 15:30:15 GMT
+
+https://collider.com/you-can-see-everything-box-office-45-million-a24/
+
+A24’s You Can See Everything expands nationwide after a $15.6 million opening and more than $25 million in its first week.
+---------
+
+# Audiences Have Picked Their 007 Frontrunner and He Already Wields a License to Kill
+
+Movie News, James Bond, James Bond 26, Action, Thriller
+
+Sun, 25 Oct 2026 17:22:13 GMT
+
+https://movieweb.com/james-bond-jack-lowden-casting-frontrunner/
+
+A reported 007 frontrunner is dominating the predictive markets.
+---------
+
+# 5 Best 'Calvin and Hobbes' Comics That Reference TV Shows
+
+Movie Lists, Calvin and Hobbes, comics
+
+Sun, 25 Oct 2026 17:00:18 GMT
+
+https://movieweb.com/best-calvin-hobbes-comics-tv/
+
+While Bill Watterson rarely leaned on pop culture references, television played a major role in Calvin's imagination.
+---------
+
+# CBS' New Military Action Series Is Already One of TV's Most-Watched
+
+TV News, NCIS: New York, Crime
+
+Sun, 25 Oct 2026 16:37:21 GMT
+
+https://movieweb.com/ncis-new-york-ratings-cbs/
+
+CBS' newest military spinoff got off to a very strong start.
+---------
+
+# Highest-Rated 174-Minute Masterpiece Is Surging at the Box Office on Its Way to a Century Milestone
+
+Movie News, You Can See Everything, Documentary, Nathan Fielder, Box Office, Movie Theaters
+
+Sun, 25 Oct 2026 16:35:51 GMT
+
+https://movieweb.com/you-can-see-everything-box-office/
+
+The movie's success is part of a broader success story for theaters in 2026.
+---------
+
+# Jason Statham's 116-Minute 'The Equalizer' Substitute Action Thriller Remains a Global Streaming Hit
+
+Movie News, Jason Statham, A Working Man, Action, Thriller, Hot on Streaming, The Equalizer
+
+Sun, 25 Oct 2026 16:30:17 GMT
+
+https://movieweb.com/a-working-man-jason-statham-prime-video-stream-october-2026/
+
+The Stath is once again drawn out of the shadows to use his particular set of skills.
+---------
+
+# Netflix Scores Big With New Near-Perfect Action Thriller Series That's Officially a Global Smash Hit
+
+TV News, Netflix, Lupin, Crime
+
+Sun, 25 Oct 2026 15:18:59 GMT
+
+https://movieweb.com/lupin-netflix-season-4-ratings/
+
+This long-running heist show is back with a new season, and viewers don't seem to mind the long wait.
+---------
+
+# Near-Perfect Cyberpunk Sci-Fi Thriller Is Only 107 Minutes Long and It's Being Cut From Free Streaming
+
+Movie News, The Terminator, Thriller, Sci-Fi, Coming/Leaving Streaming
+
+Sun, 25 Oct 2026 15:00:18 GMT
+
+https://movieweb.com/the-terminator-sci-fi-stream-tubi-november-2026/
+
+You only have a few days left to watch the classic that changed science fiction forever.
+---------
+
+# 8 Near-Perfect Prime Video Thriller Miniseries That Get More Intense With Each Episode
+
+TV Lists, Thriller, Prime Video
+
+Sun, 25 Oct 2026 15:00:18 GMT
+
+https://movieweb.com/prime-video-thriller-miniseries-intense/
+
+Prime Video has many great shows, including a few excellent miniseries where each episode brilliantly builds on the previous one's stakes.
+---------
+
 # Anne Hathaway's Lowest-Grossing Movie Of The Year Takes The World By Storm On HBO Max
 
 Movies, Anne Hathaway, Masked Recs
