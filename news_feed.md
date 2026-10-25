@@ -1,3 +1,388 @@
+# After 3 Years, Netflix’s 25-Part Heist Thriller 'Lupin' Is One Of Its Best To Binge Again
+
+Streaming TV, Masked Recs
+
+Sun, 25 Oct 2026 22:33:19 GMT
+
+https://screenrant.com/netflix-lupin-season-4-best-shows-binge-watch/
+
+Lupin Part 4 is now streaming on Netflix, bringing the Omar Sy heist thriller to 25 episodes after a three-year wait between new installments.
+---------
+
+# The Weirdest Sci-Fi Series Of All Time Makes Surprise Return January 2027
+
+Comics, Sci-Fi
+
+Sun, 25 Oct 2026 22:30:19 GMT
+
+https://screenrant.com/bulletproof-coffin-return-giant/
+
+An overlooked sci-fi franchise officially returns in just two months, launching a new line-up of science fiction series in January 2027.
+---------
+
+# 8 Sitcoms From The 1990s That Have Aged Horribly
+
+Classic TV, Sitcoms
+
+Sun, 25 Oct 2026 22:30:19 GMT
+
+https://screenrant.com/1990s-sitcoms-aged-horribly/
+
+The 1990s brought us some gamechanging sitcoms with iconic characters, but despite our fond memories, not all of them have aged well.
+---------
+
+# Cyclops' Most Powerful X-Men Team Of All Time Explained, All Members and Powers
+
+Comics, X-Men
+
+Sun, 25 Oct 2026 22:30:19 GMT
+
+https://screenrant.com/x-men-most-powerful-roster-cyclops-extinction-team/
+
+Cyclops pulled together a roster of troubled heroes and former villains.
+---------
+
+# 80 Years Later, One Of The Greatest WW2 Movies Ever Is Waiting To Be Discovered On Free Streaming
+
+Movies, Masked Recs, War, The Best Years of Our Lives
+
+Sun, 25 Oct 2026 22:26:19 GMT
+
+https://screenrant.com/the-best-years-of-our-lives-world-war-2-movie-streaming-free-october-2026/
+
+Released in 1946, this Oscar-winning WW2 drama explores the struggles of returning veterans and remains a powerful classic available free on streaming
+---------
+
+# 12 Greatest Opening Lines In TV Shows
+
+Classic TV
+
+Sun, 25 Oct 2026 22:15:18 GMT
+
+https://screenrant.com/best-opening-lines-tv-shows/
+
+From Friends to Game of Thrones to the reimagined Battlestar Galactica, these classic TV shows kicked off with the perfect opening line.
+---------
+
+# Emmy Nominated Actor Peggy King Dies At 96
+
+TV, The George Gobel Show
+
+Sun, 25 Oct 2026 22:11:38 GMT
+
+https://screenrant.com/peggy-king-death-obituary/
+
+Emmy Award nominated actor and musician has sadly passed away at the age of 96 on October 25, 2026.
+---------
+
+# DC's Strongest Lantern Color Makes Green Look Positively Pathetic
+
+Comics, Green Lantern, DC
+
+Sun, 25 Oct 2026 22:00:19 GMT
+
+https://screenrant.com/dc-strongest-lantern-color-gold/
+
+A gold standard.
+---------
+
+# Pokémon X & Y Legacy Releasing November 2026
+
+Gaming, Pokemon
+
+Sun, 25 Oct 2026 22:00:19 GMT
+
+https://screenrant.com/pokemon-x-y-legacy-november-2026-release/
+
+Pokémon X & Y are some of the more underrated games in the series to date, and a new release brings it back to the fore in a whole new way.
+---------
+
+# Jonathan Nolan's 36-Episode Sci-Fi Thriller Was This Close To Greatness
+
+TV, Jonathan Nolan
+
+Sun, 25 Oct 2026 21:58:19 GMT
+
+https://screenrant.com/westworld-jonathan-nolan-sci-fi-thriller-almost-great/
+
+Jonathan Nolan's sprawling HBO sci fi show brimming with cinematic ambition enthralled viewers early on, so what went wrong for the series?
+---------
+
+# Attack on Titan Officially Returns December 9
+
+Games, Attack on Titan, Innovation
+
+Sun, 25 Oct 2026 22:40:15 GMT
+
+https://www.cbr.com/attack-on-titan-officially-returns-december-9/
+
+Attack on Titan is returning for the first time since the series ended with a brand-new game featuring Eren, Levi, and Mikasa.
+---------
+
+# Robert Downey Jr.'s Best Non-Marvel Action Film Sets Frustrating HBO Max Release
+
+Movies, Sherlock Holmes: A Game of Shadows, HBO Max
+
+Sun, 25 Oct 2026 22:30:14 GMT
+
+https://www.cbr.com/robert-downey-jr-sherlock-holmes-a-game-of-shadows-hbo-max-november-2026/
+
+Downey's role as one of the most famous character of all time is coming to HBO Max in a frustrating way.
+---------
+
+# 10 Best Video Games Set In Japan
+
+Games, Ghost of Tsushima, Sekiro: Shadows Die Twice, Fatal Frame, Video Games, JRPG
+
+Sun, 25 Oct 2026 22:15:14 GMT
+
+https://www.cbr.com/best-video-games-set-in-japan/
+
+Not all video games are based in real-world countries or cities, but the following titles are the best to feature the beautiful country of Japan.
+---------
+
+# Studio Ghibli Brings Back Howl's Moving Castle's Coziest Release of All Time on November 1
+
+Anime, Howl's Moving Castle, Studio Ghibli, HBO Max
+
+Sun, 25 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/studio-ghibli-howls-moving-castle-calcifers-yule-log-hbo-max-november-2026/
+
+This November, HBO Max revives a classic Ghibli video that lets Howl's Moving Castle fans get snug and cozy with with Calcifer the fire demon.
+---------
+
+# 8 Most Unwatchable Movies of 2026, Ranked
+
+Movies, Sci-Fi, Horror, Mercy
+
+Sun, 25 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/most-unwatchable-movies-2026-ranked-list/
+
+2026 might have given audiences some instant classics, but there are plenty of movies that are so bad they’re downright unwatchable.
+---------
+
+# 10 Best Star Wars Comics For Fans Of The Clone Wars
+
+Comics, Star Wars: The Clone Wars
+
+Sun, 25 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/best-star-wars-comics-for-fans-of-the-clone-wars/
+
+Star Wars: The Clone Wars is a classic Lucasfilm animated series and these comics help to reframe that story.
+---------
+
+# 5 Years Later, the MCU's Best Line Hits Harder Than Ever
+
+TV, MCU, VisionQuest, WandaVision
+
+Sun, 25 Oct 2026 22:00:14 GMT
+
+https://www.cbr.com/visionquest-wandavision-best-mcu-quote/
+
+One of the best quotes in the history of the MCU is officially coming back in a big way.
+---------
+
+# The Next Lord of the Rings-Level Movie Franchise Has Been Revealed
+
+Movies, Fantasy, The Lord of the Rings, Innovation
+
+Sun, 25 Oct 2026 21:45:14 GMT
+
+https://www.cbr.com/barrie-osborne-lotr-replacement-war-of-the-drakons-movie/
+
+This upcoming project from the producer of The Lord of the Rings may become the greatest fantasy event since Peter Jackson's trilogy.
+---------
+
+# Tim Burton’s 105-Minute Blade Rival Exits Streaming Next Week
+
+Movies, Abraham Lincoln: Vampire Hunter
+
+Sun, 25 Oct 2026 21:30:14 GMT
+
+https://www.cbr.com/abraham-lincoln-vampire-hunter-leaving-hbo-max-november-2026/
+
+One of the most divisive historical fiction epics in film history is about to lose its biggest streaming home, but not until after Halloween.
+---------
+
+# DC Unveils Its Commissioner Gordon Replacement Before James Gunn's Batman Reboot
+
+Movies, Clayface, Batman, James Gunn, Innovation
+
+Sun, 25 Oct 2026 21:30:14 GMT
+
+https://www.cbr.com/clayface-dcu-batman-commissioner-gordon-replacement/
+
+Clayface might be sparing with its references to the wider DC world, but it does boast one character who is extremely Jim Gordon-coded.
+---------
+
+# James McAvoy’s Twisted Horror Nightmare Officially Conquers Streaming
+
+Movie News, James McAvoy, Speak No Evil, Horror, HBO Max
+
+Sun, 25 Oct 2026 22:30:14 GMT
+
+https://collider.com/james-mcavoy-speak-no-evil-streaming-hit-hbo-max-october-2026/
+
+James McAvoy's horror remake Speak No Evil is proving popular on the global HBO Max charts.
+---------
+
+# Nicolas Cage Officially Unveils Trailer for His Strangest Movie Yet
+
+Movie News, Nicolas Cage, Nic Cage, Adventure, Justin Long
+
+Sun, 25 Oct 2026 22:15:14 GMT
+
+https://collider.com/nicolas-cage-horror-best-pancakes-in-the-county-trailer/
+
+Nicolas Cage, Justin Long, and Shelley Hennig star in the Best Pancakes in the County trailer, ahead of its November 20 release.
+---------
+
+# The 10 Best Network TV Miniseries of All Time, Ranked
+
+TV, TV Miniseries, Roots, Lonesome Dove, The Stand
+
+Sun, 25 Oct 2026 21:46:15 GMT
+
+https://collider.com/best-network-tv-miniseries-all-time-ranked/
+
+From Roots to Lonesome Dove, these network miniseries are the very best.
+---------
+
+# The 10 Best Star Wars Songs of All Time, Ranked
+
+Movie, Music, Star Wars, Star Wars: Episode IV - A New Hope, John Williams
+
+Sun, 25 Oct 2026 21:42:15 GMT
+
+https://collider.com/star-wars-best-diegetic-songs-ranked/
+
+The best diagetic, in-universe songs from the Star Wars franchise include "Niamos!" from Andor and "Cantina Band" from the original 1977 movie.
+---------
+
+# 'Clayface' Director Officially Confirms the Tragic Meaning Behind the DCU Horror Movie's Ending
+
+Exclusives, Clayface, james watkins, Tom Rhys Harries, DCU
+
+Sun, 25 Oct 2026 21:38:04 GMT
+
+https://collider.com/clayface-movie-ending-meaning-director-james-watkins/
+
+Clayface director James Watkins officially breaks down the DCU horror movie's devastating ending. Read on for more.
+---------
+
+# Rebecca Ferguson's Sci-Fi Ridley Scott Replacement Officially leaves Free Streaming
+
+Movie News, Rebecca Ferguson, Ridley Scott, Life, Tubi
+
+Sun, 25 Oct 2026 21:30:15 GMT
+
+https://collider.com/rebecca-ferguson-sci-fi-alien-replacement-life-leaving-tubi-november-2026/
+
+Rebecca Ferguson's Alien-inspired sci-fi thriller Life is about to be removed from its free streaming home. Find out more.
+---------
+
+# Guy Ritchie's Forgotten Medieval Fantasy Is Officially Being Removed From Free Streaming
+
+Movie News, Guy Ritchie, King Arthur: Legend of the Sword, Charlie Hunnam, Tubi
+
+Sun, 25 Oct 2026 21:15:15 GMT
+
+https://collider.com/guy-ritchie-king-arthur-legend-of-the-sword-leaving-tubi-november-2026/
+
+Guy Ritchie's ambitious franchise-starter, King Arthur: Legend of the Sword, is about to be removed from its free streaming home. Find out more.
+---------
+
+# 25 Years Later, the Greatest Spy Thriller of the 21st Century Is a Streaming Hit
+
+TV Features, 24, Kiefer Sutherland, Thriller, Elisha Cuthbert
+
+Sun, 25 Oct 2026 21:14:15 GMT
+
+https://collider.com/24-series-streaming-hit-apple-tv-store/
+
+Network dramas hit their peak with 24, the real-time series about counter counter-terrorism agent, Jack Bauer.
+---------
+
+# Ridley Scott's ‘Blade Runner’ Sequel Series Officially Hits Prime Video in 1 Month
+
+TV News, Blade Runner, Blade Runner 2049, Blade Runner 2099, Sci-Fi
+
+Sun, 25 Oct 2026 21:00:15 GMT
+
+https://collider.com/ridley-scott-blade-runner-2099-prime-video-release-date-november-2026/
+
+The new series in Ridley Scott's Blade Runner franchise, starring Michelle Yeoh and Hunter Schafer, is almost upon us. Find out more here.
+---------
+
+# ‘Obsession’ Director Explains Why His Next Horror Movie Deserves a “Free Pass” [Exclusive]
+
+Movie News, Anything But Ghosts, Curry Barker, Horror, Obsession
+
+Sun, 25 Oct 2026 20:45:14 GMT
+
+https://collider.com/obsession-curry-barker-anything-but-ghosts-update/
+
+Curry Barker discusses following Obsession with Anything But Ghosts, the pressure of success, and his interest in television.
+---------
+
+# New 8-Part Steamy Fantasy Thriller Series Scores Big With Audiences on Rotten Tomatoes
+
+TV News, Yaga, Horror, AMC+
+
+Sun, 25 Oct 2026 22:31:24 GMT
+
+https://movieweb.com/amc-yaga-rotten-tomatoes-score/
+
+A new witch series right in time for Halloween? Say less.
+---------
+
+# 7 Old-School Westerns That Are Now Unwatchable
+
+Movie Lists, Western, Action, Thriller, Rio Grande, The Alamo, Cimarron, Apache, Seven Brides for Seven Brothers, A Man Called Horse
+
+Sun, 25 Oct 2026 21:30:18 GMT
+
+https://movieweb.com/old-westerns-unwatchable/
+
+These classic yet controversial westerns have aged so poorly that they have little redeeming value when viewed through a modern lens.
+---------
+
+# Goodbye 'Tulsa King,' 8-Part "Taylor Sheridan Meets Guy Ritchie" Crime Thriller Is a 100-Day Streaming Hit
+
+TV News, The Westies, Amazon MGM Studios, Hot on Streaming, Taylor Sheridan, Guy Ritchie, Thriller
+
+Sun, 25 Oct 2026 21:00:17 GMT
+
+https://movieweb.com/the-westies-stream-mgm-october-2026/
+
+'Tulsa King' might be taking over Paramount+, but another Taylor Sheridan-esque crime thriller is one of the biggest shows on streaming.
+---------
+
+# The Future of the DCU Officially Addressed as James Gunn Compares It to ‘Star Wars’
+
+Movie News, James Gunn, DCU, Star Wars, Clayface, Man of Tomorrow
+
+Sun, 25 Oct 2026 20:56:42 GMT
+
+https://movieweb.com/james-gunn-dcu-future-star-wars/
+
+James Gunn outlines his approach to the DCU, and admits to being confused over "[p]eople not understanding this."
+---------
+
+# 23 Years Later, Aragorn’s Wisest ‘Lord of the Rings’ Quote Still Has No Equal
+
+Features, The Lord of the Rings, The Lord of the Rings: The Return of the King, Fantasy
+
+Sun, 25 Oct 2026 20:30:17 GMT
+
+https://movieweb.com/lord-of-the-rings-aragorn-quote-bow/
+
+Aragorn's wisest 'Lord of the Rings' quote is the most optimistic of the series, and it perfectly captures why he's the right person to lead.
+---------
+
 # 5 Must-Watch Netflix Anime That Put Most Mainstream Series To Shame
 
 Anime, Netflix
