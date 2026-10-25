@@ -1,3 +1,443 @@
+# 5 Must-Watch Netflix Anime That Put Most Mainstream Series To Shame
+
+Anime, Netflix
+
+Sun, 25 Oct 2026 20:00:19 GMT
+
+https://screenrant.com/must-watch-anime-modern-series-shame/
+
+From deep psychological sci-fi to brilliant fantasy, these Netflix hits easily outshine your favorite mainstream dramas.
+---------
+
+# Russell Crowe & Denzel Washington’s Forgotten Sci-Fi Thriller Sets New Streaming Home
+
+Movies, Virtuosity, Russell Crowe, Denzel Washington
+
+Sun, 25 Oct 2026 20:00:19 GMT
+
+https://screenrant.com/russell-crowe-denzel-washington-virtuosity-paramount-plus-streaming-release-november-2026/
+
+An underrated sci-fi movie starring Oscar winners Denzel Washington and Russell Crowe begins streaming on a brand new platform very soon.
+---------
+
+# Sorry Doctor Strange, But The MCU's Real Horror Story Arrived 4 Years Ago
+
+Classic TV, Halloween 2026, Marvel Cinematic Universe
+
+Sun, 25 Oct 2026 20:00:19 GMT
+
+https://screenrant.com/mcu-real-horror-werewolf-by-night-not-doctor-strange/
+
+Doctor Strange in the Multiverse of Madness wasn't the MCU's first horror story, and the real one arrived just a couple of months later.
+---------
+
+# The Legend Of Zelda: Glass Of Fate Arrives February 2027
+
+Gaming, The Legend of Zelda
+
+Sun, 25 Oct 2026 20:00:19 GMT
+
+https://screenrant.com/legend-of-zelda-glass-of-fate-february-2027-fan-game/
+
+Explore The Glass of Fate, a fan-made Zelda sequel with nostalgic graphics and a captivating story.
+---------
+
+# 10 Near-Perfect Spy Shows On Netflix
+
+Classic TV, Netflix
+
+Sun, 25 Oct 2026 19:45:19 GMT
+
+https://screenrant.com/near-perfect-spy-shows-on-netflix/
+
+Netflix has a library that is overflowing with every genre of TV and film, but there are some standout spy shows that are well worth diving into.
+---------
+
+# 39 Years Later, Ben Matlock’s Best Line Is Still The Coldest In Any Courtroom Drama
+
+Classic TV, Matlock
+
+Sun, 25 Oct 2026 19:30:19 GMT
+
+https://screenrant.com/matlock-original-ben-best-quote-courtroom-tv-show/
+
+Courtroom dramas tend to contain some brilliantly cutting one-liners, and Ben Matlock gave us some of the best, with one perfectly skewering a client
+---------
+
+# Bruno’s Shocking Law & Order: SVU Leave Sets Up Its 600th Episode
+
+Network TV, Law & Order: Special Victims Unit
+
+Sun, 25 Oct 2026 19:15:19 GMT
+
+https://screenrant.com/law-and-order-svu-season-28-bruno-leave-600th-episode-meaning/
+
+Law & Order: SVU delivered a shocking twist when Benson benched Bruno ahead of the 600th episode, raising questions about the milestone episode.
+---------
+
+# Lee Child Officially Quits Reacher Series After 29 Years
+
+Books, Jack Reacher
+
+Sun, 25 Oct 2026 19:09:55 GMT
+
+https://screenrant.com/reacher-lee-child-book-series-departure/
+
+The Jack Reacher franchise has lost a major player, and it has been confirmed after 29 years that Lee Child has officially quit the novel series.
+---------
+
+# Tim Allen’s Adaptation Of 25-Year-Old John Grisham Novel Sets New Streaming Home At The Perfect Time
+
+Movies, Christmas With the Kranks, Tim Allen
+
+Sun, 25 Oct 2026 19:00:18 GMT
+
+https://screenrant.com/tim-allen-john-grisham-christmas-with-the-kranks-hbo-max-streaming-release/
+
+Over two decades after its release, one of Tim Allen’s iconic comedy movies finally finds a new streaming home, just in time for the holiday season.
+---------
+
+# Zelda Meets Valheim And Studio Ghibli In Stunning New Open-World RPG
+
+Gaming, The Legend of Zelda, Valheim, Studio Ghibli, PC, Steam, RPG
+
+Sun, 25 Oct 2026 19:00:18 GMT
+
+https://screenrant.com/zelda-meets-valheim-studio-ghibli-guardians-wild-sky/
+
+This massive new open-world RPG somehow blends Zelda, Valheim, and Studio Ghibli into one beautiful experience well worth playing.
+---------
+
+# Alan Ritchson's New 98-Minute Action Thriller Confirms Streaming Date After Best 2026 RT Score
+
+Movies, Runner
+
+Sun, 25 Oct 2026 20:00:14 GMT
+
+https://www.cbr.com/alan-ritchson-runner-hulu-release-date-november-2026/
+
+The film was recently dominating digital platforms.
+---------
+
+# One Piece Officially Gives Nami a Striking New Design
+
+Anime, One Piece
+
+Sun, 25 Oct 2026 20:00:14 GMT
+
+https://www.cbr.com/one-piece-nami-new-design-kentaro-yabuki/
+
+Nami has always been one of the greatest characters in One Piece, and the pirate icon has now been given a new design.
+---------
+
+# 7 Stanley Kubrick Thrillers Better than The Shining
+
+Movies, Thriller
+
+Sun, 25 Oct 2026 20:00:14 GMT
+
+https://www.cbr.com/stanley-kubrick-thrillers-better-the-shining-list/
+
+Some of Stanley Kubrick's best movies are also his most unsettling, with enough suspense and paranoia to keep audiences on edge decades later.
+---------
+
+# Taylor Sheridan's Call of Duty Is a 'Real Warfare' Movie
+
+Movies, Call of Duty
+
+Sun, 25 Oct 2026 19:40:05 GMT
+
+https://www.cbr.com/taylor-sheridan-call-of-duty-real-warfare-movie/
+
+Director and producer Peter Berg discusses the upcoming Call of Duty feature film and explains how "nuanced" the Modern Warfare story truly is.
+---------
+
+# What's Coming to Hulu in November 2026? Everything Arriving Next Month
+
+TV, Hulu
+
+Sun, 25 Oct 2026 19:30:16 GMT
+
+https://www.cbr.com/what-coming-hulu-november-2026-full-list/
+
+Hulu is getting ready for the holidays already with its November library.
+---------
+
+# 10 Forgotten '90s Anime That Never Went Mainstream
+
+Anime, Innovation
+
+Sun, 25 Oct 2026 19:15:14 GMT
+
+https://www.cbr.com/forgotten-90s-anime-never-went-mainstream/
+
+Hidden OVAs like Phantom Quest Corp. and obscure TV gems like Trouble Chocolate are Forgotten '90s anime that never went mainstream.
+---------
+
+# Adrien Brody's Oscar-Winning Controversial Drama With 93% RT Exits Streaming Next Week
+
+Movies, The Brutalist, HBO Max
+
+Sun, 25 Oct 2026 19:00:14 GMT
+
+https://www.cbr.com/the-brutalist-leaving-hbo-max-november-2026/
+
+One of the most critically acclaimed dramas of the decade is staring down the end of its streaming run on one of the biggest platforms.
+---------
+
+# 5 Greatest 2026 Movies Based on Books, Ranked
+
+Movies, books
+
+Sun, 25 Oct 2026 19:00:14 GMT
+
+https://www.cbr.com/best-2026-movies-based-on-books-list/
+
+2026 has released some incredible movies, but these five book-to-screen adaptations might just rank amongst the best.
+---------
+
+# Darkseid's Plan in DC's Absolute Universe, Explained
+
+Comics, Darkseid, Justice League, Absolute Batman, absolute superman, Superman
+
+Sun, 25 Oct 2026 19:00:14 GMT
+
+https://www.cbr.com/darkseid-real-plan-with-dc-absolute-universe/
+
+Determined to conquer all in his wake, what exactly does Darkseid have planned for the Absolute Universe as worlds begin to collide?
+---------
+
+# 5 Forgotten ’90s TV Thrillers That Deserve a New Audience
+
+TV, Thriller, Nowhere Man, Nightmare Cafe, Innovation
+
+Sun, 25 Oct 2026 19:00:14 GMT
+
+https://www.cbr.com/best-forgotten-90s-tv-thrillers-list/
+
+Thrillers were major TV hits in the '90s, but some shows, such as The Pretender and Nowhere Man, have been overshadowed or lost to time.
+---------
+
+# The Decade's Best Fantasy Spin-Off Is Officially a Surprise HBO Max Sensation
+
+TV News, Outlander: Blood of My Blood, HBO Max, Fantasy, Streaming
+
+Sun, 25 Oct 2026 20:00:15 GMT
+
+https://collider.com/outlander-blood-of-my-blood-streaming-hit-hbo-max-october-2026/
+
+The fantasy spin-off Outlander: Blood of My Blood is a streaming hit once again, but not on the platform you might expect.
+---------
+
+# 7 Years Later, Netflix’s Overlooked Sci-Fi Thriller Is Still a Masterpiece From Start to Finish
+
+TV Features, Travelers, Eric McCormack, Netflix, Sci-Fi
+
+Sun, 25 Oct 2026 19:41:15 GMT
+
+https://collider.com/travelers-netflix-sci-fi-series/
+
+Netflix’s Travelers remains one of the smartest, most emotional sci-fi thrillers you’ve probably never seen.
+---------
+
+# Harry Potter Star's Serial Killer Thriller Is Officially Leaving Its Free Streaming Home
+
+Movie News, Johnny Depp, From Hell, Horror, Robbie Coltrane
+
+Sun, 25 Oct 2026 19:30:16 GMT
+
+https://collider.com/harry-potter-star-robbie-coltrane-horror-from-hell-leaving-tubi-november-2026/
+
+The serial killer thriller film From Hell, starring a Harry Potter icon, is about to be removed from its free streaming home. Find out more.
+---------
+
+# 'Mayor of Kingstown' Star's R-Rated Fantasy Remake Officially Takes Over Paramount+
+
+Movie News, Jeremy Renner, Hansel & Gretel: Witch Hunters, Paramount Plus, Gemma Arterton
+
+Sun, 25 Oct 2026 19:00:14 GMT
+
+https://collider.com/hansel-and-gretel-witch-hunters-streaming-hit-paramount-plus-october-2026/
+
+MCU favorite Jeremy Renner's violent fantasy film Hansel & Gretel: Witch Hunters is a streaming hit on Paramount+.
+---------
+
+# 8 Perfect Netflix Thriller Movies That Hooked Us in the First 5 Minutes
+
+Movie, Rebel Ridge, The Guilty, Netflix, Thriller
+
+Sun, 25 Oct 2026 18:49:15 GMT
+
+https://collider.com/perfect-netflix-thriller-movies-instantly-hooked/
+
+Woman of the Hour, 1922, The Guilty, Rebel Ridge, The Stranger, and more make up our list of Netflix thriller movies that instantly hooked us.
+---------
+
+# All 4 Seasons of 'The Diplomat,' Ranked
+
+TV, The Diplomat, Netflix, Thriller, Drama
+
+Sun, 25 Oct 2026 18:33:15 GMT
+
+https://collider.com/the-diplomat-netflix-seasons-ranked/
+
+The Diplomat, starring Keri Russell, is on the best political thrillers in recent years, with each season raising the stakes of the hit Netflix show.
+---------
+
+# David Tennant’s Chilling 3-Part Crime Thriller Is Officially Leaving Netflix
+
+TV News, Des, David Tennant, Netflix, Mindhunter
+
+Sun, 25 Oct 2026 18:30:14 GMT
+
+https://collider.com/des-david-tennant-mindhunter-replacement-leaving-netflix-november-2026/
+
+An acclaimed British alternative to Mindhunter, starring David Tennant in the lead role, is about to be removed from Netflix. Find out more.
+---------
+
+# Treasure Island: 20 Years of Friendship Made Cruelty Harder | Set Stories
+
+TV, Treasure Island
+
+Sun, 25 Oct 2026 18:16:15 GMT
+
+https://collider.com/video/treasure-island-20-years-of-friendship-made-cruelty-harder-set-stories/
+
+David Oyelowo went to extraordinary lengths to bring Long John Silver to life in Treasure Island, including a physically demanding transformation that took two months to recover from. Alongside Hayley Atwell, who plays Bess Hawkins, Oyelowo takes Collider behind the scenes of the 2026 television adaptation to discuss the practical effects, elaborate sets, and unexpected challenges of playing pirates.
+---------
+
+# Robert De Niro’s 170-Minute Crime Epic Is Officially on Netflix
+
+Movie News, Heat, Michael Mann, Al Pacino, Robert De Niro
+
+Sun, 25 Oct 2026 18:00:14 GMT
+
+https://collider.com/michael-mann-crime-masterpiece-heat-streaming-netflix-october-2026/
+
+Michael Mann's $187M crime classic Heat arrives on Netflix ahead of the anticipated sequel starring Leonardo DiCaprio.
+---------
+
+# BritBox's Hidden Gem 3-Season Crime Series Is Rewriting Its Original Formula With a 'Doctor Who' Star
+
+TV Features, Time, Britbox, Crime, David Tennant
+
+Sun, 25 Oct 2026 17:58:14 GMT
+
+https://collider.com/time-britbox-season-3-formula-change-david-tennant/
+
+BritBox's anthology crime series Time rewrites its formula season after season, with a Doctor Who star joining the cast this time around.
+---------
+
+# Prime Video Scores Big With Hugh Jackman's New "Ridley Scott Meets Logan" R-Rated Action Thriller
+
+Movie News, The Death of Robin Hood, HBO Max, Hot on Streaming, Action, Logan, Ridley Scott
+
+Sun, 25 Oct 2026 20:00:18 GMT
+
+https://movieweb.com/death-of-robin-hood-stream-amazon-october-2026/
+
+Hugh Jackman's intensely violent action thriller is one of the biggest movies on streaming.
+---------
+
+# I Watched Every Harlan Coben Series of the 2020s - Here's All 14, Ranked From Worst to Best
+
+TV Lists, Harlan Coben, Netflix, Thriller, 2020s
+
+Sun, 25 Oct 2026 20:00:18 GMT
+
+https://movieweb.com/harlan-coben-2020s-series-ranked/
+
+Harlan Coben has delivered plenty of twists and turns this decade, and his best series balance the suspense with other great storytelling elements.
+---------
+
+# Ridley Scott's Sci-Fi Masterpiece 25 Years in the Making Gets New Expansion Next Month
+
+Features, Blade Runner 2099, Ridley Scott, Blade Runner, Blade Runner 2049, Sci-Fi, Thriller, Action, Prime Video
+
+Sun, 25 Oct 2026 20:00:18 GMT
+
+https://movieweb.com/blade-runner-2099-upcoming-tease/
+
+RIdley Scott's sci-fi story, which has been influential in the genre for several decades, gets an exciting new release in November 2026.
+---------
+
+# Jacob Tremblay Explains What the 'Wildwood' Ending Really Means
+
+Exclusives, Wildwood, Jacob Tremblay, Adventure, Fantasy, Animation
+
+Sun, 25 Oct 2026 19:59:18 GMT
+
+https://movieweb.com/wildwood-ending-explained/
+
+Laika Studios took a bold swing with a dark fantasy that delved deep into dark and mature themes.
+---------
+
+# It’s Officially the End of an Era for ‘Reacher’ as Its Creator Steps Away After 29 Years
+
+TV News, Reacher, Lee Child, Action, Prime Video
+
+Sun, 25 Oct 2026 19:36:11 GMT
+
+https://movieweb.com/reacher-lee-child-creator-steps-away/
+
+'Reacher' author Lee Child had already been pulling back on the series for years. Now he's out completely.
+---------
+
+# New Fantasy Action-Adventure Masterpiece Is as "Spectacular" as the Spider-Verse Movies
+
+Exclusives, Wildwood, Jake Johnson, Adventure, Fantasy, Animation, Spider-Man: Beyond the Spider-Verse
+
+Sun, 25 Oct 2026 19:33:35 GMT
+
+https://movieweb.com/wildwood-spider-verse-movies-comparison/
+
+With its breathtaking visuals and boundary-pushing style, this animated epic is a must-watch for anyone captivated by the 'Spider-Verse' films.
+---------
+
+# Netflix's 4-Season Action Thriller Beats 'Reacher' At Its Own Game
+
+Features, Action, Thriller, Reacher, The Night Agent
+
+Sun, 25 Oct 2026 19:00:17 GMT
+
+https://movieweb.com/the-night-agent-streaming-recommendation/
+
+A good action thriller needs more than a tough hero and a room full of bad guys, and that's why this Netflix show outshines 'Reacher.'
+---------
+
+# NBC Officially Crowns Its Biggest Show After Premiere Scores 8.8 Million Views
+
+TV News, Chicago Med, Chicago P.D., Chicago Fire, Network TV, Drama
+
+Sun, 25 Oct 2026 18:09:21 GMT
+
+https://movieweb.com/chicago-med-season-12-nbc-ratings/
+
+'Law & Order' creator Dick Wolf strikes again.
+---------
+
+# 7 Great Sci-Fi Books Brandon Sanderson Recommends
+
+Movie Lists, Brandon Sanderson, Sci-Fi
+
+Sun, 25 Oct 2026 18:00:17 GMT
+
+https://movieweb.com/sci-fi-books-brandon-sanderson-recommends/
+
+Brandon Sanderson is known for his beloved fantasy novels like 'Mistborn,' and he has recommended several memorable sci-fi books.
+---------
+
+# Clint Eastwood's Essential 137-Minute Crime Thriller Is Officially Being Cut From Free Streaming
+
+Movie News, Mystic River, Clint Eastwood, Crime, Thriller, Coming/Leaving Streaming
+
+Sun, 25 Oct 2026 18:00:17 GMT
+
+https://movieweb.com/mystic-river-clint-eastwood-stream-november-2026/
+
+This has easily one of the best ensemble casts of the 2000s.
+---------
+
 # 39 Years Later, Calvin And Hobbes' Best Quote On Grief Is Still Undefeated
 
 Comics, Calvin and Hobbes
