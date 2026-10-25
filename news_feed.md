@@ -1,3 +1,377 @@
+# New Fallout 4 Expansion Officially Announced For 2027
+
+Gaming, Fallout, Fallout 4
+
+Sun, 25 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/fallout-4-fathomless-expansion-2027-confirmed/
+
+With a big wait still on the cards for Fallout 5, it's worth checking back into the last game for new stuff coming out next year.
+---------
+
+# 2010's Hit 177-Episode Horror Series Was 1 Change From Perfection
+
+TV, Masked Recs
+
+Sun, 25 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/the-walking-dead-shorter-seasons-perfect/
+
+An acclaimed blockbuster epic, this iconic horror show sadly peaked too quickly and then sagged under sprawling seasons and dwindling momentum.
+---------
+
+# Steam Drops 8/10 Open-World RPG That Mixes Skyrim & Valheim
+
+Gaming, Steam, RPG, Enshrouded, Indie Games, PC
+
+Sun, 25 Oct 2026 04:01:20 GMT
+
+https://screenrant.com/open-world-rpg-skyrim-meets-valheim-enshrouded-release/
+
+A massive open-world RPG with an impressive 8/10 score has just been released on Steam, so if you’re a fan of Skyrim or Valheim, check it out.
+---------
+
+# DC Shares Wild New Green Lantern Design
+
+Comics, Green Lantern
+
+Sun, 25 Oct 2026 03:59:21 GMT
+
+https://screenrant.com/green-lantern-redesign-gauntlet/
+
+One of the most powerful figures tied to Green Lantern lore will appear soon, with their signature weapon changing at least one wearer for the worse.
+---------
+
+# Studio Ghibli's Totoro Returns With Limited Kitchenware Set That's An Instant Must-Buy
+
+Anime, My Neighbor Totoro, Studio Ghibli
+
+Sun, 25 Oct 2026 03:52:32 GMT
+
+https://screenrant.com/my-neighbor-totoro-new-kitchenware-set-ghibli/
+
+Studio Ghibli has reissued a handful of My Neighbor Totoro kitchenware from a limited 2005 collection, and their designs are both adorable and genius.
+---------
+
+# In 3 Months, Apple TV Will Officially Prove There's No Such Thing As An Unfilmable Book
+
+TV, Apple TV
+
+Sun, 25 Oct 2026 03:45:19 GMT
+
+https://screenrant.com/neuromancer-january-2027-apple-tv-unfilmable-book/
+
+Apple TV's most ambitious sci-fi adaptation yet transforms a neon-drenched cyberscape into a vivid, hallucinatory heist packed with noir grit.
+---------
+
+# Prisoners Ending Explained: Does Loki Find Keller?
+
+Movies, Prisoners
+
+Sun, 25 Oct 2026 03:29:19 GMT
+
+https://screenrant.com/prisoners-movie-ending-explained/
+
+Prisoners was released in 2013, by acclaimed director Denis Villeneuve, and has a complex mystery at its center. Here is the film’s ending explained.
+---------
+
+# Shemar Moore’s S.W.A.T. Exiles Rewrites The Franchise’s Rules In “Unchained” Season 2
+
+TV, S.W.A.T. Exiles, Starz
+
+Sun, 25 Oct 2026 03:19:38 GMT
+
+https://screenrant.com/swat-exiles-season-2-starz-more-freedom-shemar-moore-explained/
+
+Shermar Moore reveals that Starz gave S.W.A.T. Exiles the freedom to become even more "unchained" in the upcoming second season of the series.
+---------
+
+# Obsession Director Reveals the Glaring Movie Mistake That Was Too Expensive to Fix
+
+Movies, Obsession
+
+Sun, 25 Oct 2026 03:56:58 GMT
+
+https://www.cbr.com/obsession-movie-mistake-curry-barker/
+
+Viewers won't be able to unsee the movie mistake that was pointed out by director Curry Barker.
+---------
+
+# 5 Strongest New Generation Saiyans in Dragon Ball, Ranked
+
+Anime, Dragon Ball, Innovation
+
+Sun, 25 Oct 2026 03:45:14 GMT
+
+https://www.cbr.com/dragon-ball-strongest-new-generation-saiyans-ranked-list/
+
+Some of the strongest Saiyans in Dragon Ball history are from the new generation.
+---------
+
+# Netflix Quietly Erased a Sci-Fi TV Masterpiece That Deserved Better
+
+TV, Netflix, Altered Carbon, Sci-Fi
+
+Sun, 25 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/netflix-sci-fi-masterpiece-altered-carbon-deserved-better/
+
+Netflix is known for canceling series far too quickly, and one of the popular streamer's biggest sci-fi fumbles deserved much better.
+---------
+
+# The Top 10 Strongest Hunter x Hunter Characters of All Time, Ranked (According to Japan)
+
+Anime, Hunter X Hunter
+
+Sun, 25 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/hunter-x-hunter-strongest-characters-all-time-ranking-japan/
+
+Japan has declared the top ten strongest Hunter x Hunter characters (and more), and the results might not be what fans were expecting.
+---------
+
+# 10 Best Peanuts Comics Featuring Snoopy's Brother Spike
+
+Comics, Peanuts
+
+Sun, 25 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/best-peanuts-comics-featuring-spike-snoopy-brother/
+
+After he was banished by a tribe of coyotes, Peanuts comic strips about Snoopy's brother Spike often explored the themes of boredom and loneliness.
+---------
+
+# 5 Greatest Hard Sci-Fi RPGs of All Time
+
+Games, Video Games, Sci-Fi
+
+Sun, 25 Oct 2026 03:15:14 GMT
+
+https://www.cbr.com/greatest-hard-sci-fi-rpgs-of-all-time/
+
+Games like Colony Ship are the best at bringing hard sci-fi to the gaming world.
+---------
+
+# Dexter: Resurrection Star Confirms Season 2's Debra Morgan Replacement
+
+TV, Dexter: Resurrection
+
+Sun, 25 Oct 2026 02:51:38 GMT
+
+https://www.cbr.com/dexter-resurrection-season-2-debra-morgan/
+
+The second season of Dexter: Resurrection resurrects the Debra Morgan dynamic.
+---------
+
+# 5 Strongest Street Fighters Characters in the 2026 Movie
+
+Games, Street Fighter
+
+Sun, 25 Oct 2026 02:45:14 GMT
+
+https://www.cbr.com/street-fighter-movie-strongest-characters-based-on-games/
+
+The Street Fighter movie introduced audiences to many powerful characters, some of whom have reached even greater heights of strength in the games.
+---------
+
+# 4 Masterpiece Anime With Better Endings Than Attack on Titan
+
+Anime, Attack On Titan, Fullmetal Alchemist: Brotherhood, Cowboy Bebop, Innovation
+
+Sun, 25 Oct 2026 02:30:14 GMT
+
+https://www.cbr.com/masterpiece-anime-better-ending-than-attack-on-titan/
+
+A great anime deserves a great conclusion. These four masterpieces deliver endings that outshine Attack on Titan's divisive finale.
+---------
+
+# The Searchers' Still Has the Greatest Western Quote of All Time
+
+Movies, The Searchers, Western, Adventure, Innovation
+
+Sun, 25 Oct 2026 02:30:14 GMT
+
+https://www.cbr.com/the-searchers-best-western-quote-in-movie-history/
+
+John Wayne headlined many of the greatest Westerns of the golden age, but one stands out for the greatest quote - and it wasn’t spoken by the Duke.
+---------
+
+# 10 Best Horror Video Games of All Time, Ranked
+
+Gaming, Silent Hill, Resident Evil 2, Alien: Isolation, Until Dawn
+
+Sun, 25 Oct 2026 03:39:15 GMT
+
+https://collider.com/best-horror-video-games-of-all-time-ranked/
+
+There have been many exceptional horror video games released over the years, including the likes of Until Dawn, Alien: Isolation, and Resident Evil 2.
+---------
+
+# ‘High Potential’ Fans Missing Season 3 Have the Perfect Replacement on Peacock
+
+TV Features, High Potential, Bones, Peacock, FOX TV
+
+Sun, 25 Oct 2026 03:07:14 GMT
+
+https://collider.com/abc-high-potential-season-3-replacement-fox-bones-peacock/
+
+High Potential fans can bide their time until Season 3 returns on ABC by binge-watching Bones on Peacock, another procedural with a slow-burn romance.
+---------
+
+# 10 Great Books To Read if You Love 'Gone Girl'
+
+TV, Gone Girl, Books, Thriller, Big Little Lies
+
+Sun, 25 Oct 2026 02:22:14 GMT
+
+https://collider.com/books-like-gone-girl/
+
+Gone Girl is a literary masterpiece with an equally influential movie. Those looking for similar books should undoubtedly check these out.
+---------
+
+# 7 Book Series That Peaked With Their Last Entry
+
+Books and Comics, Books, Stephen King, The Lord of the Rings, His Dark Materials
+
+Sun, 25 Oct 2026 02:20:14 GMT
+
+https://collider.com/book-series-peaked-last-entry/
+
+Book series like Tolkien's Lord of the Rings and Pullman's His Dark Materials end on a masterful final note that perfectly ties everything together.
+---------
+
+# 6 Most Exciting Mystery Movies of All Time, Ranked
+
+Movie, Mystery, Se7en, Memento, Chinatown
+
+Sun, 25 Oct 2026 01:33:15 GMT
+
+https://collider.com/most-exciting-mystery-movies-all-time-ranked/
+
+From Rear Window to Chinatown, these six exhilarating mystery movies turn viewers into detectives with clues that demand a second look.
+---------
+
+# The 8 Greatest Movies With More Than One Twist
+
+Movie, Thriller, The Prestige, Knives Out, Sleuth
+
+Sun, 25 Oct 2026 01:29:14 GMT
+
+https://collider.com/best-movies-more-than-one-twist/
+
+Great movies like The Prestige, Knives Out, and Psycho feature more than one twist, impressively sticking the landing and keeping the momentum going.
+---------
+
+# 8 TV Detectives That Are Much Smarter Than Sherlock Holmes
+
+TV, Mystery, Sherlock, Law & Order: Special Victims Unit, The Wire
+
+Sun, 25 Oct 2026 01:03:14 GMT
+
+https://collider.com/tv-detectives-smarter-than-sherlock-holmes/
+
+Sherlock Holmes is often credited as the smartest fictional detective, yet there are TV characters, like The Wire's Lester Freamon, who are smarter.
+---------
+
+# One of the Most Underrated Sci-Fi Series of All Time Premiered 14 Years Ago
+
+TV Features, Continuum, Rachel Nichols, SyFy
+
+Sun, 25 Oct 2026 01:01:15 GMT
+
+https://collider.com/continuum-watch-on-plex/
+
+Sci-fi fans looking for a fresh take on time travel should check out the highly underrated series Continuum.
+---------
+
+# Tom Cruise’s Box-Office Disaster Officially Removed From 3,100 Theaters
+
+Movie News, Tom Cruise, Digger, Box Office, Alejandro G. Inarritu
+
+Sun, 25 Oct 2026 01:00:15 GMT
+
+https://collider.com/tom-cruise-digger-box-office-disaster-removed-from-3100-theaters/
+
+Tom Cruise's epic box-office disaster, Digger, has officially been removed from more than 3,000 theaters. Find out more.
+---------
+
+# 8 Fantasy Shows That Rival Harry Potter
+
+TV, Fantasy, Harry Potter, Wednesday, Percy Jackson & the Olympians
+
+Sun, 25 Oct 2026 00:34:14 GMT
+
+https://collider.com/fantasy-shows-rival-harry-potter/
+
+From Disney+'s Percy Jackson and the Olympians to Netflix's Wednesday, these fantasy shows feature a rich lore that challenges Harry Potter's world.
+---------
+
+# 8 Netflix Mystery Thrillers Where Every Episode Is a Masterpiece
+
+TV Lists, Mystery, Thriller, Netflix
+
+Sun, 25 Oct 2026 02:00:28 GMT
+
+https://movieweb.com/netflix-thrillers-perfect/
+
+From impossible crimes to sprawling conspiracies, these mystery thrillers never waste an episode and still manage to excel.
+---------
+
+# 10 R-Rated Body Horror Movies Better Than 'Clayface'
+
+Features
+
+Sun, 25 Oct 2026 01:30:18 GMT
+
+https://movieweb.com/horror-movies-better-clayface/
+
+DC's latest brings body horror to the big screen via Batman's shape-shifting, nemesis Clayface, but there are several classics that surpass it.
+---------
+
+# Morgan Freeman's New Western Thriller Hits Major Milestone as Cast Is Confirmed
+
+Movie News, Rode to Ruin, Morgan Freeman, Western
+
+Sun, 25 Oct 2026 01:08:33 GMT
+
+https://movieweb.com/rode-to-ruin-richard-gadd-western-thriller-cast-update/
+
+'Rode to Ruin' is roping in some major Emmy-winning talent.
+---------
+
+# Unstoppable 95-Minute Action Thriller Reboot Officially Beats Its Director's Near-Perfect Hit at the Box Office
+
+Movie News, Resident Evil, Thriller, Action, Box Office Milestones, Zach Cregger
+
+Sun, 25 Oct 2026 01:00:17 GMT
+
+https://movieweb.com/resident-evil-zach-cregger-biggest-movie/
+
+Zach Cregger’s Resident Evil has now passed Weapons domestically.
+---------
+
+# 'Fire Country' Spin-Off Blazes to Its Biggest Audience Ever With Over 10 Million Viewers
+
+TV News, Fire Country, Sheriff Country, Drama, Paramount Plus
+
+Sun, 25 Oct 2026 00:43:53 GMT
+
+https://movieweb.com/paramount-sheriff-country-season-2-ratings/
+
+‘Sheriff Country’ scores a new series best.
+---------
+
+# 10 Prime Video Action Thrillers That Hook You in the First Scene
+
+TV Lists, Action, Thriller, Prime Video
+
+Sun, 25 Oct 2026 00:30:18 GMT
+
+https://movieweb.com/prime-video-thriller-series-hook-first-scene/
+
+If you're looking for a thriller series that wastes no time throwing you into the suspense, start with these Prime Video shows with great openings.
+---------
+
 # Fantastic Four Officially Introduces Marvel's Most Powerful Alien Species Of All Time
 
 Comics, Fantastic Four
