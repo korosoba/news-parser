@@ -1,3 +1,388 @@
+# Fantastic Four Officially Introduces Marvel's Most Powerful Alien Species Of All Time
+
+Comics, Fantastic Four
+
+Sun, 25 Oct 2026 00:19:36 GMT
+
+https://screenrant.com/fantastic-four-new-aliens-most-powerful/
+
+December will see The Fantastic Four appearing in Avengers: Doomsday, while also facing some incredibly powerful aliens in the comics.
+---------
+
+# Ryan Reynolds' 104-Minute Alien Replacement Movie Is Officially Free To Stream This Halloween
+
+Movies, Masked Recs
+
+Sun, 25 Oct 2026 00:09:03 GMT
+
+https://screenrant.com/ryan-reynolds-life-movie-streaming-tubi-october-2026/
+
+Ryan Reynolds' Alien replacement is a star-studded sci-fi horror movie that is streaming for free just in time for Halloween, and it is a must-watch.
+---------
+
+# Transformers Officially Enters A New Era In Eternal War
+
+Gaming, Transformers, Triple-A Games
+
+Sun, 25 Oct 2026 00:00:18 GMT
+
+https://screenrant.com/transformers-new-era-eternal-war/
+
+The eternal conflict between the Autobots and Decepticons may never end, but you Eternal War will be out soon, kicking off a new era.
+---------
+
+# 5 Paramount+ Series HBO Max Subscribers Will Love
+
+Streaming TV, HBO Max, Paramount Plus
+
+Sun, 25 Oct 2026 00:00:18 GMT
+
+https://screenrant.com/best-paramount-plus-tv-shows-for-hbo-viewers/
+
+Once HBO Max officially merges with Paramount+, HBO Max subscribers will have access to a new library with must-watch Paramount+ originals.
+---------
+
+# Dragon Ball's New Anime Fixes The Mistake That Almost Destroyed The Franchise
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball
+
+Sat, 24 Oct 2026 23:30:19 GMT
+
+https://screenrant.com/dragon-ball-super-beerus-fixes-mistake-destroy-franchise/
+
+It's taken little time for the newest Dragon Ball anime to prove that it's more than a remaster, it's a drastic improvement in all the best ways.
+---------
+
+# Steven Spielberg's Canceled 13-Episode Sci-Fi Series Could've Been The New Lost
+
+Classic TV, Steven Spielberg
+
+Sat, 24 Oct 2026 23:30:19 GMT
+
+https://screenrant.com/steven-spielberg-terra-nova-new-lost-canceled/
+
+Stephen Spielberg's canceled 13-episode science fiction TV show, Terra Nova, could have been the next lost if it had been given a longer runway.
+---------
+
+# Donnie Wahlberg Reveals Legacy Blue Bloods Character's Potential Spinoff Return Comes With A Catch
+
+TV, Boston Blue, Blue Bloods
+
+Sat, 24 Oct 2026 23:07:52 GMT
+
+https://screenrant.com/boston-blue-tom-tom-selleck-blue-bloods-return-catch/
+
+Donnie Wahlberg explains what it would take for the actor behind one of Blue Bloods most important characters to reprise his role for Boston Blue.
+---------
+
+# First Image Of New Batman Costume Confirms Huge Change
+
+Comics, Batman
+
+Sat, 24 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/batman-new-costume-codename-bruce-wayne-death/
+
+DC has revealed its first images of Batman's wild new costume.
+---------
+
+# Prime Video's 62-Episode Sci-Fi Masterpiece Has Some Of The Best Worldbuilding In TV History
+
+Streaming TV, Masked Recs
+
+Sat, 24 Oct 2026 23:00:19 GMT
+
+https://screenrant.com/the-expanse-best-sci-fi-worldbuilding/
+
+Alien ruins, rich galactic cultures, and shifting political boundaries elevate this series to being a TV sci-fi worldbuilding achievement.
+---------
+
+# Alan Ritchson's New 98-Minute Thriller Dominating Streaming Is What He Needs More Of Besides Reacher
+
+Movies, Masked Recs
+
+Sat, 24 Oct 2026 22:55:27 GMT
+
+https://screenrant.com/alan-ritchson-runner-streaming-success-action-comedy-future/
+
+Reacher star Alan Ritchson's new action thriller is climbing streaming charts, and this is the type of movie the actor needs more of outside the show.
+---------
+
+# 10 Strongest Genjutsu in Naruto, Ranked
+
+Anime, Naruto, Innovation, Naruto: Shippuden
+
+Sun, 25 Oct 2026 00:15:15 GMT
+
+https://www.cbr.com/strongest-genjutsu-in-naruto-ranked/
+
+Unlike ninjutsu and taijutsu, genjutsu disrupts the flow of chakra in an enemy’s system, fools the five senses and traps the victim in a false world.
+---------
+
+# The Only Oscar-Winning Stephen King Adaptation of All Time Is Losing Its Streaming Home
+
+Movies, Misery, Stephen King
+
+Sun, 25 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/stephen-king-misery-leaving-hbo-max-november-2026/
+
+One of the most beloved (and gruesome) Stephen King adaptations is about to lose its streaming home just as the Halloween season comes to a close.
+---------
+
+# Attack on Titan Brings Eren's Final Battle Back to the U.S. on January 26
+
+Anime, Attack on Titan, Crunchyroll, Attack on Titan: The Last Attack
+
+Sun, 25 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/attack-on-titan-last-attack-crunchyroll-blu-ray-steelbook-release-date/
+
+Attack on Titan's devastating finale returns in 4K as Crunchyroll confirms a new Blu-ray release for MAPPA's The Last Attack in January 2027.
+---------
+
+# Gilmore Girls' Greatest Luke Episode Remains Some of the Best 44 Minutes in TV Drama History
+
+TV, Gilmore Girls, Innovation
+
+Sun, 25 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/gilmore-girls-best-luke-episode-dead-uncles-and-vegetables/
+
+Luke Danes remains the best character in the fast talking dramedy, Gilmore Girls.
+---------
+
+# Every Version of The Tick, Ranked
+
+Comics, The Tick
+
+Sun, 25 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/every-version-of-the-tick-ranked/
+
+The Tick has been a fan-favorite superhero for decades, but he hasn't always been the same cartoonish defender of the innocent fans know today.
+---------
+
+# Marvel's New Midnight Vampires, Explained
+
+Comics, X-Men, Marvel
+
+Sun, 25 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/marvel-midnight-vampires-explained/
+
+Marvel Comics' new Midnight Universe has just introduced a whole different breed of vampire, and the empyres are deadlier than anything before them.
+---------
+
+# The Simpsons Releases Full Nightmare Before Christmas Parody Ahead of Treehouse of Horror
+
+TV, The Simpsons, The Nightmare Before Christmas
+
+Sat, 24 Oct 2026 23:48:14 GMT
+
+https://www.cbr.com/the-simpsons-nightmare-before-christmas-opening-sequence/
+
+The stop-motion animated sequence has been released early ahead of the official airing of the new Treehouse of Horror episode.
+---------
+
+# 6 Strongest Decepticon Seekers, Ranked
+
+Anime, Transformers, decepticons, mecha, Innovation
+
+Sat, 24 Oct 2026 23:45:14 GMT
+
+https://www.cbr.com/strongest-decepticon-seekers-ranked/
+
+The Decepticon Seekers have always been one of their most dangerous factions, and these powerful jets dominate the battlefront.
+---------
+
+# Margaret Qualley's 106-Minute Prime Video Drama Is the Most-Watched Movie in the World
+
+Movies, Love of Your Life, Drama, Prime Video
+
+Sat, 24 Oct 2026 23:30:14 GMT
+
+https://www.cbr.com/margaret-qualley-love-of-your-life-prime-video-drama-success-october-2026/
+
+Margaret Qualley's latest Prime Video drama, Love of Your Life, is an instant streaming hit.
+---------
+
+# Disclosure Day is the Smartest Sci-Fi Thriller Of 2026
+
+Movies, Disclosure Day
+
+Sat, 24 Oct 2026 23:30:14 GMT
+
+https://www.cbr.com/emily-blunt-disclosure-day-smartest-sci-fi-thriller-2026/
+
+2026 has been a jaw-dropping year at the cinema and one sci-fi movie is the smartest film of the year.
+---------
+
+# ‘The Diplomat’ Casting Director Officially Reveals the Truth Behind That ‘West Wing’ Reunion [Exclusive]
+
+Exclusives, The Diplomat, Allison Janney, Bradley Whitford, Jodie Whittaker
+
+Sun, 25 Oct 2026 00:15:15 GMT
+
+https://collider.com/the-diplomat-cast-allison-janney-bradley-whitford-west-wing-reunion/
+
+The Diplomat’s casting director reveals which stars were always at the top of her wishlist and why that West Wing reunion works.
+---------
+
+# Anne Hathaway’s Colleen Hoover Thriller Officially Crosses $145M Worldwide
+
+Movie News, Verity, Anne Hathaway, Colleen Hoover, Josh Hartnett
+
+Sun, 25 Oct 2026 00:00:15 GMT
+
+https://collider.com/anne-hathaway-verity-worldwide-box-office-140-million/
+
+Anne Hathaway's twisted thriller with Dakota Johnson and Josh Hartnett passes a new box office milestone. Find out more here.
+---------
+
+# Forget Marvel, This Award-Winning Sci-Fi Series Proves Superhero Stories Can Still Be a Game-Changer
+
+TV Features, Moving, Disney+, Hulu, Sci-Fi
+
+Sat, 24 Oct 2026 23:52:15 GMT
+
+https://collider.com/moving-disney-plus-superhero-show-game-changer/
+
+Whatever your thoughts on the superhero genre, Moving on Disney+ shows that the genre still has life.
+---------
+
+# DC Officially Begins a New Era as 'Clayface' Debuts at the Box Office
+
+Movie News, Clayface, DCU, DC, James Gunn
+
+Sat, 24 Oct 2026 23:45:15 GMT
+
+https://collider.com/clayface-opening-day-domestic-box-office-9-5-million/
+
+DC’s Clayface earns an estimated $9.5 million on opening day, including Thursday previews, with a $23–25 million weekend projected.
+---------
+
+# Forget ‘Below,’ Josh Hartnett’s 3-Part Gothic Thriller Series Is a True Masterpiece
+
+TV Features, Penny Dreadful, Josh Hartnett, Showtime, Horror
+
+Sat, 24 Oct 2026 23:36:15 GMT
+
+https://collider.com/penny-dreadful-josh-hartnett-gothic-thriller-series/
+
+Penny Dreadful features Below star Josh Hartnett at his absolute best, and the 3-part series is worth revisiting.
+---------
+
+# ‘The Gilded Age’ Season 4 Officially Kicks Off Next Week on HBO
+
+TV News, The Gilded Age, HBO, Carrie Coon, Morgan Spector
+
+Sat, 24 Oct 2026 23:30:15 GMT
+
+https://collider.com/the-gilded-age-season-4-premiere-date-november-2026/
+
+Carrie Coon's The Gilded Age returns for Season 4 on HBO. Here's everything you need to know.
+---------
+
+# ‘Twilight’ Officially Takes Over Netflix a Week Before Halloween
+
+Movie News, Twilight, The Twilight Saga, Netflix, Robert Pattinson
+
+Sat, 24 Oct 2026 23:15:14 GMT
+
+https://collider.com/twilight-netflix-streaming-success-october-2026/
+
+Twilight remains among Netflix’s most-watched movies in the U.S. as audiences revisit Bella and Edward’s romance before Halloween.
+---------
+
+# 10 Great Crime Shows With Perfect Ensemble Casts, Ranked
+
+TV, Crime, The Sopranos, Breaking Bad, Better Call Saul
+
+Sat, 24 Oct 2026 23:12:15 GMT
+
+https://collider.com/best-crime-shows-ensemble-casts-perfect-ranked/
+
+Dive into great crime drama shows featuring flawless ensemble casts, from classics like The Sopranos to modern hits like Better Call Saul.
+---------
+
+# Ridley Scott’s $462M Historical Epic Officially Lands on Netflix
+
+Movie News, Gladiator, Gladiator II, Denzel Washington, Netflix
+
+Sat, 24 Oct 2026 23:00:15 GMT
+
+https://collider.com/denzel-washington-gladiator-2-streaming-netflix-october-2026/
+
+Denzel Washington's $462M historical epic Gladiator II joins Russell Crowe's original Gladiator on Netflix, bringing both films together on streaming.
+---------
+
+# The 10 Best Alternative Rock Albums of All Time, Ranked
+
+Music Features, Rock, Music, Radiohead, Nirvana
+
+Sat, 24 Oct 2026 22:51:15 GMT
+
+https://collider.com/best-alternative-rock-albums-all-time-ranked/
+
+The best alternative rock albums of all time include classics like Mellon Collie and the Infinite Sadness, Doolittle, and Yankee Hotel Foxtrot.
+---------
+
+# 13 Years Later, Tywin Lannister's Greatest 'Game of Thrones' Quote Is Still the Coldest Line in Fantasy
+
+Features, Game Of Thrones, Fantasy, Game of Thrones
+
+Sun, 25 Oct 2026 00:00:17 GMT
+
+https://movieweb.com/game-of-thrones-tywin-quote/
+
+Tywin Lannister wins an argument with cold, hard facts, and it's hard not to admire the man, even if he's a villain.
+---------
+
+# Johnny Depp's Only Stephen King Movie Is a (Very) Unsettling 96-Minute Thriller Taking Over Streaming
+
+Movie News, HBO Max, Secret Window, Johnny Depp, Thriller, Hot on Streaming
+
+Sat, 24 Oct 2026 23:38:10 GMT
+
+https://movieweb.com/secret-window-streaming-hit-october-2026/
+
+It is now surging on streaming more than 20 years later.
+---------
+
+# Audiences Are Divided as Prime Video's Stephen King Global Hit Officially Gets Season 2
+
+TV News, Carrie, Mike Flanagan, Stephen King, Horror, Thriller
+
+Sat, 24 Oct 2026 23:30:39 GMT
+
+https://movieweb.com/carrie-season-2-announcement-audience-reception/
+
+Viewers are sharing strong opinions about Mike Flanagan's bold reimagining.
+---------
+
+# Apple TV's Unsung 2-Part Sci-Fi Thriller Is Officially an Unstoppable 400-Day Streaming Smash Hit
+
+TV News, Apple TV, Dark Matter, Sci-Fi, Thriller, Hot on Streaming
+
+Sat, 24 Oct 2026 23:00:18 GMT
+
+https://movieweb.com/dark-matter-apple-tv-milestone-october-2026/
+
+The series has built impressive longevity of its own.
+---------
+
+# Recasting 'The Lord of the Rings' in 2026: The 10 Biggest Characters & Who Should Play Them
+
+Movie Lists, Fantasy, The Lord of the Rings, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, The Lord of the Rings: The Fellowship of the Ring, Adventure
+
+Sat, 24 Oct 2026 23:00:18 GMT
+
+https://movieweb.com/lord-of-the-rings-2026-recast/
+
+From adventurous Hobbits to noble Elves, which modern actors could tackle one of the greatest fantasy epics of all time?
+---------
+
 # 10 Greatest Justice League Victories In DC History
 
 Comics, DC Comics, Justice League
