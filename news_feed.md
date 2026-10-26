@@ -1,3 +1,443 @@
+# It's Officially The End Of An Era For Netflix's Wednesday
+
+Streaming TV, Wednesday
+
+Mon, 26 Oct 2026 18:30:19 GMT
+
+https://screenrant.com/wednesday-season-3-paris-setting-nevermore-end-era/
+
+Wednesday season 3 is set to change the narrative's course for good in Tim Burton's twisted fairy tale about Jenna Ortega's Wednesday Addams.
+---------
+
+# DC Confirms Return Of Its Most Hardcore Green Lantern
+
+DC Comics, Green Lantern
+
+Mon, 26 Oct 2026 18:30:19 GMT
+
+https://screenrant.com/green-lantern-vath-sarn-return/
+
+A long-forgotten Green Lantern finally returns in 2027, teaming up with an unexpected villain in DC Comics' upcoming buddy-cop-inspired release.
+---------
+
+# Sydney Sweeney's New Netflix Space Opera Is The Perfect Transformers Replacement
+
+Movies, Sydney Sweeney, Gundam
+
+Mon, 26 Oct 2026 18:30:19 GMT
+
+https://screenrant.com/sydney-sweeney-netflix-gundam-movie-transformers-replacement/
+
+Sydney Sweeney's upcoming sci-fi epic could give Transformers a run for its money, with giant robots, interplanetary warfare, and a fresh franchise.
+---------
+
+# Cyberpunk Masterpiece That Started A $2B Sci-Fi Franchise Is Officially Being Cut From Free Streaming
+
+Movies, Terminator, The Terminator, Masked Recs
+
+Mon, 26 Oct 2026 18:19:21 GMT
+
+https://screenrant.com/the-terminator-movie-leaving-tubi-november-2026/
+
+One of the best sci-fi horror movies of all time, which helped launch a major franchise, is leaving a free streaming platform very soon.
+---------
+
+# New Avatar: The Last Airbender Spinoff Officially Recast Aang’s Successor
+
+TV, Avatar: Seven Havens, Avatar: Seven Havens - Season 1, Avatar: The Last Airbender
+
+Mon, 26 Oct 2026 18:10:28 GMT
+
+https://screenrant.com/avatar-seven-havens-korra-recasting-cia-court/
+
+Paramount+ debuted a new Avatar: The Last Airbender spinoff earlier this month, and it’s now been confirmed that a major character has been recast.
+---------
+
+# Disney's New Fantasy Horror Series Scores Season 2 Renewal
+
+TV, Coven Academy
+
+Mon, 26 Oct 2026 18:08:57 GMT
+
+https://screenrant.com/coven-academy-season-2-renewal-disney/
+
+Disney+'s latest fantasy horror is returning after a perfect Rotten Tomatoes rating from critics and dominating the streaming giant after its debut.
+---------
+
+# All 3 Lioness Seasons, Ranked
+
+Streaming TV, Lioness
+
+Mon, 26 Oct 2026 18:01:23 GMT
+
+https://screenrant.com/lioness-seasons-ranked/
+
+Taylor Sheridan's action thriller Lioness has been on the air for three seasons, and some of those seasons have been a lot stronger than others.
+---------
+
+# Ridley Scott Action Movie That Made 4x Its Budget Returns As Streaming Powerhouse
+
+Movies, Gladiator
+
+Mon, 26 Oct 2026 18:01:23 GMT
+
+https://screenrant.com/ridley-scott-gladiator-netflix-streaming-success-october-2026/
+
+Ridley Scott's classic historical epic that already has a sequel in the works slices its way up the streaming charts.
+---------
+
+# Charlize Theron’s Reboot Of 88-Year-Old Supernatural Franchise Roars Back To Life On Streaming At The Perfect Time
+
+Movies, The Addams Family
+
+Mon, 26 Oct 2026 17:53:02 GMT
+
+https://screenrant.com/charlize-theron-the-addams-family-netflix-global-streaming-success-october-2026/
+
+Charlize Theron's reboot of a classic 88-year-old supernatural franchise has become a major streaming sensation worldwide at the perfect time.
+---------
+
+# Bleach: Thousand-Year Blood War Ending Explained: Will There Be A Sequel?
+
+Anime, Bleach: Thousand Year Blood War, BLEACH: Thousand-Year Blood War - The Calamity, Bleach
+
+Mon, 26 Oct 2026 17:40:36 GMT
+
+https://screenrant.com/bleach-thousand-year-blood-war-finale-explained/
+
+The long-awaited Bleach anime finale finally gives our favorite heroes a beautiful send-off while setting up a massive sequel.
+---------
+
+# Stephen Amell Officially Returns to TV in 2 Months With Fox's '90s Reboot
+
+TV, Baywatch
+
+Mon, 26 Oct 2026 18:27:07 GMT
+
+https://www.cbr.com/stephen-amell-baywatch-reboot-release-date-fox/
+
+Stephen Amell is back on TV with a reboot of a fan-favorite '90s show.
+---------
+
+# Fallout Officially Drops 3 New Releases Available for Preorder Now
+
+Games, Fallout
+
+Mon, 26 Oct 2026 18:15:15 GMT
+
+https://www.cbr.com/fallout-3-new-releases-official-preorder-now/
+
+Fallout fans can now pre-order three of the most stunning collectibles the franchise has ever seen, and all from one of the industry's biggest studios
+---------
+
+# Dragon Ball Super: Beerus Teases Ultra Ego Vegeta Early
+
+Anime, Dragon Ball, Dragon Ball Super: Beerus, Dragon Ball Super
+
+Mon, 26 Oct 2026 18:15:15 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-episode-3-foreshadow-ultra-ego-vegeta/
+
+Vegeta's new purple aura in Dragon Ball Super: Beerus Episode 3 is a hint at the divine powers of Destruction central to his Ultra Ego transformation.
+---------
+
+# Disney+'s Easy-to-Binge 21-Part Fantasy Series Confirms Season 2
+
+TV, Coven Academy
+
+Mon, 26 Oct 2026 18:07:43 GMT
+
+https://www.cbr.com/disney-coven-academy-confirms-season-2/
+
+The series scored a perfect 100% from critics.
+---------
+
+# 7 80s Action Movies That Can Be Called Masterpieces
+
+Movies, Action
+
+Mon, 26 Oct 2026 18:01:17 GMT
+
+https://www.cbr.com/best-80s-action-movies-list/
+
+The 1980s changed action movies forever, producing genre classics that raised the bar for blockbusters and still hold up more than 40 years later.
+---------
+
+# Marvel's Midnight Fantastic Four Already Have Some Serious Body Horror Competition
+
+Comics, Fantastic Four
+
+Mon, 26 Oct 2026 18:01:17 GMT
+
+https://www.cbr.com/marvel-midnight-fantastic-four-infernal-hulk-body-horror/
+
+Marvel's Midnight Fantastic Four might be the next big thing in comic book body horror, but their primary counterparts are already beating them to it.
+---------
+
+# Netflix’s 8-Part Philip K. Dick Adaptation Will Show Silo & Fallout How Dystopian Drama Is Done
+
+TV, Sci-Fi, Netflix
+
+Mon, 26 Oct 2026 17:30:15 GMT
+
+https://www.cbr.com/netflix-philip-k-dick-the-future-is-ours-sci-fi-event/
+
+This adaptation of one of Dick's early novels has the potential to eclipse the fascinating futures created in Apple TV and Prime Video's hit shows.
+---------
+
+# Death of Robin Hood is the Best R-Rated Fantasy of 2026
+
+Movies, The Death of Robin Hood
+
+Mon, 26 Oct 2026 17:30:15 GMT
+
+https://www.cbr.com/death-of-robin-hood-best-r-rated-fantasy-2026/
+
+Hugh Jackman's gritty new fantasy movie puts a dark spin on the Robin Hood legend, and its newfound success on HBO Max makes it worth revisiting.
+---------
+
+# Final Fantasy X Returns With New Limited Edition 25th Anniversary Release
+
+Games, Final Fantasy, RPG
+
+Mon, 26 Oct 2026 17:25:15 GMT
+
+https://www.cbr.com/final-fantasy-x-new-limited-edition-25th-anniversary-release/
+
+Final Fantasy X is celebrating its 25th anniversary with a special, new, limited edition release.
+---------
+
+# Hatsune Miku Officially Brings Nintendo Switch Game to PlayStation With Major Upgrade on October 29
+
+Anime, Hatsune Miku
+
+Mon, 26 Oct 2026 17:21:15 GMT
+
+https://www.cbr.com/hatsune-miku-connecting-puzzle-tamagotori-delxue-release-date/
+
+The deluxe version will include the original Hatsune Miku puzzle game and its two premium DLCs packs.
+---------
+
+# Netflix Officially Adds 4-Part ‘Lincoln Lawyer’ Replacement Next Week
+
+TV News, Will Trent, The Lincoln Lawyer, Netflix, ABC
+
+Mon, 26 Oct 2026 18:31:15 GMT
+
+https://collider.com/lincoln-lawyer-replacement-netflix-streaming-release-date-november-2026/
+
+Netflix has a new replacement for The Lincoln Lawyer that's set to begin streaming on the platform next week. Find out more details here.
+---------
+
+# ‘Reacher’ Creator Officially Eyes Another Spin-Off After ‘Neagley’s 40-Million-Viewer Success
+
+TV News, Reacher, Neagley, Prime Video, Lee Child
+
+Mon, 26 Oct 2026 18:15:15 GMT
+
+https://collider.com/reacher-susan-turner-spinoff-lee-child-prime-video/
+
+Lee Child reveals why Susan Turner could lead another Prime Video Reacher spin-off as Neagley becomes a major streaming hit.
+---------
+
+# HBO's 10/10 Stephen King Series Officially Makes a Meta Addition to Season 2
+
+TV News, Stephen King, HBO, It: Welcome to Derry, Horror
+
+Mon, 26 Oct 2026 17:59:57 GMT
+
+https://collider.com/it-welcome-to-derry-season-2-stephen-king-grandson-ethan/
+
+Stephen King’s grandson Ethan joins IT: Welcome to Derry Season 2, which will take Pennywise’s story into 1930s Derry.
+---------
+
+# The 8 Best Fantasy Horror Books of All Time, Ranked
+
+Books and Comics, Horror, Stephen King, The Stand, Dracula
+
+Mon, 26 Oct 2026 17:14:14 GMT
+
+https://collider.com/best-fantasy-horror-books-all-time-ranked/
+
+Books like The Stand, Swan Song, and Something Wicked This Way Comes are among the all-time best that marry the fantasy and horror genres together.
+---------
+
+# The 15 Best Shows To Watch if You Love Stephen King
+
+TV, Stephen King, Mr. Robot, Lost, Twin Peaks
+
+Mon, 26 Oct 2026 17:13:15 GMT
+
+https://collider.com/tv-shows-like-stephen-king-movies-books/
+
+We went searching for the best TV shows to watch if you're a fan of Stephen King, from ABC's Twin Peaks to the USA Network's Mr. Robot.
+---------
+
+# Forget 'Tulsa King,' This 7-Season Crime Series Deserves Another Look
+
+TV Features, Ray Donovan, Tulsa King, Paramount Plus, Ray Donovan: The Movie
+
+Mon, 26 Oct 2026 16:52:15 GMT
+
+https://collider.com/tulsa-king-ray-donovan-paramount-plus-crime-thriller/
+
+Before Tulsa King, Ray Donovan was the crime thriller to watch, thanks to Liev Schrieber's performance and a compelling narrative.
+---------
+
+# Netflix’s Intense Agatha Christie Mystery Takes Less Than 3 Hours to Binge
+
+TV Features, Agatha Christie's Seven Dials, Netflix, Agatha Christie, Mystery
+
+Mon, 26 Oct 2026 16:49:24 GMT
+
+https://collider.com/netflix-best-underrated-agatha-christie-series-seven-dials/
+
+Mia McKenna-Bruce leads Netflix's three-episode Agatha Christie mystery, Seven Dials, an easy binge that takes less than three hours to finish.
+---------
+
+# Quentin Tarantino’s 10/10 Crime Thriller Officially Pulled From Streaming
+
+Movie News, Pulp Fiction, Prime Video, Quentin Tarantino, Samuel L. Jackson
+
+Mon, 26 Oct 2026 16:45:15 GMT
+
+https://collider.com/quentin-tarantino-pulp-fiction-removed-from-prime-video/
+
+Prime Video has announced that Quentin Tarantino's near-perfect crime thriller is officially being pulled from streaming.
+---------
+
+# ‘Reacher’ Star Alan Ritchson’s DC Return Officially Addressed [Exclusive]
+
+Interviews, Reacher, Alan Ritchson, James Gunn, Peter Safran
+
+Mon, 26 Oct 2026 16:43:08 GMT
+
+https://collider.com/alan-ritchson-dcu-role-potential/
+
+DC Studios boss Peter Safran confirms talks with Reacher star Alan Ritchson and reveals why he wants the actor in the DCU.
+---------
+
+# 'Star Trek’ Legend Walter Koenig Dead at 90
+
+TV News, Walter Koenig, Star Trek: The Original Series, Babylon 5, Star Trek
+
+Mon, 26 Oct 2026 16:42:14 GMT
+
+https://collider.com/walter-koenig-dead-star-trek-chekov-90/
+
+Walter Koenig, the actor who played Pavel Chekov in Star Trek and Alfred Bester in Babylon 5, has died at age 90.
+---------
+
+# 'Baywatch' Reboot Officially Gets Release Date 25 Years After Original Series Ended
+
+TV News, Baywatch, Action, Adventure, Drama, Romance
+
+Mon, 26 Oct 2026 18:36:56 GMT
+
+https://movieweb.com/baywatch-reboot-release-date/
+
+Stephen Amell's 'Baywatch' reboot is locked into the calendar for a release date early next year.
+---------
+
+# Forget ‘The Terminal List,’ Chris Pratt Is Back as a Navy SEAL in Apple TV’s New ‘Karate Kid’-Style Movie
+
+Movie News, Action, Chris Pratt, Apple TV
+
+Mon, 26 Oct 2026 18:33:13 GMT
+
+https://movieweb.com/way-of-the-warrior-new-look/
+
+Chris Pratt's character still has military experience in this movie, but the tone couldn't be more different from 'The Terminal List.'
+---------
+
+# It’s Officially the End of an Era for One of The Greatest Action Fantasy Series After 22 Years
+
+TV News, Bleach, Bleach: Thousand-Year Blood War, Anime
+
+Mon, 26 Oct 2026 18:24:49 GMT
+
+https://movieweb.com/bleach-anime-fate/
+
+A conclusion two decades in the making.
+---------
+
+# Art the Clown: The True Story Behind the 'Terrifier' Villain, Explained
+
+Features, Terrifier, Terrifier 2
+
+Mon, 26 Oct 2026 18:00:19 GMT
+
+https://movieweb.com/art-the-clown-terrifier-backstory-true/
+
+How Art the Clown was created and the real influences behind the villain of the Terrifier franchise.
+---------
+
+# It’s Only Been 6 Days, but Hulu’s New 8-Part Thriller Is the Best Mystery Show of the Year
+
+Features, Phony, Thriller, Hulu
+
+Mon, 26 Oct 2026 18:00:18 GMT
+
+https://movieweb.com/phony-streaming-recommendation/
+
+Hulu's new mystery thriller TV series has a fantastic cast and only eight episodes, and it's already one of the most impressive shows of 2026.
+---------
+
+# Original 'Star Trek' Icon Walter Koenig Dies at 90
+
+TV News, Walter Koenig, Star Trek, Star trek, Sci-Fi, Action, Adventure
+
+Mon, 26 Oct 2026 17:12:21 GMT
+
+https://movieweb.com/walter-koenig-dies-aged-90/
+
+Walter Koenig, best known for his role as Chekov in the original 'Star Trek,' has passed away at the age of 90 after a lengthy career.
+---------
+
+# 35 Years Later, the Terminator Franchise's Greatest Line Is Still the Best Movie Quote About Fate
+
+Features, Terminator 2, Terminator, Sci-Fi
+
+Mon, 26 Oct 2026 17:00:18 GMT
+
+https://movieweb.com/terminator-best-fate-quote/
+
+John Connor's complex storyline in the Terminator franchise suggests at least some form of fate, but maybe not. Read on for more.
+---------
+
+# Prime Video's New 8-Part Ridley Scott Sci-Fi Sequel Officially Pays Homage to Dystopian Classic
+
+TV News, Blade Runner 2099, Blade Runner, Sci-Fi, Prime Video
+
+Mon, 26 Oct 2026 16:33:45 GMT
+
+https://movieweb.com/blade-runner-2099-new-poster/
+
+Will the new TV series clear the bar set by the original classic?
+---------
+
+# Keanu Reeves Officially Replaces Alan Ritchson in New 'Die Hard'-Esque Netflix Action Thriller
+
+Movie News, Keanu Reeves, Alan Ritchson, Action, Thriller, Netflix, Die Hard
+
+Mon, 26 Oct 2026 16:04:33 GMT
+
+https://movieweb.com/keanu-reeves-maelstrom-netflix/
+
+Keanu Reeves is officially locked and loaded in the new Netflix action thriller 'Maelstrom' after the departure of Alan Ritchson.
+---------
+
+# Mark Wahlberg's 117-Minute Unsung Crime Thriller Officially Shoots Onto Free Streaming
+
+Movie News, Mark Wahlberg, We Own the Night, Crime, Thriller, Coming/Leaving Streaming, Tubi
+
+Mon, 26 Oct 2026 16:00:19 GMT
+
+https://movieweb.com/we-own-the-night-mark-wahlberg-stream-free-tubi-october-2026/
+
+One family on opposite sides of the law.
+---------
+
 # CBS Solves Tracker's Justin Hartley Problem As Colter Shaw
 
 Network TV, Tracker
