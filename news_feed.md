@@ -1,3 +1,366 @@
+# Clayface Director Reveals Why Movie Didn't Use The Original Villain
+
+Movies, Clayface
+
+Mon, 26 Oct 2026 00:44:46 GMT
+
+https://screenrant.com/clayface-why-matt-hagen-over-basil-karlo/
+
+James Watkins, the director of DC Studios new film Clayface, revealed why he decided to go with Matt Hagen instead of the original villain.
+---------
+
+# 10 Most Questionable Justice League Members Ever
+
+Comics, Justice League, DC Comics
+
+Mon, 26 Oct 2026 00:30:19 GMT
+
+https://screenrant.com/most-questionable-justice-league-members/
+
+While the Justice League champions truth and justice, its roster has occasionally welcomed members whose dubious morals raise serious eyebrows.
+---------
+
+# Landman's Billy Bob Thornton Replacement Is Exactly What Season 3 Needs
+
+Streaming TV, Landman
+
+Mon, 26 Oct 2026 00:30:19 GMT
+
+https://screenrant.com/landman-season-3-tommy-cooper-family-business-tension/
+
+Tommy has made Cooper the president of his new family-run business, so there could be tension between father and son in Landman season 3.
+---------
+
+# 6 Recruits John Nolan Has Trained On The Rookie And Where Each One Stands
+
+Network TV, The Rookie
+
+Mon, 26 Oct 2026 00:15:19 GMT
+
+https://screenrant.com/the-rookie-john-nolan-every-recruit-update/
+
+John Nolan's journey as a training officer on The Rookie thus far has featured his six unique trainees, with each of them changing from his work.
+---------
+
+# Phantom Blade Zero Review: A Martial Arts Feast for the Eyes and Ears
+
+Gaming, Phantom Blade Zero, Triple-A Games, PC
+
+Mon, 26 Oct 2026 00:00:18 GMT
+
+https://screenrant.com/phantom-blade-zero-review/
+
+Wuxia martial arts adventure Phantom Blade Zero is an epic sight to behold, with dazzling set piece bosses and joyous combat throughout.
+---------
+
+# 10 Bleakest TV Endings Of All Time
+
+Classic TV
+
+Mon, 26 Oct 2026 00:00:18 GMT
+
+https://screenrant.com/bleakest-tv-endings-all-time/
+
+Not all stories have to have a happy ending, but these TV show endings are the bleakest of all time, living rent-free in viewers' minds years later.
+---------
+
+# Witcher 3 Remastered All But Confirms A Beloved Feature For Witcher 4
+
+Gaming, The Witcher 4, The Witcher 3: Wild Hunt, The Witcher 3: Wild Hunt - Remastered
+
+Mon, 26 Oct 2026 00:00:18 GMT
+
+https://screenrant.com/witcher-4-3-remastered-transmog/
+
+The Witcher 4 is bound to have a big new feature that The Witcher 3: Wild Hunt didn't officially boast until its remaster released earlier this fall.
+---------
+
+# Naruto’s Ninja Era Is Officially Coming To An End, And It Could Change The Franchise Forever
+
+Anime, Naruto
+
+Sun, 25 Oct 2026 23:31:33 GMT
+
+https://screenrant.com/naruto-ninja-era-over/
+
+Naruto is heading toward the end of its ninja era through a new twist that will add considerable depth to the world created by Masashi Kishimoto.
+---------
+
+# 5 Best New Netflix Series To Binge-Watch This Week (October 26–30, 2026)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Sun, 25 Oct 2026 23:30:19 GMT
+
+https://screenrant.com/best-new-netflix-shows-to-watch-week-october-26-2026/
+
+The best new Netflix series to watch this week, Oct 26–30, 2026, are Minimum Wage, A Couple of Lies, The One About Matthew Perry, and Lupin season 4.
+---------
+
+# 7 Guardians of the Galaxy Heroes Who Are More Powerful Than The Movies Showed
+
+Comics, Guardians of the Galaxy
+
+Sun, 25 Oct 2026 23:01:19 GMT
+
+https://screenrant.com/guardians-galaxy-mcu-characters-more-powerful-than-movies/
+
+You won't believe which MCU Guardian should have been Hulk-level.
+---------
+
+# 10 Isekai Anime Series With No Bad Episodes
+
+Anime, Isekai
+
+Mon, 26 Oct 2026 00:45:14 GMT
+
+https://www.cbr.com/isekai-anime-zero-bad-episodes-list/
+
+The rarest of rare isekai anime like Konosuba and Cautious Hero have not disappointed fans with even a single bad episode.
+---------
+
+# Marshawn Lynch Uncensored on Becoming an Official Superhero
+
+Comics, graphic novel
+
+Mon, 26 Oct 2026 00:30:30 GMT
+
+https://www.cbr.com/marshawn-lynch-beast-mode-superhero-graphic-novel-interview/
+
+In a CBR exclusive interview with NFL icon, Marshawn Lynch, he gets real about becoming an actual superhero in his new graphic novel, Beast Mode 510
+---------
+
+# It's Time to Give This 30-Year-Old Cult Classic a Second Chance Before It Loses Its Streaming Home
+
+Movies, The Craft, HBO Max
+
+Mon, 26 Oct 2026 00:30:14 GMT
+
+https://www.cbr.com/the-craft-horror-leaving-hbo-max-november-2026/
+
+One of the biggest horror cult classics ever is departing its streaming home in just a couple of days.
+---------
+
+# 10 Best Nintendo Holiday Showcase Gifts List
+
+Games, Nintendo, merchandise, Video Games
+
+Mon, 26 Oct 2026 00:30:14 GMT
+
+https://www.cbr.com/best-nintendo-holiday-showcase-gifts-for-gamers-list/
+
+The Nintendo Holiday Showcase has shoppers covered this season, offering plenty of incredible gifts for your favorite gamer.
+---------
+
+# 10 Greatest Anime Series of the Last 10 Years, Ranked
+
+Anime, Innovation
+
+Mon, 26 Oct 2026 00:15:15 GMT
+
+https://www.cbr.com/greatest-anime-series-last-10-years-ranked-list/
+
+Anime like Jujutsu Kaisen rank as some of the best series of the last decade.
+---------
+
+# Snape's Reveal As the Half-Blood Prince Shocked Harry & Fans
+
+Movies, Harry Potter, Harry Potter and the Half-Blood Prince
+
+Mon, 26 Oct 2026 00:00:15 GMT
+
+https://www.cbr.com/harry-potter-why-snape-half-blood-prince/
+
+In the Harry Potter franchise, Severus Snape refers to himself as the "Half-Blood Prince." But what is the meaning behind this title?
+---------
+
+# In Just 1 Day, Steven Spielberg's New $244M Sci-Fi Flop Finds Redemption as a Massive Streaming Hit
+
+Movies, Disclosure Day
+
+Mon, 26 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/steven-spielberg-disclosure-day-sci-fi-nielsen-charts-october-2026/
+
+Steven Spielberg's latest science fiction epic is taking over the streaming charts after failing to make any major impact at the box office.
+---------
+
+# Star Trek Writer Wants to Bring Dragon Age to a Brand-New Series
+
+Anime, Dragon Age, Star Trek, webtoon
+
+Mon, 26 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/dragon-age-star-trek-writer-webtoon-series/
+
+The writer of WEBTOON's newest hit Star Trek series names the next big IP she wants to bring to the platform, and Dragon Age fans would love it.
+---------
+
+# The 10-Part Apple TV Horror Guillermo Del Toro Called 'the Best Streaming Series'
+
+TV, guillermo del toro, Widow's Bay, Horror, Apple TV
+
+Mon, 26 Oct 2026 00:00:14 GMT
+
+https://www.cbr.com/widows-bay-guillermo-del-toro-recommends/
+
+Guillermo Del Toro is truly the master of horror and his recommendation proves it.
+---------
+
+# Pokémon Gives the Nintendo Switch 2 an Official Red & Green Upgrade
+
+Games, Pokemon, Innovation
+
+Sun, 25 Oct 2026 23:50:14 GMT
+
+https://www.cbr.com/pokemon-switch-2-red-blue-hori-pixel-art-controller/
+
+Pokémon is getting new Switch 2 releases is time for the holidays.
+---------
+
+# 'Dexter' Officially Returns in 6 Days With Two Brand-New Serial Killers
+
+TV News, Dexter: Resurrection, Paramount+ with Showtime, Michael C. Hall, Thriller
+
+Mon, 26 Oct 2026 00:45:14 GMT
+
+https://collider.com/dexter-resurrection-season-2-premiere-date-october-2026/
+
+As age catches up with Dexter, the job is harder than ever, with two serial killers on the loose in Resurrection Season 2. Get all the details here.
+---------
+
+# Apple TV's Bingeworthy Sci-Fi Thriller Officially Takes Over Streaming
+
+TV News, Silo, Apple TV, Sci-Fi, Thriller
+
+Mon, 26 Oct 2026 00:30:14 GMT
+
+https://collider.com/apple-tv-silo-streaming-success-october-2026/
+
+Ahead of its final season, Apple TV's gripping sci-fi thriller is ruling the streaming charts. Get all the details here.
+---------
+
+# 7 Psychological Thriller Books That Are Perfect From Beginning to End
+
+Books and Comics, Books, Psychological Thriller, Wishbone, Devil May Care
+
+Mon, 26 Oct 2026 00:24:15 GMT
+
+https://collider.com/psychological-thriller-books-perfect-beginning-to-end/
+
+The Vanishing, Rebecca, The Collector, The Good Son, and more make up our list of psychological thriller books that are perfect from beginning to end.
+---------
+
+# ‘Twilight’ Officially Meets ‘Blade’ in CBS’ New Vampire Sitcom [Exclusive]
+
+TV News, Eternally Yours, Sitcom, CBS, Twilight
+
+Mon, 26 Oct 2026 00:15:15 GMT
+
+https://collider.com/eternally-yours-parker-young-jesse-blade-vampire-lore-twilight/
+
+Parker Young reveals his Blade-inspired hopes for Jesse as Eternally Yours creator Joe Wiseman explains the show’s flexible vampire lore.
+---------
+
+# 8 Great Animated Movies You've Probably Never Heard Of
+
+Movie, Animation, The Gate to the Mind's Eye, The Wolf House, Mind Game
+
+Mon, 26 Oct 2026 00:02:14 GMT
+
+https://collider.com/great-obscure-animated-movies/
+
+Sure, studios like Disney and Pixar get all the press when it comes to animated features, but what about films like Mind Game or The Wolf House?
+---------
+
+# ‘Lord of the Rings’ Officially Confirms 2026 Release Is Less Than 3 Weeks Away
+
+TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video, Fantasy
+
+Mon, 26 Oct 2026 00:00:14 GMT
+
+https://collider.com/lord-of-the-rings-rings-of-power-season-3-release-date-november-2026/
+
+The Rings of Power Season 3 premieres November 11 on Prime Video, bringing Sauron closer to forging the One Ring.
+---------
+
+# 'Harry Potter' Officially Returns in 2 Months
+
+TV News, Harry Potter, Harry Potter and the Sorcerer's Stone, HBO Max
+
+Sun, 25 Oct 2026 23:30:15 GMT
+
+https://collider.com/harry-potter-hbo-series-christmas-2026-release/
+
+The new Harry Potter series officially arrives in just two months, bringing the beloved Wizarding World back to television.
+---------
+
+# 5 Thriller Books To Read Before Kicking the Bucket
+
+Books and Comics, Thriller, Silence of the Lambs, The Da Vinci Code, Agatha Christie
+
+Sun, 25 Oct 2026 23:21:15 GMT
+
+https://collider.com/thriller-books-to-read-bucket-list/
+
+Agatha Christie's Death on the Nile and Dan Brown's The Da Vinci Code are some of the thriller books you should add to your reading bucket list.
+---------
+
+# A24's New Thriller Officially Drops Its First Terrifying Teaser
+
+Movie News, Slayground, A24, Horror, Thriller
+
+Sun, 25 Oct 2026 23:15:14 GMT
+
+https://collider.com/slayground-teaser-trailer-a24-jeremy-saulnier/
+
+A24 unveils the Slayground teaser, starring Cory Michael Smith in Jeremy Saulnier’s haunted-attraction thriller opening January 29, 2027.
+---------
+
+# Disney+’s New Sci-Fi Series Officially Hits No. 1 on Streaming
+
+TV News, VisionQuest, Disney+, Sci-Fi, MCU
+
+Sun, 25 Oct 2026 23:00:15 GMT
+
+https://collider.com/visionquest-disney-plus-streaming-success-october-2026/
+
+Disney+'s new highly rated sci-fi thriller is officially the most-watched on streaming. Get all the details here.
+---------
+
+# Forget MobLand, Gritty 8-Part Thriller Epic Is Officially a Knockout 80-Day Streaming Smash Hit
+
+TV News, STARZ, Fightland, Thriller, Hot on Streaming
+
+Mon, 26 Oct 2026 00:00:17 GMT
+
+https://movieweb.com/fightland-starz-hit-october-2026/
+
+While MobLand has dominated much of the crime-drama conversation in 2026, Fightland may be emerging as a quieter success story for Starz.
+---------
+
+# Alexander Skarsgård’s 137-Minute (Very) R-Rated Historical Action Epic Finds Redemption on Streaming
+
+Movie News, Action, Thriller, The Northman, Alexander Skarsgard, HBO Max, Hot on Streaming
+
+Sun, 25 Oct 2026 23:01:18 GMT
+
+https://movieweb.com/the-northman-hbo-max-hit-october-2026/
+
+The Viking epic is still finding new viewers well after its box office run.
+---------
+
+# Netflix's Stephen King-Esque Mystery Box Sci-Fi Series Is So Good, You'll Spend the Whole Weekend Watching It
+
+Features, Dark, Sci-Fi, Stephen King, Mystery
+
+Sun, 25 Oct 2026 23:01:18 GMT
+
+https://movieweb.com/dark-streaming-recommendation/
+
+Netflix's 'Dark' beats most mystery box shows when it comes to sticking the landing, and its payoff makes it worth losing a weekend to.
+---------
+
 # After 3 Years, Netflix’s 25-Part Heist Thriller 'Lupin' Is One Of Its Best To Binge Again
 
 Streaming TV, Masked Recs
