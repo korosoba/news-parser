@@ -1,3 +1,443 @@
+# The Last Of Us Star Lands Major Role in Godzilla Minus Zero Director's Next Movie
+
+Movies, Nico Parker
+
+Mon, 26 Oct 2026 22:46:08 GMT
+
+https://screenrant.com/grandgear-takashi-yamazaki-movie-nico-parker-sam-nivola-cast/
+
+After Godzilla Minus Zero, Takashi Yamazaki is making Grandgear, a movie that has found its lead star, one of whom is from The Last of Us.
+---------
+
+# 2027's Most Anticipated Book Adaptation Comes From Literature's Most Unlikely Duo
+
+Books, Masked Recs
+
+Mon, 26 Oct 2026 22:45:18 GMT
+
+https://screenrant.com/2027-anticipated-adaptation-remain-unlikely-duo-nicholas-sparks-m-night-shyamalan/
+
+Discover the unique collaboration behind Remain, a project with Nicholas Sparks and M. Night Shyamalan, blending romance and supernatural mystery.
+---------
+
+# The Doctor's Daughter Is Officially Back In New Doctor Who Release
+
+Classic TV, Doctor Who
+
+Mon, 26 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/doctor-who-jenny-return-zero-chill/
+
+Doctor Who might be at a crossroads and exploring options, but the iconic character's family are not staying still, with Jenny on a new adventure
+---------
+
+# All 8 Street Fighter Movies, Ranked (Including 2026's Reboot)
+
+Movies, Street Fighter, Street Fighter: Assassin's Fist, Street Fighter II: The Animated Movie, Street Fighter Alpha: The Movie, Street Fighter Alpha: Generations, Street Fighter: The Legend of Chun-Li
+
+Mon, 26 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/street-fighter-movies-ranked-worst-best/
+
+Street Fighter has a rich history in the movies as well as the video games, and here's how they compare for fans and newcomers alike.
+---------
+
+# Marvel Confirms X-Men's New Leader For First Time, Replacing Cyclops
+
+Comics, X-Men
+
+Mon, 26 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/x-men-new-leader-jean-grey-replace-cyclops/
+
+After months of teasing, we know who'll take Scott's place.
+---------
+
+# Fox's Baywatch Reboot Gets Official Release Date
+
+TV, Baywatch
+
+Mon, 26 Oct 2026 22:22:24 GMT
+
+https://screenrant.com/baywatch-reboot-show-release-date-january-2027/
+
+Fox's Baywatch reboot finally receives an official release date, over 25 years after the original sun-drenched drama ended its 11-season run.
+---------
+
+# Solo Leveling's Official 2026 Return Is Set To Expand Series Canon
+
+Anime, Solo Leveling
+
+Mon, 26 Oct 2026 22:00:20 GMT
+
+https://screenrant.com/solo-leveling-2026-comeback-karma-release-date/
+
+The darkest and most exciting chapter of the Solo Leveling universe is almost here, and has been revealed to have an official 2026 release date.
+---------
+
+# 3-Part 'Tarantino Meets Buffy' Series Currently On Prime Deserves To Be As Big As Supernatural
+
+TV, Masked Recs
+
+Mon, 26 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/from-dusk-til-dawn-series-deserves-supernatural-success/
+
+Tarantino's brutal, bloody action set pieces meet Buffy-style wit in a reboot series that deepens myth and characters but keeps the stakes high.
+---------
+
+# 5 Horror Games Perfect For Stephen King Fans
+
+Gaming, Stephen King, Horror, Halloween 2026, PC
+
+Mon, 26 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/horror-games-for-stephen-king-fans/
+
+If you're a Stephen King fan looking for the perfect video game to dive into for the Halloween weekend, these titles will haunt your dreams.
+---------
+
+# 10 Best Far Side Comics Perfect For Book Lovers
+
+Comics, The Far Side
+
+Mon, 26 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/far-side-best-comics-books-literary-authors/
+
+We're looking at the best literary gags in The Far Side!
+---------
+
+# After 10 Years, Bleach Creator Finally Reveals Orihime's Alternate Death Route
+
+Anime, Bleach, BLEACH: Thousand-Year Blood War - The Calamity
+
+Mon, 26 Oct 2026 22:47:06 GMT
+
+https://www.cbr.com/bleach-tite-kubo-orihime-death/
+
+More than a decade later, the creator of Bleach opens up about the original plans for Orihime, and fans couldn't be happier that they changed.
+---------
+
+# It's Officially the End of an Era for the Reacher Series After 29 Years
+
+Books, Reacher, Thriller, Prime Video
+
+Mon, 26 Oct 2026 22:42:11 GMT
+
+https://www.cbr.com/reacher-books-lee-child-retiring-prime-video-spy-thriller/
+
+Reacher as you know it is about to end for good.
+---------
+
+# Ryan Gosling's $276M Cyberpunk Masterpiece Is Leaving Paramount+ in Just 5 Days
+
+Movies, Blade Runner 2049, Paramount Plus, Sci-Fi
+
+Mon, 26 Oct 2026 22:30:11 GMT
+
+https://www.cbr.com/blade-runner-2049-leaving-paramount-plus-october-2026/
+
+Paramount+ fans only have a few days left to watch this modern sci-fi classic.
+---------
+
+# Chris Evans' New Netflix Adventure Defeated by Ridley Scott's 148-Minute Historical Sequel
+
+Movies, Gladiator II, Sacrifice, Netflix
+
+Mon, 26 Oct 2026 22:30:11 GMT
+
+https://www.cbr.com/chris-evans-sacrifice-adventure-gladiator-2-netflix-october-2026/
+
+The awaited satire was swiftly knocked down the Netflix charts.
+---------
+
+# 4 Bleach Characters Stronger Than Sosuke Aizen
+
+Anime, Bleach
+
+Mon, 26 Oct 2026 22:15:11 GMT
+
+https://www.cbr.com/bleach-characters-stronger-than-sosuke-aizen/
+
+Sosuke Aizen stands at the pinnacle of the Bleach world, with very few characters stronger than him
+---------
+
+# Clint Eastwood's Must-See Prison Drama With 97% RT Exits Streaming in 5 Days
+
+Movies, Escape from Alcatraz, Paramount Plus, Clint Eastwood
+
+Mon, 26 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/clint-eastwood-escape-from-alcatraz-leaving-paramount-plus/
+
+There's only a few days left to watch this 1979 prison thriller.
+---------
+
+# 10 Greatest Western Movie Quotes Of All Time, Ranked
+
+Movies, Western, Tombstone, Unforgiven
+
+Mon, 26 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/best-western-movie-quotes-ranked-list/
+
+The Western continues to prove itself one of the best-written parts of cinema, but some quotes stand out among the very best there is.
+---------
+
+# In Just 2 Days, Ben Affleck's Divisive Crime Thriller Scores Major Streaming Milestone
+
+Movies, Animals, Netflix, Thriller
+
+Mon, 26 Oct 2026 21:30:11 GMT
+
+https://www.cbr.com/ben-affleck-animals-crime-nielsen-october-2026/
+
+The film has become a streaming success despite negative reviews.
+---------
+
+# Walter Koenig Remembered by George Takei and Star Trek Family
+
+TV, Star Trek, Star Trek: The Original Series
+
+Mon, 26 Oct 2026 21:21:37 GMT
+
+https://www.cbr.com/walter-koenig-tributes-george-takei-star-trek/
+
+George Takei and other members of the Star Trek family pay tribute to Walter Koenig.
+---------
+
+# Borderlands Meets Final Fantasy In Free New RPG On Steam
+
+Games, Video Games
+
+Mon, 26 Oct 2026 21:15:12 GMT
+
+https://www.cbr.com/outcast-tales-free-new-rpg/
+
+Free at launch, Outcast Tales is an absurd Borderlands like post-apocalyptic turn-based romp that rewards experimentation and laugh-out-loud chaos.
+---------
+
+# 5 Months Later, Prime Video’s Streaming Hit Is Still Dominating the Charts
+
+TV Features, Off Campus, Prime Video, Heated Rivalry, Romance
+
+Mon, 26 Oct 2026 22:52:12 GMT
+
+https://collider.com/off-campus-prime-video-5-month-streaming-charts/
+
+Off Campus' combination of romance and deeper themes has captivated viewers for months, and it's worth revisiting on Prime Video.
+---------
+
+# 'The Hunting Wives' Season 3 Is Netflix's Best Chance To Reinvent Its Streaming Formula
+
+TV Features, The Hunting Wives, Netflix, Streaming, Drama
+
+Mon, 26 Oct 2026 22:41:12 GMT
+
+https://collider.com/the-hunting-wives-season-3-renewal-netflix-streaming-formula-reinvention/
+
+Netflix's decision to renew The Hunting Wives for Season 3 before its second season premieres needs to become the new norm for the streamer.
+---------
+
+# 3 Best Movies To Watch on Prime Video Before October Ends
+
+Movie, Prime Video, MaXXXine, Skyfall, The Idea of You
+
+Mon, 26 Oct 2026 22:34:12 GMT
+
+https://collider.com/best-movies-prime-video-october-26-2026/
+
+Maxxxine, Skyfall, and The Idea of You make up our list of the best movies to watch on Prime Video the week of October 26.
+---------
+
+# Olivia Colman’s Thrilling New Fairytale Officially Becomes a Box Office Sleeper Hit
+
+Movie News, Olivia Colman, Wicker, Box Office, Peter Dinklage
+
+Mon, 26 Oct 2026 22:00:12 GMT
+
+https://collider.com/wicker-box-office-debut-5-million-olivia-colman/
+
+Olivia Colman and Alexander Skarsgård’s Wicker debuts in theaters, becoming a surprise Top-5 box office success.
+---------
+
+# 5 Game of the Year Games That Aged Like Milk
+
+Gaming, Video Game, The Game Awards, Overwatch, game awards
+
+Mon, 26 Oct 2026 21:53:12 GMT
+
+https://collider.com/game-of-the-year-games-aged-like-milk/
+
+While being considered Game of the Year is normally a prestigious honor, some games that have won the award over the years haven't aged very well.
+---------
+
+# Marvel and Star Wars Are Officially Crossing Over Next Year
+
+Movie News, Star Wars, Kevin Feige, Marvel
+
+Mon, 26 Oct 2026 21:40:12 GMT
+
+https://collider.com/star-wars-marvel-hope-assembles-kevin-smith-crossover-2027/
+
+Star Wars and Marvel are officially crossing over in Hope Assembles, a new comic event arriving for the franchise's 50th anniversary.
+---------
+
+# 7 Netflix Action Shows Where Every Episode Is a Masterpiece
+
+TV, Netflix, Action, The Night Agent, The Witcher
+
+Mon, 26 Oct 2026 21:36:12 GMT
+
+https://collider.com/netflix-action-shows-every-episode-masterpiece/
+
+From the fantasy adventure The Witcher to thriller series The Night Agent, every episode of these Netflix action shows is a genuine masterpiece.
+---------
+
+# Star Trek Officially Reveals Captain Kirk’s New Look for November 13 Release
+
+TV News, Star Trek, William Shatner, Star Trek: The Original Series, Magic: The Gathering
+
+Mon, 26 Oct 2026 21:26:20 GMT
+
+https://collider.com/star-trek-captain-kirk-new-look-magic-the-gathering-november-13/
+
+Captain Kirk gets a new look in Magic: The Gathering | Star Trek, the 60th-anniversary crossover releasing November 13.
+---------
+
+# ‘Resident Evil’ Officially Becomes the Franchise’s Biggest Movie After Being Removed From 1,000 Theaters
+
+Movie News, Resident Evil, Horror, Zach Cregger
+
+Mon, 26 Oct 2026 21:20:12 GMT
+
+https://collider.com/resident-evil-2026-box-office-milestone-theater-loss/
+
+Zach Cregger's Resident Evil passes $380 million worldwide despite losing more than 1,500 theaters since opening.
+---------
+
+# Netflix’s Hit Fantasy Series Reveals First Look at 4 Returning Characters Ahead of Season 2
+
+TV News, Delicious in Dungeon, Netflix, Animation, Fantasy
+
+Mon, 26 Oct 2026 21:19:26 GMT
+
+https://collider.com/delicious-in-dungeon-season-2-first-look-falin-kabru-mithrun-thistle/
+
+Delicious in Dungeon Season 2 unveils new character designs for Falin, Kabru, Mithrun and Thistle before its October 2027 Netflix premiere.
+---------
+
+# 33 Years Later, Sam’s Greatest 'Cheers' Quote Still Has No Equal
+
+Features, Cheers, Comedy, Great Line
+
+Mon, 26 Oct 2026 22:00:16 GMT
+
+https://movieweb.com/cheers-sam-best-quote/
+
+Ted Danson's 'Cheers' character Sam Malone is one of his greatest performances, and he has one particularly powerful quote from the NBC sitcom.
+---------
+
+# Netflix's New 4-Part "Training Day Meets End of Watch" Crime Thriller Officially Reaches Major Milestone
+
+TV News, Netflix, Crime
+
+Mon, 26 Oct 2026 21:45:11 GMT
+
+https://movieweb.com/jotade-netflix-thriller-filming/
+
+The upcoming series is one step closer to release.
+---------
+
+# Ridley Scott's Greatest TV Thriller Was So Good, Nothing Has Matched It Since
+
+TV Shows, The Terror, Ridley Scott, Thriller
+
+Mon, 26 Oct 2026 21:30:16 GMT
+
+https://movieweb.com/the-terror-season-1-perfect/
+
+Ridley Scott has directed some of the most popular movies like 'Alien' and 'Gladiator ', but his TV thriller series remains impressive.
+---------
+
+# HBO's Unfinished Sci-Fi Epic Still Has One of the Best Seasons in TV History
+
+Features, Westworld, HBO Max, Sci-Fi
+
+Mon, 26 Oct 2026 21:00:16 GMT
+
+https://movieweb.com/westworld-best-tv-season/
+
+Sometimes stopping after Season 1 is the superior option, and that's certainly the case for a once-promising HBO series. Read on for more.
+---------
+
+# Jon Bernthal's Forgotten 103-Minute Crime Thriller Is Officially Being Cut from Netflix This Week
+
+Movie News, Jon Bernthal, Small Engine Repair, Coming/Leaving Streaming, Crime, Thriller, Netflix
+
+Mon, 26 Oct 2026 21:00:16 GMT
+
+https://movieweb.com/small-engine-repair-jon-bernthal-streaming-netflix-october-2026/
+
+You only have a short time left to stream one of Jon Bernthal's best movies before it's gone from Netflix.
+---------
+
+# Netflix's R-Rated Hit 'Nobody Wants This' Gets Season 4 Update After Becoming #1 Hit
+
+TV News, Nobody Wants This, Netflix, Romance, Comedy
+
+Mon, 26 Oct 2026 20:41:43 GMT
+
+https://movieweb.com/nobody-wants-this-season-4-netflix/
+
+Is this the end for 'Nobody Wants This?'
+---------
+
+# Netflix's 'The Lincoln Lawyer' Gets Official Season 5 Release Window
+
+TV News, The Lincoln Lawyer, Netflix, Drama
+
+Mon, 26 Oct 2026 20:33:39 GMT
+
+https://movieweb.com/lincoln-lawyer-season-5-2027-netflix/
+
+We finally know when we'll be able to watch the final season of Netflix's acclaimed legal drama, more or less.
+---------
+
+# Alan Ritchson's DCU Future Officially Addressed by DC Studios
+
+Movie News, DCU, Alan Ritchson, Peter Safran, Action, Superhero, Adventure
+
+Mon, 26 Oct 2026 20:19:47 GMT
+
+https://movieweb.com/alan-ritchson-peter-safran-dc-future/
+
+Alan Ritchson, one of the biggest action stars in the world, still has a chance to join the growing DC Universe under James Gunn.
+---------
+
+# Clint Eastwood's 141-Minute War Epic Masterpiece Still Beats Any Western He Ever Made
+
+Features, Clint Eastwood, Western, War, Letters from Iwo Jima
+
+Mon, 26 Oct 2026 20:00:16 GMT
+
+https://movieweb.com/letters-from-iwo-jima-clint-eastwood-best-movie/
+
+Clint Eastwood has directed many critically acclaimed and popular movies, but this war film is better than any of his Westerns.
+---------
+
+# Jenna Ortega's Dystopian Sci-Fi Movie Officially Lands Record-Breaking Box Office Weekend
+
+Movie News, Klara and the Sun, Jenna Ortega, Sci-Fi, Drama
+
+Mon, 26 Oct 2026 19:20:59 GMT
+
+https://movieweb.com/klara-and-the-sun-box-office/
+
+Jenna Ortega's dystopian sci-fi adaptation makes box office history during its opening weekend, marking a major milestone for the film.
+---------
+
 # It's Officially The End Of An Era For Netflix's Wednesday
 
 Streaming TV, Wednesday
