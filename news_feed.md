@@ -1,3 +1,377 @@
+# The Wheel Of Time Is Officially Rewriting Its Own History In New Adaptation
+
+Gaming, The Wheel of Time, PC
+
+Mon, 26 Oct 2026 05:31:18 GMT
+
+https://screenrant.com/wheel-of-time-war-of-the-dragon-rewriting-history/
+
+The Wheel of Time's newest adaptation officially rewrites everything we've come to know about The Last Battle and The Dragon Reborn.
+---------
+
+# Star Trek: Voyager Officially Begins A New Era In Across The Unknown
+
+Gaming, Star Trek, Star Trek: Voyager
+
+Mon, 26 Oct 2026 05:00:19 GMT
+
+https://screenrant.com/star-trek-voyager-across-the-unknown/
+
+Star Trek: Voyager is one of the most iconic adaptations to date, and a game released earlier this year takes it into a whole new medium.
+---------
+
+# Netflix's 24-Episode Sci-Fi Series Deserves Kudos For Putting Power In The Hands Of Viewers
+
+Classic TV, Masked Recs
+
+Mon, 26 Oct 2026 05:00:19 GMT
+
+https://screenrant.com/netflix-sense8-cancelation-fan-campaign-revival/
+
+Netflix's Sense8 was met with rave reviews for being different from most sci-fi TV shows, and it was saved from cancellation in an creative way.
+---------
+
+# Battlestar Galactica: Fall Of Kobol Keeps The Series Alive
+
+Gaming, Battlestar Galactica, PC
+
+Mon, 26 Oct 2026 04:31:19 GMT
+
+https://screenrant.com/battlestar-galactica-fall-of-kobol-conversion-mod/
+
+Battlestar Galactica fans are nothing if not dedicated, with this Fall of Kobol adaptation officially keeping the series alive.
+---------
+
+# Backrooms: Savior Will Officially Release March 2027
+
+Gaming, Backrooms
+
+Mon, 26 Oct 2026 04:00:21 GMT
+
+https://screenrant.com/backrooms-savior-march-2027-release-date-psa/
+
+Backrooms was one of the biggest revelations in cinema this year, and a new game brings it back to the medium where it all started.
+---------
+
+# Warhammer 40K's New Successor Series Is Coming From The Last Place Fans Expected
+
+Comics, Warhammer 40K, Masked Recs
+
+Mon, 26 Oct 2026 03:59:19 GMT
+
+https://screenrant.com/warhammer-40k-successor-green-lantern-doomed-cosmos/
+
+A shockingly gorgeous new series is coming in January 2027 to really embody the vibes of everyone's favorite grimdark tabletop wargame.
+---------
+
+# Spider-Man: Brand New Day's First 10 Minutes Matter So Much More Than You Think (& Here's Why)
+
+Superheroes, Spider-Man: Brand New Day, Marvel Cinematic Universe
+
+Mon, 26 Oct 2026 03:57:37 GMT
+
+https://screenrant.com/spider-man-brand-new-day-first-10-minutes-mcu-future-important/
+
+The first 10 minutes of Spider-Man: Brand New Day could become a much bigger deal for Peter Parker's future and what we could see in future movies.
+---------
+
+# 30 Years Later, DC's New Reboot Universe Proves The 1990s' Biggest Comics Feud Still Matters
+
+Comics, DC Comics
+
+Mon, 26 Oct 2026 03:54:10 GMT
+
+https://screenrant.com/dc-absolute-universe-proves-morrison-moore-feud-matters/
+
+DC's new reboot universe has spawned award-winning comics that also reignite an age-old debate on what superheroes can (and should) be.
+---------
+
+# Netflix's 5-Part Martial Arts Show Has Some Of The Best Fights In Live-Action Anime History
+
+Streaming TV, Masked Recs
+
+Mon, 26 Oct 2026 03:48:10 GMT
+
+https://screenrant.com/yu-yu-hakusho-live-action-netflix-best-fight-scenes/
+
+Netflix is the streaming home of an acclaimed martial arts show that features some of the greatest fight scenes in the history of live-action anime.
+---------
+
+# Sinestro's Yellow Lantern Corps Origin In The Comics, Explained
+
+DC Comics, Green Lantern
+
+Mon, 26 Oct 2026 03:45:18 GMT
+
+https://screenrant.com/sinestro-yellow-lantern-corps-explained/
+
+The Green Lanterns' most famous and longstanding enemies, the Yellow Lanterns, owe their origins to their Corps' leader, Thaal Sinestro.
+---------
+
+# 'We Want to Modernize It': Another Major 90s Series Is Being Rebooted for Today's Audiences
+
+TV, 7th Heaven
+
+Mon, 26 Oct 2026 04:36:42 GMT
+
+https://www.cbr.com/7th-heaven-reboot-modernize-jessica-biel/
+
+The trend of giving a modern adaptation to a hit series from the past is continuing.
+---------
+
+# 10 Hardest Zelda Games of All Time, Ranked
+
+Games, The Legend of Zelda, Nintendo, Innovation
+
+Mon, 26 Oct 2026 03:55:14 GMT
+
+https://www.cbr.com/hardest-zelda-games-of-all-time-ranked-list/
+
+Games like Twilight Princess are some of the hardest titles in the entire Zelda series.
+---------
+
+# Looney Tunes Star Eric Bauza, the Voice of Bugs Bunny, Daffy Duck & More, Dies at 46
+
+Movies, obituary, Looney Tunes
+
+Mon, 26 Oct 2026 03:49:38 GMT
+
+https://www.cbr.com/eric-bauza-dead/
+
+Prolific voice actor Eric Bauza, who was recently heard in Coyote vs. Acme, has suddenly passed away.
+---------
+
+# 8 Hard Sci-Fi Anime With No Bad Arcs
+
+Anime, Ghost in the Shell: Stand Alone Complex, Sci-Fi, Astra: Lost in Space
+
+Mon, 26 Oct 2026 03:45:14 GMT
+
+https://www.cbr.com/hard-sci-fi-anime-no-bad-arcs-list/
+
+Hard sci-fi like Ghost in the Shell: Stand Alone Complex and Planetes demands science, tight plotting, and ideas that hold up under scrutiny.
+---------
+
+# Stephen King's Most Underrated Movie Is Getting a Sequel Nearly 2 Decades Later
+
+Movies, 1408
+
+Mon, 26 Oct 2026 03:34:15 GMT
+
+https://www.cbr.com/1408-sequel-john-cusack-samuel-l-jackson/
+
+Fans can check back in to the Stephen King adaptation that doesn't get the attention it deserves.
+---------
+
+# Netflix’s 10-Episode Sci-Fi Hit Gets New 2027 Release
+
+Anime, Cyberpunk: Edgerunners, Netflix, Cyberpunk 2077
+
+Mon, 26 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/cyberpunk-edgerunners-anime-trading-card-game-expansion-2027/
+
+Cyberpunk 2077 fans have another reason to celebrate as Netflix's hit sci-fi anime prepares for a brand-new release in Spring 2027.
+---------
+
+# Twin Peaks: The Return's Most Shocking Episode Remains TV's Most Untouchable 58 Minutes
+
+TV, Twin Peaks, Thriller, David Lynch, Innovation
+
+Mon, 26 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/twin-peaks-the-return-part-8-most-shocking-episode-ever/
+
+Although the entirety of Twin Peaks Season 3 is considered a masterpiece of TV, there's an episode that stands out as one of David Lynch's best works.
+---------
+
+# 10 Meanest Peanuts Comics That Treat Charlie Brown Like Garbage
+
+Comics, Peanuts
+
+Mon, 26 Oct 2026 03:30:14 GMT
+
+https://www.cbr.com/meanest-peanuts-comics-that-treat-charlie-brown-poorly/
+
+Everyone in Charles Schulz's beloved strip is incredibly mean to Charlie Brown, including himself, which can make Peanuts even funnier to some fans.
+---------
+
+# 10 '80s Arcade Games With the Most Brutal Difficulty Spikes, Ranked
+
+Games, Video Games, Nintendo
+
+Mon, 26 Oct 2026 03:15:14 GMT
+
+https://www.cbr.com/80s-arcade-games-most-brutal-difficulty-spikes/
+
+These classic arcade games from the '80s got drastically harder as they went on.
+---------
+
+# James Gunn Points to Star Wars to Defend the DCU from Major Fan Complaint
+
+Movies, DCU
+
+Mon, 26 Oct 2026 02:57:53 GMT
+
+https://www.cbr.com/james-gunn-dcu-defense-individual-stories/
+
+James Gunn doesn't get why Star Wars gets a pass for what the DCU gets criticism for doing.
+---------
+
+# 10 Great Video Games That Deserve More Credit Than They Get
+
+Gaming, Video Game, The Legend of Zelda: Skyward Sword, Mad Max
+
+Mon, 26 Oct 2026 03:58:15 GMT
+
+https://collider.com/best-video-games-deserve-more-credit/
+
+From Pillars of Eternity to Mario + Rabbids: Kingdom Battle, these stellar video games have sadly never received the credit they have always deserved.
+---------
+
+# ‘Smallville’ Star’s Forgotten 21-Episode Sci-Fi Reboot Deserves Your Next Binge
+
+TV Features, Flash Gordon, Smallville, Sci-Fi, SyFy
+
+Mon, 26 Oct 2026 03:24:14 GMT
+
+https://collider.com/smallville-star-flash-gordon-forgotten-sci-fi-reboot/
+
+Eric Johnson's 2007 Flash Gordon reboot lasted just one season, but the forgotten SyFy series deserves another chance nearly 20 years later.
+---------
+
+# Forget ‘The Wire,’ HBO’s Ambitious Crime Thriller Is Still One of Its Best 29 Years Later
+
+TV Features, The Wire, Oz, HBO, Thriller
+
+Mon, 26 Oct 2026 03:24:14 GMT
+
+https://collider.com/the-wire-hbo-replacement-oz-series/
+
+HBO's Oz changed television forever in 1997. Nearly 30 years later, the groundbreaking prison drama remains one of its greatest series.
+---------
+
+# 6 HBO Miniseries Endings That Are Genuine Masterpieces
+
+TV, HBO, TV Miniseries, Band of Brothers, The Outsider
+
+Mon, 26 Oct 2026 03:22:15 GMT
+
+https://collider.com/hbo-miniseries-endings-masterpieces/
+
+It's a rare achievement to finish a show well, and HBO miniseries like Band of Brothers and The Outsider have endings that are true masterpieces.
+---------
+
+# The 72 Best Movies on Netflix Right Now
+
+Movie, Netflix, Thriller, Action, Animation
+
+Mon, 26 Oct 2026 02:27:14 GMT
+
+https://collider.com/best-movies-on-netflix-streaming/
+
+Godzilla Minus One, May December, Woman of the Hour, Nimona, and more — here are the best movies on Netflix right now.
+---------
+
+# 'Tracker' Finally Delivers on What Colter Shaw Has Been Missing for 2 Seasons | Review
+
+TV Reviews, Justin Hartley, Tracker, CBS, Action
+
+Mon, 26 Oct 2026 02:00:24 GMT
+
+https://collider.com/tracker-season-4-episode-4-review-colter-shaw-romance-stephen-king/
+
+Colter Shaw heads to Utah for a dark, new case that feels like it was plucked right out of a Stephen King novel.
+---------
+
+# 10 Netflix Shows That Are the Perfect Weekend Binge
+
+TV, Netflix, Beef, Baby Reindeer, The Queen's Gambit
+
+Mon, 26 Oct 2026 01:22:15 GMT
+
+https://collider.com/netflix-shows-perfect-weekend-binge/
+
+Explore the best Netflix shows for a weekend binge that are hard to pause and easy to enjoy, including Beef, Arcane, and Baby Reindeer.
+---------
+
+# Sam Raimi’s R-Rated Horror Nightmare Is Officially Back From the Dead on HBO Max
+
+Movie News, Evil Dead Burn, Sam Raimi, Horror, Netflix
+
+Mon, 26 Oct 2026 01:00:15 GMT
+
+https://collider.com/evil-dead-burn-streaming-success-hbo-max-october-2026/
+
+Discover how Evil Dead Burn became a streaming hit, exploring themes of trauma and survival in horror.
+---------
+
+# ‘Marshals’ Thrilling Two-Parter Drops an Explosive Cliffhanger | Review
+
+TV Reviews, Marshals, Luke Grimes, Logan Marshall-Green, CBS
+
+Mon, 26 Oct 2026 01:00:15 GMT
+
+https://collider.com/marshals-season-2-episode-4-recap/
+
+Marshals Season 2 Episode 4 brings back a key fugitive and delivers a shocking cliffhanger for a two-episode arc.
+---------
+
+# Eric Bauza, Voice of Bugs Bunny & More, Dies at 46
+
+Movie News, Eric Bauza, Looney Tunes
+
+Mon, 26 Oct 2026 03:23:38 GMT
+
+https://movieweb.com/eric-bauza-dies-aged-46/
+
+Eric Bauza is no longer with us after spending the last quarter-century voicing some of the most iconic animated characters in history.
+---------
+
+# FX's Forgotten 13-Part War Series Can Be Binge-Watched in One Intense Weekend
+
+Features, Over There, War
+
+Mon, 26 Oct 2026 02:30:18 GMT
+
+https://movieweb.com/over-there-streaming-recommendation/
+
+FX only got to run one season of an intense Iraq War drama that was the first scripted show set in a current, ongoing U.S. military action.
+---------
+
+# The 10 Greatest Fantasy Book Series With the Best World-Building
+
+TV Lists, Fantasy
+
+Mon, 26 Oct 2026 02:06:40 GMT
+
+https://movieweb.com/fantasy-series-best-world-building/
+
+Fantasy books with the strongest world-building don't use their settings as dressing, but make them integral to the characters and plots.
+---------
+
+# DC's New Near-Perfect Thriller Officially Defeats the Year's Highest-Rated Movie With #1 Debut
+
+Movie News, Clayface, You Can See Everything, Box Office Milestones, Thriller
+
+Mon, 26 Oct 2026 01:00:17 GMT
+
+https://movieweb.com/clayface-box-office-milestone/
+
+Clayface took the top spot in its debut weekend, but You Can See Everything remained close behind.
+---------
+
+# Christian Bale’s 135-Minute Western Epic Is a Stealth Remake of a John Wayne Masterpiece
+
+Features, Hostiles, Western, Christian Bale, The Searchers, John Wayne
+
+Mon, 26 Oct 2026 01:00:05 GMT
+
+https://movieweb.com/hostiles-remake-the-searchers/
+
+The brutal revisionist Western was a box office bomb, but it deserves more recognition in how perfectly it recalls one of Wayne's best movies.
+---------
+
 # Clayface Director Reveals Why Movie Didn't Use The Original Villain
 
 Movies, Clayface
