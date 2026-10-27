@@ -1,3 +1,388 @@
+# How Powerful Clayface Is Compared To Batman & Who'd Win In A DCU Fight
+
+Movies, Clayface, DC Universe
+
+Tue, 27 Oct 2026 01:48:36 GMT
+
+https://screenrant.com/clayface-powers-abilities-batman-comparison-explained/
+
+Clayface has made his live-action debut in James Gunn's DC Universe, showcasing just how impressive his powers are, and this is how Batman compares.
+---------
+
+# Walter Keonig’s Last Star Trek Quote As Chekov Is His Most Important In History
+
+Classic TV, Star Trek, Star Trek: Picard
+
+Tue, 27 Oct 2026 01:30:18 GMT
+
+https://screenrant.com/star-trek-walter-koenig-last-chekov-quote-history/
+
+The late Walter Koenig's final time performing Chekov wasn't his iconic character and he never showed his face, but it was historic nonetheless.
+---------
+
+# Disney Narnia Star Reacts To Netflix’s Bold New Movie After Record-Breaking Trailer
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia
+
+Tue, 27 Oct 2026 01:03:19 GMT
+
+https://screenrant.com/netflix-narnia-the-magicians-nephew-trailer-anna-popplewell-reaction/
+
+After the release of the record-breaking trailer for Narnia: The Magician's Nephew, one of the franchise's Disney-era stars reveals their reaction.
+---------
+
+# Clayface 2: What’s Next For The DCU’s Matt Hagen (Everything We Know)
+
+Superheroes, Clayface, DC Universe
+
+Tue, 27 Oct 2026 01:01:18 GMT
+
+https://screenrant.com/clayface-2-dcu-future-sequel-everything-we-know/
+
+Although Clayface is just now in theaters as a peak body-horror thriller, one has to wonder what's next for Matt Hagen in the DCU's future.
+---------
+
+# One Of Netflix’s Best New Sci-Fi Movies Takes Less Than An Hour To Watch
+
+Anime, Netflix, Masked Recs
+
+Tue, 27 Oct 2026 01:00:18 GMT
+
+https://screenrant.com/milky-subway-netflix-best-new-sci-fi-series/
+
+For viewers craving a space adventure but short on time, this sci-fi film with cyberpunk elements on Netflix can be watched in less than 50 minutes.
+---------
+
+# Undertone Ending Explained: What Happens To Evy And Why The Film Takes An Ambiguous Approach To The Supernatural
+
+Movies, undertone
+
+Tue, 27 Oct 2026 01:00:18 GMT
+
+https://screenrant.com/undertone-ending-explained/
+
+Undertone's haunting ending is an effective, scary turn that leans into the ambiguous elements that have driven much of the film's underlying horror.
+---------
+
+# 12 Best Silenced Weapons in Cyberpunk 2077
+
+Gaming, Cyberpunk 2077, PC
+
+Tue, 27 Oct 2026 01:00:18 GMT
+
+https://screenrant.com/best-silenced-weapons-cyberpunk-2077/
+
+If you prefer to go unnoticed while working on gigs in Night City, you will need some of the best silenced weapons in Cyberpunk 2077 to assist you.
+---------
+
+# 34 Years Later, DC Officially Lets 2 Classic Villains Win With The Fairytale Ending They Deserve
+
+DC Comics
+
+Tue, 27 Oct 2026 00:53:19 GMT
+
+https://screenrant.com/mr-freeze-nora-dc-classic-villains-fairytale-ending/
+
+DC has let two antagonists take over Gotham City for a sunrise, resulting in one of the best love letters to their doomed relationship.
+---------
+
+# 15 Things You Didn't Know About Wile E. Coyote
+
+Classic TV, Looney Tunes, Coyote Vs. Acme
+
+Tue, 27 Oct 2026 00:45:18 GMT
+
+https://screenrant.com/things-you-did-not-know-about-wile-e-coyote/
+
+Coyote vs. Acme brought Wile E. Coyote back to the screen. Now, take a closer look at this scraggly-tailed superstar, his origins, and his impact.
+---------
+
+# Permanent Change To Green Lantern Lore Announced By DC
+
+DC Comics, Green Lantern
+
+Tue, 27 Oct 2026 00:33:06 GMT
+
+https://screenrant.com/permanent-change-to-green-lantern-lore-announced-by-dc/
+
+DC confirms the Green Lanterns' mythos is about to undergo a huge and potentially controversial retcon that reinvent the very origins of every Corps.
+---------
+
+# 10 Hardest '90s Arcade Games of All Time, Ranked
+
+Games, Video Games, Gaming
+
+Tue, 27 Oct 2026 01:45:11 GMT
+
+https://www.cbr.com/all-time-hardest-90s-arcade-games-ranked/
+
+These titles were incredibly difficult to defeat, but that didn't mean players gave up on them!
+---------
+
+# Ethan Hawke's 102-Minute Action Thriller Prepares to Leave Streaming Next Month
+
+Movies, Good Kill, Thriller, Paramount Plus
+
+Tue, 27 Oct 2026 01:30:11 GMT
+
+https://www.cbr.com/ethan-hawke-good-kill-action-thriller-leaving-paramount-october-31/
+
+Time is running out to watch Ethan Hawke's 2015 drama and action thriller, Good Kill, on streaming.
+---------
+
+# 5 Horror Anime Perfect for Carrie Fans
+
+Anime, Carrie, Horror, Innovation
+
+Tue, 27 Oct 2026 01:25:12 GMT
+
+https://www.cbr.com/horror-anime-perfect-for-carrie-fans/
+
+From ostracized outsiders in Elfen Lied to revenge in Hell Girl and mob hysteria in Shiki, these anime echo Carr
+---------
+
+# John Carpenter & Kurt Russell's 101-Minute Post-Apocalyptic Action Sequel Confirms Streaming Exit
+
+Movies, Action, Escape From L.A., Escape From New York, Paramount, Paramount Plus
+
+Tue, 27 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/john-carpenter-kurt-russell-escape-from-la-action-sequel-streaming-exit/
+
+Kurt Russell's cult classic is on its way out of a major streaming platform.
+---------
+
+# Wildwood is a Fantasy Cult Classic Movie
+
+Movies, Wildwood
+
+Tue, 27 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/wildwood-fantasy-cult-classic-movie/
+
+Stop-motion animation is on the rise again and this gorgeous piece of cinema is the future of the industry.
+---------
+
+# IT: Welcome to Derry Is Switching Genres & Changing Its Pennywise Formula in Season 2
+
+TV, It: Welcome to Derry, hbo, Horror
+
+Tue, 27 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/it-welcome-to-derry-season-2-genre-pennywise-updates/
+
+Season 2 of It: Welcome to Derry will once again feature Bill Skarsgård's Pennywise, but he's taking a backseat in this self-described gangster drama.
+---------
+
+# DC Studios Confirms Talks With Reacher Star Alan Ritchson for DCU Role
+
+Movies, DCU
+
+Tue, 27 Oct 2026 00:57:27 GMT
+
+https://www.cbr.com/alan-ritchson-dc-return-peter-safran/
+
+Alan Ritchson's arrival in the DCU is just a matter of time.
+---------
+
+# 10 Classic PS1 RPGs That Are Unplayable Today
+
+Games, RPG, JRPG, PlayStation (Original), Innovation, Video Games
+
+Tue, 27 Oct 2026 00:45:11 GMT
+
+https://www.cbr.com/classic-unplayable-ps1-rpgs/
+
+These classic role-playing games for the original PlayStation might have been great back in the day, but today, they just don't hold up.
+---------
+
+# Tom Hiddleston's New 98% RT Apple TV Hit Loses No. 1 to a 25-Minute Halloween Classic
+
+Movies, Tenzing, Apple TV, It's the Great Pumpkin, Charlie Brown
+
+Tue, 27 Oct 2026 00:30:11 GMT
+
+https://www.cbr.com/tenzing-loses-no-1-apple-tv-chart-october-2026/
+
+The spirit of Halloween has Apple TV subscribers streaming a staple of the season over Tom Hiddleston's latest movie.
+---------
+
+# Transformers Returns to Cybertron's Final Days With Major New Story
+
+Anime, Transformers, Tabletop
+
+Tue, 27 Oct 2026 00:23:11 GMT
+
+https://www.cbr.com/transformers-resistance-official-preview/
+
+The Transformers franchise is about to get what could be one of the biggest releases in the history of Cybertron, and fans won't want to miss it.
+---------
+
+# 8 Movies To Watch if You Love 'Big Little Lies'
+
+Movie, Big Little Lies, Thelma & Louise, Nocturnal Animals, Drama
+
+Tue, 27 Oct 2026 01:38:12 GMT
+
+https://collider.com/movies-like-big-little-lies/
+
+Fans of the smash hit HBO drama series Big Little Lies will likely enjoy movies like Promising Young Woman, Fried Green Tomatoes, and Mystic River.
+---------
+
+# This Iconic Slasher Film Has the Coolest Soundtrack
+
+Music Features, Rock, Scream, Music, Horror
+
+Tue, 27 Oct 2026 01:38:12 GMT
+
+https://collider.com/scream-1996-slasher-movie-soundtrack-rock/
+
+Wes Craven's 1996 horror/slasher film Scream has the coolest soundtrack, featuring niche indie and alternative rock songs and hard rock hits.
+---------
+
+# 3 Elite Series to Binge on Prime Video This Week (Oct 26-30)
+
+TV, Prime Video, Helluva Boss, Scream Queens, Friday Night Lights
+
+Tue, 27 Oct 2026 01:11:12 GMT
+
+https://collider.com/prime-video-shows-binge-october-26-2026/
+
+Helluva Boss, Scream Queens, and Friday Night Lights make up our list of best shows to watch on Prime Video the week of October 26.
+---------
+
+# Netflix Is Officially Reviving This 18-Episode Comedy That’s the Perfect Weekend Binge
+
+TV Features, The Inbetweeners, Netflix, The Inbetweeners 2, The Inbetweeners Movie
+
+Tue, 27 Oct 2026 00:52:12 GMT
+
+https://collider.com/netflix-inbetweeners-series-revival-third-movie-sequel/
+
+The Inbetweeners 3 is officially a go at Netflix, and there's never been a better time to get lost in its cringe comedy and teenage antics.
+---------
+
+# 8 Fantasy Shows From the 2010s That Are Perfect From Start to Finish
+
+TV, Fantasy, Over the Garden Wall, Attack On Titan
+
+Mon, 26 Oct 2026 23:14:12 GMT
+
+https://collider.com/fantasy-shows-2010s-perfect-start-to-finish/
+
+Over the Garden Wall, The Good Place, and My Little Pony: Friendship Is Magic are some of the best, most perfect fantasy shows of the 2010s.
+---------
+
+# George Takei and More Star Trek Legends Pay Tribute to Walter Koenig After His Death at 90
+
+TV News, Walter Koenig, Terry Matalas, George Takei, Todd Stashwick
+
+Mon, 26 Oct 2026 23:07:14 GMT
+
+https://collider.com/walter-koenig-death-star-trek-tributes-george-takei-terry-matalas/
+
+George Takei, Terry Matalas and other Star Trek figures remember Walter Koenig following the Chekov actor’s death at age 90.
+---------
+
+# ‘Helldivers 3’ Is Officially Not Happening for 1 Major Reason
+
+Gaming News, Helldivers, Video Game, PlayStation 5, Xbox Series X/S
+
+Mon, 26 Oct 2026 23:02:53 GMT
+
+https://collider.com/helldivers-3-update-arrowhead-helldivers-2-sequel/
+
+Arrowhead boss Johan Pilestedt explains why Helldivers 3 is not a priority while 95% of the studio remains focused on Helldivers 2.
+---------
+
+# Jon Bernthal's Action Epic Refuses to Slow Down as It Becomes the Biggest R-Rated Movie Ever
+
+Movie News, Box Office Milestones, The Odyssey, Jon Bernthal, Fantasy, Adventure
+
+Tue, 27 Oct 2026 01:00:16 GMT
+
+https://movieweb.com/the-odyssey-box-office-hit-october-2026/
+
+Christopher Nolan’s The Odyssey has officially passed Deadpool & Wolverine to become the highest-grossing R-rated movie ever.
+---------
+
+# Jason Statham's 111-Minute Heist Thriller Was 37 Years in the Making After the Government Tried To Bury It
+
+Features, The Bank Job, Crime, Thriller, Jason Statham
+
+Tue, 27 Oct 2026 01:00:16 GMT
+
+https://movieweb.com/the-bank-job-jason-statham-true-story/
+
+Jason Statham's intense heist thriller is based on a true story whose details will remain locked away for decades.
+---------
+
+# 36 Years Later, Essential 48-Episode Cult Thriller Resurfaces To Become the No. 1 Series on Streaming
+
+TV News, Twin Peaks, Thriller, Hot on Streaming
+
+Tue, 27 Oct 2026 00:30:16 GMT
+
+https://movieweb.com/twin-peaks-thriller-stream-october-2026/
+
+While TV has seen its fair share of experimental shows, nothing will top this unique murder mystery.
+---------
+
+# New 'Pacific Rim'-Esque Action Blockbuster From 'Godzilla: Minis Zero' Director Officially Confirms Main Cast
+
+Movie News, Godzilla Minus Zero, Sci-Fi, Grandgear
+
+Tue, 27 Oct 2026 00:09:23 GMT
+
+https://movieweb.com/grandgear-cast-confirmed/
+
+Sam Nivola and Nico Parker have been cast in lead roles in Takashi Yamazaki's upcoming sci-fi film, 'Grandgear.'
+---------
+
+# The 10 Most Powerful Brandon Sanderson Characters in the Cosmere, Ranked
+
+TV Lists, Brandon Sanderson, Fantasy, The Stormlight Archive, Mistborn
+
+Tue, 27 Oct 2026 00:01:16 GMT
+
+https://movieweb.com/brandon-sanderson-cosmere-most-powerful-characters/
+
+Mistborn, The Stormlight Archive, and Brandon Sanderson's other fantasy books provide fascinating "who would win" scenarios.
+---------
+
+# HBO’s Most Perfect War Series Is a 7-Part Epic You Can Binge in a Day
+
+Features, Generation Kill, War, David Simon, HBO Max, Thriller, Action
+
+Mon, 26 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/generation-kill-streaming-recommendation/
+
+Modern-day warfare has never felt so harrowing as in HBO's masterful 2008 miniseries, which subscribers can get through in a single day.
+---------
+
+# Netflix's 16-Episode Gothic Thriller Is Officially the Biggest Streaming Hit in History Ahead of New Season
+
+TV News, Wednesday, Hot on Streaming, Thriller, Netflix
+
+Mon, 26 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/wednesday-biggest-netflix-series-streaming-october-2026/
+
+Netflix's biggest streaming hit in history puts a fresh spin on an iconic character, and it's perfect for Halloween.
+---------
+
+# Genre-Defining Masterpiece That Sparked $1B Franchise Officially Scores New Release
+
+Movie News, Scream, Wes Craven, Horror, Blu-ray
+
+Mon, 26 Oct 2026 23:00:09 GMT
+
+https://movieweb.com/scream-4k-blu-ray-anniversary-release/
+
+Paramount Home Entertainment has unveiled a new 'Scream' 4K Ultra HD Blu-ray Collector's Set for the 30th anniversary of the slasher masterpiece.
+---------
+
 # The Last Of Us Star Lands Major Role in Godzilla Minus Zero Director's Next Movie
 
 Movies, Nico Parker
