@@ -1,3 +1,289 @@
+# 45 Episodes Of Netflix's Best Anthology Series Deliver Peak Sci-Fi
+
+Streaming TV, Masked Recs
+
+Tue, 27 Oct 2026 07:00:18 GMT
+
+https://screenrant.com/love-death-robots-netflix-best-anthology-peak-sci-fi/
+
+The best anthology show on Netflix is a science fiction series with 45 bite-sized episodes that could change how you view the entire genre.
+---------
+
+# Twin Peaks-Style Sci-Fi Mystery Series Now On Netflix Is The Perfect Halloween Binge
+
+Streaming TV, Masked Recs
+
+Tue, 27 Oct 2026 07:00:18 GMT
+
+https://screenrant.com/from-sci-fi-mystery-streaming-netflix/
+
+From is a must-watch TV show for Twin Peaks fans, featuring terrifying monsters, a mystery, and Harold Perrineau in his best role since Lost.
+---------
+
+# The Walking Dead: Aftermath Officially Reunites Rick And Daryl
+
+Gaming, The Walking Dead, The Walking Dead: Aftermath, PC
+
+Tue, 27 Oct 2026 06:30:18 GMT
+
+https://screenrant.com/walking-dead-aftermath-rick-daryl-reunion/
+
+The Walking Dead's Rick and Daryl are reuniting in a brand-new release, bringing the original series' most iconic characters back together again.
+---------
+
+# Netflix's Decades-Spanning Thriller Series Delivers A Masterclass In Horror And Sci-Fi
+
+Classic TV, Masked Recs
+
+Tue, 27 Oct 2026 06:24:01 GMT
+
+https://screenrant.com/gyeongseong-creature-netflix-decades-spanning-thriller/
+
+One of the greatest thrillers on Netflix’s TV catalog spans for decades and unfolds a gripping story that serves as a masterclass in horror and sci-fi
+---------
+
+# Mass Effect Meets Halo In Steam Sci-Fi RPG You Can Play Completely Free
+
+Gaming, Mass Effect, Halo
+
+Tue, 27 Oct 2026 06:00:18 GMT
+
+https://screenrant.com/steam-free-rpg-mass-effect-meets-halo/
+
+Mass Effect has officially gone for good (barring a miracle) but there are a few other games that might evoke similar feelings.
+---------
+
+# November 17 Is Officially A Dark Day For PlayStation Plus
+
+Gaming, PlayStation Plus, PlayStation 5
+
+Tue, 27 Oct 2026 05:30:18 GMT
+
+https://screenrant.com/playstation-plus-11-games-leaving-november-2026/
+
+PlayStation Plus is a fickle beast at the best of times, but November is proving to be a particularly hefty month for departures.
+---------
+
+# Rami Malek’s 45-Episode Thriller Masterpiece Feels Like A Documentary In 2026
+
+Classic TV, Masked Recs
+
+Tue, 27 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/mr-robot-documentary-thriller-2026/
+
+Starring Rami Malek, one of the greatest thrillers of our time feels so relevant and relatable that it is hard not to see it as a documentary in 2026.
+---------
+
+# Jurassic Park Officially Switches Genres In One Month
+
+Gaming, Jurassic Park, PC
+
+Tue, 27 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/jurassic-park-tcg-genre-switch-november/
+
+Jurassic Park will officially switch genres in a brand-new release slated to arrive in November 2026 as the franchise makes long-awaited return.
+---------
+
+# Battlestar Galactica's Official 2027 Return Has Fans Seriously Excited
+
+Gaming, Battlestar Galactica, PC
+
+Tue, 27 Oct 2026 04:30:18 GMT
+
+https://screenrant.com/battlestar-galactica-2027-board-game-fans-react/
+
+Battlestar Galactica is getting an unexpected reboot in 2027, and fans of the cult-favorite sci-fi series are seriously excited.
+---------
+
+# Xbox Game Pass Officially Getting 10/10 90-Hour JRPG For Free
+
+Gaming, Xbox Game Pass, Triple-A Games, JRPG, Final Fantasy 7 Remake
+
+Tue, 27 Oct 2026 04:00:18 GMT
+
+https://screenrant.com/xbox-game-pass-masterpiece-jrpg-free-october-29/
+
+A 90-hour JRPG with 10/10 review scores is joining the Xbox Game Pass catalog for free in a few days, so be sure to mark your calendar.
+---------
+
+# Sydney Sweeney Loses Top Spot on Next Bond Girl Betting Odds to Former Co-Star
+
+Movies, James Bond
+
+Tue, 27 Oct 2026 03:56:53 GMT
+
+https://www.cbr.com/sydney-sweeney-james-bond-girl-betting-odds-update/
+
+Sydney Sweeney is no longer the frontrunner to be the next Bond girl.
+---------
+
+# 5 Open-World RPGs You Can Play for 100 Hours or More
+
+Games, open world, RPG, Innovation
+
+Tue, 27 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/open-world-rpgs-over-100-hours-list/
+
+Open-world games like The Witcher 3 are so massive that they can keep players busy for well over 100 hours.
+---------
+
+# Netflix's Addictive 5-Part Crime Thriller Is the Perfect Weekend Noir Binge
+
+TV, Netflix, The Åre Murders, Thriller, Innovation
+
+Tue, 27 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/netflix-the-are-murders-perfect-bingeworthy-crime-thriller/
+
+This 5-part crime thriller is a cozy yet grim murder mystery series based on books and perfect for a weekend binge on Netflix.
+---------
+
+# Why Charlie Brown Comic Strips Are Called Peanuts (& Why Charles Schulz Hated It)
+
+Comics, Peanuts
+
+Tue, 27 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/peanuts-name-origin-explained/
+
+The Charlie Brown comics are officially known as the Peanuts strip, and the reason for it is somewhat bizarre, which is why Charles Schulz hated it.
+---------
+
+# Jujutsu Kaisen Creator Officially Reveals New Look at the Series' Next Generation
+
+Anime, Jujutsu Kaisen, Jujutsu Kaisen Modulo
+
+Tue, 27 Oct 2026 03:10:11 GMT
+
+https://www.cbr.com/jujutsu-kaisen-modulo-gege-akutami-final-exhibition/
+
+Jujutsu Kaisen fans have some new content to look forward to in the coming months.
+---------
+
+# Robert Downey Jr.'s Son Indio Lands First Lead Role in 'Tarantino-esque' Novel Adaptation
+
+Movies, robert downey jr
+
+Tue, 27 Oct 2026 03:01:13 GMT
+
+https://www.cbr.com/indio-downey-first-lead-role/
+
+Robert Downey Jr.'s son has officially become No. 1 on the call sheet for the very first time.
+---------
+
+# 10 Strongest Weapons in Fantasy Anime History, Ranked
+
+Anime, Jujutsu Kaisen, Inuyasha, Innovation
+
+Tue, 27 Oct 2026 02:45:11 GMT
+
+https://www.cbr.com/strongest-weapons-fantasy-anime-history-ranked/
+
+Some anime weapons are so absurdly powerful that their owners barely need to break a sweat.
+---------
+
+# 10 Most Valuable Pokémon Cards of All Time, Ranked by Price
+
+Games, Pokemon TCG, Innovation
+
+Tue, 27 Oct 2026 02:30:12 GMT
+
+https://www.cbr.com/most-valuable-pokemon-cards-all-time-ranked-by-price-lisst/
+
+Some of the priciest Pokémon cards, like Umbreon VMAX, are worth a small fortune.
+---------
+
+# 7 Most Unwatchable Classic 2000s Anime
+
+Anime, Fairy Tail, Vampire Knight
+
+Tue, 27 Oct 2026 02:00:22 GMT
+
+https://www.cbr.com/most-unwatchable-classic-2000s-anime/
+
+Anime series like Love Hina and Vampire Knight were celebrated in the 2000s but no longer hold up.
+---------
+
+# Florence Pugh’s 141-Minute 'Unsettling' Horror Is Leaving HBO Max Soon
+
+Movies, Midsommar, HBO Max
+
+Tue, 27 Oct 2026 02:00:22 GMT
+
+https://www.cbr.com/florence-pugh-midsommar-leaving-hbo-max-november-2026/
+
+Pugh broke out in the folk horror movie, which is set to leave its streaming home very soon.
+---------
+
+# The Best Book in Brandon Sanderson's Cosmere Is a Masterpiece in Worldbuilding
+
+Books and Comics, Books, The Stormlight Archive, Fantasy, Brandon Sanderson
+
+Tue, 27 Oct 2026 04:14:12 GMT
+
+https://collider.com/brandon-sanderson-best-cosmere-book-way-of-kings-masterpiece-worldbuilding/
+
+The Way of Kings is one of Brandon Sanderson's finest writing achievements, thanks to his unique ability to craft layered, impressive worldbuilding.
+---------
+
+# 41 Years Later, The Greatest Sci-Fi Adventure Quote Still Defines the Genre
+
+Movie Features, Back to the Future, Sci-Fi, Adventure, Michael J. Fox, Christopher Lloyd
+
+Tue, 27 Oct 2026 04:05:12 GMT
+
+https://collider.com/back-to-the-future-best-quote-sci-fi-adventure-movie/
+
+This quote from Back to the Future, spoken by Christopher Lloyd, described both the future of the series and the future of sci-fi adventure films.
+---------
+
+# 9 Years Later, Jon Hamm’s Near-Perfect Action Film is Still One of The Best Ever Made
+
+Movie Features, Jon Hamm, Baby Driver, Edgar Wright, Action
+
+Tue, 27 Oct 2026 03:42:12 GMT
+
+https://collider.com/jon-hamm-baby-driver-action-film/
+
+Jon Hamm stars in Baby Driver, directed by Edgar Wright, an action film that takes the genre to a whole new level.
+---------
+
+# 'Tracker' Needs a Major Change If It Wants To Remain One of CBS' Biggest Shows
+
+TV Features, Tracker, Justin Hartley, Paramount Plus, Action
+
+Tue, 27 Oct 2026 03:16:12 GMT
+
+https://collider.com/tracker-season-4-cbs-supporting-cast/
+
+Tracker must improve its character balance between Colter and the cast to keep viewer interest; it can't keep trying to have its cake and eat it too.
+---------
+
+# Kevin Bacon's John Wick Replacement Resurfaces as a Streaming Hit 19 Years Later
+
+Movie Features, Death Sentence, Kevin Bacon, James Wan, John Wick
+
+Tue, 27 Oct 2026 03:11:12 GMT
+
+https://collider.com/kevin-bacon-death-sentence-thriller-john-wick-streaming-tubi-october-2026/
+
+2007's Death Sentence, which saw Kevin Bacon become a John Wick-style fighter, has become a streaming hit on Tubi.
+---------
+
+# 6 'Game of Thrones' Swordsmen Better Than Jaime Lannister
+
+TV Lists, Game of Thrones, Game Of Thrones, Fantasy
+
+Tue, 27 Oct 2026 02:00:27 GMT
+
+https://movieweb.com/game-of-thrones-swordsmen-better-jaime-lannister/
+
+There aren't many fighters in the 'Song of Ice and Fire' universe who could take him.
+---------
+
 # How Powerful Clayface Is Compared To Batman & Who'd Win In A DCU Fight
 
 Movies, Clayface, DC Universe
