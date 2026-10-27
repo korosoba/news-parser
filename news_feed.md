@@ -1,3 +1,432 @@
+# HBO Officially Releasing New Series Remake Of Alfred Hitchcock’s 63-Year-Old Classic Thriller
+
+TV, The Birds, Alfred Hitchcock, HBO
+
+Tue, 27 Oct 2026 18:48:07 GMT
+
+https://screenrant.com/alfred-hitchcock-the-birds-series-remake-hbo-confirmed/
+
+HBO is officially moving forward with a new series remake of a classic Alfred Hitchcock thriller with an Emmy-winning star also attached.
+---------
+
+# After 32 Years, DC Officially Renames A Classic Hero
+
+DC Comics
+
+Tue, 27 Oct 2026 18:39:03 GMT
+
+https://screenrant.com/green-arrow-connor-hawke-new-name/
+
+DC reveals the identity of the hero who will replace a famous hero and Justice League member, with a subtle twist on their original name.
+---------
+
+# The MCU's Mutant Saga Could Pave The Way For A Future Captain America Replacement
+
+Movies, Captain America
+
+Tue, 27 Oct 2026 18:30:18 GMT
+
+https://screenrant.com/the-mcus-mutant-saga-could-introduce-a-captain-america-replacement/
+
+A mutant-centric future for the MCU could lead to a perfect replacement for Captain America whenever Sam Wilson's time as the hero comes to an end.
+---------
+
+# G.I. Joe's Crossover With A $600 Million Franchise Is Here, And It's Officially A Best-Seller
+
+Comics, GI Joe, skybound
+
+Tue, 27 Oct 2026 18:08:16 GMT
+
+https://screenrant.com/gi-joe-tomb-raider-crossover-best-seller/
+
+G.I. Joe x [spoilers] is already a major success.
+---------
+
+# Agatha Christie Meets Edgar Allan Poe In New Gothic Mystery You Can’t Miss
+
+Books, Mystery
+
+Tue, 27 Oct 2026 18:00:19 GMT
+
+https://screenrant.com/agatha-christie-edgar-allan-poe-please-enjoy-your-stay-recommendation/
+
+Every reader needs to pick up one fantastic 2026 Gothic mystery-thriller, which feels like the perfect blend of Agatha Christie and Edgar Allan Poe.
+---------
+
+# The Gilded Age Gets Deeper & More Personal In A Triumphant Season 4 | Review
+
+Streaming TV, The Gilded Age
+
+Tue, 27 Oct 2026 18:00:19 GMT
+
+https://screenrant.com/the-gilded-age-season-4-review/
+
+The Gilded Age returns for its fourth season with supreme confidence and a renewed focus on family drama and testing its huge cast of characters.
+---------
+
+# 10 Most Watched TV Finales Of All Time, Ranked
+
+Classic TV, M*A*S*H, Cheers, Roots
+
+Tue, 27 Oct 2026 18:00:19 GMT
+
+https://screenrant.com/most-watched-tv-show-finales-ever/
+
+From Friends to M*A*S*H, discover the 10 most-watched TV finales of all time, ranked by their record-breaking audiences and historic Nielsen ratings.
+---------
+
+# GTA 6 File Size Revealed, & It's Absolutely Massive
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games, PC
+
+Tue, 27 Oct 2026 17:59:47 GMT
+
+https://screenrant.com/gta-6-file-size-revealed/
+
+Grand Theft Auto 6 is set to be a massive game, and that descriptor will apparently apply just as much to the file size as it does to the market.
+---------
+
+# Dutton Ranch’s Era As Taylor Sheridan's Official Yellowstone Replacement Has Only Just Begun
+
+TV, Yellowstone, Dutton Ranch
+
+Tue, 27 Oct 2026 17:46:19 GMT
+
+https://screenrant.com/dutton-ranch-season-2-yellowstone-replacement-new-era/
+
+Dutton Ranch season 2 is on the way, with Beth and Rip continuing the Dutton legacy to Texas in a more authentic way than Kayce's Marshals spinoff.
+---------
+
+# 5 Weakest Order Of The Phoenix Members In Harry Potter, Ranked
+
+Books, Harry Potter
+
+Tue, 27 Oct 2026 18:30:11 GMT
+
+https://www.cbr.com/harry-potter-weakest-order-of-the-phoenix-members-ranked-list/
+
+The Order of the Phoenix was the only group that could stand up against Voldemort and his Death Eaters, but some were far weaker than others.
+---------
+
+# Masterpiece Anime With Better Worldbuilding Than Made in Abyss
+
+Anime, Made in Abyss, Attack On Titan, Fullmetal Alchemist: Brotherhood
+
+Tue, 27 Oct 2026 18:15:11 GMT
+
+https://www.cbr.com/masterpiece-anime-better-worldbuilding-made-in-abyss/
+
+Made in Abyss features a fascinating and mysterious world, but these five anime take worldbuilding to another level.
+---------
+
+# Zelda Celebrates With 5 New Switch 2 Releases Coming November
+
+Games, The Legend of Zelda, Nintendo
+
+Tue, 27 Oct 2026 18:10:11 GMT
+
+https://www.cbr.com/legend-of-zelda-new-switch-2-releases-november-2026/
+
+The Legend of Zelda is having its 40th anniversary celebrated in a big way this November, with five new releases coming to Switch 2.
+---------
+
+# Apple TV’s New 10-Episode Serial Killer Thriller Debuts to Perfect Rotten Tomatoes Score
+
+TV, Nocturne, Apple TV, Rotten Tomatoes
+
+Tue, 27 Oct 2026 18:02:46 GMT
+
+https://www.cbr.com/nocturne-apple-tv-rotten-tomatoes-score/
+
+The series is the perfect watch for Hannibal fans.
+---------
+
+# Nocturne: How Graham and Culkin Built the Tension
+
+TV, Nocturne
+
+Tue, 27 Oct 2026 18:00:12 GMT
+
+https://www.cbr.com/video/nocturne-how-graham-and-culkin-built-the-tension/
+
+Nocturne stars Stephen Graham and Rory Culkin explain how a steel door and a tiny window helped create one of the Apple TV thriller's most unsettling relationships.
+---------
+
+# Midnight Fantastic Four Writer Confirms 'Fake-Out' In First Issue Creates An All-New Origin for Doctor Doom
+
+Comics, Fantastic Four
+
+Tue, 27 Oct 2026 18:00:12 GMT
+
+https://www.cbr.com/midnight-fantastic-four-writer-confirms-doctor-doom-fake-out/
+
+Who is the real Midnight Doctor Doom?
+---------
+
+# The Gilded Age Season 4 Review: A Lavish Return That Feels Like Goodbye
+
+TV, The Gilded Age, HBO Max, hbo
+
+Tue, 27 Oct 2026 18:00:12 GMT
+
+https://www.cbr.com/the-gilded-age-season-4-review/
+
+Carrie Coon and Christine Baranski lead HBO's period drama through emotional reckonings, shifting alliances, and uneven storytelling.
+---------
+
+# Disney Officially Beats Paramount for 3-Year-Old Bestselling Fantasy Novel Series
+
+Movies, Disney
+
+Tue, 27 Oct 2026 17:43:47 GMT
+
+https://www.cbr.com/disney-adapting-divine-rivals-fantasy-romance/
+
+Disney is continuing its fantasy adaptations.
+---------
+
+# Street Fighter is Already a Cult Classic Fantasy Adventure Movie
+
+Movies, Street Fighter
+
+Tue, 27 Oct 2026 17:30:12 GMT
+
+https://www.cbr.com/street-fighter-2026-adventure-cult-classic-movie/
+
+Street Fighter hasn't garnered the hype that 2026's other video game adaptations have, but it's destined to become a classic.
+---------
+
+# Nocturne Review: Stephen Graham Elevates Apple TV’s Haunting Serial Killer Thriller
+
+TV, Nocturne, Apple TV, Crime
+
+Tue, 27 Oct 2026 17:21:50 GMT
+
+https://www.cbr.com/nocturne-review/
+
+CBR's Nocturne review finds an atmospheric Apple TV crime drama with a stellar cast, disturbing mind games, and a few narrative stumbles.
+---------
+
+# 'Call of Duty' Director's Netflix WWII Movie Officially Releases Jaw-Dropping Trailer
+
+Movie News, Netflix, Call of Duty, The Mosquito Bowl, Peter Berg
+
+Tue, 27 Oct 2026 18:41:33 GMT
+
+https://collider.com/the-mosquito-bowl-red-band-trailer-peter-berg-netflix-ww2/
+
+Peter Berg's WWII epic The Mosquito Bowl unveils its red-band trailer ahead of its October 30 theatrical release and Netflix debut.
+---------
+
+# Billy Bob Thornton Officially Finds His Next Series Amid 'Landman' Season 3 Delays
+
+TV News, Landman, Taylor Sheridan, Billy Bob Thornton, Fox
+
+Tue, 27 Oct 2026 18:31:06 GMT
+
+https://collider.com/billy-bob-thornton-presents-the-mayflower-miniseries/
+
+Billy Bob Thornton has officially found his next project amid the repeated delays of Taylor Sheridan's Landman Season 3. Read on for more.
+---------
+
+# HBO's 'The Gilded Age' Is Even Darker and More Defiant in Season 4 | Review
+
+TV Reviews, The Gilded Age, HBO, Julian Fellowes, Drama
+
+Tue, 27 Oct 2026 18:01:13 GMT
+
+https://collider.com/the-gilded-age-season-4-review-hbo/
+
+After four seasons, HBO's The Gilded Age is more confident than ever, pushing into darker territory without losing sight of its identity.
+---------
+
+# 5 Classic Rock Albums From the '70s With No Skips, Ranked
+
+Music Features, Paul McCartney, Queen, George Harrison, Fleetwood Mac, Music, Rock, John Lennon
+
+Tue, 27 Oct 2026 17:57:02 GMT
+
+https://collider.com/classic-rock-albums-70s-no-skips-ranked/
+
+Queen and Fleetwood Mac delivered some of the greatest rock albums of the '70s, and these five records prove that not every album needs a skip button.
+---------
+
+# A New James Bond Officially Takes Over in 2 Days
+
+Books and Comics News, Action, Thriller, Crime, James Bond
+
+Tue, 27 Oct 2026 17:00:12 GMT
+
+https://collider.com/young-bond-silverfin-release-october-29/
+
+Young Bond: SilverFin arrives October 29 with Isaac Rouse as teenage James Bond across 16 episodes and approximately eight hours.
+---------
+
+# Titus Welliver Officially Returns as Bosch Today
+
+TV News, Bosch, Bosch: Legacy, Bosch: Start of Watch
+
+Tue, 27 Oct 2026 17:00:12 GMT
+
+https://collider.com/titus-welliver-bosch-the-hollow-audiobook-release-october-2026/
+
+Titus Welliver returns as Harry Bosch in The Hollow, sharing narration duties with future young Bosch star Cameron Monaghan.
+---------
+
+# ‘A Court of Thorns and Roses’ Officially Returns After 5 Years
+
+Books and Comics News, A Court of Thorns and Roses, Fantasy, Books
+
+Tue, 27 Oct 2026 16:46:12 GMT
+
+https://collider.com/acotar-sarah-j-maas-new-book-october-27-2026-release/
+
+Sarah J. Maas returns to A Court of Thorns and Roses today with the first new installment in five years.
+---------
+
+# Anne Hathaway’s Twisted New Thriller Officially Hits Major Milestone Despite Being Removed From 1,100 Theaters
+
+Movie News, Anne Hathaway, Verity, Box Office, Thriller
+
+Tue, 27 Oct 2026 16:30:12 GMT
+
+https://collider.com/verity-removed-1100-theaters-box-office-160-million/
+
+The psychological thriller Verity, starring Anne Hathaway, has passed a major box-office milestone despite being pulled from more than 1,000 theaters.
+---------
+
+# Jessica Chastain’s Horror Movie Officially Removed From 500 Theaters as It Nears $100 Million
+
+Movie News, Other Mommy, Jessica Chastain, Box Office, Horror
+
+Tue, 27 Oct 2026 16:15:12 GMT
+
+https://collider.com/other-mommy-removed-500-theaters-box-office-95-million/
+
+The recently released horror film Other Mommy has hit a massive domestic box-office milestone, despite being pulled from 500 theaters.
+---------
+
+# https://static0.colliderimages.com/wordpress/wp-content/uploads/2026/03/dune-part-3-timoth-e-chalamet.jpg
+
+Movie News, Dune: Part Three, Timothée Chalamet, Zendaya, Denis Villeneuve
+
+Tue, 27 Oct 2026 16:13:37 GMT
+
+https://collider.com/dune-part-3-final-trailer/
+
+The final trailer for Dune: Part 3 has officially arrived ahead of the anticipated sci-fi finale's December 2026 release. See it here!
+---------
+
+# Netflix's New Star-Studded War Epic Gets Gruesome & Gritty in Explosive R-Rated Trailer
+
+Movie News, The Mosquito Bowl, Netflix, Drama, War, Action, Bill Skarsgård, Nicholas Galitzine
+
+Tue, 27 Oct 2026 18:31:25 GMT
+
+https://movieweb.com/mosquito-bowl-netflix-red-band-trailer/
+
+Netflix's next major theatrical release, 'The Mosquito Bowl,' is a gritty war epic that just got an explosive Red Band trailer.
+---------
+
+# Disney Sets New Fantasy Franchise With Bestselling Book Adaptation
+
+Movie News, Fantasy
+
+Tue, 27 Oct 2026 18:03:57 GMT
+
+https://movieweb.com/divine-rivals-disney-adaptation/
+
+Walt Disney Pictures has acquired the rights to Rebecca Ross's fantasy romance, 'Divine Rivals.'
+---------
+
+# James Gunn Officially Replaces Sony's Spider-Man Universe
+
+Features, Clayface, James Gunn, Superhero, DCU
+
+Tue, 27 Oct 2026 18:00:17 GMT
+
+https://movieweb.com/clayface-sony-spider-man-universe-replacement/
+
+'Kraven the Hunter' rounded off a disappointing six-movie run for the SSU, but the DCU proves the saga could have been so much better. Read on.
+---------
+
+# Netflix's 100% Rated Fantasy Adventure Epic Finally Returns With First Look Images From Season 2
+
+TV News, Delicious in Dungeon, Fantasy, Adventure, Animation
+
+Tue, 27 Oct 2026 17:53:23 GMT
+
+https://movieweb.com/delicious-in-dungeon-season-2-character-images/
+
+Netflix's serves up first-look photos of its weird dungeon-crawler series well ahead of Season 2's release.
+---------
+
+# Forget Bourne, Matt Damon’s 115-Minute Military Action Thriller Is Officially Being Cut From Streaming
+
+Movie News, Green Zone, Matt Damon, Coming/Leaving Streaming, Action, Thriller
+
+Tue, 27 Oct 2026 16:30:17 GMT
+
+https://movieweb.com/green-zone-matt-damon-streaming-october-2026/
+
+Matt Damon's high-octane action thriller based on a true story will soon become even harder to watch on streaming.
+---------
+
+# Sacha Baron Cohen's New 'Ali G' Movie Sets Prime Video Streaming Date Just 1 Week After Release
+
+Movie News, Ali G: Who Iz I?, Sacha Baron Cohen, Prime Video, Comedy
+
+Tue, 27 Oct 2026 16:29:34 GMT
+
+https://movieweb.com/ali-g-who-iz-i-prime-video-streaming-date/
+
+After a short theatrical run, Sachan Baron Cohen's latest comedy, 'Ali G: Who Iz I?', is already heading to Prime Video.
+---------
+
+# A24's New $200M Fantasy Epic Already Breaks Big Record as Amazon Joins Release
+
+Movie News, A24, Elden Ring, Cailee Spaeny, Alex Garland, Fantasy
+
+Tue, 27 Oct 2026 16:22:11 GMT
+
+https://movieweb.com/elden-ring-a24-amazon-release/
+
+The ambitious production may break another record in its upcoming theatrical release.
+---------
+
+# Final 'Dune 3' Trailer Officially Unleashes a New Hero in Most Action-Packed Sequel Yet
+
+Movie News, Dune: Part Three, Sci-Fi, Action, Adventure, Drama
+
+Tue, 27 Oct 2026 16:20:42 GMT
+
+https://movieweb.com/dune-part-3-final-trailer/
+
+Denis Villeneuve's 'Dune: Part 3' is less than two months out from its release, as a new trailer teases more of the intense action to come.
+---------
+
+# Jean-Claude Van Damme's 97-Minute Action Thriller Classic Was Secretly Remade a Year Later as a $7.7 Million Bomb
+
+Features, Jean-Claude Van Damme, Action, Thriller, Hard Target, Surviving the Game
+
+Tue, 27 Oct 2026 16:01:17 GMT
+
+https://movieweb.com/hard-target-jean-claude-van-damme-failed-remake/
+
+Jean-Claude Van Damme's intense thriller delivered enough action to outdo another story based on the same work a year later.
+---------
+
+# Anya Taylor-Joy's $2.3 Billion Fantasy Adventure Franchise Gets Sequel Status Update
+
+Movie News, Anya Taylor-Joy, Super Mario Bros., Animation, Adventure, Comedy, Family, Action
+
+Tue, 27 Oct 2026 16:00:26 GMT
+
+https://movieweb.com/super-mario-3-movie-update/
+
+One of Anya Taylor-Joy's biggest film sagas gets an exciting update, as the next movie is in the early stages of development.
+---------
+
 # Teenage Mutant Ninja Turtles Fans Won't Believe Who Just Made Their Grand Return
 
 Comics, Teenage Mutant Ninja Turtles, IDW Publishing
