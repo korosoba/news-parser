@@ -1,3 +1,432 @@
+# Frodo, Sam & Gollum's Rings Of Power Season 3 Replacements Officially Confirmed
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Tue, 27 Oct 2026 22:36:20 GMT
+
+https://screenrant.com/rings-of-power-season-3-frodo-gollum-sam-replacements/
+
+Prime Video's The Lord of the Rings: The Rings of Power season 3 has its Frodo, Sam, and Gollum replacements confirmed ahead of its November return.
+---------
+
+# Disney's 'Bridgerton But Cooler' Series Premieres In Less Than 2 Weeks
+
+Streaming TV, Masked Recs
+
+Tue, 27 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/the-remarried-empress-release-soon-cooler-bridgerton/
+
+Disney+ brings a whole new K-drama to life this November, based on a popular WEBTOON, The Remarried Empress.
+---------
+
+# DC Unveils Its Best Lois Lane Art Of All Time, Superman Fans Shouldn't Miss It
+
+Comics, Superman, Lois Lane
+
+Tue, 27 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/superman-lois-lane-art-best/
+
+Lois Lane has been integral to the Superman mythology since the beginning, and nearly 90 years later, DC has unveiled its best artwork of her.
+---------
+
+# It’s Officially The End Of An Era For Russell Crowe’s New Netflix Crime Thriller
+
+Movies, Unabomber, Russell Crowe, Netflix
+
+Tue, 27 Oct 2026 22:04:00 GMT
+
+https://screenrant.com/russell-crowe-unabomber-end-era-netflix-streaming-chart-drop-october-2026/
+
+Russell Crowe's new Netflix crime thriller is officially reaching the end of its era on the streamer after a successful three-week tenure.
+---------
+
+# HBO's Harry Potter Is Officially Introducing The Coolest Character Cut From The Movies Sooner Than Expected
+
+Streaming TV, Harry Potter
+
+Tue, 27 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/harry-potter-show-remake-charlie-weasley-confirmed-fix-movies/
+
+HBO's Harry Potter remake is confirmed to be introducing a great character from the books, who was wrongly cut from the movie adaptations.
+---------
+
+# Nicolas Cage's Spider-Noir Replacement Is A Role He Was Born To Play
+
+Streaming TV, Nicolas Cage
+
+Tue, 27 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/nicolas-cage-true-detective-role-perfect/
+
+Nicolas Cage's eccentric energy has become central to his acting, with mixed success, but his upcoming role in True Detective is perfect for him.
+---------
+
+# Dungeons & Dragons Officially Announces Major Change Ahead Of WoW Release
+
+Gaming, Dungeons and Dragons, Wizards of the Coast, Dungeons & Dragons, tabletop games
+
+Tue, 27 Oct 2026 21:59:39 GMT
+
+https://screenrant.com/dungeons-dragons-new-president-wizards-coast-announcement/
+
+There's been another big shake-up at Wizards of the Coast, the company behind Dungeons & Dragons, with November 2 marking the start of a new era.
+---------
+
+# Every Nathan Fillion TV Show, Ranked (From Firefly To Lanterns)
+
+Classic TV, Nathan Fillion, Firefly, Lanterns
+
+Tue, 27 Oct 2026 21:45:18 GMT
+
+https://screenrant.com/nathan-fillion-tv-shows-ranked/
+
+Nathan Fillion has played a whole host of iconic characters on TV, with major roles in shows from a range of genres that all saw him stand out.
+---------
+
+# Rings Of Power Season 3 Is Officially Rebooting The Lord Of The Rings Series
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Rings of Power - Season 3
+
+Tue, 27 Oct 2026 21:31:24 GMT
+
+https://screenrant.com/rings-of-power-season-3-reboot-series-lord-of-the-rings/
+
+When Prime Video's The Lord of the Rings: The Rings of Power returns, season 3 will be a soft reboot that takes the show in a new direction.
+---------
+
+# 9 Years Later, Gundam Finally Brings Forgotten Exclusive Mecha to the U.S.
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: Iron Blooded Orphans, merchandise, toys, bandai
+
+Tue, 27 Oct 2026 22:40:11 GMT
+
+https://www.cbr.com/gundam-reginlaze-high-grade-gunpla-america-release/
+
+A model kit for one of the darkest Gundam anime - once exclusive to Mecha fans in Japan - is finally coming to the US after almost a decade.
+---------
+
+# Minecraft Free Switch 2 Upgrade Available For Limited Time
+
+Games, Minecraft
+
+Tue, 27 Oct 2026 22:38:07 GMT
+
+https://www.cbr.com/minecraft-switch-2-free-upgrade-limited-time/
+
+Mojang's iconic sandbox game has finally released a dedicated Nintendo Switch 2 version, but it's oddly only free for a limited amount of time.
+---------
+
+# Tom Cruise's 1990 Cult Classic Action Movie Loses Streaming Home Ahead of Sequel
+
+Movies, Days of Thunder, Peacock, tom cruise
+
+Tue, 27 Oct 2026 22:30:11 GMT
+
+https://www.cbr.com/days-of-thunder-action-leaving-peacock-november-2026/
+
+Subscribers have less than a week to stream a Tom Cruise classic before its removed from its current streaming home.
+---------
+
+# 10 Most Powerful Piccolo Techniques In Dragon Ball
+
+Anime, Dragon Ball, Akira Toriyama
+
+Tue, 27 Oct 2026 22:15:11 GMT
+
+https://www.cbr.com/dragon-ball-most-powerful-piccolo-techniques/
+
+Piccolo is one of Dragon Ball's most beloved characters, but he's also an incredibly strong fighter who knows a wide range of dangerous techniques.
+---------
+
+# VisionQuest: EDITH's Wild Connection to Tony Stark
+
+TV, VisionQuest
+
+Tue, 27 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/video/visionquest-edith-s-wild-connection-to-tony-stark/
+
+Emily Hampshire reveals how Tony Stark's AI E.D.I.T.H. gets a personality of her own in Marvel's VisionQuest. The actress explains how her character builds on the technology introduced in Spider-Man: Far From Home, including what happens when an AI designed to control powerful weapons finally gets to have some fun.
+---------
+
+# Bob Odenkirk's 89-Minute John Wick Meets Better Call Saul Action Thriller Announces Streaming Departure
+
+Movies, Nobody, Nobody 2
+
+Tue, 27 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/bob-odenkirk-nobody-action-leaving-peacock-november/
+
+Picture John Wick as a suburban everyman, and you've got this underrated 2021 action movie.
+---------
+
+# 8 Movies To Watch If You Love Disclosure Day
+
+Movies, Disclosure Day
+
+Tue, 27 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/best-movies-to-watch-for-disclosure-day-fans-list/
+
+Underseen movies like Arrival, Contact and The Vast of Night, are among the most underrated movies the horror genre has to offer.
+---------
+
+# 10 Best Nightwing Storylines of the 2020s, Ranked
+
+Comics, DC Comics, Nightwing
+
+Tue, 27 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/best-nightwing-storylines-2020s-ranked/
+
+Nightwing has had some incredibly solid stories since the start of the 2020s.
+---------
+
+# NCIS Overtaken by Justin Hartley's Hit Crime Thriller on Paramount+
+
+TV, Tracker, Paramount Plus, NCIS
+
+Tue, 27 Oct 2026 21:30:11 GMT
+
+https://www.cbr.com/tracker-action-crime-thriller-paramount-success-october-2026/
+
+Paramount+'s action crime thriller based on a book, Tracker, overtakes NCIS on the streaming charts.
+---------
+
+# Dark Souls Meets Skyrim in New Fantasy RPG Out October 30
+
+Games, Role Playing Game, Dark Souls, The Elder Scrolls V: Skyrim
+
+Tue, 27 Oct 2026 21:15:11 GMT
+
+https://www.cbr.com/dark-souls-meets-skyrim-queens-domain-rpg/
+
+There's a new RPG coming out soon that may remind gamers of Dark Souls and Skyrim.
+---------
+
+# 8 DC Comics Films That Are Perfect From Start to Finish
+
+Movie, Superhero, DC Comics, Watchmen, The Dark Knight
+
+Tue, 27 Oct 2026 22:21:11 GMT
+
+https://collider.com/dc-comics-films-perfect-start-to-finish/
+
+Watchmen, The Dark Knight, and Road to Perdition are all among the best, genuinely perfect movies based on DC Comics.
+---------
+
+# Taylor Sheridan’s ‘Yellowstone’ Spin-Off Faces an Even Bigger Threat in New Sneak Peek
+
+Exclusives, Marshals, Taylor Sheridan, Yellowstone, Western
+
+Tue, 27 Oct 2026 22:00:12 GMT
+
+https://collider.com/marshals-season-2-episode-5-sneak-peek-secret-weapon/
+
+An exclusive sneak peek from Marshals sees the team investigating a dangerous bombing conspiracy in the November 1 episode, Secret Weapon.
+---------
+
+# The 10 Worst Movie Remakes in Film History
+
+Movie, Psycho, Remake, Swept Away, Point Break
+
+Tue, 27 Oct 2026 21:55:11 GMT
+
+https://collider.com/worst-movie-remakes/
+
+Lifeless, critically panned retreads of Point Break, A Nightmare on Elm Street, and Psycho are among the worst movie remakes ever made.
+---------
+
+# Pokémon Is Officially Pulling the Plug on One of Its Biggest Games
+
+Gaming News, Pokémon, Pokémon Unite, Video Game, Nintendo Switch
+
+Tue, 27 Oct 2026 21:53:04 GMT
+
+https://collider.com/pokemon-unite-shutting-down-march-2027/
+
+Pokémon UNITE is shutting down on Nintendo Switch and mobile in March 2027, with a farewell event and Library feature arriving first.
+---------
+
+# 5 Netflix Sci-Fi Shows With No Bad Seasons, Ranked
+
+TV, Netflix, Sci-Fi, Science Fiction, Stranger Things
+
+Tue, 27 Oct 2026 21:44:12 GMT
+
+https://collider.com/netflix-sci-fi-shows-no-bad-seasons-ranked/
+
+From the dystopian anthology Black Mirror to the hit horror series Stranger Things, these Netflix sci-fi shows don't have a single bad season.
+---------
+
+# 8 Forgotten Psychological Thrillers Based on Books That Are Perfect From Start to Finish
+
+Movie, Psychological Thriller, Kiss the Girls, James Patterson, Books
+
+Tue, 27 Oct 2026 21:24:12 GMT
+
+https://collider.com/forgotten-psychological-thrillers-based-on-books-perfect/
+
+Just Cause, Straw Dogs, and Kiss the Girls are top-notch but sadly forgotten psychological thriller movies based on books.
+---------
+
+# 'Heated Rivalry's Connor Storrie Officially Eyes Major MCU Role
+
+Movie News, Ghost Rider, Ryan Gosling, Heated Rivalry, Connor Storrie
+
+Tue, 27 Oct 2026 21:22:12 GMT
+
+https://collider.com/ghost-rider-connor-storrie-villain-cast-marvel/
+
+Heated Rivalry star Connor Storrie is officially eyeing up a villain role in the MCU. Get the details.
+---------
+
+# The 7 Greatest Samurai TV Shows, Ranked
+
+TV, Shogun, Samurai Champloo, Samurai Jack, Blue Eye Samurai
+
+Tue, 27 Oct 2026 20:48:12 GMT
+
+https://collider.com/best-samurai-tv-shows-ranked/
+
+From Lone Wolf and Cub to Samurai Jack, these seven spectacular series turn historic blade dynamics into absolute masterpieces of tension.
+---------
+
+# Stephen King’s Weirdest Horror Remake Started With This 13-Episode Cult Classic
+
+TV Features, Stephen King, Lars Von Trier, Kingdom Hospital, ABC
+
+Tue, 27 Oct 2026 20:46:11 GMT
+
+https://collider.com/stephen-king-horror-remake-lars-von-trier-cult-classic-kingdom-hospital-series/
+
+Stephen King's weirdest horror remake was inspired by Lars von Trier's disturbing 13-episode cult classic, The Kingdom.
+---------
+
+# 'Resident Evil' Officially Returns to Netflix This Weekend
+
+Movie News, Resident Evil, Resident Evil: Apocalypse, Netflix
+
+Tue, 27 Oct 2026 20:42:30 GMT
+
+https://collider.com/resident-evil-apocalypse-streaming-netflix-november-2026/
+
+Netflix has set a release date for Paul W. S. Anderson's original Resident Evil films as Zach Cregger's new reboot dominates theaters.
+---------
+
+# Goodbye Tom Hardy, Near-Perfect 95-Minute Thriller Overtakes Non-Stop Action Masterpiece at the Box Office
+
+Movie News, Resident Evil, Box Office Milestones, Mad Max: Fury Road, Tom Hardy, Action, Thriller, Horror
+
+Tue, 27 Oct 2026 22:00:16 GMT
+
+https://movieweb.com/resident-evil-mad-max-fury-road-october-2026/
+
+Both films demonstrate how reboots can successfully revive dormant franchises.
+---------
+
+# Clayface's Next DCU Appearance Is Already Available in an 8-Part HBO Max Follow-up Series With 93% on RT
+
+Features, Clayface, Creature Commandos, DCU, Superhero
+
+Tue, 27 Oct 2026 22:00:16 GMT
+
+https://movieweb.com/clayface-next-dcu-appearance/
+
+Even though Tom Rhys Harries isn't yet signed on to return as Clayface, more of the character's DCU arc is streaming now. Read on for more.
+---------
+
+# Amy Poehler & Hugh Laurie Uncover Artifacts in First Trailer for New Streaming Adventure Series
+
+TV News, Dig, Amy Poehler, Hugh Laurie, Peacock, Comedy
+
+Tue, 27 Oct 2026 21:44:34 GMT
+
+https://movieweb.com/dig-trailer-peacock/
+
+A new comedy powerhouse is headed our way.
+---------
+
+# Mark Wahlberg's (Very) R-Rated 107-Minute Action Thriller Officially Sets New Release
+
+Movie News, By Any Means, Mark Wahlberg, Yahya Abdul-Mateen II, Crime, Action, Thriller, Blu-ray
+
+Tue, 27 Oct 2026 21:30:16 GMT
+
+https://movieweb.com/by-any-means-4k-blu-ray-release/
+
+Paramount is preparing a 4K Blu-ray release of Mark Wahlberg and Yahya Abdul-Mateen II's R-rated action thriller 'By Any Means.'
+---------
+
+# 'The Lincoln Lawyer' Officially Sets Up Mickey's Replacement in Season 5
+
+Features, The Lincoln Lawyer, Netflix, Thriller
+
+Tue, 27 Oct 2026 21:00:17 GMT
+
+https://movieweb.com/the-lincoln-lawyer-season-5-emi/
+
+'The Lincoln Lawyer,' the legal thriller based on Michael Connelly's book series, will return to Netflix soon with its fifth and final season.
+---------
+
+# 25 Years Later, Ice Cube's Long Awaited Sequel to Cult Classic Franchise Is Officially Moving Forward
+
+Movie News, Friday, Last Friday, Ice Cube
+
+Tue, 27 Oct 2026 20:40:10 GMT
+
+https://movieweb.com/last-friday-director-confirmed/
+
+A director has officially been selected for the next installment in Ice Cube's 'Friday' franchise.
+---------
+
+# What's Coming to Netflix in November 2026? Everything Arriving Next Month
+
+Features, Netflix, Streaming
+
+Tue, 27 Oct 2026 20:00:18 GMT
+
+https://movieweb.com/netflix-new-arrivals-november-2026/
+
+Discover the latest additions to Netflix in November 2026, including original series premieres and a wide range of movies across genres.
+---------
+
+# HBO's 'Harry Potter' Series Officially Sets up a Key Battle of Hogwarts Moment the Movies Left Out
+
+Features, Harry Potter, Fantasy, HBO Max
+
+Tue, 27 Oct 2026 20:00:18 GMT
+
+https://movieweb.com/harry-potter-charlie-battle-of-hogwarts/
+
+The Battle of Hogwarts serves as the explosive finale of the Harry Potter saga, and the HBO series is gearing up to make it even better. Read on.
+---------
+
+# 63 Years Later, HBO Is Officially Remaking Alfred Hitcock's Classic Thriller
+
+TV News, The Birds, HBO Max, Thriller, Horror, Sarah Snook
+
+Tue, 27 Oct 2026 19:58:44 GMT
+
+https://movieweb.com/the-birds-hbo-remake/
+
+HBO is moving forward with a reimagining of the 1963 film, 'The Birds', starring Emmy-winning star Sarah Snook.
+---------
+
+# 'Dancing With the Stars' Judge Urges Rule Change for Lifts After Pro's Suspension
+
+TV News, Dancing with the Stars, Carrie Ann Inaba, Reality
+
+Tue, 27 Oct 2026 19:39:59 GMT
+
+https://movieweb.com/dancing-with-the-stars-carrie-ann-inaba-lift-rule/
+
+A longtime Dancing With the Stars judge wants changes to the competition's rules.
+---------
+
 # HBO Officially Releasing New Series Remake Of Alfred Hitchcock’s 63-Year-Old Classic Thriller
 
 TV, The Birds, Alfred Hitchcock, HBO
