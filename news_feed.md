@@ -1,3 +1,388 @@
+# The Rings Of Power Season 3 First Reactions Are Officially In
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Rings of Power - Season 3, The Lord of the Rings
+
+Wed, 28 Oct 2026 01:53:46 GMT
+
+https://screenrant.com/lord-of-the-rings-the-rings-of-power-season-3-first-reactions/
+
+The first two episodes of The Lord of the Rings: The Rings of Power season 3 have been shared with select critics, who have shared their reactions.
+---------
+
+# 70 Years Ago, Peanuts’ Most Important Retcon Changed the Comic Strip Forever
+
+Comics, Peanuts
+
+Wed, 28 Oct 2026 01:35:09 GMT
+
+https://screenrant.com/peanuts-most-important-retcon-linus/
+
+Charles M. Schulz employed retcons in Peanuts, rewriting the role of a character who went on to become key to the comic strip's success.
+---------
+
+# The Shining's Twins Explained & Why The Movie Changed The Grady Sisters
+
+Movies, The Shining
+
+Wed, 28 Oct 2026 01:30:18 GMT
+
+https://screenrant.com/the-shining-twins-explained-grady-sisters-changes-movie/
+
+It's worth examining how and why Kubrick transformed the Grady sisters from Stephen King's The Shining into one of horror's most iconic images.
+---------
+
+# Netflix's 'Jujutsu Kaisen Meets Ready Player One' Series Can Be Better Than Both
+
+Streaming TV, Masked Recs
+
+Wed, 28 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/solo-leveling-netflix-live-action-jujutsu-kaisen-ready-player-one-better/
+
+A new Netflix show is coming that, if it combines the elements of Jujutsu Kaisen and Ready Player One that it shares, could prove better than both.
+---------
+
+# Steven Spielberg's The Goonies Is Streaming For Free On Tubi
+
+Movies, The Goonies
+
+Wed, 28 Oct 2026 01:00:17 GMT
+
+https://screenrant.com/steven-spielberg-the-goonies-streaming-free-tubi/
+
+The Goonies is not just a nostalgic ‘80s flick fit for the spooky season; it is also a timeless classic and one of the best kids’ movies ever made.
+---------
+
+# What's Coming To Peacock In November 2026: Full List Of TV Shows & Movies
+
+Streaming TV, Peacock
+
+Wed, 28 Oct 2026 00:30:18 GMT
+
+https://screenrant.com/everything-coming-to-peacock-november-2026/
+
+Peacock is giving us more to look forward to in November 2026, with several new original TV shows and movies, as well as a large batch of classics.
+---------
+
+# Netflix’s New Sci-Fi Movie Brings An Alien Back To Earth 20 Years Later With A Dangerous Secret
+
+Movies, Netflix
+
+Wed, 28 Oct 2026 00:30:08 GMT
+
+https://screenrant.com/allen-trailer-netflix-sci-fi-movie/
+
+Netflix has a new science-fiction movie on the way that features an alien returning to Earth and reuniting with his human friend 20 years later.
+---------
+
+# Prime Video's 26-Episode Space Western Masterpiece Is Everything The Mandalorian Should Have Been
+
+Anime, Masked Recs, Prime Video
+
+Wed, 28 Oct 2026 00:00:18 GMT
+
+https://screenrant.com/cowboy-bebop-perfect-mandalorian-replacement/
+
+Trading a lone gunslinger for a broke crew of outlaws, this 26-episode streaming hit delivers the ultimate sci-fi adventure.
+---------
+
+# The CW Deserves Kudos For Successfully Adapting One Of The Greatest Superhero Teams Of All Time
+
+Streaming TV, Masked Recs
+
+Tue, 27 Oct 2026 23:49:58 GMT
+
+https://screenrant.com/stargirl-cw-show-justice-society-adaptation/
+
+The CW brought many beloved heroes to live-action, and outside the Arrowverse, it featured one of the greatest superhero teams of all time.
+---------
+
+# Dave Bautista’s One Piece Replacement Confirms A New Era For Prime Video
+
+Streaming TV, Prime Video
+
+Tue, 27 Oct 2026 23:30:18 GMT
+
+https://screenrant.com/god-of-war-prime-video-new-era-video-game-adaptations/
+
+Prime Video is about to release a landmark live-action adaptation to rival Netflix's One Piece, which confirms a new era for the streaming giant.
+---------
+
+# 10 Hardest Modern Games of All Time, Ranked
+
+Games, Video Games, Innovation
+
+Wed, 28 Oct 2026 01:45:11 GMT
+
+https://www.cbr.com/hardest-modern-games-ranked-list/
+
+Modern games like Hollow Knight: Silksong are just as hard as the classics of the past.
+---------
+
+# Grand Theft Auto 6's Enormous File Size Revealed Ahead of November Launch
+
+Games, Grand Theft Auto 6
+
+Wed, 28 Oct 2026 01:28:29 GMT
+
+https://www.cbr.com/grand-theft-auto-gta-6-file-size/
+
+Better start clearing up some space now before the launch of GTA 6.
+---------
+
+# 5 Masterpiece Anime Movies Better Than Howl's Moving Castle
+
+Anime, Howl's Moving Castle
+
+Wed, 28 Oct 2026 01:25:11 GMT
+
+https://www.cbr.com/masterpiece-anime-movies-better-than-howls-moving-castle/
+
+These anime movies with powerful, emotional narratives outdo Ghibli's Howl's Moving Castle.
+---------
+
+# Chris Pratt’s 2-Season Action Thriller Beats Stephen King To Become Prime Video’s No. 1 Show
+
+TV, The Terminal List, Carrie, Prime Video
+
+Wed, 28 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/the-terminal-list-beats-carrie-prime-video-success-october-2026/
+
+The Terminal List officially takes the top spot from Carrie.
+---------
+
+# Marvel Just Changed 18 Years of Iron Man’s MCU History in a Single Episode
+
+TV, VisionQuest, MCU, Iron Man
+
+Wed, 28 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/visionquest-tony-stark-ai-retcon/
+
+While VisionQuest is the end of a trilogy that began with WandaVision, the show just rewrote the history of Tony Stark dating back to Iron Man.
+---------
+
+# 10 Most Unwatchable Classic '80s Movies
+
+Movies, Sci-Fi, Horror, Masters of the Universe
+
+Wed, 28 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/unwatchable-classic-80s-movies-list/
+
+While '80s nostalgia might be alive and well, the decade had its share of unwatchable disasters that just don't hold up.
+---------
+
+# Ice Cube's Friday 4 Finally Moves Forward With Director Officially Locked In
+
+Movies, Last Friday
+
+Wed, 28 Oct 2026 00:50:55 GMT
+
+https://www.cbr.com/friday-4-director-lawrence-lamont/
+
+After many years in development hell, Friday 4 finally becomes a reality.
+---------
+
+# 6 Turn-Based RPGs That Are 10/10 Masterpieces
+
+Games, Role Playing Game, RPG, Innovation
+
+Wed, 28 Oct 2026 00:45:11 GMT
+
+https://www.cbr.com/masterpiece-turn-based-rpg-list/
+
+RPGs like Clair Obscur prove that games with turn-based combat still have a place in the modern gaming ecosystem.
+---------
+
+# Anne Hathaway’s 112-Minute Thriller Dethrones 45-Year-Old Horror Franchise on HBO Max
+
+Movies, Mother Mary, anne hathaway, Evil Dead
+
+Wed, 28 Oct 2026 00:30:11 GMT
+
+https://www.cbr.com/anne-hathaway-mother-mary-thriller-hbo-success-october-2026/
+
+Anne Hathaway's thriller and psychological drama, Mother Mary, is the most-watched movie worldwide.
+---------
+
+# Official Streaming Rankings Reveal the No. 1 Isekai Anime (& It's Not Mushoku Tensei)
+
+Anime, Isekai, Mushoku Tensei: Jobless Reincarnation
+
+Wed, 28 Oct 2026 00:25:31 GMT
+
+https://www.cbr.com/mushoku-tensei-vs-reincarnated-as-a-slime-streaming-ranking-winner/
+
+While Mushoku Tensei is often held up as the gold standard for isekai, viewership has lagged behind another major modern competitor.
+---------
+
+# Bruce Campbell's 'Reservoir Dogs' Meets 'Birdman' Thriller Resurfaces on Free Streaming
+
+Movie Features, Running Time, Bruce Campbell, Evil Dead, Reservoir Dogs
+
+Wed, 28 Oct 2026 01:46:11 GMT
+
+https://collider.com/bruce-campbell-running-time-reservoir-dogs-streaming-free-tubi-october-2026/
+
+While he's famous as Ash in the Evil Dead franchise, Bruce Campbell showed his range in the 1997 crime thriller Running Time, now streaming on Tubi.
+---------
+
+# Netflix’s 10/10 Heist Thriller Officially Steals the Streaming Crown
+
+TV News, Netflix, Lupin, Thriller, Streaming
+
+Wed, 28 Oct 2026 01:30:12 GMT
+
+https://collider.com/lupin-season-4-streaming-success-netflix-october-2026/
+
+Lupin has officially returned to the No. 1 spot on Netflix following the debut of Season 4. Read on for more details.
+---------
+
+# ‘9-1-1: Nashville’ Stars Reveal Which Classic ‘9-1-1’ Disaster They Want to Steal
+
+TV News, 9-1-1: Nashville, 9-1-1, ABC, Drama
+
+Wed, 28 Oct 2026 01:15:12 GMT
+
+https://collider.com/9-1-1-nashville-hailey-kilgore-juani-feliz-dream-disaster/
+
+In an exclusive interview, 9-1-1: Nashville stars Hailey Kilgore and Juani Feliz reveal the massive disaster they want to see next.
+---------
+
+# 'Outlander' Star's New Apple TV Thriller Series Officially Adds a Pirates of the Caribbean Favorite
+
+TV News, Apple TV, Caitriona Balfe, Horror, Bill Nighy
+
+Wed, 28 Oct 2026 01:00:12 GMT
+
+https://collider.com/caitriona-balfe-apple-tv-ascension-cast-bill-nighy/
+
+Outlander's Caitriona Balfe returns to TV for a new Apple TV series, which has now recruited a legendary British star.
+---------
+
+# 8 Best Mystery Books of All Time, According to Goodreads
+
+Books and Comics, Mystery, And Then There Were None, Where the Crawdads Sing, Verity
+
+Wed, 28 Oct 2026 00:55:11 GMT
+
+https://collider.com/best-mystery-books-all-time-goodreads/
+
+Rebecca, Verity, Where the Crawdads Sing, The Shadow of the Wind, and more make up our list of the best mystery books according to Goodreads.
+---------
+
+# Brad Pitt’s New Thriller Hits Major Box Office Milestone After Being Removed From 1,200 Theaters
+
+Movie News, Brad Pitt, Heart of the Beast, Box Office, David Ayer
+
+Wed, 28 Oct 2026 00:45:12 GMT
+
+https://collider.com/brad-pitt-heart-of-the-beast-box-office-milestone-170-million/
+
+Brad Pitt's survival thriller Heart of the Beast has passed a massive box-office milestone, despite being pulled from more than 1,000 theaters.
+---------
+
+# HBO Max Gives New Life to Anne Hathaway’s Only Box-Office Bomb of 2026HBO Max Gives New Life to Anne Hathaway’s Only Box-Office Bomb of 2026
+
+Movie News, Mother Mary, Anne Hathaway, David Lowery, HBO Max
+
+Wed, 28 Oct 2026 00:30:11 GMT
+
+https://collider.com/anne-hathaway-mother-mary-hbo-max-streaming-success-october-2026/
+
+While Anne Hathaway has had a massively successful year at the box office, her one flop is now finding success on HBO Max.
+---------
+
+# ‘Backrooms’ Officially Returns in 2027 With New Release
+
+Gaming News, Backrooms, A24, Kane Parsons, Chiwetel Ejiofor
+
+Wed, 28 Oct 2026 00:15:12 GMT
+
+https://collider.com/backrooms-savior-video-game-release-window-march-2027/
+
+A24's hit horror sensation, Backrooms, will officially return in March 2027 with a new release. Find out more information here.
+---------
+
+# Harry Potter and ‘Vampire Academy’ Stars Officially Join Forces for Your Next Halloween Watch
+
+Exclusives, Vampire, Kieron Moore, Jason Isaacs, Horror
+
+Wed, 28 Oct 2026 00:15:12 GMT
+
+https://collider.com/vampire-carnival-kieron-moore-jason-isaacs-fangs/
+
+Kieron Moore reveals in an exclusive interview how he mastered his Vampire Carnival fangs and what it was like working with Jason Isaacs.
+---------
+
+# 10 Fantasy Books To Read Before Kicking the Bucket
+
+Books and Comics, Fantasy, The Lord of the Rings, Harry Potter, Game Of Thrones
+
+Wed, 28 Oct 2026 00:11:12 GMT
+
+https://collider.com/fantasy-books-to-read-bucket-list/
+
+J.R.R. Tolkien's The Hobbit and George R.R. Martin's A Game of Thrones are some of the fantasy books you should add to your reading bucket list.
+---------
+
+# 'VisionQuest's Massive Tony Stark Twist Officially Rewrites 18 Years of MCU History
+
+Features, VisionQuest, Marvel Cinematic Universe, Superhero, Iron Man
+
+Wed, 28 Oct 2026 01:00:16 GMT
+
+https://movieweb.com/visionquest-tony-stark-jarvis-twist/
+
+As one of the MCU's biggest icons, it's always bold to even mention Tony Stark's name. 'VisionQuest' clearly isn't afraid. Read on for more.
+---------
+
+# One of the Greatest Sci-Fi Action Series of All Time Resurfaces on Streaming 22 Years Later
+
+TV News, Battlestar Galactica, Hot on Streaming, Sci-Fi, Action
+
+Wed, 28 Oct 2026 00:30:16 GMT
+
+https://movieweb.com/battlestar-galactica-stream-apple-store-october-2026/
+
+A modern sci-fi masterpiece is making a comeback on streaming.
+---------
+
+# Marvel Studios Eyes Major TV Star as Villain in Ryan Gosling's 'Ghost Rider'
+
+Movie News, Ghost Rider, Action, Adventure, Superhero, Drama
+
+Tue, 27 Oct 2026 23:29:10 GMT
+
+https://movieweb.com/ghost-rider-connor-storrie/
+
+A star from one of 2025's biggest shows is in talks to join the Marvel Cinematic Universe in its second post-Avengers: Secret Wars movie.
+---------
+
+# Anya Taylor-Joy's New 103-Minute Netflix Action Adventure Is a Streaming Hit After Brutal RT Score
+
+Movie News, Sacrifice, Netflix, Hot on Streaming, Anya Taylor-Joy, Action
+
+Tue, 27 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/sacrifice-stream-netflix-october-2026/
+
+Netflix has a new action hit on its hand with Anya Taylor-Joy's bonkers new movie.
+---------
+
+# 8 Prime Video Series Where Every Episode is a 10/10
+
+TV Lists, Prime Video
+
+Tue, 27 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/prime-video-series-perfect-episodes/
+
+Some TV shows have no weak episodes, and Prime Video has a few of them for its subscribers to immerse themselves in.
+---------
+
 # Frodo, Sam & Gollum's Rings Of Power Season 3 Replacements Officially Confirmed
 
 TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
