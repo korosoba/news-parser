@@ -1,3 +1,443 @@
+# The Best Quote From Every Lord Of The Rings Book
+
+Books, The Lord of the Rings
+
+Wed, 28 Oct 2026 23:51:41 GMT
+
+https://screenrant.com/best-quote-every-lord-of-rings-tolkien-book/
+
+Tolkien packed his pages with some prescient words of wisdom. These are some of his best.
+---------
+
+# 49 Years Ago, The Most Chilling Ghost Story Changed The Horror Genre Forever
+
+Books, Horror, Halloween 2026
+
+Wed, 28 Oct 2026 23:40:17 GMT
+
+https://screenrant.com/amityville-horror-changed-genre-explained/
+
+While many horror books have influenced the genre, few ghost stories have had as big or long-lasting of an impact as a chilling 1977 book.
+---------
+
+# Avatar: The Last Airbender's New Korra Actor Is The Perfect Choice
+
+Streaming TV, Avatar: The Last Airbender, Fantasy
+
+Wed, 28 Oct 2026 23:39:27 GMT
+
+https://screenrant.com/avatar-seven-havens-korra-actor-perfect-cia-court/
+
+The Avatar: The Last Airbender franchise recently revealed it has recasted Korra, but her new voice actor is perfect for the role in several ways.
+---------
+
+# Prime Video's High Fantasy Series With Stellar Rotten Tomatoes Score Returns In Two Weeks & The Time To Binge It Is Now
+
+Streaming TV, Masked Recs
+
+Wed, 28 Oct 2026 23:32:11 GMT
+
+https://screenrant.com/lord-of-the-rings-of-power-season-3-prime-video-fantasy-series-2026-return-binge/
+
+Prime Video's high fantasy series with a high Rotten Tomatoes score returns in two weeks, and now is the perfect time to binge the hit show.
+---------
+
+# The Hunger Games: Sunrise On The Reaping First Reactions Are Officially In
+
+Movies, The Hunger Games: Sunrise on the Reaping, The Hunger Games
+
+Wed, 28 Oct 2026 23:20:31 GMT
+
+https://screenrant.com/the-hunger-games-sunrise-on-the-reaping-first-reactions/
+
+The Hunger Games franchise is back on the big screen with Sunrise on the Reaping, and the first reactions are in the for the dystopian adaptation.
+---------
+
+# PlayStation Plus Officially Drops Free 9/10 90-Hour JRPG
+
+Gaming, Tales of Arise, PlayStation Plus
+
+Wed, 28 Oct 2026 23:00:18 GMT
+
+https://screenrant.com/playstation-plus-officially-drops-free-910-90-hour-jrpg/
+
+A 9/10 JRPG joins PS Plus Extra and Premium, giving subscribers access to a 90-hour RPG adventure packed with action and story.
+---------
+
+# Netflix's 26-Part Sci-Fi Series Has Hands Down The Platform's Best Finale
+
+TV, Netflix
+
+Wed, 28 Oct 2026 23:00:18 GMT
+
+https://screenrant.com/netflix-dark-best-finale-on-platform/
+
+A multilayered time travel puzzle meets a polyphonic ensemble drama that folds decades of fate and regret into Netflix's best series ending ever.
+---------
+
+# 6 Marvel Monsters We're Still Waiting To See In The MCU
+
+Movies, Marvel Cinematic Universe
+
+Wed, 28 Oct 2026 23:00:18 GMT
+
+https://screenrant.com/mcu-marvel-monsters-horror-still-missing/
+
+The MCU has only scratched surface of the rich library of monsters in Marvel Comics. There's so many more it still needs to introduce.
+---------
+
+# Why Christian Bale Would Only Return As Batman With Christopher Nolan
+
+Movies, The Dark Knight
+
+Wed, 28 Oct 2026 23:00:18 GMT
+
+https://screenrant.com/christian-bale-batman-return-christopher-nolan/
+
+Christian Bale and Christopher Nolan made history with their Dark Knight Trilogy, and the conditions for a franchise return are now clear.
+---------
+
+# Original Chronicles Of Narnia Actor Was Completely Unaware Of Greta Gerwig's Upcoming Reboot
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia
+
+Wed, 28 Oct 2026 22:51:48 GMT
+
+https://screenrant.com/chronicles-of-narnia-original-aslan-liam-neeson-unaware-reboot/
+
+EXCLUSIVE: One of the key cast members from the old Narnia movies just learned about the upcoming adaptation and their character's recast.
+---------
+
+# 5 Greatest Open-World Games of the Last 5 Years, Ranked
+
+Games, open world, Innovation
+
+Wed, 28 Oct 2026 23:30:11 GMT
+
+https://www.cbr.com/greatest-open-world-games-of-last-5-years-ranked-list/
+
+Some of the greatest open-world games of all time, like Elden Ring, were released in the last 5 years.
+---------
+
+# 10 Underrated Crunchyroll Anime That Are 10/10 Masterpieces
+
+Anime, Crunchyroll
+
+Wed, 28 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/underrated-crunchyroll-anime-no-flaws-list/
+
+Anime like Wind Breaker are some of the best series on Crunchyroll, but they don't get the attention they deserve.
+---------
+
+# George Costanza’s Single Greatest Seinfeld Quote Still Hits Harder 33 Years Later
+
+TV, Seinfeld, Comedy, NBC, Innovation
+
+Wed, 28 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/seinfeld-george-costanza-most-important-line-explained/
+
+One of George Costanza's most instantly quotable lines in Seinfeld helped create real-world change in a subtle, surprising way.
+---------
+
+# 10 Years Later, Witchbrook Finally Has a Release Date
+
+Games, Indie
+
+Wed, 28 Oct 2026 22:47:50 GMT
+
+https://www.cbr.com/witchbrook-release-date-10-year-development/
+
+Witchy cozy game Witchbrook has been in development for at least 10 years with no end in sight—until now, now that a release date has been announced.
+---------
+
+# Solo Leveling's First-Ever Console Game Officially Hits PS5 and Xbox November 3
+
+Anime, Solo Leveling:ARISE, PlayStation 5, Steam, Xbox Series X (1)
+
+Wed, 28 Oct 2026 22:23:24 GMT
+
+https://www.cbr.com/solo-leveling-arise-overdrive-release-date-confirm/
+
+Via a press release, Netmarble has announced that Solo Leveling: Arise Overdrive comes out on PS5, Xbox Series and Steam on November 3 at 7PM EST.
+---------
+
+# Netflix's Narnia Reboot Gets Official Rating, Continuing 21-Year Franchise Tradition
+
+Movies, Narnia: The Magician's Nephew, The Chronicles of Narnia, Netflix
+
+Wed, 28 Oct 2026 22:17:52 GMT
+
+https://www.cbr.com/narnia-the-magicians-nephew-rating-pg-netflix/
+
+The new Narnia movie will have one thing in common with its predecessors.
+---------
+
+# 5 Strongest Animals In Avatar: The Last Airbender, Ranked
+
+Anime, Avatar: The Last Airbender
+
+Wed, 28 Oct 2026 22:15:11 GMT
+
+https://www.cbr.com/avatar-the-last-airbender-strongest-animals-ranked/
+
+These are the most powerful animals in all of Avatar: The Last Airbender.
+---------
+
+# 8 Movies To Watch If You Love Netflix's Below Series
+
+Movies, Below
+
+Wed, 28 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/best-movies-for-netflix-below-fans-list/
+
+Below is already one of the best creature feature TV series ever made, and there are plenty of movies its fans need to see.
+---------
+
+# PlayStation Killing Discs May Ruin Confirmed Physical Release
+
+Games, PlayStation 5, Sony, Alien: Isolation
+
+Wed, 28 Oct 2026 21:50:02 GMT
+
+https://www.cbr.com/playstation-ending-physical-games-alien-isolation-2/
+
+Sony plans on ending PlayStation disc production in 2028, but what happens to a game that is adamant it will come to market in physical form?
+---------
+
+# Paramount Officially Confirms Future of $516M Animated Franchise After Skydance Merger
+
+Movies, Paw Patrol, paramount pictures, Animation
+
+Wed, 28 Oct 2026 21:26:49 GMT
+
+https://www.cbr.com/paw-patrol-4-release-date/
+
+The future is looking bright for Paramount's hit animated franchise.
+---------
+
+# 'GTA 6' Reportedly Breaks Massive Franchise Record Ahead of Release
+
+Gaming News, Grand Theft Auto 6, Video Game, Action, Rockstar Games
+
+Wed, 28 Oct 2026 23:50:12 GMT
+
+https://collider.com/gta-6-storage-speace-210-gb/
+
+With GTA 6 less than a month away, the highly anticipated game will reportedly take up nearly 25% of a terabyte hard drive.
+---------
+
+# 'Die Hard' Officially Returns for New Release in 2 Months
+
+Movie News, Die Hard, Die Hard 2, ABC, Bruce Willis
+
+Wed, 28 Oct 2026 23:40:12 GMT
+
+https://collider.com/bruce-willis-die-hard-abc-release-december-2026/
+
+One of the greatest action movies ever will be available to watch on ABC this December ahead of Christmas. Find out more here.
+---------
+
+# Brad Pitt and Jon Bernthal’s R-Rated War Epic Officially Takes Over Apple TV
+
+Movie News, Brad Pitt, Apple TV, Fury, Jon Bernthal
+
+Wed, 28 Oct 2026 23:30:12 GMT
+
+https://collider.com/brad-pitt-jon-bernthal-fury-streaming-success-apple-tv-october-2026/
+
+Brad Pitt and Jon Bernthal's cult-classic war epic has officially spent 50 days at the top of Apple TV's streaming charts. Read on for more.
+---------
+
+# 'The Rookie's Chenford Replacement Is Still a Complete Failure
+
+TV Features, The Rookie, Lisseth Chavez, Melissa O'Neil, Eric Winter
+
+Wed, 28 Oct 2026 23:24:12 GMT
+
+https://collider.com/the-rookie-celina-rodge-relationship-chenford-replacement/
+
+The Rookie introduced a new romantic pairing in Season 7 that failed to serve as a proper replacement for Chenford.
+---------
+
+# ‘Doctor Who’s Best Villain Officially Returns for New Release
+
+TV News, Doctor Who, Derek Jacobi, BBC, Sci-Fi
+
+Wed, 28 Oct 2026 23:20:12 GMT
+
+https://collider.com/doctor-who-derek-jacobi-return-the-master/
+
+After 19 years, The Master is officially returning to Doctor Who, with Derek Jacobi set to reprise the role. Read on for more.
+---------
+
+# ‘Avengers: Doomsday’ Directors’ Failed Spy Thriller Franchise Officially Returns in 2027
+
+Books and Comics News, The Gray Man, Netflix, Action, Thriller
+
+Wed, 28 Oct 2026 23:18:36 GMT
+
+https://collider.com/netflix-gray-man-franchise-dark-union-release-date-february-2027/
+
+Netflix may have failed to start a franchise with The Gray Man, but the series returns in a big way in 2027.
+---------
+
+# 8 Best Mystery Books Released Since 2000, Ranked
+
+Books and Comics, Mystery, Gone Girl, The Girl With the Dragon Tattoo, The Lincoln Lawyer
+
+Wed, 28 Oct 2026 23:11:12 GMT
+
+https://collider.com/best-mystery-books-since-2000-ranked/
+
+The Lincoln Lawyer, The Silent Patient, Gone Girl, Mystic River, and more make up our list of the best mystery books released since 2000.
+---------
+
+# Britain's Most Beloved Series Is Officially Coming to Disney+
+
+TV News, The Great British Bake Off, Disney+, Channel 4, Reality
+
+Wed, 28 Oct 2026 23:10:12 GMT
+
+https://collider.com/the-great-british-bake-off-disney-plus-release-2027/
+
+The most popular British television series in the world is officially coming to Disney+ for the first time ever. Read on for more.
+---------
+
+# BBC Crime Favorite Officially Locks In Return Date for Season 11
+
+TV News, BBC, Crime, Drama, Shetland
+
+Wed, 28 Oct 2026 23:00:12 GMT
+
+https://collider.com/bbc-shetland-season-11-release-date-november-2026/
+
+Season 11 of one of the BBC's most beloved crime sagas will officially premiere by the end of 2026. Read on for more details.
+---------
+
+# DC’s ‘Mister Miracle’ Gets First Official Plot Details
+
+TV News, Mister Miracle, Mackenzie Davis, DC Comics, Animation
+
+Wed, 28 Oct 2026 23:00:12 GMT
+
+https://collider.com/mister-miracle-update-dc-mackenzie-davis-big-barda/
+
+Collider exclusively spoke to Mackenzie Davis about voicing DC Comics heroine Big Barda in the new animated series Mister Miracle. Read on for more.
+---------
+
+# Netflix's Steamy New R-Rated Smash Is Officially One of the Biggest Streaming Hits in the World
+
+TV News, Nobody Wants This, Hot on Streaming, Romance, Comedy, Netflix
+
+Wed, 28 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/nobody-wants-this-streaming-netflix-october-2026/
+
+Netflix's newest hit combines steamy humor with genuine sweetness to deliver a raunchy smash with an unlikely couple.
+---------
+
+# Popular $512M Family-Favorite Action Adventure Franchise Officially Confirms Sequel 3 Months Later
+
+Movie News, PAW Patrol, PAW Patrol: The Dino Movie, Fantasy, Action, Paramount Plus
+
+Wed, 28 Oct 2026 22:56:11 GMT
+
+https://movieweb.com/paw-patrol-4-paramount/
+
+Paramount Pictures is moving forward with a fourth film in the 'Paw Patrol' franchise, aiming for a 2029 release date.
+---------
+
+# Star Trek: 10 Best Starfleet Officers Who Never Became Captains
+
+TV Lists, Star Trek, Sci-Fi
+
+Wed, 28 Oct 2026 22:00:16 GMT
+
+https://movieweb.com/star-trek-officers-not-captains/
+
+Captains often hog the limelight in Star Trek, but here are several officers who are just as great, despite never reaching that rank. Read on.
+---------
+
+# 'Saturday Night Live' Spinoff Hits Major Ratings Milestone in Season 2
+
+TV News, Saturday Night Live UK, Cynthia Erivo, Saturday Night Live
+
+Wed, 28 Oct 2026 21:57:00 GMT
+
+https://movieweb.com/snl-uk-ratings-season-2/
+
+The series is finding its stride.
+---------
+
+# Blumhouse Sci-Fi Reboot 'Molepeople' Loses Lead Star as New Director Takes Over
+
+Movie News, The Mole People, LaKeith Stanfield, Horror, Blumhouse, Sci-Fi
+
+Wed, 28 Oct 2026 21:36:07 GMT
+
+https://movieweb.com/molepeople-lakeith-stanfield-rob-savage/
+
+Director Rob Savage and star LaKaeith Stanfield have dropped out of 'Molepeople' less than a month after the project was announced.
+---------
+
+# Netflix’s New 7-Part Western Masterpiece Beats Taylor Sheridan At His Own Game
+
+Features, East of Eden, Netflix, Western, Taylor Sheridan
+
+Wed, 28 Oct 2026 21:00:17 GMT
+
+https://movieweb.com/east-of-eden-taylor-sheridan-comparison/
+
+Netflix has evolved modern TV Westerns with its latest prestige drama. This is one of the best shows of the decade and a perfect fit for 1883 fans.
+---------
+
+# Brad Pitt's New Near-Perfect Thriller Officially Overtakes Tom Cruise's Action Classic Ahead of Sequel
+
+Movie News, Heart of the Beast, Box Office Milestones, Days of Thunder, Action, Thriller, Drama, Brad Pitt, Tom Cruise
+
+Wed, 28 Oct 2026 21:00:17 GMT
+
+https://movieweb.com/heart-of-the-beast-days-of-thunder-october-2026/
+
+Brad Pitt's sleeper hit has now outpaced two Tom Cruise passion projects at the box office.
+---------
+
+# 5 Years Later, 'Dune' Is Making an Epic Comeback Ahead of Its Final Chapter
+
+Movie News, Dune, Dune: Part Two, Sci-Fi, Drama
+
+Wed, 28 Oct 2026 20:42:30 GMT
+
+https://movieweb.com/dune-imax-re-release/
+
+Before 'Dune: Part Three' flies into theaters in a few weeks, the first chapter of the story will be back in the spotlight soon as well.
+---------
+
+# 'Game of Thrones' Star Peter Dinklage Joins Renée Zellweger for New High-Concept Film
+
+Movie News, Peter Dinklage, Renée Zellweger, Sacha Gervasi
+
+Wed, 28 Oct 2026 20:33:33 GMT
+
+https://movieweb.com/darlington-peter-dinklage-renee-zellweger/
+
+The star-studded cast is growing.
+---------
+
+# Stephen Graham's New 6-Episode Crime Thriller Lands Near-Perfect RT Score Ahead of Apple TV Release
+
+TV News, Nocturne, Stephen Graham, Crime, Thriller, Drama
+
+Wed, 28 Oct 2026 20:08:36 GMT
+
+https://movieweb.com/nocturne-rotten-tomatoes-score/
+
+Stephen Graham's career-defining performance is already drawing strong critical reception.
+---------
+
 # The Best Movie Of All Time According To Rotten Tomatoes Is Officially Being Cut From Prime Video
 
 Movies, Masked Recs, L.A. Confidential, Rotten Tomatoes
