@@ -1,3 +1,322 @@
+# Apple TV Is Making Sci-Fi History By Adapting The Book That Inspired The Matrix
+
+Streaming TV, Apple TV
+
+Wed, 28 Oct 2026 07:00:18 GMT
+
+https://screenrant.com/neuromancer-apple-tv-sci-fi-history-matrix-inspiration/
+
+Apple TV is officially making science fiction history with its highly-anticipated upcoming adaptation of a seminal book that also inspired The Matrix.
+---------
+
+# Stargate SG-1: Asgard Officially Arrives March 2027
+
+Gaming, Stargate SG-1, Stargate, PC
+
+Wed, 28 Oct 2026 06:00:18 GMT
+
+https://screenrant.com/stargate-sg1-asgard-march-2027-replica-release/
+
+The Asgard are the most technologically advanced alien race in Stargate: SG-1, and they're taking the spotlight in this new March 2027 release.
+---------
+
+# The Expanse Star's 3-Season Apple TV Series Is Hard Sci-Fi Done Right
+
+TV, Masked Recs
+
+Wed, 28 Oct 2026 06:00:18 GMT
+
+https://screenrant.com/jared-harris-foundation-apple-tv-hard-sci-fi-done-right/
+
+An ambitious Apple TV adaptation stretches with lavish worldbuilding and epic stakes, The Expanse star's show turns Asimov's science into human drama.
+---------
+
+# Dungeon Crawler Carl Officially Switches Genres In $12,350 New Release
+
+Gaming, Dungeon Crawler Carl, PC
+
+Wed, 28 Oct 2026 05:30:18 GMT
+
+https://screenrant.com/dungeon-crawler-carl-pinball-machine-premium-release/
+
+Hello, Crawlers! Carl and Donut are about to encounter an all-new sort of challenge in this upcoming, extremely expensive release.
+---------
+
+# Final Fantasy 9 Officially Returning In 2027
+
+Gaming, Final Fantasy, Final Fantasy 9
+
+Wed, 28 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/final-fantasy-9-official-return-2027-crystal-edition/
+
+Final Fantasy 9 remains one of the best games in the series to date, and its return in 2027 is going to be a special one.
+---------
+
+# Prime Video's 16-Episode Sci-Fi Masterpiece Delivers A Masterclass In Post-Apocalyptic Worldbuilding
+
+Streaming TV, Masked Recs
+
+Wed, 28 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/fallout-show-post-apocalyptic-worldbuilding/
+
+Too many post-apocalyptic TV shows deliver the same bleak survival stories set in gray colorless landscapes, but not this bombastic saga from Prime.
+---------
+
+# Game Of Thrones: Malachite Officially Announced
+
+Gaming, Game Of Thrones: Dragonfire, Triple-A Games
+
+Wed, 28 Oct 2026 04:30:18 GMT
+
+https://screenrant.com/game-of-thrones-malachite-dragonfire/
+
+Although Game of Thrones fans will have to wait for the next season of House of the Dragon, Game Of Thrones: Malachite is coming sooner.
+---------
+
+# 10 R-Rated Anime Series Perfect For Halloween
+
+Anime
+
+Wed, 28 Oct 2026 04:09:31 GMT
+
+https://screenrant.com/r-rated-anime-perfect-for-halloween/
+
+Explore 10 gripping R-rated anime perfect for a spooky Halloween night.
+---------
+
+# Reacher & Taylor Sheridan Officially Score Major Streaming Win
+
+TV, Reacher, Neagley, Reacher - Season 4, Neagley - Season 1, Lioness, Lioness - Season 3
+
+Wed, 28 Oct 2026 04:01:18 GMT
+
+https://screenrant.com/reacher-neagley-lioness-september-most-streamed-series-paramount-tv/
+
+Prime Video's Reacher franchise and a hit Taylor Sheridan show on Paramount+ clocked an impressive amount of streaming viewership in September.
+---------
+
+# Steam's New 9/10 Free Horror Game Hailed As Absolutely Phenomenal By Players
+
+Gaming, Steam, Valve
+
+Wed, 28 Oct 2026 04:00:19 GMT
+
+https://screenrant.com/steam-free-horror-game-playable-archive/
+
+Steam is a platform that hosts a lot of great horror games, but one underappreciated recent arrival is going down very well with players.
+---------
+
+# Masterpiece 2010s Anime Better Than Sword Art Online
+
+Anime, Sword Art Online, Attack On Titan, Mob Psycho 100
+
+Wed, 28 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/masterpiece-2010s-anime-better-than-sword-art-online/
+
+From Attack on Titan to Mob Psycho 100, these 2010s anime stand out as stronger overall experiences than Sword Art Online.
+---------
+
+# An Artificial Intelligence Officially Tries to Find Actual Love
+
+Comics, indie comics
+
+Wed, 28 Oct 2026 03:41:58 GMT
+
+https://www.cbr.com/steam-graphic-novel-review-artificial-intelligence-actual-love/
+
+In a CBR review of the graphic novel, Steam, see how an artificial intelligence strives to find true love for REAL
+---------
+
+# Stephen King & Rob Lowe's 2-Part Vampire Series Is a Near-Perfect Midnight Mass Replacement
+
+TV, Salem's Lot, Midnight Mass, warner bros
+
+Wed, 28 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/stephen-king-salems-lot-2004-perfect-midnight-mass-replacement/
+
+While Stephen King's second novel has had several adaptations, only one is a great follow-up to Mike Flanagan's King-inspired religious horror series.
+---------
+
+# 10 Best Peanuts Comic Strips That Don’t Star Charlie Brown or Snoopy
+
+Comics, Peanuts
+
+Wed, 28 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/best-peanuts-comic-strips-without-charlie-brown-or-snoopy/
+
+Charlie Brown and Snoopy have always been the faces of the Peanuts franchise, but that doesn't mean there aren't many strips about the others.
+---------
+
+# Solo Leveling Finally Confirms Season 3 With Official First Look
+
+Anime, Solo Leveling
+
+Wed, 28 Oct 2026 03:16:42 GMT
+
+https://www.cbr.com/solo-leveling-ragnarok-season-3-return-announcement/
+
+After nearly a year on hiatus, the Solo Leveling: Ragnarok manhwa is finally coming back for its third season with a brand-new artist.
+---------
+
+# 10 Most Perfect '90s Arcade Games of All Time, Ranked
+
+Games, Video Games, Nintendo
+
+Wed, 28 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/most-perfect-90s-arcade-games/
+
+Mortal Kombat II and Dance Dance Revolution are some of the biggest '90s arcade hits.
+---------
+
+# Netflix's 8-Episode Sci-Fi Masterpiece Is the Perfect Terminator Replacement
+
+Anime, Pluto, Terminator, Netflix
+
+Wed, 28 Oct 2026 02:30:11 GMT
+
+https://www.cbr.com/netflix-pluto-sci-fi-masterpiece-perfect-terminator-replacement/
+
+Naoki Urasawa's Pluto is a progressive and profound modern meditation on A.I. that beats the Terminator franchise at its own game.
+---------
+
+# Crystal Lake Season 2 Renewal Odds Get a Major Boost After New Streaming Numbers Emerge
+
+TV, Crystal Lake
+
+Wed, 28 Oct 2026 02:19:47 GMT
+
+https://www.cbr.com/crystal-lake-debut-peacock-streaming-numbers/
+
+It's more likely than not that Jason Voorhees will resurface in a second season of Crystal Lake on Peacock.
+---------
+
+# Liam Neeson's Panned Adaptation of 67-Bestselling Novel Confirms Streaming Exit
+
+Movies, The Haunting, Peacock, Horror
+
+Wed, 28 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/the-haunting-1999-leaving-peacock-november-2026/
+
+Years later, Netflix adapted the novel again to huge success.
+---------
+
+# Skyrim Meets Stardew Valley in New Open-World RPG You Can Play Free Now
+
+Games, Video Games, Stardew Valley, The Elder Scrolls V: Skyrim
+
+Wed, 28 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/skyrim-meets-stardew-valley-free-steam-game/
+
+This free new Steam game perfectly combines Skyrim and Stardew Valley.
+---------
+
+# Netflix’s New 5-Episode Serial Killer Thriller Is a Hidden Gem on Streaming
+
+TV Features, Netflix, Thriller, Crime, Blood Sacrifice
+
+Wed, 28 Oct 2026 04:45:11 GMT
+
+https://collider.com/blood-sacrifice-netflix-thriller-streaming/
+
+Netflix's Blood Sacrifice is a chilling Nordic noir thriller perfect for a fall binge, blending crime twists with family drama.
+---------
+
+# Scarlett Johansson's 108-Minute Sci-Fi Thriller Is the Perfect Watch Before It's Cut From Netflix
+
+Movie Features, Under the Skin, Scarlett Johansson, Jonathan Glazer, Sci-Fi
+
+Wed, 28 Oct 2026 04:03:12 GMT
+
+https://collider.com/scarlett-johansson-under-the-skin-cut-from-netflix/
+
+Scarlett Johansson's Under the Skin is one of the most unique thrillers that follows a man-eating alien in her hunting ground of Scotland.
+---------
+
+# Henry Cavill's 'The Mummy' Replacement Is Officially Back on Prime Video
+
+Movie Features, The Count of Monte Cristo, Henry Cavill, Jim Caviezel, Guy Pearce
+
+Wed, 28 Oct 2026 03:26:12 GMT
+
+https://collider.com/henry-cavill-count-of-monte-cristo-the-mummy-streaming-prime-video-october-2026/
+
+The 2002's Count of Monte Cristo with Jim Caviezel and Henry Cavill, streaming on Prime Video, is perfect for fans of adventure films like The Mummy.
+---------
+
+# The Perfect ‘Breaking Bad’ Cast if the Show Were Made in 2026
+
+TV, Breaking Bad, Vince Gilligan, Bryan Cranston, Matthew Macfadyen
+
+Wed, 28 Oct 2026 03:18:11 GMT
+
+https://collider.com/breaking-bad-cast-made-today-2026/
+
+From Matthew Macfadyen as Walter White to Emmy Rossum as Skyler, here's who would play the Breaking Bad characters if the show were made today.
+---------
+
+# 5 Thriller Miniseries Where Every Episode Is a 10/10, Ranked
+
+TV, The Night Manager, Chernobyl, Mare of Easttown, Black Bird
+
+Wed, 28 Oct 2026 03:12:12 GMT
+
+https://collider.com/thriller-miniseries-streaming-every-episode-perfect/
+
+The best thriller miniseries on HBO, Apple TV, and more, where every single episode lands. Chernobyl, Mare of Easttown and three more, ranked.
+---------
+
+# ‘VisionQuest’s Most Misunderstood Character Finally Gets Redemption in Episode 6
+
+TV, VisionQuest, Todd Stashwick, Marvel TV, Disney Plus
+
+Wed, 28 Oct 2026 03:00:12 GMT
+
+https://collider.com/visionquest-episode-6-todd-stashwick-paladin-disney-plus/
+
+VisionQuest’s Todd Stashwick shines a light on Paladin’s motivations and talks taking inspiration from John Wick and Terminator for fight scenes.
+---------
+
+# Forget 'Reacher,' Keanu Reeves’ Best John Wick Sequel Is Officially the King of Prime Video
+
+Movie News, John Wick: Chapter 4, Keanu Reeves, Prime Video, Streaming
+
+Wed, 28 Oct 2026 02:00:22 GMT
+
+https://collider.com/keanu-reeves-john-wick-chapter-4-streaming-hit-prime-video-october-2026/
+
+Keanu Reeves' best John Wick sequel is once again a streaming hit following news that he replaced Alan Ritchson in Netflix's upcoming action movie.
+---------
+
+# Emily Hampshire Came Up With One of ‘VisionQuest’s Most Memorable Quotes
+
+Exclusives, VisionQuest, Emily Hampshire, 12 Monkeys, Marvel TV
+
+Wed, 28 Oct 2026 02:00:22 GMT
+
+https://collider.com/visionquest-episode-5-emily-hampshire-edith-disney-plus/
+
+Emily Hampshire reveals the memorable VisionQuest line she came up with and breaks down Edith’s relationships with Friday and Ultron.
+---------
+
+# 10 Netflix Action Thrillers That Hook You in the First Scene
+
+TV Lists, Netflix, Action, Thriller
+
+Wed, 28 Oct 2026 02:00:26 GMT
+
+https://movieweb.com/netflix-action-thrillers-hook-first-scene/
+
+These Netflix action thrillers not only have great characters and premises, but they have fast-paced and exciting opening scenes.
+---------
+
 # The Rings Of Power Season 3 First Reactions Are Officially In
 
 TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Rings of Power - Season 3, The Lord of the Rings
