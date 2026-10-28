@@ -1,3 +1,443 @@
+# The Best Movie Of All Time According To Rotten Tomatoes Is Officially Being Cut From Prime Video
+
+Movies, Masked Recs, L.A. Confidential, Rotten Tomatoes
+
+Wed, 28 Oct 2026 19:55:18 GMT
+
+https://screenrant.com/la-confidential-movie-leaving-prime-video-november-2026/
+
+Rotten Tomatoes' former No. 1 movie is leaving Prime Video on November 1. Subscribers have just days left to watch this acclaimed crime thriller.
+---------
+
+# Magic: The Gathering Star Trek Commander Decklists Officially Revealed
+
+Tabletop, Magic: The Gathering, tabletop games, Star Trek
+
+Wed, 28 Oct 2026 19:53:56 GMT
+
+https://screenrant.com/magic-the-gathering-star-trek-commander-decklists/
+
+Wizards of the Coast has officially revealed the decklists for the new Star Trek Commander decks arriving to Magic: The Gathering in November.
+---------
+
+# Netflix's #1 Streaming Series Worldwide Is Showing Sherlock How It's Done
+
+Streaming TV, Masked Recs
+
+Wed, 28 Oct 2026 19:30:19 GMT
+
+https://screenrant.com/lupin-netflix-worldwide-success-shows-sherlock/
+
+Sherlock was great, but four seasons in, Lupin is Netflix's current most globally watched show for a reason, and it may be the better detective story.
+---------
+
+# Mike Flanagan Officially Confirms Dark Tower Connections In New Stephen King Series
+
+TV, Carrie, The Dark Tower, Stephen King, Halloween 2026, Horror
+
+Wed, 28 Oct 2026 19:26:46 GMT
+
+https://screenrant.com/carrie-tv-show-dark-tower-connections-mike-flanagan-confirmed/
+
+Mike Flanagan has adapted multiple Stephen King stories, and his latest one has connections to The Dark Tower, which he’s now addressing.
+---------
+
+# Criminal Minds: Every Episode Matthew Gray Gubler Directed, Ranked
+
+Network TV, Criminal Minds
+
+Wed, 28 Oct 2026 19:11:02 GMT
+
+https://screenrant.com/criminal-minds-every-episode-matthew-gray-gubler-directed-ranked/
+
+Matthew Gray Gubler hasn't returned for the Criminal Minds reboot. However, fans can still appreciate the several episodes he directed.
+---------
+
+# K/DA's Sophie Powers Talks Becoming Evelynn For League Of Legends (Exclusive)
+
+Gaming, League of Legends, Triple-A Games, PC
+
+Wed, 28 Oct 2026 19:03:33 GMT
+
+https://screenrant.com/sophie-powers-kda-interview/
+
+Sophie Powers is the new face of Evelynn in the League of Legends girl group K/DA, and she sat down with ScreenRant to give us all the details.
+---------
+
+# Netflix's Disappointing The Lincoln Lawyer Season 6 Decision Addressed By Michael Connelly
+
+TV, The Lincoln Lawyer
+
+Wed, 28 Oct 2026 19:02:40 GMT
+
+https://screenrant.com/netflix-the-lincoln-lawyer-season-6-future-michael-connelly-response/
+
+Author Michael Connelly addresses Netflix's decision to end The Lincoln Lawyer with season 5 and the potential to still return for future seasons.
+---------
+
+# The MCU Is Officially Replacing Its Ghost Rider
+
+TV, Ghost Rider
+
+Wed, 28 Oct 2026 19:02:09 GMT
+
+https://screenrant.com/ghost-rider-mcu-johnny-blaze-agents-of-shield-recast-ryan-gosling/
+
+The MCU has already debuted a main Ghost Rider in a complicated project, but Marvel will soon see his replacement take over on the big screen.
+---------
+
+# Discworld: Readers Digested Officially Releases Next Month
+
+Gaming, Discworld, tabletop games
+
+Wed, 28 Oct 2026 19:00:19 GMT
+
+https://screenrant.com/discworld-readers-digested-november-2026-release-reminder/
+
+If you can't get enough of the Discworld series, you might want to check out Discworld: Readers Digested, which is coming out very soon.
+---------
+
+# 8 Outrageous Far Side Puns You'll Either Love Or Hate
+
+Comics, The Far Side
+
+Wed, 28 Oct 2026 19:00:19 GMT
+
+https://screenrant.com/far-side-puns-love-hate-gary-larson/
+
+Divisive Far Side wordplay.
+---------
+
+# New Lord of the Rings Release Hailed as "Epic in Every Sense" in First Reactions
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video
+
+Wed, 28 Oct 2026 19:47:40 GMT
+
+https://www.cbr.com/rings-of-power-season-3-reviews-lord-of-the-rings/
+
+The latest Lord of the Rings release is uniting critics.
+---------
+
+# NBC's Entire One Chicago Franchise Is Losing to 9-1-1 Star's New Crime Drama on Streaming
+
+TV, Line of Fire
+
+Wed, 28 Oct 2026 19:31:52 GMT
+
+https://www.cbr.com/line-of-fire-crime-drama-peacock-streaming-success-october-2026/
+
+The One Chicago series is falling short to a new rival on streaming.
+---------
+
+# 8 Weakest Titans in Legendary's Monsterverse, Ranked By Power
+
+Movies, Monsterverse
+
+Wed, 28 Oct 2026 19:00:11 GMT
+
+https://www.cbr.com/godzilla-monsterverse-weakest-titans-ranked-list/
+
+Underseen Titans like Mothra, Scylla, and Wart Dogs are among the most overrated creatures the Legendary Pictures' Monsterverse has to offer.
+---------
+
+# Agatha Christie's 6-Part Detective Show Sets Up TV's Best New Spy Thriller
+
+TV, Tommy & Tuppence, Mystery, Britbox UK, Innovation
+
+Wed, 28 Oct 2026 19:00:11 GMT
+
+https://www.cbr.com/agatha-christie-tommy-and-tuppence-season-1-n-or-m-cliffhanger/
+
+BritBox's latest Agatha Christie adaptation, Tommy & Tuppence, might be setting up a spy thriller for Season 2.
+---------
+
+# Star Trek Officially Drops 5 New Releases November 9
+
+Games, Star Trek
+
+Wed, 28 Oct 2026 18:50:12 GMT
+
+https://www.cbr.com/star-trek-officially-reveals-new-releases-november-2026/
+
+Star Trek fans have a number of new releases coming out this November, with the most attention being given towards those who love TOS.
+---------
+
+# 10 Best New-Gen Mangaka and Their Most Recognizable Work, Ranked
+
+Anime, Manga, Kagurabachi, Sakamoto Days, My Hero Academia, Dandadan, Demon Slayer, Chainsaw Man, Jujutsu Kaisen
+
+Wed, 28 Oct 2026 18:45:12 GMT
+
+https://www.cbr.com/best-new-gen-mangaka-most-recognizable-work-ranked/
+
+From Kagurabachi to Jujutsu Kaisen, meet 10 of the best new-gen mangaka and the hit manga that have defined modern shonen and beyond.
+---------
+
+# Gundam Reveals Brand-New PS5 Game With First Official Trailer
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam: Battle Operation 2, PlayStation 5, Steam
+
+Wed, 28 Oct 2026 18:28:10 GMT
+
+https://www.cbr.com/gundam-battle-operation-3-first-trailer-release/
+
+Mobile Suit Gundam fans just got their first look at the next entry in one of the biggest video game series in the franchise's history.
+---------
+
+# Stephen King's 8-Episode Sci-Fi Horror Hit Is Dominating Streaming Before November Return
+
+TV, The Institute, Stephen King, Horror
+
+Wed, 28 Oct 2026 18:00:11 GMT
+
+https://www.cbr.com/stephen-king-the-institute-sci-fi-horror-mgm-success-october-2026/
+
+Stephen King's sci-fi horror adaptation, The Institute, is one of the most-watched shows on streaming.
+---------
+
+# 10 Greatest Sci-Fi Thrillers of All Time, Ranked
+
+Movies, Sci-Fi
+
+Wed, 28 Oct 2026 18:00:11 GMT
+
+https://www.cbr.com/best-sci-fi-thrillers-ranked-list/
+
+Sci-fi thrillers have long ruled Hollywood, and these 10 are the must-watch films of all time.
+---------
+
+# Absolute Batman #25 Confirms Major Character Surprise, And Fans Already Are Guessing
+
+Comics, Absolute Batman, Batman
+
+Wed, 28 Oct 2026 18:00:11 GMT
+
+https://www.cbr.com/absolute-batman-25-bruce-selina-surprise/
+
+Absolute Batman drops another bewildering bombshell.
+---------
+
+# 5 Books That Are Far More Disturbing Than Their Movie Adaptations
+
+Books and Comics, Stephen King, Books, Silence of the Lambs, Starve Acre, In the Tall Grass
+
+Wed, 28 Oct 2026 19:54:12 GMT
+
+https://collider.com/books-more-disturbing-than-movie-adaptations/
+
+Hollywood brought Stephen King and Joe Hill's In the Tall Grass to the screen, but the book proves nightmares are worse when left to the imagination.
+---------
+
+# Denis Villeneuve's 10/10 Sci-Fi Space Opera Officially Returns to Theaters
+
+Movie News, Dune, Dune: Part Two, Dune: Part Three, Denis Villeneuve
+
+Wed, 28 Oct 2026 19:44:18 GMT
+
+https://collider.com/dune-part-1-2-theater-return-november-2026/
+
+Ahead of Dune: Part 3, the first two films in the beloved sci-fi franchise are officially returning to theaters. Read on for more details.
+---------
+
+# 2026's Most Visionary Masterpiece Is a 55-Year-Old Uncensored Re-Release | Review
+
+Movie Reviews, The Devils, Vanessa Redgrave, Warner Bros., Horror
+
+Wed, 28 Oct 2026 19:34:28 GMT
+
+https://collider.com/the-devils-review-ken-russell/
+
+Finally released restored and uncut after 55 years, Ken Russell's The Devils can be finally assessed as a true masterpiece of psychological terror.
+---------
+
+# 12 Years Later, This Acclaimed Spy Thriller Still Has Zero Bad Episodes
+
+TV Features, Thriller, Maggie Gyllenhaal, The Honorable Woman, BBC
+
+Wed, 28 Oct 2026 19:29:12 GMT
+
+https://collider.com/spy-thriller-series-the-honorable-woman/
+
+In 2014, the BBC released The Honorable Woman, a gripping thriller about the Israeli-Palestinian conflict.
+---------
+
+# Only 4 Fantasy Epic Books Are Better Than The Lord of the Rings
+
+Books and Comics, Books, The Lord of the Rings, A Song of Ice and Fire, The Odyssey
+
+Wed, 28 Oct 2026 19:19:12 GMT
+
+https://collider.com/fantasy-epic-books-better-than-lord-of-the-rings/
+
+The Lord of the Rings is a pioneering work of literary fantasy, but epic books like A Storm of Swords and Words of Radiance might arguably be better.
+---------
+
+# 'Wicker' Cast and Directors Break Down the Fantasy Romance's Most Pivotal Scenes
+
+Exclusives, Wicker, Alexander Skarsgard, Olivia Colman, Elizabeth Debicki
+
+Wed, 28 Oct 2026 19:00:12 GMT
+
+https://collider.com/wicker-movie-spoilers-alexander-skarsgard-olivia-colman-elizabeth-debicki-directors/
+
+Wicker's cast and writing-directing duo break down the movie's most pivotal scenes, including the line that appeared in every iteration of the script.
+---------
+
+# Dwayne Johnson Is Officially Back in Action in New Trailer for Final Jumanji Movie
+
+Movie News, Jumanji, Jumanji: Open World, Jumanji: Welcome to the Jungle, Jumanji: The Next Level
+
+Wed, 28 Oct 2026 18:59:46 GMT
+
+https://collider.com/dwayne-johnson-jumanji-3-open-world-trailer/
+
+Dwayne Johnson is officially back in action in a brand-new trailer for the third and final Jumanji movie, Open World. See it here!
+---------
+
+# A Talent for Murder: Alden's Nerdy Persona Was Meant to Fool You | Set Stories
+
+Movie, A Talent for Murder
+
+Wed, 28 Oct 2026 18:15:12 GMT
+
+https://collider.com/video/a-talent-for-murder-alden-s-nerdy-persona-was-meant-to-fool-you-set-stories/
+
+Helen Mirren, Alden Ehrenreich, and director Anton Corbijn reveal some of the stranger behind-the-scenes details from A Talent for Murder, including the production's unusually valuable snails and the animal wrangler tasked with handling them.
+---------
+
+# 'Slow Horses' Fans Are Missing Apple TV's Near-Perfect Mick Herron Thriller
+
+TV Features, Down Cemetery Road, Emma Thompson, Ruth Wilson, Apple TV
+
+Wed, 28 Oct 2026 18:11:12 GMT
+
+https://collider.com/down-cemetery-road-apple-tv-mick-herron-thriller/
+
+If you've binged Slow Horses on Apple TV, now is the time to check out the streamer's other Mick Herron thriller adaptation.
+---------
+
+# Chris Hemsworth Officially Confirms His New John Wick Replacement Has Wrapped Filming
+
+Movie News, Extraction, Extraction 2, Extraction 3, Chris Hemsworth
+
+Wed, 28 Oct 2026 18:09:40 GMT
+
+https://collider.com/chris-hemsworth-extraction-3-filming-wrapped-netflix/
+
+Chris Hemsworth has officially confirmed that Extraction 3 has wrapped filming in Thailand. Read on for more details.
+---------
+
+# Forget Billy Bob Thornton, The Perfect 'Landman' Substitute Arrives in Trailer for New Thriller
+
+Movie News, Landman, Billy Bob Thornton, Matt Walsh, Jonathan Lipnicki, Thriller, Drama
+
+Wed, 28 Oct 2026 19:02:11 GMT
+
+https://movieweb.com/williston-trailer/
+
+A new thriller movie reminiscent of Billy Bob Thornton's 'Landman' is on the way after having its first trailer released.
+---------
+
+# Taylor Sheridan's Smash Hit 3-Part Military Action Thriller Scores Big With 3.3 Billion Views
+
+TV News, Taylor Sheridan, Lioness, Action, Thriller, Hot on Streaming
+
+Wed, 28 Oct 2026 19:00:17 GMT
+
+https://movieweb.com/lioness-taylor-sheridan-stream-most-watched-october-2026/
+
+The series has become another massive success for the 'Yellowstone' creator after a shaky start.
+---------
+
+# Anne Hathaway's $145M R-Rated Thriller Officially Sets New Release
+
+DVD, Blu-ray Release Dates, Blu-ray, Verity, Anne Hathaway, Dakota Johnson, Thriller
+
+Wed, 28 Oct 2026 18:32:39 GMT
+
+https://movieweb.com/verity-4k-blu-ray/
+
+'Verity' is officially heading to phyiscal, with bonus features includes director's commentary, deleted scenes, and two alternate endings.
+---------
+
+# Netflix's "Taylor Sheridan Meets Blade Runner" Sci-Fi Epic Is Locked & Loaded in Explosive New Look
+
+TV News, Bass X Machina, Animation, Netflix, Action
+
+Wed, 28 Oct 2026 18:26:37 GMT
+
+https://movieweb.com/bass-x-machina-clip/
+
+The new glimpse at the series features visceral action.
+---------
+
+# 86 Years Later, a Long-Debated Hollywood Classic Gets Stunning New Release
+
+Movie News, Gone with the Wind, Drama, History, Blu-ray
+
+Wed, 28 Oct 2026 18:06:15 GMT
+
+https://movieweb.com/gone-with-the-wind-4k-release/
+
+Clark Gable's controversial classic movie gets major upgrade.
+---------
+
+# HBO Max's 5-Part Sci-Fi Thriller Is So Good, You Won't Be Able To Stop Watching
+
+Features, Orphan Black, Sci-Fi, HBO Max, Thriller
+
+Wed, 28 Oct 2026 18:00:17 GMT
+
+https://movieweb.com/orphan-black-streaming-recommendation/
+
+The sci-fi thriller genre has many stand-out TV shows, but one series aired for five seasons and tells a particularly memorable.
+---------
+
+# What's Coming to Prime Video in November 2026? Everything Arriving Next Month
+
+Features, Prime Video, Streaming
+
+Wed, 28 Oct 2026 18:00:17 GMT
+
+https://movieweb.com/prime-video-new-arrivals-november-2026/
+
+Discover the latest additions to Prime Video in November 2026, including original series premieres and a variety of movies across various genres.
+---------
+
+# 'The Rings of Power' Season 3 Confirms a Major Change That Will Completely Renew the Series
+
+TV News, The Lord of the Rings: The Rings of Power, Fantasy, Adventure
+
+Wed, 28 Oct 2026 16:46:25 GMT
+
+https://movieweb.com/the-rings-of-power-season-3-time-jump/
+
+'The Rings of Power' Season 3 will be accessible to audiences unfamiliar with the established lore.
+---------
+
+# 'Avengers: Doomsday' Confirms Early International Release
+
+Movie News, Avengers: Doomsday, Superhero, Marvel Cinematic Universe
+
+Wed, 28 Oct 2026 16:45:43 GMT
+
+https://movieweb.com/avengers-doomsday-early-release/
+
+'Avengers: Doomsday' will open in the United Kingdom on December 16 and in India on December 17, 2026.
+---------
+
+# The 10 Best Horror Movies That Will Emotionally Destroy You
+
+Movie Lists, Horror
+
+Wed, 28 Oct 2026 16:30:19 GMT
+
+https://movieweb.com/emotionally-devastating-horror/
+
+These horror films prioritize grief and tragedy over jump scares, and hit far harder for it.
+---------
+
 # It’s Officially The End Of An Era For Transformers Fans This October
 
 Classic TV, Transformers
