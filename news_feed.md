@@ -1,3 +1,432 @@
+# BioShock's Movie News Is Even More Promising After 2026's Film Hits
+
+Movies, BioShock
+
+Thu, 29 Oct 2026 17:20:19 GMT
+
+https://screenrant.com/bioshock-2026-movie-update-year-promising/
+
+Between the newest comments about the BioShock movie and how 2026's larger film roster helps set it up to succeed, the adaptation's path is promising.
+---------
+
+# The Greatest Movie Trilogy Of All Time Is Being Removed From Prime Video In Just 3 Days
+
+Movies, The Godfather, The Godfather Part II, The Godfather Part III, The Godfather, Coda: The Death of Michael Corleone
+
+Thu, 29 Oct 2026 17:20:19 GMT
+
+https://screenrant.com/the-godfather-movie-trilogy-leaving-prime-video-november-2026/
+
+The Godfather trilogy disappears from Prime Video at the end of the month, making now the perfect time to rewatch these award-winning films.
+---------
+
+# Amazon Sets New TV Adaptation Of Bestselling Author's Crime Thriller Novel From Blindspot Creator
+
+TV
+
+Thu, 29 Oct 2026 17:18:03 GMT
+
+https://screenrant.com/amazon-the-courier-book-tv-series-adaptation/
+
+A  new crime thriller adaptation has been announced at Amazon MGM Studios, with Blindspot creator Martin Gero tapped to bring the story to TV.
+---------
+
+# GTA 6 Open-World Map Size Officially Confirmed
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Thu, 29 Oct 2026 17:13:14 GMT
+
+https://screenrant.com/gta-6-map-size-open-world-confirmed-rockstar-games/
+
+Rockstar Games has issued an official statement regarding the map size of the upcoming Grand Theft Auto 6, and players should brace themselves.
+---------
+
+# New Pokémon Legends Release Officially Unveiled
+
+Gaming, Pokemon Legends Z-A, Music
+
+Thu, 29 Oct 2026 17:00:19 GMT
+
+https://screenrant.com/pokemon-legends-za-streaming-album-release/
+
+Even though we’re still waiting for the release date for Pokémon Winds and Waves, Nintendo has officially revealed a new Pokémon Legends release.
+---------
+
+# Recasting Farscape For A 2026 Reboot
+
+Classic TV, Farscape
+
+Thu, 29 Oct 2026 17:00:19 GMT
+
+https://screenrant.com/farscape-recasting-actors-2026/
+
+Farscape is one of TV's best space operas, and while the original cast was spot-on, it is fun to imagine who would play the iconic characters today.
+---------
+
+# 13 Years Later, Vegeta's Iconic Dragon Ball Moment Hits Just As Hard
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball
+
+Thu, 29 Oct 2026 16:31:22 GMT
+
+https://screenrant.com/vegeta-best-dragon-ball-line-bulma/
+
+The newest Dragon Ball anime has readopted one of Vegeta's best moments which proves how far the Prince of All Saiyan's character has evolved.
+---------
+
+# The Elder Scrolls 6 Title Officially Unveiled
+
+Gaming, The Elder Scrolls 6, PC
+
+Thu, 29 Oct 2026 16:29:17 GMT
+
+https://screenrant.com/elder-scrolls-6-official-title-reveal/
+
+The Elder Scrolls 6 fans have been waiting for an official title reveal for years now, but a new report finally gives us the official name.
+---------
+
+# 10 Underrated Sci-Fi Thriller Movies Scarier Than Horror
+
+Movies, Sci-Fi, Thriller, Horror, Halloween 2026, Event Horizon, Coherence, Timecrimes, The Professor
+
+Thu, 29 Oct 2026 16:03:20 GMT
+
+https://screenrant.com/forgotten-sci-fi-thrillers-scarier-than-horror-movies/
+
+These 10 underrated sci-fi thrillers are more disturbing than many horror movies, from Coherence and Possessor to Event Horizon.
+---------
+
+# Titus Welliver Is Replaced as Harry Bosch in New Look at Prequel Series
+
+TV, Bosch, Bosch: Start of Watch, MGM+
+
+Thu, 29 Oct 2026 17:15:15 GMT
+
+https://www.cbr.com/titus-welliver-replaced-harry-bosch-prequel-series/
+
+There's a new Bosch in town.
+---------
+
+# 5 Turn-Based RPGs With Virtually Perfect Boss Battles
+
+Games, Role Playing Game, Video Games
+
+Thu, 29 Oct 2026 17:15:12 GMT
+
+https://www.cbr.com/turn-based-rpgs-best-boss-battles/
+
+Despite their simple combat engines, these turn-based RPGs have some of the best boss battles ever.
+---------
+
+# Apple TV's New Serial Killer Thriller Reveals a Shocking Twist in Exclusive Clip
+
+CBR Exclusives, Nocturne
+
+Thu, 29 Oct 2026 17:00:12 GMT
+
+https://www.cbr.com/apple-tv-serial-killer-thriller-nocturne-exclusive-clip/
+
+CBR has an exclusive look at Apple TV's gripping new thriller Nocturne ahead of its debut on Friday.
+---------
+
+# Demon Slayer Officially Releases on Nintendo Switch 2 With Free Upgrade Available Now
+
+Anime, Demon Slayer: Kimetsu no Yaiba, Demon Slayer: Kimetsu no Yaiba Infinity Castle, Nintendo Switch
+
+Thu, 29 Oct 2026 17:00:12 GMT
+
+https://www.cbr.com/demon-slayer-hinokami-chronicles-2-switch-2-free-upgrade/
+
+Demon Slayer is officially giving Nintendo players a free Switch 2 upgrade that's available now.
+---------
+
+# Tulsa King Season 4 Is Already Abandoning Its Winning Formula After Just 2 Episodes
+
+TV, Tulsa King, Crime, Paramount Plus
+
+Thu, 29 Oct 2026 17:00:12 GMT
+
+https://www.cbr.com/tulsa-king-season-4-wine-plotline/
+
+Taylor Sheridan's Tulsa King is losing focus, despite the seamless way previous seasons strained Sylvester Stallone's Dwight Manfredi.
+---------
+
+# 6 Book Series Like Red Rising to Read in 2026 Before Paramount's Movie
+
+Books, Science Fiction
+
+Thu, 29 Oct 2026 16:30:12 GMT
+
+https://www.cbr.com/best-books-like-red-rising-to-read-before-movie-list/
+
+Before Paramount's movie adaptation of the popular sc-fi Red Rising series releases, here are 6 book series similar to it.
+---------
+
+# HBO's Harry Potter Reboot Finally Reveals First Look at the New Hogwarts Castle
+
+TV, Harry Potter
+
+Thu, 29 Oct 2026 16:26:18 GMT
+
+https://www.cbr.com/hbo-harry-potter-first-look-new-hogwarts-castle/
+
+After 15 years, it's almost time for Harry Potter to return to Hogwarts.
+---------
+
+# 10 Masterpiece Anime Space Operas That Are Perfect From Start to Finish
+
+Anime, Sci-Fi
+
+Thu, 29 Oct 2026 16:15:12 GMT
+
+https://www.cbr.com/masterpiece-space-opera-anime-perfect-start-to-finish/
+
+There is a space opera for anyone who wants to find a story they can become fully invested in.
+---------
+
+# New GTA 6 Footage Airs in South Park: “Attack Them With the Dog Poop”
+
+Games, Grand Theft Auto 6, Grand Theft Auto, South Park
+
+Thu, 29 Oct 2026 16:12:10 GMT
+
+https://www.cbr.com/grand-theft-auto-6-new-gameplay-south-park/
+
+New gameplay footage from Grand Theft Auto 6 was part of a new South Park episode, and it's the most bizarrely exciting clip from the game yet.
+---------
+
+# Sega's Hit JRPG Officially Brings Back Persona 3 With a Brand-New Story
+
+Anime, Persona 3 Reload, Persona 5, sega
+
+Thu, 29 Oct 2026 16:00:12 GMT
+
+https://www.cbr.com/persona-3-new-story-sega-jrpg/
+
+Persona 3 Reload officially returns this November, bringing a brand-new story and a new 5-star character to Sega's hit JRPG.
+---------
+
+# 8 Best Thriller Books of All Time, According to Goodreads
+
+Books and Comics, Where the Crawdads Sing, The Housemaid, A Good Girl's Guide to Murder, And Then There Were None
+
+Thu, 29 Oct 2026 17:18:12 GMT
+
+https://collider.com/best-thriller-books-all-time-goodreads/
+
+From Agatha Christie to Stieg Larsson, Freida McFadden to Delia Owens, these thriller authors have high marks on Goodreads.
+---------
+
+# 3 Best New Games To Play This Weekend (October 31-November 1)
+
+Gaming, Video Game, Castlevania, Halloween, Horror
+
+Thu, 29 Oct 2026 17:09:12 GMT
+
+https://collider.com/best-new-games-play-this-weekend-october-31/
+
+The best games you can play this weekend include the latest title in the Castlevania series and a new version of the classic horror film Halloween.
+---------
+
+# 'Unsolved Mysteries' Officially Kicks Off a Brand-New Era Today
+
+TV News, Unsolved Mysteries, Podcasts, True Crime, Documentary
+
+Thu, 29 Oct 2026 17:00:12 GMT
+
+https://collider.com/unsolved-mysteries-new-season-youtube-october-29/
+
+Collider exclusively previews the new Unsolved Mysteries season, launching on YouTube today with a chilling 20-year-old cold case.
+---------
+
+# Jason Isaacs’ New Vampire Movie Officially Arrives Just in Time for Halloween With a Chilling Sneak Peek
+
+Movie News, Jason Isaacs, Horror, Vampire
+
+Thu, 29 Oct 2026 17:00:12 GMT
+
+https://collider.com/vampire-carnival-sneak-peek-jason-isaacs-vod-release-date/
+
+Watch Collider’s exclusive sneak peek from Vampire Carnival, the new supernatural horror movie starring Jason Isaacs, Kieron Moore, and Nell Verlaque.
+---------
+
+# The 10 Most Amazing Fantasy Books Ever Written
+
+Books and Comics, Books, Fantasy, The Lord of the Rings, The Chronicles of Narnia: The Lion, the Witch and the Wardrobe
+
+Thu, 29 Oct 2026 16:45:12 GMT
+
+https://collider.com/most-amazing-fantasy-books-all-time/
+
+From The Lord of the Rings to Piranesi, these fantasy masterpieces find familiar human failings in extraordinary worlds, making them outright amazing.
+---------
+
+# Star Wars Officially Reveals a New Behind-the-Scenes Look at ‘The Mandalorian and Grogu’
+
+Exclusives, The Mandalorian and Grogu, Star Wars, Lucasfilm, Sci-Fi
+
+Thu, 29 Oct 2026 16:02:00 GMT
+
+https://collider.com/mandalorian-and-grogu-art-book-first-look-star-wars/
+
+The Art of Star Wars: The Mandalorian and Grogu gives fans an in-depth look at the film. Explore an exclusive first look at the release here.
+---------
+
+# Robert Downey Jr.'s Doctor Doom Is Officially Unleashed in New 'Avengers: Doomsday' First Look [Exclusive]
+
+Exclusives, Avengers: Doomsday, Robert Downey Jr, Marvel Studios, MCU
+
+Thu, 29 Oct 2026 16:00:13 GMT
+
+https://collider.com/avengers-doomsday-doctor-doom-4dx-poster-robert-downey-jr/
+
+Exclusive: Doctor Doom takes center stage in a striking new black-and-green 4DX poster for Marvel Studios' Avengers: Doomsday.
+---------
+
+# ‘VisionQuest’ Star Teases What’s Next After That “Harrowing” Episode 6 Transformation
+
+Exclusives, VisionQuest, Marvel TV, Disney Plus, Agatha All Along
+
+Thu, 29 Oct 2026 16:00:13 GMT
+
+https://collider.com/visionquest-episode-6-lauren-morais-lisa-molinari-disney-plus/
+
+VisionQuest star Lauren Morais teases what’s next after Lisa’s harrowing Episode 6 transformation and reveals her dream MCU crossover.
+---------
+
+# MGM+’s ‘Treasure Island’ Shows Off Its Darkly Funny Side in New Sneak Peek
+
+TV News, Treasure Island, David Oyelowo, Hayley Atwell, Jack Huston
+
+Thu, 29 Oct 2026 16:00:13 GMT
+
+https://collider.com/treasure-island-david-oyelowo-jack-huston-mgm-plus-sneak-peek/
+
+Watch Collider’s exclusive Treasure Island sneak peek as David Oyelowo, Jack Huston, and Tom Sweet find themselves in serious trouble.
+---------
+
+# ‘The Walking Dead’ Star Norman Reedus Officially Returns to Horror in New R-Rated Thriller
+
+Movie News, Pendulum, Norman Reedus, The Walking Dead, Joseph Gordon-Levitt
+
+Thu, 29 Oct 2026 16:00:13 GMT
+
+https://collider.com/pendulum-trailer-norman-reedus-joseph-gordon-levitt/
+
+Watch Collider’s exclusive first trailer for Pendulum, the new R-rated horror thriller starring Joseph Gordon-Levitt and Norman Reedus.
+---------
+
+# Dakota Johnson & Anne Hathaway's (Very) R-Rated Thriller Officially Becomes the No. 1 Movie on Streaming
+
+Movie News, Verity, Hot on Streaming, Dakota Johnson, Anne Hathaway, Thriller
+
+Thu, 29 Oct 2026 17:00:17 GMT
+
+https://movieweb.com/verity-hathaway-johnson-streaming-hit-october-2026/
+
+After just one day, Dakota Johnson and Anne Hathaway's new erotic thriller is officially the biggest movie on streaming.
+---------
+
+# Jason Statham's New 2027 Action Thriller Movie Is an "Anti-John Wick" Blockbuster
+
+Features, Jason Statham, John Wick, Action, Thriller, Comedy
+
+Thu, 29 Oct 2026 17:00:17 GMT
+
+https://movieweb.com/jason-statham-stole-my-bike-john-wick-comparison/
+
+Jason Statham is steering into bold new territory with a unique thriller concept from the director of 'Deadpool 2' and Bullet Train'.
+---------
+
+# 'Dark Matter' Season 2 Finale Exclusive Clip
+
+Exclusives, Dark Matter
+
+Thu, 29 Oct 2026 17:00:17 GMT
+
+https://movieweb.com/video/dark-matter-season-2-finale-exclusive-clip/
+
+Jennifer Connelly’s Daniela come face-to-face with an alternate version of herself in this exclusive clip from the Dark Matter Season 2 finale, premiering October 30th on Apple TV.
+---------
+
+# Hayden Panettiere Death Investigation Officially Closed as Police Make Final Ruling
+
+Movie News, Hayden Panettiere, Heroes, Nashville
+
+Thu, 29 Oct 2026 16:22:52 GMT
+
+https://movieweb.com/hayden-panettiere-death-investigation-closed/
+
+The police have confirmed the cause of Hayden Panettiere's death in an official statement.
+---------
+
+# 'Shawshank Redemption' Meets 'The Thing' in (Very) R-Rated Thriller Hailed as One of the Best of the Year
+
+Movie News, Ghost in the Cell, Action, Thriller, Horror, Comedy, Rotten Tomatoes, The Shawshank Redemption, The Thing
+
+Thu, 29 Oct 2026 16:22:48 GMT
+
+https://movieweb.com/ghost-in-the-cell-rotten-tomatoes-reviews/
+
+The genre mash-up delivers action, horror, comedy, and more and has now achieved a near-perfect Rotten Tomatoes score.
+---------
+
+# New 'Bosch' Spin-off Officially Replaces Titus Welliver in First Look Images
+
+TV News, Bosch, Crime, Drama
+
+Thu, 29 Oct 2026 16:21:15 GMT
+
+https://movieweb.com/bosch-start-of-watch-first-look/
+
+The Bosch universe is entering genuinely new territory as Bosch: Start of Watch introduces a younger Harry Bosch.
+---------
+
+# Hugh Jackman's Forgotten 131-Minute Gothic Action Epic Is Making a Comeback on Streaming
+
+Movie News, Van Helsing, Prime Video, Hot on Streaming, Hugh Jackman, Action
+
+Thu, 29 Oct 2026 16:00:19 GMT
+
+https://movieweb.com/van-hesling-stream-prime-october-2026/
+
+Hugh Jackman's fantasy action cult-classic is, once again, essential Halloween viewing on streaming.
+---------
+
+# Alan Ritchson's New Action Thriller Is a "Reacher Meets Halo" Blockbuster
+
+Features, Alan Ritchson, Helldivers, Action, Thriller
+
+Thu, 29 Oct 2026 16:00:19 GMT
+
+https://movieweb.com/helldivers-alan-ritchson-upcoming-tease/
+
+Alan Ritchson's role in the upcoming 'Helldivers' could redefine his career, turning him into a box-office juggernaut.
+---------
+
+# Netflix's Near-Perfect 4-Part Thriller Scores Season 5 Renewal After Streaming Success
+
+TV News, The Diplomat, Netflix, Thriller, Keri Russell
+
+Thu, 29 Oct 2026 15:59:22 GMT
+
+https://movieweb.com/the-diplomat-season-5-netflix/
+
+Netflix confirms another season for its hit political drama following continued critical acclaim.
+---------
+
+# 'Harry Potter' Reboot Officially Breaks Away From Movies in First Look at New Hogwarts Castle
+
+TV News, Harry Potter, Fantasy, Adventure, Mystery, Drama
+
+Thu, 29 Oct 2026 15:44:53 GMT
+
+https://movieweb.com/harry-potter-hogwarts-poster-hbo/
+
+The Hogwarts castle in the new 'Harry Potter' series will come with some major changes to what viewers have seen before.
+---------
+
 # Pokémon Legends: Z-A Free Download Officially Available Until November 18
 
 Gaming, Pokemon Legends Z-A
