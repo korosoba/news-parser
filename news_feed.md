@@ -1,3 +1,355 @@
+# Star Trek: We Are The Borg Officially Releases November 2026
+
+Gaming, Star Trek, tabletop games
+
+Thu, 29 Oct 2026 04:15:17 GMT
+
+https://screenrant.com/star-trek-we-are-the-borg-mtg-cards/
+
+Although we're all lying in wait to see what the Star Trek franchise does next TV-wise, Star Trek: We Are The Borg will release this November.
+---------
+
+# The Walking Dead: Aftermath Officially Brings Back Glenn
+
+Gaming, The Walking Dead, The Walking Dead: Aftermath, PC
+
+Thu, 29 Oct 2026 04:00:19 GMT
+
+https://screenrant.com/walking-dead-aftermath-glenn-return/
+
+Glenn returns from the grave for revenge in The Walking Dead: Aftermath, a brand-new release that longtime fans can't miss.
+---------
+
+# DC Unveils Classic Villain's Shimmering Redesign After 44 Years
+
+Comics, DC Comics, Masked Recs
+
+Thu, 29 Oct 2026 03:59:18 GMT
+
+https://screenrant.com/absolute-wonder-woman-silver-swan-redesign/
+
+An iconic Bronze Age-era supervillain gets a stunning new look ahead of their appearance set for the new year in 2027.
+---------
+
+# Every Guardian Of The Galaxy, Ranked By Whether They Can Survive Marvel Zombies
+
+Superheroes, Guardians of the Galaxy, Marvel Cinematic Universe
+
+Thu, 29 Oct 2026 03:58:26 GMT
+
+https://screenrant.com/every-guardian-of-the-galaxy-ranked-surviving-marvel-zombies/
+
+With The Last Guardian on the MCU's horizon, let's rank the Guardians of the Galaxy based on how they'd likely do in a Marvel Zombies apocalypse.
+---------
+
+# Valheim Meets Ancient Egypt In New Open-World RPG You Can Play Free Now
+
+Gaming, Valheim, RPG, Steam
+
+Thu, 29 Oct 2026 03:00:18 GMT
+
+https://screenrant.com/valheim-ancient-egypt-survival-rpg-free-demo/
+
+Build a home along the Nile, farm, craft, and explore ancient Egyptian ruins in this upcoming life sim with a free demo you can try on Steam now.
+---------
+
+# Sex And The City: Carrie & Mr. Big's Relationship Timeline
+
+Classic TV, Sex and the City, And Just Like That...
+
+Thu, 29 Oct 2026 02:33:17 GMT
+
+https://screenrant.com/sex-city-carrie-big-relationship-timeline/
+
+Between the original HBO series, the movies, and the revival, Sex and the City's Carrie and Big had a long, turbulent romantic relationship timeline.
+---------
+
+# Review: Abbott Elementary Season 6 Halloween Special
+
+TV, Abbott Elementary
+
+Thu, 29 Oct 2026 02:00:28 GMT
+
+https://screenrant.com/abbott-elementary-season-6-halloween-special-review/
+
+Abbott Elementary's Halloween night of misplaced mistrust and a relentless ring hunt leads to a surprisingly tender payoff for Janine and Gregory.
+---------
+
+# Bestselling Epic Fantasy Book Series TV Adaptation Officially Announced By Author
+
+Books, Fantasy
+
+Thu, 29 Oct 2026 01:49:37 GMT
+
+https://screenrant.com/the-faithful-and-the-fallen-tv-series-adaptation-john-gwynne-announced/
+
+Another popular fantasy book series is now getting the television treatment, with the author making the announcement that it is in development.
+---------
+
+# Netflix's New Format-Breaking 14-Episode Sitcom Is an Instant Streaming Hit
+
+TV, Minimum Wage, Netflix, Sitcoms
+
+Thu, 29 Oct 2026 04:13:44 GMT
+
+https://www.cbr.com/minimum-wage-sitcom-netflix-success-october-2026/
+
+A new short-form mockumentary series is finding Netflix success two days after its premiere.
+---------
+
+# Apple TV’s Best Drama Confirms It’s Entering a New Era After 4 Seasons
+
+TV, Shrinking, Apple TV, Drama
+
+Thu, 29 Oct 2026 04:02:11 GMT
+
+https://www.cbr.com/apple-tv-shrinking-entering-new-era-after-4-seasons/
+
+Season 4 of Shrinking will bring about some big changes.
+---------
+
+# James Bond Poll Reveals Most Popular Contender to Land the Role and It's Not Even Close
+
+Movies, James Bond
+
+Thu, 29 Oct 2026 03:58:08 GMT
+
+https://www.cbr.com/james-bond-casting-poll-jack-lowden/
+
+The fans have chosen their favorite choice to play the new 007 out of the rumored finalists for the role.
+---------
+
+# $1.12B Space Opera Returns to Theaters 1 Month Before Sequel, but There's a Catch
+
+Movies, Dune, Dune: Part Two, Dune: Part Three
+
+Thu, 29 Oct 2026 03:52:57 GMT
+
+https://www.cbr.com/dune-imax-rerelease-tickets/
+
+Sci-fi fans won't want to miss this limited time event.
+---------
+
+# R-Rated 'Medieval Edward Scissorhands' Fantasy Film Adds 800+ Theaters Amid Box Office Success
+
+Movies, Wicker
+
+Thu, 29 Oct 2026 03:48:32 GMT
+
+https://www.cbr.com/wicker-adds-theater-count-box-office-success/
+
+The acclaimed film is outperforming its initial expectations, leading to a theatrical expansion.
+---------
+
+# 5 Classic PS2 Games That Are 10/10 Masterpieces
+
+Games, PlayStation 2, retro games, Innovation
+
+Thu, 29 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/classic-ps2-games-masterpieces-list/
+
+The best games on the PS2 have aged like fine wine and are still 10/10 masterpieces in the modern era.
+---------
+
+# Before The Pitt, Noah Wyle's Dystopian Hit Delivered TV's Single Darkest Sci-Fi Season Ever
+
+TV, The Pitt, Falling Skies, Sci-Fi
+
+Thu, 29 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/noah-wyle-falling-skies-darkest-sci-fi-tv-season-ever/
+
+14 years before The Pitt, Noah Wyle starred in a five-season sci-fi series that delivered a truly dark and twisted season.
+---------
+
+# 10 Charlie Brown Comics That Were Ahead Of Their Time
+
+Comics, Peanuts
+
+Thu, 29 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/charlie-brown-comics-ahead-of-their-time/
+
+Peanuts, starring Charlie Brown is a timeless comic strip, not just because of its humor or childlike wonder, but also its surprising progressiveness.
+---------
+
+# 10 Most Powerful Autobots From the G1 Era, Ranked
+
+Anime, Transformers, Innovation
+
+Thu, 29 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/transformers-most-powerful-g1-autobots-ranked-list/
+
+Autobots like Optimus Prime were introduced in the G1 era and had tremendous power even back in the '80s.
+---------
+
+# Wendy's Unveils Free RPG on Steam and Gamers Are Impressed: 'This Actually Looks Great'
+
+Games, Steam
+
+Thu, 29 Oct 2026 03:05:25 GMT
+
+https://www.cbr.com/wendyquest-legend-of-the-four-corner-stones-steam/
+
+An official Wendy's video game has popped up on Steam and gamers are surprised by how good it looks.
+---------
+
+# Forget 'Sicario,' Taylor Sheridan's Western Is a Masterpiece From Start to Finish
+
+Movie Features, Taylor Sheridan, Hell or High Water, Sicario, Jeff Bridges
+
+Thu, 29 Oct 2026 04:07:12 GMT
+
+https://collider.com/taylor-sheridan-hell-or-high-water-sicario-streaming-hbo-max-october-2026/
+
+Taylor Sheridan's finest work, Hell or High Water, a 2016 neo-Western with Chris Pine and Jeff Birdges, is even better than Sicario.
+---------
+
+# This Forgotten Masterpiece Influenced Many of the Best Fantasy Books of the Last 40 Years
+
+Books and Comics, Books, Brandon Sanderson, Fantasy, Adventure
+
+Thu, 29 Oct 2026 04:05:12 GMT
+
+https://collider.com/master-of-the-five-magics-book-influenced-hard-fantasy/
+
+Although mostly forgotten, Master of the Five Magics laid the foundations for the hard fantasy systems that would become popular in the next decades.
+---------
+
+# The Greatest Beatles Lyrics Ever Written, Ranked
+
+Music Features, The Beatles, John Lennon, Paul McCartney, Music
+
+Thu, 29 Oct 2026 03:55:12 GMT
+
+https://collider.com/the-beatles-best-lyrics-lennon-mccartney/
+
+Songs with the best lyrics ever written by John Lennon and Paul McCartney for The Beatles, from Rubber Soul, The White Album, Revolver, and more.
+---------
+
+# ‘Parks and Recreation’ Meets ‘Indiana Jones’ in Amy Poehler’s New Peacock Series
+
+TV Features, Dig, Amy Poehler, Peacock, Parks and Recreation
+
+Thu, 29 Oct 2026 03:52:12 GMT
+
+https://collider.com/amy-poehler-dig-peacock-series-parks-and-recreation-replacement/
+
+Amy Poehler returns to TV in Peacock’s Dig, blending the workplace comedy of Parks and Recreation with the archeological adventure of Indiana Jones.
+---------
+
+# Game of Thrones Meets Star Wars in HBO Max's Near-Perfect Space Opera
+
+Movie Features, Dune, Dune 2, Star Wars, Game Of Thrones
+
+Thu, 29 Oct 2026 03:48:12 GMT
+
+https://collider.com/game-of-thrones-meets-star-wars-hbo-max-near-perfect-space-opera-dune/
+
+Game of Thrones and Star Wars are influenced by Frank Herbert's seminal novel Dune, which has received the perfect sci-fi feature-film treatment.
+---------
+
+# Alan Ritchson’s Best ‘Reacher’ Quote Still Defines Prime Video’s Action Thriller 4 Years Later
+
+TV Features, Reacher, Alan Ritchson, Prime Video, Neagley
+
+Thu, 29 Oct 2026 03:15:12 GMT
+
+https://collider.com/alan-ritchson-best-reacher-quote-prime-video-action-thriller/
+
+Alan Ritchson's best Reacher quote highlights the character's investigative strengths while completely defining Prime Video's #1 action thriller.
+---------
+
+# Margot Robbie's ‘The Road’ Replacement Sci-Fi Thriller Is Officially on Free Streaming
+
+Movie Features, Z For Zachariah, Margot Robbie, The Road, Chiwetel Ejiofor
+
+Thu, 29 Oct 2026 03:03:12 GMT
+
+https://collider.com/margot-robbie-z-for-zachariah-the-road-streaming-free-tubi-october-2026/
+
+Margot Robbie, Chiwetel Ejiofor, and Chris Pine all simmer in post-apocalyptic thriller Z for Zachariah, now streaming free on Tubi.
+---------
+
+# 5 Classic Books That Are a Masterclass in Prose
+
+Books and Comics, Books, Jane Eyre, In Cold Blood, One Hundred Years of Solitude
+
+Thu, 29 Oct 2026 03:01:12 GMT
+
+https://collider.com/classic-books-masterclass-prose/
+
+From Charlotte Brontë's Jane Eyre to Truman Capote's In Cold Blood, these classic books feature the best, most beautiful prose in literature.
+---------
+
+# A Classic Bond Girl Is Officially Returning for a New Release
+
+Books and Comics News, Diamonds Are Forever, James Bond, Ian Fleming, Books
+
+Thu, 29 Oct 2026 02:00:22 GMT
+
+https://collider.com/james-bond-all-in-tiffany-case-return/
+
+James Bond and one of his classic love interests return in the new novella All In. Read on for more details.
+---------
+
+# John Grisham’s Answer to ‘The Lincoln Lawyer’ Officially Sets 2027 Return
+
+Books and Comics News, John Grisham's The Rainmaker, Thriller, Crime, Books
+
+Thu, 29 Oct 2026 01:50:12 GMT
+
+https://collider.com/john-grisham-simon-latch-return-release-date-october-2027/
+
+John Grisham has officially announced his next novel, bringing back lawyer Simon Latch for a new legal thriller set to release in 2027.
+---------
+
+# New ‘Hunger Games’ Prequel Hailed as the Franchise’s ‘Rogue One’ in First Reactions
+
+Movie News, The Hunger Games: Sunrise on the Reaping, Adventure, The Hunger Games, Jennifer Lawrence
+
+Thu, 29 Oct 2026 02:48:47 GMT
+
+https://movieweb.com/hunger-games-sunrise-on-the-reaping-first-reactions/
+
+Joseph Zada's electrifying Haymitch leads 'Sunrise on the Reaping,' with early reactions praising its nostalgic world and fresh performances.
+---------
+
+# Netflix Scores Big With New 10-Part Sci-Fi Action Masterpiece That's Taking Over on Streaming
+
+TV News, Cyberpunk: Edgerunners, Netflix, Hot on Streaming, Sci-Fi, Action
+
+Thu, 29 Oct 2026 02:00:26 GMT
+
+https://movieweb.com/cyberpunk-edgerunners-2-stream-netflix-october-2026/
+
+Season 2 of Netflix's best sci-fi action series is taking no prisoners on streaming.
+---------
+
+# 8 Great Sci-Fi Books That Became Even Better Movies
+
+Movie Lists, Sci-Fi, Jurassic Park, Dune
+
+Thu, 29 Oct 2026 02:00:26 GMT
+
+https://movieweb.com/sci-fi-books-better-movies/
+
+Not every adaptation tops its source material, but these sci-fi movies make a convincing case for Hollywood.
+---------
+
+# After 32 Years, Kevin Bacon's Intense Action Thriller Officially Scores a New Release
+
+Movie News, The River Wild, Kevin Bacon, Meryl Streep, Curtis Hanson, Action, Thriller, Blu-ray
+
+Thu, 29 Oct 2026 01:00:16 GMT
+
+https://movieweb.com/the-river-wild-4k-blu-ray-release/
+
+Kino Lorber is bringing Kevin Bacon's intense action thriller 'The River Wild' to 4K Blu-ray and Blu-ray this December.
+---------
+
 # The Best Quote From Every Lord Of The Rings Book
 
 Books, The Lord of the Rings
