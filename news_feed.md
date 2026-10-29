@@ -1,3 +1,410 @@
+# Essential Guide to Reading Miss Marple Books in Order
+
+Books, Mystery, Agatha Christie, Marple
+
+Thu, 29 Oct 2026 21:16:19 GMT
+
+https://screenrant.com/miss-marple-books-in-order-reading-guide/
+
+Discover everything you need to know about reading Miss Marple novels in order, including key insights and adaptations.
+---------
+
+# Patrick Stewart's Best Star Trek Line Will Always Be Relevant
+
+Classic TV, Patrick Stewart, Star Trek: The Next Generation, Star Trek
+
+Thu, 29 Oct 2026 21:15:18 GMT
+
+https://screenrant.com/star-trek-patrick-stewart-picard-best-line-still-relevant/
+
+Patrick Stewart sadly passed away today, but his greatest quote as Star Trek's Captain Jean-Luc Picard will live on forever in sci-fi history.
+---------
+
+# All 13 Star Trek Movies Officially Set Free Streaming Release Date
+
+Movies, Star Trek
+
+Thu, 29 Oct 2026 21:11:25 GMT
+
+https://screenrant.com/star-trek-movies-pluto-tv-free-streaming-release-date/
+
+All 13 films from the iconic science fiction franchise, Star Trek, will soon be available to stream for free on a different platform.
+---------
+
+# Ridley Scott's 118-Episode Police Procedural Has Aged Like Fine Wine
+
+Classic TV, Ridley Scott
+
+Thu, 29 Oct 2026 21:01:19 GMT
+
+https://screenrant.com/numb3rs-tv-series-ridley-scott-aged-well/
+
+Executive produced by Ridley Scott, Numb3rs may not be the most famous police procedural series, but it's definitely one of the most underrated.
+---------
+
+# 10 Best Professor X Quotes From All 8 Of His X-Men Movie Appearances
+
+Superheroes, X-Men, Marvel Cinematic Universe
+
+Thu, 29 Oct 2026 20:56:35 GMT
+
+https://screenrant.com/best-professor-x-quotes-xmen-movies/
+
+Charles Xavier has always been a beacon of wisdom and love, which is reflected throughout the X-Men movies with a series of perfect quotations.
+---------
+
+# The Mongoose Review: How Long Can Liam Neeson Keep Doing This?
+
+New Movies, The Mongoose
+
+Thu, 29 Oct 2026 20:54:12 GMT
+
+https://screenrant.com/the-mongoose-movie-review/
+
+Despite some good car chase scenes, The Mongoose is a lazy mess of a film, only made enjoyable by how unintentionally funny it is.
+---------
+
+# The Rings Of Power Star Teases Major Revelation About Galadriel's Past In Season 3
+
+TV, The Lord of the Rings: The Rings of Power, Morfydd Clark
+
+Thu, 29 Oct 2026 20:50:39 GMT
+
+https://screenrant.com/rings-of-power-season-3-morfydd-clark-galadriel-past/
+
+The Lord of the Rings: The Rings of Power season 3 shows Galadriel in a new light, after surviving a brutal sword duel during the season 2 finale.
+---------
+
+# Assassin's Creed Hexe Gets Official Update Alongside Cryptic Teaser
+
+Gaming, Assassin's Creed, Triple-A Games, PC
+
+Thu, 29 Oct 2026 20:50:11 GMT
+
+https://screenrant.com/assassins-creed-hexe-gets-official-update-alongside-cryptic-teaser/
+
+Assassin's Creed: Codename Hexe is becoming increasingly real, and the latest update includes a code that might be a clue to the opening mission.
+---------
+
+# James Gunn Confirms DCU's Batman Will Be Chosen Soon With Major Casting Change
+
+Movies, Batman, The Brave and the Bold
+
+Thu, 29 Oct 2026 21:51:53 GMT
+
+https://www.cbr.com/james-gunn-dcu-batman-casting-update/
+
+James Gunn confirms he's taking a different approach to casting Batman compared to the previous actors who've been picked.
+---------
+
+# SEAL Team Reunion Confirmed for Marshals Season 2 as 2 Stars Return to CBS
+
+TV, Marshals, SEAL Team, Paramount Plus
+
+Thu, 29 Oct 2026 21:49:51 GMT
+
+https://www.cbr.com/marshals-season-2-cast-seal-team-reunion-judd-lormand-beau-knapp/
+
+Two SEAL Team stars are joining the cast of Marshals Season 2.
+---------
+
+# 5 Classic SNES Games Return With New Physical Release October 30
+
+Games, Nintendo
+
+Thu, 29 Oct 2026 21:45:11 GMT
+
+https://www.cbr.com/5-classic-snes-games-return-with-new-physical-release-october-30/
+
+The Super Nintendo Entertainment System (SNES) is a staple of gaming, and Nintendo is bringing back 5 absolute classics this October.
+---------
+
+# 30 Strongest Mortal Kombat Characters, Ranked
+
+Games, Mortal Kombat, Video Games
+
+Thu, 29 Oct 2026 21:31:12 GMT
+
+https://www.cbr.com/mortal-kombat-strongest-characters/
+
+The Mortal Kombat video game series has introduced a number of powerful Kombatants since it first debuted in the '90s. Here are the strongest.
+---------
+
+# 7 Forgotten '90s Anime Series That Have Aged Like Fine Wine
+
+Anime, Innovation
+
+Thu, 29 Oct 2026 21:31:11 GMT
+
+https://www.cbr.com/forgotten-90s-anime-series-aged-like-fine-wine-list/
+
+'90s anime series like Record of Lodoss War are classics, but they're mostly forgotten today.
+---------
+
+# The Elder Scrolls 6 Title Reveal Is Good News For Its Release Date
+
+Games, The Elder Scrolls
+
+Thu, 29 Oct 2026 21:17:35 GMT
+
+https://www.cbr.com/the-elder-scrolls-6-sentinel-name-release-date/
+
+The reemergence of The Elder Scrolls 6 is reportedly happening soon, and previous comments from Bethesda indicate a release following shortly after.
+---------
+
+# 6 RPGs With Crafting Systems That Are 10/10 Masterpieces
+
+Games, RPG, The Witcher 3: Wild Hunt, Video Games, Like a Dragon 8, Innovation
+
+Thu, 29 Oct 2026 21:15:12 GMT
+
+https://www.cbr.com/masterpiece-rpgs-crafting-systems/
+
+Plenty of RPGs manage to incorporate great crafting systems without detracting from what they do best: creating great customization opportunities.
+---------
+
+# Hokum is 2026's Best Supernatural Thriller
+
+Movies, Hokum, Innovation
+
+Thu, 29 Oct 2026 21:00:12 GMT
+
+https://www.cbr.com/hokum-best-2026-horror-movie/
+
+Obsession is, without a doubt, a break-out horror movie, but another 2026 horror masterpiece has flown under the radar, and it's incredible.
+---------
+
+# Dune's Infamous Sandworm Popcorn Buckets Return With a Wild Upgrade for Part 3
+
+Movies, Dune: Part Three
+
+Thu, 29 Oct 2026 20:47:45 GMT
+
+https://www.cbr.com/dune-3-popcorn-bucket-sandworms/
+
+Dune: Part Three doubles down with the notorious popcorn buckets, which are now even more suggestive.
+---------
+
+# DC Studios' New Green Lantern Spinoff Officially Confirms Episode Count
+
+TV, My Adventures With Superman, Green Lantern, Animation
+
+Thu, 29 Oct 2026 20:32:23 GMT
+
+https://www.cbr.com/my-adventures-with-green-lantern-episodes-count/
+
+DC Studios finally reveals some concrete info on its upcoming Green Lantern spinoff.
+---------
+
+# 9 Greatest Western Shows That Are Worth Watching Over and Over, Ranked
+
+TV, Western, Gunsmoke, Little House on the Prairie, 1883
+
+Thu, 29 Oct 2026 21:52:12 GMT
+
+https://collider.com/western-shows-worth-watching-over-and-over-ranked/
+
+From the long-running classic Gunsmoke to the Taylor Sheridan prequel 1883, these Western shows are absolutely worth returning to for a rewatch.
+---------
+
+# The 10 Greatest R-Rated Neo-Noir Movies, Ranked
+
+Movie, Chinatown, David Lynch, David Fincher, Se7en
+
+Thu, 29 Oct 2026 21:45:12 GMT
+
+https://collider.com/best-r-rated-neo-noir-movies-ranked/
+
+Body Heat, Chinatown, and Se7en are all among the best R-rated neo-noir movies ever made.
+---------
+
+# The 10 Best Stephen King Opening Chapters, Ranked
+
+Books and Comics, It, Stephen King, The Shining, The Dark Tower
+
+Thu, 29 Oct 2026 21:19:12 GMT
+
+https://collider.com/best-stephen-king-opening-chapters-ranked/
+
+The best opening chapters that Stephen King has written can be found in classics like IT, The Stand, and The Dark Tower II: The Drawing of the Three.
+---------
+
+# The 8 Most Amazing Thriller Movies Ever Made
+
+Movie, Thriller, The Silence of the Lambs, Rear Window, Vertigo
+
+Thu, 29 Oct 2026 21:09:12 GMT
+
+https://collider.com/most-amazing-thriller-movies-ever-made/
+
+From Parasite to Rear Window, these thriller movies prove that a staircase, a coin toss, or a pair of binoculars can destroy your nerves.
+---------
+
+# ‘Yellowstone’ Spin-Off ‘Dutton Ranch’ Officially Returns With New Release Next Month
+
+TV News, Dutton Ranch, Taylor Sheridan, Yellowstone, Cole Hauser
+
+Thu, 29 Oct 2026 21:04:54 GMT
+
+https://collider.com/dutton-ranch-season-1-blu-ray-dvd-release-date-november-2026/
+
+Dutton Ranch Season 1, starring Kelly Reilly and Cole Hauser as Beth and Rip, arrives on Blu-ray and DVD next month with a new bonus feature.
+---------
+
+# The 10 Best Video Game Heroes of All Time, Ranked
+
+Gaming, Video Game, Uncharted, Mario, Resident Evil
+
+Thu, 29 Oct 2026 20:58:12 GMT
+
+https://collider.com/best-video-game-heroes/
+
+Leon S. Kennedy from the Resident Evil franchise and Nathan Drake from Uncharted are among the best video game heroes of all time.
+---------
+
+# 'The Black Phone' Director Officially Boards Adaptation of Sci-Fi Horror Classic
+
+Horror, The Black Phone, Karyn Kusama, Video Game
+
+Thu, 29 Oct 2026 20:48:33 GMT
+
+https://collider.com/mouthwashing-video-game-movie-adaptation-scott-derrickson/
+
+The infamous horror cult classic Mouthwashing is officially getting a feature film produced by The Black Phone's Scott Derrickson.
+---------
+
+# Marvel, Star Trek, and More Officially Pay Tribute to Sir Patrick Stewart
+
+Movie News, Patrick Stewart, Avengers: Doomsday, Star Trek, Marvel
+
+Thu, 29 Oct 2026 20:24:56 GMT
+
+https://collider.com/patrick-stewart-tributes-marvel-star-trek/
+
+The entertainment industry is mourning the loss of Sir Patrick Stewart following the legendary actor's sudden passing. Read on for more.
+---------
+
+# 'Daredevil's Most Devastating Story Was Almost Very Different
+
+TV Features, Daredevil: Born Again, Ladies Night, Deborah Ann Woll, MCU
+
+Thu, 29 Oct 2026 20:09:12 GMT
+
+https://collider.com/daredevil-season-3-story-karen-page-almost-different-deborah-ann-woll/
+
+Deborah Ann Woll suggested a change to her character's story in Daredevil Season 3, making Karen responsible for her brother's death in the MCU.
+---------
+
+# Patrick Stewart's Best Picard Quote Still Defines the Star Trek Universe
+
+TV Features, Star Trek: The Next Generation, Patrick Stewart, Star Trek, Sci-Fi
+
+Thu, 29 Oct 2026 20:02:14 GMT
+
+https://collider.com/star-trek-the-next-generation-patrick-stewart-picard-best-quote/
+
+Picard's crucial wisdom about life and leadership to Data in Star Trek encapsulates his essence as a strong and empathetic mentor.
+---------
+
+# Netflix Officially Adapting Popular "Taylor Sheridan Meets Hunger Games" Action Franchise
+
+TV Shows, PUBG (PlayerUnknown's Battlegrounds), Donald Glover, Netflix, Action
+
+Thu, 29 Oct 2026 21:10:20 GMT
+
+https://movieweb.com/pubg-live-action-series-netflix/
+
+Netflix is officially adapting 'PUBG' franchise, and Donald Glover is set to star
+---------
+
+# Mel Gibson's 177-Minute War Epic Sets New Release 30 Years After Dominating the Oscars
+
+Movie News, Braveheart, Mel Gibson, War, Drama, Blu-ray
+
+Thu, 29 Oct 2026 21:01:17 GMT
+
+https://movieweb.com/braveheart-4k-blu-ray-release/
+
+Paramount Pictures is issuing a 4K Ultra HD Blu-ray steelbook reprint of Mel Gibson's Oscar-winning war epic 'Braveheart.'
+---------
+
+# Taylor Sheridan’s 9-Part ‘Yellowstone’ Sequel Officially Scores New Release
+
+TV News, Dutton Ranch, Taylor Sheridan, Cole Hauser, Kelly Reilly, Yellowstone, Drama, Blu-ray
+
+Thu, 29 Oct 2026 20:50:35 GMT
+
+https://movieweb.com/dutton-ranch-blu-ray-dvd/
+
+'Dutton Ranch' lands new release ahead of upcoming season.
+---------
+
+# Taylor Sheridan's Hit Western Series Officially Returns as Season 7 Gets Premiere Date
+
+TV News, The Last Cowboy, Taylor Sheridan, Documentary
+
+Thu, 29 Oct 2026 20:00:26 GMT
+
+https://movieweb.com/the-last-cowboy-season-7-release-date/
+
+The long-awaited new season will air on television soon.
+---------
+
+# 6 Greatest John Wayne War Movies Praised For Historical Accuracy
+
+Movie Lists, John Wayne, War, They Were Expendable, The Longest Day, The Horse Soldiers, Operation Pacific, Island in the Sky, Sands of Iwo Jima, The Alamo, Fort Apache, The Green Berets
+
+Thu, 29 Oct 2026 20:00:16 GMT
+
+https://movieweb.com/john-wayne-war-movies-accurate/
+
+These John Wayne war movies are not only entertaining and memorable, but experts have praised them for their historical accuracy.
+---------
+
+# Marvel & Star Trek Legend Patrick Stewart Dies at 86
+
+Movie News, Patrick Stewart, Avengers: Doomsday, X-Men, Star Trek
+
+Thu, 29 Oct 2026 19:54:03 GMT
+
+https://movieweb.com/patrick-stewart-dies-aged-86/
+
+Patrick Stewart, best known for playing Professor X and Jean-Luc Picard, is no longer with us after a career that spanned more than half a century.
+---------
+
+# Apple TV's 'Godzilla' Series Eyes Major Reboot as New Titans Take Over Season 3
+
+TV News, Monarch: Legacy of Monsters, Godzilla, Sci-Fi, Apple TV
+
+Thu, 29 Oct 2026 19:27:22 GMT
+
+https://movieweb.com/monarch-legacy-of-monsters-season-3-reboot/
+
+Discussions for 'Monarch: Legacy of Monster' Season 3 are underway, but the season is described as a reboot with a focus on a new titan.
+---------
+
+# 'Marshals' Season 2 Stages a Major 'SEAL Team' Reunion With New Cast Additions
+
+TV News, Marshals, SEAL Team, Beau Knapp, Action, Western
+
+Thu, 29 Oct 2026 19:03:17 GMT
+
+https://movieweb.com/marshals-season-2-cast-judd-lormand-beau-knapp/
+
+'Marshals' expands its roster in Season 2 with two 'SEAL Team' alums.
+---------
+
+# Ben Affleck's 124-Minute Near-Perfect Action Thriller Is Officially Being Cut from Streaming
+
+Movie News, The Town, Ben Affleck, Coming/Leaving Streaming, Action, Thriller
+
+Thu, 29 Oct 2026 19:00:16 GMT
+
+https://movieweb.com/the-town-ben-affleck-streaming-hbo-max-octber-2026/
+
+You only have a few days left to stream what is easily one of Ben Affleck's best movies as both director and star.
+---------
+
 # BioShock's Movie News Is Even More Promising After 2026's Film Hits
 
 Movies, BioShock
