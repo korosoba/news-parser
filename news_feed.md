@@ -1,3 +1,443 @@
+# 9 Movie Novelizations Better Than The Films They’re Based On
+
+Books, Movies
+
+Fri, 30 Oct 2026 19:31:18 GMT
+
+https://screenrant.com/movie-novelizations-better-than-source-material/
+
+Whether making a bad movie good or finding ways to improve an already classic film, these tie-in novelizations surpass their source material.
+---------
+
+# Florence Pugh's Midsommar Is Leaving HBO Max Soon
+
+Movies, Midsommar, Florence Pugh, Ari Aster
+
+Fri, 30 Oct 2026 19:31:18 GMT
+
+https://screenrant.com/florence-pugh-midsommar-leaving-hbo-max/
+
+Ari Aster's 'Midsommar,' starring Florence Pugh, leaves HBO Max at the end of October 2026.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (October 31-Nov 1)
+
+Movies, Disney+, Recommendation
+
+Fri, 30 Oct 2026 19:20:20 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-october-31/
+
+The best movies to watch on Disney+ this weekend are an R-rated Sci-Fi thriller, a timely fantasy film, and Dakota Fanning's dark horror.
+---------
+
+# Bridgerton's 20 Steamiest Scenes, Ranked
+
+Streaming TV, Bridgerton
+
+Fri, 30 Oct 2026 19:15:20 GMT
+
+https://screenrant.com/bridgerton-show-steamy-scenes-ranked/
+
+Bridgerton and its prequel spinoff, Queen Charlotte: A Bridgerton Story, have both contained some incredibly steamy and romantically tense scenes.
+---------
+
+# Join Us for An Early Screening Of Being Heumann In Montréal
+
+Movies, Being Heumann
+
+Fri, 30 Oct 2026 19:12:26 GMT
+
+https://screenrant.com/being-heumann-screening-free-event-montreal/
+
+ScreenRant and Apple Original Films are hosting an early screening of Being Heumann, the biopic of disability rights activist Judy Heumann.
+---------
+
+# The Legend Of Zelda: Twilight Princess Finally Has A Worthy Next-Gen Remaster
+
+Gaming, The Legend of Zelda: Twilight Princess, The Legend of Zelda
+
+Fri, 30 Oct 2026 19:00:18 GMT
+
+https://screenrant.com/legend-of-zelda-twilight-princess-remaster-fan-project/
+
+Fans have been clamoring for The Legend of Zelda: Twilight Princess HD on a next-gen console, but one fan has taken matters into their own hands.
+---------
+
+# After 8 Years, Jujutsu Kaisen's Final Canonical Release Is Officially 3 Months Away
+
+Anime, Jujutsu Kaisen
+
+Fri, 30 Oct 2026 19:00:18 GMT
+
+https://screenrant.com/jujutsu-kaisen-modulo-final-major-release-domain-expansion/
+
+A rare look at unreleased Jujutsu Kaisen content from it's original creator will be available a lot sooner than the return of the anticipated anime.
+---------
+
+# Carrie 2002 vs. 2026: The Cost of Saving a Killer
+
+TV, Originals, Carrie
+
+Fri, 30 Oct 2026 19:00:18 GMT
+
+https://screenrant.com/video/carrie-2002-vs-2026-the-cost-of-saving-a-killer/
+
+Carrie Ending Explained: Why Flanagan Let Her Live. Mike Flanagan's 2026 adaptation of Stephen King's Carrie delivers a major change to the iconic horror story, allowing Carrie White to survive the prom massacre. But her survival may be more complicated than a happy ending.
+---------
+
+# Titus Welliver's New Harry Bosch Series Return Status Officially Clarified By Michael Connelly
+
+TV, Bosch: Start of Watch, Bosch
+
+Fri, 30 Oct 2026 19:00:11 GMT
+
+https://screenrant.com/bosch-start-of-watch-season-1-titus-welliver-involvement-michael-connelly/
+
+Bosch and Bosch: Legacy may have ended, but the character will live on, and Michael Connelly is giving insight into Titus Welliver’s involvement.
+---------
+
+# Casting How I Met Your Mother In 2026: All 6 Main Roles
+
+Classic TV, How I Met Your Mother
+
+Fri, 30 Oct 2026 18:45:19 GMT
+
+https://screenrant.com/how-i-met-your-mother-casting-actors-2026/
+
+Reimagining the How I Met Your Mother cast isn't easy. However, these six actors could make a 2026 version of this iconic sitcom just as enjoyable.
+---------
+
+# Star Wars Director Says the Jedi Order 'Indeed Created Darth Vader'
+
+Anime, Star Wars, Star Wars: Visions Presents - The Ninth Jedi, Star Wars: Visions
+
+Fri, 30 Oct 2026 19:40:12 GMT
+
+https://www.cbr.com/star-wars-darth-vader-jedi-order-create/
+
+The director of one of the hottest Star Wars titles explains why he believes the Jedi were ultimately responsible for creating Darth Vader.
+---------
+
+# Looney Tunes Icon Eric Bauza Makes Posthumous Debut on The Simpsons Weeks After His Death
+
+TV, The Simpsons
+
+Fri, 30 Oct 2026 19:33:20 GMT
+
+https://www.cbr.com/eric-bauza-the-simpsons-debut/
+
+Emmy-winning voice actor Eric Bauza will finally be heard on The Simpsons shortly after his passing.
+---------
+
+# Zelda Producer Teases Next Mainline 3D Title After Ocarina of Time
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Fri, 30 Oct 2026 19:25:12 GMT
+
+https://www.cbr.com/zelda-producer-next-mainline-3d-game-interview-comments/
+
+Eiji Aonuma's recent statement about the next 3D Zelda is interesting when considering recent leaks, as well as his own comments in past interviews.
+---------
+
+# SCAD Studio's Message to the Film Industry: ‘We Are Open For Business’
+
+CBR Exclusives, Movies
+
+Fri, 30 Oct 2026 19:03:37 GMT
+
+https://www.cbr.com/scad-savannah-message-to-the-film-industry/
+
+Impressive backlot is hosting American Idol and more, and they want your business.
+---------
+
+# 8 Sci-Fi Movie Trilogies That Should Have Ended After the Second Movie
+
+Movies, Sci-Fi, X-Men, Star Wars
+
+Fri, 30 Oct 2026 19:00:11 GMT
+
+https://www.cbr.com/sci-fi-trilogies-should-have-ended-after-second-movie-list/
+
+Some of these iconic and long-lasting sci-fi movie trilogies were failed by their third installments and should have stopped after movie number two.
+---------
+
+# Stephen King & Guillermo del Toro Praised Apple TV’s Disturbing 4-Season Horror Thriller
+
+TV, Servant, Apple TV, Stephen King, guillermo del toro
+
+Fri, 30 Oct 2026 19:00:11 GMT
+
+https://www.cbr.com/apple-tv-servant-stephen-king-guillermo-del-toro-praised-horror-thriller/
+
+This psychological horror series from Apple TV has received high praise from two of the greatest writers and filmmakers in history.
+---------
+
+# Angel Studios Officially Bans Sex Scenes and F-Bombs from All Future Movie Releases
+
+Movies
+
+Fri, 30 Oct 2026 18:50:49 GMT
+
+https://www.cbr.com/angel-studios-bans-profanity-sex-scenes/
+
+Angel Studios has a new list of strict rules that will apply to all feature film releases moving forward.
+---------
+
+# Pokémon Brings Back Mega Rayquaza With New February 12 Release
+
+Games, Pokemon, Pokemon TCG
+
+Fri, 30 Oct 2026 18:30:11 GMT
+
+https://www.cbr.com/pokemon-mega-rayquaza-new-february-12-release/
+
+Mega Rayquaza officially returns in a new Pokémon release in February 2027.
+---------
+
+# 1 of the Greatest American Novels Is Being Gender Swapped in New NBC Police Procedural
+
+TV, NBC
+
+Fri, 30 Oct 2026 18:28:13 GMT
+
+https://www.cbr.com/nbc-police-procedural-gatsby-gender-swapped/
+
+NBC is now bringing one of the classics to life in a brand-new way.
+---------
+
+# Japan Reveals the Top 10 Anime of Fall 2026 in New Official Ranking
+
+Anime
+
+Fri, 30 Oct 2026 18:25:11 GMT
+
+https://www.cbr.com/best-anime-fall-2026-ranking-reveal-niconico/
+
+New Japanese streaming data for Fall 2026 confirms that three newly-established anime IPs are rapidly becoming popular -- and none of them are isekai.
+---------
+
+# Anne Hathaway’s New Thriller Finds Streaming Redemption After Being Removed From 1,700 Theaters
+
+Movie News, Verity, Anne Hathaway, Box Office, Thriller
+
+Fri, 30 Oct 2026 19:45:12 GMT
+
+https://collider.com/verity-anne-hathaway-new-thriller-removed-from-1700-theaters-box-office/
+
+Anne Hathaway's new thriller, Verity, has officially debuted at home. But this has led to another massive drop in its theater count.
+---------
+
+# 3 Scariest Thrillers To Watch on Netflix This Weekend (October 31-November 1)
+
+Movie, Netflix, Psycho, Thriller, Green Room
+
+Fri, 30 Oct 2026 19:29:13 GMT
+
+https://collider.com/scariest-thriller-movies-watch-netflix-this-weekend-october-31/
+
+From outright classics like Jaws to modern gems like Green Room, these are the scariest thrillers for you to watch on Netflix this Halloween weekend.
+---------
+
+# 10 Books To Read if You Love 'Shadow and Bone'
+
+TV, Shadow and Bone, Books, Fantasy, His Dark Materials
+
+Fri, 30 Oct 2026 19:22:12 GMT
+
+https://collider.com/books-like-shadow-and-bone-to-read/
+
+From Mistborn to Incarceron, these are the best books that any Shadow and Bone fan would love.
+---------
+
+# Call of Duty Officially Passes Historic Franchise Milestone Ahead of Taylor Sheridan's Movie
+
+Gaming News, Call of Duty, Taylor Sheridan, Peter Berg
+
+Fri, 30 Oct 2026 19:13:33 GMT
+
+https://collider.com/call-of-duty-modern-warfare-4-franchise-sales-40-billion/
+
+Call of Duty: Modern Warfare 4 has officially pushed the franchise past the 40 billion mark, making it one of the most successful franchises of all ti
+---------
+
+# ‘Resident Evil’ Star’s New Survival Thriller Officially Removed From 1,000 Theaters
+
+Movie News, Whalefall, Resident Evil, Box Office, Austin Abrams
+
+Fri, 30 Oct 2026 18:45:12 GMT
+
+https://collider.com/whalefall-austin-abrams-survival-thriller-removed-from-1000-theaters-box-office/
+
+Austin Abrams' follow-up to Resident Evil, the survival thriller Whalefall, has lost more than 1,000 theaters after two disappointing weeks.
+---------
+
+# 'SNL UK' Fans Are Missing This Unsettling 4-Minute Horror Comedy From 2 of Its Stars
+
+TV Features, Saturday Night Live UK, Short, Saturday Night Live, This Place is a Sh*thole
+
+Fri, 30 Oct 2026 18:32:12 GMT
+
+https://collider.com/snl-uk-saturday-night-live-paddy-young-jack-shep-this-place-is-a-shthole-short/
+
+Before starring in SNL UK, Paddy Young and Jack Shep starred in the horror shot movie This Place Is a Sh*thole.
+---------
+
+# ‘Dexter: Resurrection’ Quietly Revives a Missing Piece of the Original Show's Formula
+
+TV Features, Dexter, Dexter: Resurrection, Michael C. Hall
+
+Fri, 30 Oct 2026 18:31:12 GMT
+
+https://collider.com/dexter-resurrection-season-2-intro-opening-credits-original-show/
+
+Season 2 of Dexter: Resurrection officially brings back a twist on the beloved opening credits fans missed most.
+---------
+
+# NBC Officially Announces New 'Law & Order' Replacement
+
+TV News, Law & Order, The Great Gatsby, NBC, Elementary
+
+Fri, 30 Oct 2026 18:18:47 GMT
+
+https://collider.com/nbc-law-and-order-replacement-great-gatsby-reboot-detective-series/
+
+A new Great Gatsby series is officially in the works at NBC, turning the titular literary icon into a full-blown detective. Read on for more details.
+---------
+
+# The Mosquito Bowl: Skarsgård Found Football Harder Than War | Set Stories
+
+Movie, The Mosquito Bowl
+
+Fri, 30 Oct 2026 18:15:12 GMT
+
+https://collider.com/video/the-mosquito-bowl-skarsgrd-found-football-harder-than-war-set-stories/
+
+The Mosquito Bowl: Why Football Was Harder Than War. Bill Skarsgård, Nicholas Galitzine, Tom Francis, and Ray Nicholson reveal how intense football training, chaotic battle sequences, and director Peter Berg's unconventional filmmaking approach shaped their performances in the 2026 war drama.
+---------
+
+# After ‘Supergirl,’ DC’s Much Cheaper Horror Gamble Is Already Paying Off
+
+Movie News, Clayface, Supergirl, James Gunn, Box Office
+
+Fri, 30 Oct 2026 18:09:20 GMT
+
+https://collider.com/clayface-box-office-number-one-43-million-supergirl-dc/
+
+DC’s Clayface officially tops the worldwide box office and crosses a major milestone, following Supergirl’s disappointing theatrical run.
+---------
+
+# Netflix's New 127-Minute World War II Action Blockbuster Everyone's Been Waiting For Gets Limited Early Release
+
+Features, The Mosquito Bowl, War, Action, Thriller, Peter Berg, Bill Skarsgard, Nicholas Galitzine
+
+Fri, 30 Oct 2026 19:30:17 GMT
+
+https://movieweb.com/mosquito-bowl-upcoming-tease/
+
+Netflix's new action movie is based on an incredible true story from World War II, and it's being released early.
+---------
+
+# Forget Sherlock, NBC Is Turning DiCaprio's Historical Hit Into a Modern Crime Thriller
+
+TV News, The Great Gatsby, Drama, Leonardo DiCaprio
+
+Fri, 30 Oct 2026 19:19:17 GMT
+
+https://movieweb.com/nbc-the-great-gatsby-series/
+
+NBC is giving 'The Great Gatsby' a surprising modern-day makeover.
+---------
+
+# Jenna Ortega’s New Dystopian Sci-Fi Movie Cancels International Release After Box Office Flop
+
+Movie News, Klara and the Sun, Sci-Fi, Jenna Ortega
+
+Fri, 30 Oct 2026 18:22:23 GMT
+
+https://movieweb.com/klara-and-the-sun-jenna-ortega-movie-cancels-international-release/
+
+One of 2026's biggest box office flops is making some sudden changes to its release schedule.
+---------
+
+# New R-Rated 98-Minute Action Movie Officially Lands a Rare 0% on Rotten Tomatoes
+
+Movie News, Christmas at the Kringles, Horror, Comedy, Action
+
+Fri, 30 Oct 2026 18:09:49 GMT
+
+https://movieweb.com/christmas-at-the-kringles-rotten-tomatoes-score/
+
+It's dead on arrival as a Halloween movie.
+---------
+
+# 11 Best British Spy Movies That Aren’t James Bond
+
+Movie Lists, Thriller
+
+Fri, 30 Oct 2026 18:00:17 GMT
+
+https://movieweb.com/great-british-spy-movies-that-arent-james-bond/
+
+These British espionage films prove the genre thrives well beyond the James Bond franchise.
+---------
+
+# In 1 Day, Apple TV's New 10-Episode "Silence of the Lambs Meets True Detective" Thriller Is a Streaming Smash
+
+TV News, Nocturne, Hot on Streaming, Thriller, Apple TV
+
+Fri, 30 Oct 2026 18:00:16 GMT
+
+https://movieweb.com/nocturne-streaming-hit-apple-tv-october-2026/
+
+It didn't take long for Apple's latest thriller to become one of the most popular shows on streaming.
+---------
+
+# Disney's Best Forgotten Classic Returns With Streaming Spin-Off 17 Years Later
+
+TV News, The Princess and the Frog, Animation, Fantasy, Disney+, Anika Noni Rose
+
+Fri, 30 Oct 2026 17:39:54 GMT
+
+https://movieweb.com/princess-and-the-frog-special/
+
+Disney+ will help add a new chapter to one of Disney's most underrated animated stories from the 2000s.
+---------
+
+# Netflix Resurfaces a Disney Classic in Epic First Trailer for Live-Action Remake
+
+Movie News, Hunchback of Notre Dame, Netflix, Drama
+
+Fri, 30 Oct 2026 17:32:54 GMT
+
+https://movieweb.com/the-hunchback-soul-paris-trailer-netflix/
+
+Netflix's new live-acton take on a Disney classic in has been revealed in first trailer for 'The Hunchback, Soul of Paris.'
+---------
+
+# Tom Hanks' 189-Minute Fantasy Thriller Masterpiece Becomes the No. 1 Movie on Streaming
+
+Movie News, The Green Mile, Tom Hanks, Fantasy, Thriller, Hot on Streaming
+
+Fri, 30 Oct 2026 16:01:17 GMT
+
+https://movieweb.com/the-green-mile-tom-hanks-free-stream-october-2026/
+
+27 years later, this thriller epic remains essential, and viewers agree.
+---------
+
+# 'Dexter: Resurrection' Theory Claims Season 1's Biggest Reveal Was a Lie
+
+Features, Dexter: Resurrection, Dexter, Crime, Thriller
+
+Fri, 30 Oct 2026 16:01:17 GMT
+
+https://movieweb.com/dexter-resurrection-new-york-ripper-theory/
+
+Don Framt was named as the New York Ripper in 'Resurrection's Season 1 finale, but Season 2 is already planting seeds of doubt. Read on.
+---------
+
 # NYCC 2026 Interview with The Exorcist: Martyrs' Mike Flanagan & Chiwetel Ejiofor
 
 Movies, New York Comic Con, The Exorcist: Martyrs, Mike Flanagan, Chiwetel Ejiofor
