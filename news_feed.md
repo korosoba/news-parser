@@ -1,3 +1,355 @@
+# Attack On Titan Meets Avatar In Paramount+'s New Fantasy Series
+
+Streaming TV, Masked Recs, Fantasy
+
+Fri, 30 Oct 2026 01:00:18 GMT
+
+https://screenrant.com/seven-havens-paramount-plus-attack-on-titan-meets-avatar/
+
+Paramount+ already has a solid fantasy catalog, but the streamer's newest entry in the genre is a perfect mix of Attack on Titan and Avatar.
+---------
+
+# 3 Best New Paramount+ Series To Binge-Watch This Weekend (Oct 30–Nov 1, 2026)
+
+Streaming TV, Paramount Plus, What to Watch on Paramount+
+
+Fri, 30 Oct 2026 00:56:18 GMT
+
+https://screenrant.com/best-new-paramount-plus-shows-to-binge-weekend-october-30-2026/
+
+Paramount+'s 3 best new series to binge-watch this Halloween weekend, October 30–November 1, 2026, are MobLand, Tulsa King, and Dexter: Resurrection.
+---------
+
+# Marvel Studios Officially Crowns Its Greatest Living Villain Before Doomsday
+
+TV, VisionQuest, Marvel Cinematic Universe, Avengers: Doomsday
+
+Fri, 30 Oct 2026 00:30:18 GMT
+
+https://screenrant.com/mcu-crowns-greatest-living-mcu-villain-ultron-visionquest/
+
+Right before Avengers: Doomsday and the debut of RDJ's Doctor Doom, the MCU is setting the bar pretty high for its greatest living villain.
+---------
+
+# Ready Or Not Ending Explained: What Really Happened To The Le Domas Family
+
+Movies, Ready or Not
+
+Fri, 30 Oct 2026 00:23:18 GMT
+
+https://screenrant.com/ready-not-game-rules-ending-explained/
+
+Ready Or Not's deadly game of hide-and-seek has complex rules and mythology. Here's how the violent game played out and what the ending means.
+---------
+
+# Clayface Already Has The Perfect Final Form, But Not In The DCU
+
+Comics, Clayface, DC Comics
+
+Fri, 30 Oct 2026 00:20:03 GMT
+
+https://screenrant.com/clayface-perfect-redesign-not-dcu/
+
+Clayface can shapeshift and has made countless appearances and redesigns in DC Comics history, and the DCU failed to top the villain's best.
+---------
+
+# Ex-Bond Girl's New 007-Esque Spy Series Releases In Less Than A Month
+
+Streaming TV, Masked Recs
+
+Fri, 30 Oct 2026 00:00:18 GMT
+
+https://screenrant.com/secret-service-gemma-arterton-bond-switch/
+
+James Bond might dominate the spy genre, but ex-Bond girl Gemma Arterton's upcoming spy series sees her taking on a new 007-like role.
+---------
+
+# James Gunn Officially Changes What The First Canon DC Universe Movie Is
+
+Movies, The Suicide Squad, DC Universe, James Gunn
+
+Thu, 29 Oct 2026 23:49:41 GMT
+
+https://screenrant.com/dc-universe-first-movie-james-gunn-changed-the-suicide-squad/
+
+The DC Universe's roster of movies is changing as James Gunn reveals the official canonical start point for the franchise is no longer Superman.
+---------
+
+# ABC Officially Confirms Return Of Iconic Fantasy Adaptation 23 Years Later
+
+Movies, Mickey's Christmas Carol
+
+Thu, 29 Oct 2026 23:38:05 GMT
+
+https://screenrant.com/mickeys-christmas-carol-abc-return-23-years-later-november-2026/
+
+ABC has officially announced the return of one of the most iconic adaptations of a classic Christmas story over two decades later.
+---------
+
+# Dragon Ball Super: Beerus Episode 4 Release Date & Time
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball Super, Dragon Ball
+
+Thu, 29 Oct 2026 23:30:18 GMT
+
+https://screenrant.com/dragon-ball-super-beerus-episode-4-release-date-time/
+
+The upcoming episode of Dragon Ball Super: Beerus reintroduces Goku's Super Saiyan God form with better animation.
+---------
+
+# One Piece Characters Who Won't Survive the Series
+
+Anime, One Piece, Innovation
+
+Fri, 30 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/one-piece-characters-will-not-survive/
+
+As the race for the One Piece intensifies, these five characters could be heading toward tragic endings.
+---------
+
+# Before The Rookie, Nathan Fillion Played 1 of TV’s Most Terrifying Villains
+
+TV, The Rookie, Buffy The Vampire Slayer, Nathan Fillion
+
+Fri, 30 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/buffy-the-vampire-slayer-nathan-fillion-caleb-most-terrifying-tv-villain/
+
+Nathan Fillion comfortably leads the ABC series The Rookie, but in the early 2000s, he portrayed a horrifying villain on another popular TV show.
+---------
+
+# 10 Most Unplayable SNES Games, Ranked
+
+Games, Video Games, Nintendo
+
+Fri, 30 Oct 2026 00:45:11 GMT
+
+https://www.cbr.com/most-unplayable-snes-games-ranked/
+
+These SNES classics are unplayable in 2026.
+---------
+
+# 20 New Winter 2027 Anime Series Will Be AI-Generated
+
+Anime, Artificial Intelligence
+
+Fri, 30 Oct 2026 00:20:11 GMT
+
+https://www.cbr.com/winter-2027-ai-anime-release/
+
+AI was used to produce a higher volume of anime works which would otherwise be impossible with traditional means.
+---------
+
+# 5 Anime Where the Villain Gets a Happy Ending
+
+Anime, Dragon Ball Z, Inuyasha, Naruto, The Devil Is a Part-Timer!, Fairy Tail, Innovation
+
+Fri, 30 Oct 2026 00:15:11 GMT
+
+https://www.cbr.com/anime-where-the-villain-gets-a-happy-ending/
+
+These anime villains get the one thing they never expected: a happy ending that proves even the worst enemies can change their fate.
+---------
+
+# Harry Potter: Gryffindor Is the Only House a Student Can CHOOSE to Be Sorted
+
+CBR Exclusives, Harry Potter, feature
+
+Fri, 30 Oct 2026 00:00:12 GMT
+
+https://www.cbr.com/harry-potter-gryffindor-only-house-students-can-choose/
+
+In theory, Gryffindor is the only Hogwarts house a student can choose in the Harry Potter universe. Here's why.
+---------
+
+# Disney's $324M Adventure Remake Refuses to Give Up the No. 1 Spot on Streaming
+
+Movies, Moana, Disney+
+
+Fri, 30 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/moana-adventures-disney-plus-success-october-2026/
+
+Despite an underwhelming box office return, Disney's new movie is a dominant streaming force.
+---------
+
+# Tales of the Teenage Mutant Ninja Turtles: Coastal Chaos #2 Drops the Turtles Into an Amphibious Nightmare
+
+Comics, Tales of the Teenage Mutant Ninja Turtles, Teenage Mutant Ninja Turtles
+
+Fri, 30 Oct 2026 00:00:11 GMT
+
+https://www.cbr.com/tmnt-coastal-chaos-2-review/
+
+The latest issue of Tales of the Teenage Mutant Ninja Turtles: Coastal Chaos kicks things into high gear on the not-so-high-seas.
+---------
+
+# Tom Selleck's Blue Bloods Return Conditions Revealed
+
+TV, Blue Bloods, Boston Blue, CBS
+
+Thu, 29 Oct 2026 23:27:11 GMT
+
+https://www.cbr.com/tom-selleck-blue-bloods-return-conditions/
+
+As Boston Blue's second season continues, Donnie Wahlberg shares what it'll take for Tom Selleck to reprise his Blue Bloods role.
+---------
+
+# 8 Netflix Miniseries You Can Watch in a Weekend
+
+TV, Netflix, TV Miniseries, Guillermo del Toro's Cabinet of Curiosities, Human Vapor
+
+Fri, 30 Oct 2026 01:24:12 GMT
+
+https://collider.com/netflix-miniseries-watch-one-weekend/
+
+Uzumaki, Bodies, Archive 81, Unorthodox, Godless, and more make up our list of Netflix miniseries you can watch in a weekend.
+---------
+
+# ‘Smile 3’ Is Officially Happening, But There’s a Major Catch
+
+Movie News, Smile, David Bruckner, Hellraiser, Horror
+
+Fri, 30 Oct 2026 01:00:12 GMT
+
+https://collider.com/smile-3-director-parker-finn-not-directing-david-bruckner/
+
+Smile 3 is officially happening, but creator Parker Finn will not be writing or directing the next chapter in the horror franchise.
+---------
+
+# Tom Selleck’s ‘Blue Bloods’ Return Is Officially Closer Than Ever
+
+TV News, Boston Blue, Blue Bloods, Tom Selleck, Donnie Wahlberg
+
+Fri, 30 Oct 2026 00:45:12 GMT
+
+https://collider.com/tom-selleck-blue-bloods-return-condition-donnie-wahlberg/
+
+Tom Selleck may appear in the Blue Bloods spin-off, Boston Blue, only if a special condition is met, says Donnie Wahlberg.
+---------
+
+# HBO’s Jon Bernthal-Led ‘Sopranos’ Spin-Off Is Officially a Streaming Hit
+
+Movie News, The Many Saints of Newark, Jon Bernthal, The Sopranos, Alan Taylor
+
+Fri, 30 Oct 2026 00:30:12 GMT
+
+https://collider.com/jon-bernthal-the-many-saints-of-newark-streaming-success-october-2026/
+
+Jon Bernthal's forgotten prequel to one of HBO's greatest shows is enjoying unprecedented streaming success.
+---------
+
+# Disney Officially Reveals the Most Expensive Marvel Movie of All Time
+
+Movie News, Deadpool, Deadpool 2, Deadpool & Wolverine, MCU
+
+Fri, 30 Oct 2026 00:15:12 GMT
+
+https://collider.com/deadpool-and-wolverine-556-million-budget-cost-disney/
+
+Disney has revealed that Deadpool & Wolverine cost $556.8 million to produce, exceeding its original budget despite earning $1.34 billion worldwide.
+---------
+
+# The 10 Best Anti-War Movies in Film History, Ranked
+
+Movie, Full Metal Jacket, Platoon, Apocalypse Now, Das Boot
+
+Fri, 30 Oct 2026 00:11:12 GMT
+
+https://collider.com/best-anti-war-movies-in-film-history-ranked/
+
+The best anti-war movies in cinema history include challenging classics like Full Metal Jacket, The Human Condition, and Apocalypse Now.
+---------
+
+# Christopher Nolan’s Historical Epic Officially Comes Home in Less Than 3 Weeks
+
+Movie News, The Odyssey, Christopher Nolan, Matt Damon, Prime Video
+
+Fri, 30 Oct 2026 00:00:12 GMT
+
+https://collider.com/christopher-nolan-the-odyssey-vod-digital-release-date-november-2026/
+
+Christopher Nolan's epic Odyssey is finally coming home soon after being removed from over 1,000 screens in the last month.
+---------
+
+# One of TV's Best Sci-Fi Thrillers Officially Becomes Netflix's No. 1 Series in America
+
+TV News, From, Horror, MGM, Netflix
+
+Thu, 29 Oct 2026 23:45:12 GMT
+
+https://collider.com/from-netflix-streaming-success-october-2026/
+
+MGM+'s smash-hit thriller From is now a No. 1 streaming hit on Netflix. Read on for more details.
+---------
+
+# Stephen King’s Favorite Horror Movie of 2026 Officially Wins Big on Streaming
+
+Movie News, The Cycle, Deborah Ann Woll, Stephen King, Shudder
+
+Thu, 29 Oct 2026 23:30:12 GMT
+
+https://collider.com/the-cycle-streaming-success-amc-shudder-october-2026/
+
+Stephen King described this 2026 horror hit as The Things meets Silence of the Lambs. Find out how to watch it here.
+---------
+
+# The 8 Best Final Shots in DC Movies, Ranked
+
+Movie, DC Comics, Clayface, Superhero, Batman
+
+Thu, 29 Oct 2026 23:21:12 GMT
+
+https://collider.com/dc-comics-movies-best-final-shots-ranked/
+
+DC Comics movies like Clayface, Batman, and SuperMan had unforgettable final shots.
+---------
+
+# 'Obsession' Director Curry Barker Releases Free 5-Minute Short Film After $500 Million Hit
+
+Movie News, Obsession, Horror, Curry Barker
+
+Thu, 29 Oct 2026 23:27:28 GMT
+
+https://movieweb.com/obsession-curry-barker-new-short-film-mama-bear/
+
+The Gen-Z director makes a return to YouTube after releasing his monster box-office hit.
+---------
+
+# 35 Years Later, ‘Calvin and Hobbes’s Wisest Quote Remains Unbeaten
+
+Features, Calvin and Hobbes, comics
+
+Thu, 29 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/calvin-hobbes-wisest-quote-war/
+
+Calvin and Hobbes often explored the world in their red wagon, but that never stopped them from challenging how it worked.
+---------
+
+# Will Smith's 117-Minute Action Thriller Flop Is Officially Being Cut From Free Streaming Next Month
+
+Movie News, Will Smith, Gemini Man, Action, Thriller, Coming/Leaving Streaming, Tubi
+
+Thu, 29 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/gemini-man-will-smith-leave-tubi-october-2026/
+
+The action thriller caused a major divide between critics and audiences.
+---------
+
+# 'Scrubs' Officially Repeats the Revival's Best JD Twist With a Different Character
+
+Features, Scrubs, Comedy
+
+Thu, 29 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/scrubs-revival-cox-repeats-jd-twist/
+
+JD was written back into 'Scrubs' as a concierge doctor, which is a twist the revival has decided it isn't done with yet. Read on for more.
+---------
+
 # Essential Guide to Reading Miss Marple Books in Order
 
 Books, Mystery, Agatha Christie, Marple
