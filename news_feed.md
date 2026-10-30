@@ -1,3 +1,344 @@
+# Netflix's 16-Part Fantasy Series Delivers A Masterclass In Rebooting A Franchise
+
+Streaming TV, Masked Recs
+
+Fri, 30 Oct 2026 07:01:19 GMT
+
+https://screenrant.com/wednesday-netflix-successful-addams-family-reboot/
+
+There have been many failed attempts to capture the magic of old franchises, but a single Netflix show proves there's a way to do it right.
+---------
+
+# It’s Officially The End Of An Era For HBO’s True Detective
+
+Streaming TV, True Detective
+
+Fri, 30 Oct 2026 06:30:18 GMT
+
+https://screenrant.com/true-detective-hbo-end-of-era/
+
+A four solid seasons, it is hard not to see how HBO’s True Detective is finally reaching the end of an era before marking the inception of a new one.
+---------
+
+# New Dungeon Crawler Carl Adaptation Officially Unveiled For 2027
+
+Gaming, Dungeon Crawler Carl, PC
+
+Fri, 30 Oct 2026 06:30:18 GMT
+
+https://screenrant.com/dungeon-crawler-carl-2027-sound-board-adaptation/
+
+Dungeon Crawler Carl is getting a completely new adaptation, adding to a growing list of upcoming releases for Dinniman's beloved franchise.
+---------
+
+# Square Enix Officially Drops Free RPG Download With 9/10 Reviews On Steam
+
+Gaming, Square Enix, Steam, Final Fantasy Resonance
+
+Fri, 30 Oct 2026 06:00:18 GMT
+
+https://screenrant.com/square-enix-final-fantasy-resonance-free-steam-demo/
+
+If you're a fan of Square Enix RPGs, then be sure to check out this 9/10 game on Steam that you can start playing for free thanks to a new demo.
+---------
+
+# Prime Video's 8-Part Sci-Fi Thriller Is Everything The Matrix 4 Should Have Been
+
+Classic TV, Masked Recs
+
+Fri, 30 Oct 2026 06:00:18 GMT
+
+https://screenrant.com/the-peripheral-prime-video-sci-fi-series-matrix-4/
+
+The Matrix: Resurrections famously disappointed, but a Prime Video sci-fi thriller series with similar themes offers a pretty great alternative.
+---------
+
+# Jack Ryan Meets The Last Of Us In Michael Bay's 56-Episode Sci-Fi Series
+
+Classic TV, Masked Recs
+
+Fri, 30 Oct 2026 05:30:18 GMT
+
+https://screenrant.com/the-last-ship-jack-ryan-meets-the-last-of-us-michael-bay/
+
+This 2014-2018 TV show proves that, against all the odds, espionage thrillers and apocalyptic sci-fi work incredibly well together.
+---------
+
+# Battlestar Galactica Is Officially Bringing Back Multiple Familiar Faces In 2027
+
+Gaming, Battlestar Galactica, PC
+
+Fri, 30 Oct 2026 05:30:18 GMT
+
+https://screenrant.com/battlestar-galactica-2027-classic-game-return/
+
+Battlestar Galactica is making an epic return in 2027 and bringing back some familiar faces to the franchise in the process.
+---------
+
+# Ridley Scott's 'Blade Runner Meets Dune' Series Is A Masterclass In Hard Sci-Fi
+
+Streaming TV, Masked Recs
+
+Fri, 30 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/raised-by-wolves-ridley-scott-hard-sci-fi-masterclass/
+
+A near-forgotten HBO series managed to meld the core themes of Dune and Blade Runner, but this wasn't enough to save it from a tragic fate.
+---------
+
+# Zelda: A Link To The Past HD Unveiled In New Trailer
+
+Gaming, The Legend of Zelda
+
+Fri, 30 Oct 2026 05:00:18 GMT
+
+https://screenrant.com/legend-of-zelda-link-to-the-past-hd-fan-trailer/
+
+Explore A Link to the Past HD PC port features, release news, and enhancements.
+---------
+
+# Transformers Officially Unveils Decepticons Replacement In Eternal War
+
+Gaming, Transformers
+
+Fri, 30 Oct 2026 04:31:18 GMT
+
+https://screenrant.com/transformers-eternal-war-chaos-legion-decepticon-replacement/
+
+Transformers usually falls back on the Decepticons as their eternal villains, but they have been replaced in the franchise's latest outing.
+---------
+
+# Avatar: Seven Havens Season 1 Finale Explained - How the Spinoff Sets Up Season 2
+
+TV, Avatar: Seven Havens, Avatar: The Last Airbender, Paramount Plus, Innovation
+
+Fri, 30 Oct 2026 07:00:11 GMT
+
+https://www.cbr.com/avatar-seven-havens-season-1-finale-explained/
+
+The Season 1 finale of Avatar: Seven Havens on Paramount+ has major implications for Pavi and Nisha heading into Season 2.
+---------
+
+# Jennifer Lawrence's Forgotten 14-Year-Old Horror Flick Returns on Free Streaming
+
+Movies, House at the End of the Street
+
+Fri, 30 Oct 2026 03:57:51 GMT
+
+https://www.cbr.com/jennifer-lawrence-house-at-the-end-of-the-street-tubi-november-2026/
+
+Jennifer Lawrence led the cast of the long forgotten psychological horror thriller.
+---------
+
+# 10 Strongest Non-Canon Dragon Ball Villains, Ranked
+
+Anime, Dragon Ball, Akira Toriyama, anime villains, Innovation
+
+Fri, 30 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/strongest-non-canon-dragon-ball-villains-ranked/
+
+Dragon Ball is responsible for a long line of iconic antagonists, including some especially strong villains who don't fit into the proper canon.
+---------
+
+# Prime Video's Cyberpunk Sleeper From the Creators of Westworld Is a Time Travel Masterpiece
+
+TV, Prime Video, Sci-Fi, The Peripheral, Westworld
+
+Fri, 30 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/the-peripheral-prime-video-cyberpunk-time-travel-masterpiece/
+
+This forgotten-too-soon Prime Video sci-fi series approached time travel in a unique way, making it a must-watch cyberpunk show.
+---------
+
+# 10 Most Beloved Running Gags In The Peanuts
+
+Comics, Peanuts
+
+Fri, 30 Oct 2026 03:30:11 GMT
+
+https://www.cbr.com/most-beloved-running-peanuts-comics-gags/
+
+The Peanuts comic strip has amazing running gags that have made Snoopy, Charlie Brown, and more into beloved household names.
+---------
+
+# The Big Bang Theory Star Returns to CBS in Hit Crime Series With 94% RT
+
+TV, The Big Bang Theory, Elsbeth, CBS
+
+Fri, 30 Oct 2026 03:29:20 GMT
+
+https://www.cbr.com/elsbeth-cast-simon-helberg-big-bang-theory/
+
+The Big Bang Theory will return to CBS.
+---------
+
+# Seth MacFarlane and American Dad! Team Share Touching Tributes to Patrick Stewart
+
+TV, American Dad!
+
+Fri, 30 Oct 2026 03:29:06 GMT
+
+https://www.cbr.com/american-dad-patrick-stewart-tribute/
+
+Star Trek and X-Men star Patrick Stewart also had an unforgettable voice role on American Dad!.
+---------
+
+# 10 Greatest Boss Fights in RPG History, Ranked
+
+Games, RPG, Final Fantasy, Nintendo, Pokemon
+
+Fri, 30 Oct 2026 03:15:11 GMT
+
+https://www.cbr.com/greatest-boss-fights-rpg-history-ranked/
+
+RPGs have some of the greatest boss battles in video game history, and these ten stand out as the best and most challenging of all.
+---------
+
+# Crunchyroll Officially Adds All 1,180 One Piece Episodes in Major International Expansion
+
+Anime, One Piece, Crunchyroll, India
+
+Fri, 30 Oct 2026 03:05:11 GMT
+
+https://www.cbr.com/one-piece-anime-complete-crunchyroll-india-release/
+
+Over 27 years after its debut, the entire One Piece anime is finally available to stream legally in India.
+---------
+
+# Jurassic Park Star Joseph Mazzello to Lead New Horror Filmed in Notoriously 'Haunted' Location
+
+TV, Horror
+
+Fri, 30 Oct 2026 02:58:16 GMT
+
+https://www.cbr.com/joseph-mazzello-a-grim-life-cecil-hotel-horror/
+
+Former child star Joseph Mazzello is the leading man in a new horror film about the infamous building.
+---------
+
+# 10 Classic Books You Can Read in a Weekend
+
+Books and Comics, Animal Farm, Lord of the Flies, The Great Gatsby, Frankenstein
+
+Fri, 30 Oct 2026 04:51:12 GMT
+
+https://collider.com/classic-books-read-one-weekend/
+
+From The Great Gatsby to The War of the Worlds, these classic books can be completed in a single weekend.
+---------
+
+# One of 2026's Biggest Breakout Stars First Stole the Show in This Classic Fantasy Game
+
+Gaming, Video Game, Fantasy, Dragon Age, James Norton
+
+Fri, 30 Oct 2026 04:08:11 GMT
+
+https://collider.com/james-norton-dragon-age-inquisition-best-character-cole/
+
+James Norton stole the show in House of the Dragon, but he first became a fan favorite with 2014's Dragon Age: Inquisition, voicing the complex Cole.
+---------
+
+# 5 Agatha Christie Books You Can Finish in a Weekend
+
+Books and Comics, Agatha Christie, Murder Is Easy, Why Didn't They Ask Evans?, Mystery
+
+Fri, 30 Oct 2026 04:07:12 GMT
+
+https://collider.com/agatha-christie-books-read-in-one-weekend/
+
+From the Hercule Poirot mystery Five Little Pigs to the crime novel Murder Is Easy, these Agatha Christie books are perfect for a weekend of reading.
+---------
+
+# Russell Crowe's Performance in This Prime Video Crime Thriller Is So Good, It Demands a Rewatch
+
+Movie Features, Russell Crowe, Thriller, L.A. Confidential, Guy Pearce
+
+Fri, 30 Oct 2026 03:03:12 GMT
+
+https://collider.com/russell-crowe-la-confidential-crime-thriller-streaming-prime-video-october-2026/
+
+The 1997 neo-noir L.A. Confidential, now streaming on Prime Video, features a thrilling early performance by Russell Crowe as volatile cop Bud White.
+---------
+
+# ‘Cupertino’s Mike Colter Breaks Down Episode 4's Most Shocking Twist
+
+Interviews, Cupertino, Mike Colter, Robert King, Michelle King
+
+Fri, 30 Oct 2026 03:00:12 GMT
+
+https://collider.com/cupertino-episode-4-mike-colter/
+
+Mike Colter discusses Cupertino, Episode 4's most memorable moment, the relationship between Michael and Olivia, and what's to come.
+---------
+
+# The 10 Most Rewatchable Comedy Movies of All Time, Ranked
+
+Movie, Comedy, Forgetting Sarah Marshall, Dumb and Dumber, Mean Girls
+
+Fri, 30 Oct 2026 02:22:12 GMT
+
+https://collider.com/most-rewatchable-comedy-movies-all-time-ranked/
+
+Comedies from Back to the Future and Mean Girls seem endlessly rewatchable, loaded with iconic jokes and performances that leave you laughing.
+---------
+
+# 'Ghosts' Season 6's Cozy Halloween Special Brings Back a Fan-Favorite | Review
+
+TV Reviews, Ghosts, CBS, Fantasy, Paramount Plus
+
+Fri, 30 Oct 2026 02:01:13 GMT
+
+https://collider.com/ghosts-season-6-halloween-premiere-review/
+
+Ghosts Season 6 kicks off with a 2-part Halloween premiere, Pete's surprising return and a heartfelt story that proves the CBS comedy still has charm.
+---------
+
+# Alien Officially Unleashes an Even Deadlier Xenomorph
+
+Gaming News, Alien, Video Game, Sega, PlayStation 5
+
+Fri, 30 Oct 2026 02:00:22 GMT
+
+https://collider.com/alien-isolation-2-smarter-xenomorph-hunting-weather/
+
+Alien: Isolation 2’s developers reveal how its smarter Xenomorph uses weather and new hunting behaviors to make escaping even harder.
+---------
+
+# After Drawing 14M Viewers, NBC’s Brilliant Hit Series Officially Returns Monday
+
+TV Features, The Fall and Rise of Reggie Dinkins, Daniel Radcliffe, Tracy Morgan, NBC
+
+Fri, 30 Oct 2026 01:32:12 GMT
+
+https://collider.com/best-comedy-2026-fall-and-rise-of-reggie-dinkins-nbc-return-november-2/
+
+After scoring big ratings, Tracy Morgan and Daniel Radcliffe's hit NBC sitcom The Fall and Rise of Reggie Dinkins returns for Season 2 on November 2.
+---------
+
+# 'Slow Horses' Star Officially Joins Apple TV's Upcoming 'Outlander' Replacement
+
+TV News, Apple TV, Slow Horses, Outlander, Horror
+
+Fri, 30 Oct 2026 01:30:12 GMT
+
+https://collider.com/slow-horses-star-christopher-chung-cast-apple-tv-ascension/
+
+Slow Horses star Christopher Chung is officially returning to Apple TV for Caitriona Balfe's follow-up to Outlander.
+---------
+
+# Prime Video's Sci-Fi Action Hit Officially Crosses Key Milestone Ahead of Season 3
+
+TV News, Fallout, Sci-Fi, Action, Prime Video, Walton Goggins
+
+Fri, 30 Oct 2026 02:23:00 GMT
+
+https://movieweb.com/fallout-season-3-filming-update/
+
+The next season is shaping up nicely with a cast member confirming important details about the sci-fi action series.
+---------
+
 # Attack On Titan Meets Avatar In Paramount+'s New Fantasy Series
 
 Streaming TV, Masked Recs, Fantasy
