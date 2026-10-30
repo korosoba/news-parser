@@ -1,3 +1,443 @@
+# 2026 Global Box Office Is Headed For Its Best Year Since 2019
+
+Movies, Box Office
+
+Fri, 30 Oct 2026 23:13:05 GMT
+
+https://screenrant.com/2026-global-box-office-best-year-since-2019/
+
+2026 has been a great year for movies with a surprisingly strong lineup of commercial hits, allowing the global box office to make a comeback.
+---------
+
+# The Lord Of The Rings: Rings Of Power Season 3 - Everything We Know
+
+Streaming TV, The Lord of the Rings: The Rings of Power, Upcoming Releases
+
+Fri, 30 Oct 2026 23:01:19 GMT
+
+https://screenrant.com/lord-of-the-rings-rings-of-power-season-3-updates/
+
+The Lord of the Rings: The Rings of Power season 3 is nearly here with new cast members and the start of a dark new era for Middle-earth.
+---------
+
+# Final Fantasy 10 Officially Returning November 2026 With New Release
+
+Gaming, Final Fantasy X, Final Fantasy, Triple-A Games
+
+Fri, 30 Oct 2026 23:01:18 GMT
+
+https://screenrant.com/final-fantasy-10-official-return-tidus-yuna-figures/
+
+It might not be a sequel or remake, but Final Fantasy 10 fans are getting a new treat in November to pair with a matching Halloween release.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (October 31-Nov 1)
+
+Movies, Prime Video, Recommendation
+
+Fri, 30 Oct 2026 23:01:14 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-october-31/
+
+The best movies to watch on Prime Video this weekend are Chris Pratt's Sci-Fi action, a new intense survival thriller, and David Corenswet's horror.
+---------
+
+# 6 Netflix Series Where Every Episode Is A 10/10 (#1 Has A Rare 100% RT Score)
+
+Streaming TV, Netflix
+
+Fri, 30 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/netflix-series-every-episode-is-perfect/
+
+Netflix puts out several new original TV shows a year, but perfection isn't so easy to come by. These get about as close as they possibly can.
+---------
+
+# All Upcoming Josh Hutcherson Movies & TV Shows, Including Mister Miracle
+
+Movies, Josh Hutcherson
+
+Fri, 30 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/josh-hutcherson-upcoming-movies-tv-shows/
+
+Josh Hutcherson has come a long way since The Hunger Games, and his next roles show how far he's willing to stray from the part that made him famous.
+---------
+
+# Dungeon Crawler Carl Officially Returns January 20th With Bold New Adventure
+
+Comics, Dungeon Crawler Carl
+
+Fri, 30 Oct 2026 22:22:50 GMT
+
+https://screenrant.com/dungeon-crawler-carl-new-webtoon-release/
+
+Dungeon Crawler Carl is an unstoppable force. Now, the franchise is preparing to launch the series in a new format, with a release slated for 2027.
+---------
+
+# 10 Most Iconic TV Props Of All Time
+
+Classic TV
+
+Fri, 30 Oct 2026 22:15:18 GMT
+
+https://screenrant.com/most-iconic-tv-props/
+
+Creating a TV show requires dozens, if not hundreds, of individuals to pitch in on different aspects of the story, and props can play a key role.
+---------
+
+# 12 Years Later, One Shonen Anime Is Dethroning Naruto With 2026's Biggest Anime Fight
+
+Anime, Masked Recs
+
+Fri, 30 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/black-clover-season-2-dethrone-naruto-best-anime-fight-2026/
+
+It's been twelve years since Naruto's iconic Kakashi vs. Obito fight first aired, and at long last, Black Clover's new episode is set to dethrone it.
+---------
+
+# $1.1 Billion Horror Franchise’s Forgotten 30-Episode TV Show Deserves Another Chance
+
+TV, Masked Recs
+
+Fri, 30 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/scream-tv-series-reboot-franchise-deserves-revisit/
+
+In a quietly daring break from franchise nostalgia, one iconic horror franchise's reboot was a suspenseful mystery that rewarded patient viewers.
+---------
+
+# 5 Most Unwatchable Anime Dubs of All Time
+
+Anime, One Piece, Banana Fish, Ghost Stories
+
+Fri, 30 Oct 2026 23:15:11 GMT
+
+https://www.cbr.com/most-unwatchable-anime-dubs-of-all-time/
+
+Anime fans have always preferred watching with subtitles over English dubbing, and these series reinforce that subs are the way to go.
+---------
+
+# Netflix's New 3-Part True Crime Series Is the Most-Watched in the U.S.
+
+TV, Netflix, Crime
+
+Fri, 30 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/netflix-the-fall-of-el-mayo-true-crime-streaming-success-october-2026/
+
+This true crime series about El Chapo's partner is dominating the streaming charts.
+---------
+
+# Keanu Reeves' Maelstrom Is John Wick Meets Twister
+
+Movies, Netflix
+
+Fri, 30 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/keanu-reeves-maelstrom-is-john-wick-meets-twister/
+
+Maelstrom first did the rounds in Hollywood during the '90s post-Die Hard gold rush, but it has been resurrected in 2026 by action veteran Reeves.
+---------
+
+# 57 Years Later, Spock’s Best Star Trek Line Is Still the Greatest Quote in Sci-Fi History
+
+TV, Star Trek, Sci-Fi, Paramount, Spock
+
+Fri, 30 Oct 2026 23:00:11 GMT
+
+https://www.cbr.com/star-trek-tos-best-spock-quote-all-our-yesterdays/
+
+Spock’s heartfelt line in this beloved episode perfectly summarizes the importance of his friendships with Kirk and McCoy.
+---------
+
+# Pokémon Officially Brings Back Its Original Gen 1 Ghost Trio in New $645 Release
+
+Anime, Pokemon, merchandise, collectibles
+
+Fri, 30 Oct 2026 22:40:11 GMT
+
+https://www.cbr.com/pokemon-gengar-ghost-trio-sideshow-release/
+
+The greatest ghost trio in the history of the Pokémon franchise is back and better than ever in a brand-new high-end collectible.
+---------
+
+# Nielsen’s Most-Watched This Week: Prime Video's Carrie Loses No. 1 to Netflix Monster Series
+
+TV, Below, Carrie
+
+Fri, 30 Oct 2026 22:30:11 GMT
+
+https://www.cbr.com/nielsen-most-watched-below-no-1-october-12-2026/
+
+The creature series celebrated its second week on the charts with more than 1.1 billion minutes viewed.
+---------
+
+# 10 Hardest Games of the 2010s, Ranked
+
+Games, Gaming, Innovation, Dragon's Dogma, Tekken, Sekiro: Shadows Die Twice
+
+Fri, 30 Oct 2026 22:15:11 GMT
+
+https://www.cbr.com/2010s-hardest-games-ranked/
+
+The 2010s weren't afraid to take video game challenges to the next level.
+---------
+
+# G. Willow Wilson's Captain Marvel Return Is the Comeback Carol Danvers Needs After Avengers: Armageddon
+
+Comics, Marvel Comics
+
+Fri, 30 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/g-willow-wilson-captain-marvel-ongoing-series-may-2027/
+
+Carol Danvers will soon face a new threat that's been hiding in the shadows of the Marvel Universe for years.
+---------
+
+# 10 Greatest Supernatural Horror Movies Released Since 2000, Ranked
+
+Movies, Horror, james wan, Innovation
+
+Fri, 30 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/best-supernatural-2000s-horror-movies-list-ranked/
+
+The 2000s ushered in a new age of supernatural horror movies that were socially aware and completely terrifying.
+---------
+
+# Steven Spielberg's $374M Adventure Classic Is Exiting Streaming Ahead of Peter Jackson Sequel
+
+Movies, The Adventures of Tintin, Peacock, steven spielberg
+
+Fri, 30 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/the-adventures-of-tintin-leaving-peacock-november-2026/
+
+The Adventures of Tintin is leaving Peacock.
+---------
+
+# Jon Bernthal’s $100M Action Thriller Officially Hits 200 Days of Streaming Dominance
+
+Movie News, The Accountant 2, Jon Bernthal, The Punisher, Prime Video
+
+Fri, 30 Oct 2026 23:15:12 GMT
+
+https://collider.com/jon-bernthal-the-accountant-2-streaming-success-prime-video-200-days-october-2026/
+
+Jon Bernthal's $100 million action thriller has officially been in the Prime Video top 10 for over 200 days now.
+---------
+
+# Star Trek Fans Officially Give Sir Patrick Stewart The Perfect Send-Off
+
+Gaming News, Star Trek, Patrick Stewart, Star Trek: The Next Generation, Science Fiction
+
+Fri, 30 Oct 2026 23:00:12 GMT
+
+https://collider.com/star-trek-online-patrick-stewart-tribute/
+
+Star Trek Online players formed a Galaxy-class honor guard to remember Patrick Stewart, and fans are calling for a permanent Picard memorial.
+---------
+
+# The 10 Best TV Casts of the 2010s, Ranked
+
+TV, Best of the 2010s, Breaking Bad, Mad Men, Game Of Thrones
+
+Fri, 30 Oct 2026 22:44:12 GMT
+
+https://collider.com/best-tv-show-casts-2010s-ranked/
+
+The best casts from 2010s TV shows showcase star power and exceptional performances, seen in series like Breaking Bad, Mad Men, and Game of Thrones.
+---------
+
+# New 'Elden Ring' Replacement Officially Gets Major Update
+
+Movie News, Bloodborne, Elden Ring, PlayStation (Original)
+
+Fri, 30 Oct 2026 22:22:00 GMT
+
+https://collider.com/bloodborne-movie-director-writer-update-sean-mcloughlin/
+
+Sean "Jacksepticeye" McLoughlin has officially confirmed the Bloodborne movie has a writer and director in a major update. Read on for more.
+---------
+
+# 6 Flop Video Games You Should Actually Play
+
+Gaming, Video Game, Sci-Fi, Fantasy, Conker's Bad Fur Day
+
+Fri, 30 Oct 2026 22:19:12 GMT
+
+https://collider.com/video-game-flops-you-should-play/
+
+While they didn't exactly sell many copies, games like Beyond Good & Evil, Okami, and Grim Fandango are absolutely still worth playing today.
+---------
+
+# Patrick Stewart's 7 Greatest X-Men Scenes of All Time, Ranked
+
+Movie, Patrick Stewart, X-Men, Logan
+
+Fri, 30 Oct 2026 21:59:12 GMT
+
+https://collider.com/best-patrick-stewart-professor-x-men-scenes-all-time-ranked/
+
+One of Patrick Stewart's most recognizable roles was Professor X within the X-Men universe, but which scene was the iconic actor's greatest?
+---------
+
+# 10 '80s Books That Are Perfect From Cover to Cover
+
+Books and Comics, Books, 1980s, Cormac McCarthy, Stephen King
+
+Fri, 30 Oct 2026 21:49:12 GMT
+
+https://collider.com/80s-books-perfect-cover-to-cover/
+
+The Name of the Rose by Umberto Eco and Blood Meridian by Cormac McCarthy are among the best books of the 1980s.
+---------
+
+# The Most Terrifying A24 Movie of All Time Is Officially on Prime Video
+
+Movie, Hereditary, John Wick, Bridesmaids, Prime Video
+
+Fri, 30 Oct 2026 21:48:12 GMT
+
+https://collider.com/best-prime-video-movies-watch-weekend-october-31-2026/
+
+Hereditary, John Wick, and Bridesmaids make up our list of the best Prime Video movies to watch this weekend.
+---------
+
+# Netflix and Donald Glover Officially Team Up for New Video Game Series
+
+TV News, PUBG, Donald Glover, Netflix, Video Game
+
+Fri, 30 Oct 2026 21:24:26 GMT
+
+https://collider.com/netflix-donald-glover-pubg-live-action-series/
+
+A live-action series based on PUBG is in the works at Netflix, with Donald Glover set to star, write, direct, and produce. Read on for more.
+---------
+
+# Netflix’s 6-Part Sci-Fi Series Is the Smartest Horror Show Since ‘Haunting of Hill House’
+
+TV Features, The Haunting of Hill House, Netflix, Cassandra, Horror
+
+Fri, 30 Oct 2026 21:24:12 GMT
+
+https://collider.com/netflix-smartest-horror-after-haunting-of-hill-house-miniseries-cassandra/
+
+Netflix's six-part series Cassandra flips the haunted house trope on its head by introducing themes of AI and the danger of convenience.
+---------
+
+# Jason Statham's 98-Minute Non-Stop Action Thriller Shoots Onto New Free Streaming Home
+
+Movie News, Jason Statham, Mechanic: Resurrection, Action, Thriller, Coming/Leaving Streaming
+
+Fri, 30 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/mechanic-resurrection-jason-statham-stream-free-october-2026/
+
+The Stath's action thriller box office success hits free streaming in November.
+---------
+
+# 'Dexter: Resurrection' Season 2 Officially Puts a New Spin on a 20-Year-Old Storyline
+
+Features, Dexter: Resurrection, Dexter, Crime, Thriller
+
+Fri, 30 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/dexter-resurrection-harrison-cop-twist/
+
+Harrison's new role feels oddly familiar, but at the same time, the show is keeping things fresh. Read on for more.
+---------
+
+# 8 Old-School Action Thriller Shows That Are Now Unwatchable
+
+TV Lists, Thriller, Action
+
+Fri, 30 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/old-action-thriller-shows-unwatchable/
+
+Nostalgia can't save everything, and these classic action thrillers have a few problems that are hard to ignore while watching today.
+---------
+
+# One of the Biggest Crime Series on TV Is Officially Ending After 20 Seasons
+
+TV News, Criminal Minds, Crime
+
+Fri, 30 Oct 2026 22:27:40 GMT
+
+https://movieweb.com/criminal-minds-crime-series-ending-after-20-seasons/
+
+One of the longest-running shows in television history is in its final era.
+---------
+
+# 8 Biggest Questions After 'Dark Matter' Season 2, Episode 10's Ending, Explained
+
+TV Lists, Dark Matter, Sci-Fi, Thriller
+
+Fri, 30 Oct 2026 22:00:16 GMT
+
+https://movieweb.com/dark-matter-season-2-finale-questions-explained/
+
+Apple TV's 'Dark Matter' ends Season 2 without wrapping things up, leaving the potential for Season 3. Read on for more.
+---------
+
+# With 8 Weeks to Go, HBO's New Snape Officially Takes On the 'Harry Potter' Casting Backlash
+
+TV News, Harry Potter, Fantasy, Action, HBO Max
+
+Fri, 30 Oct 2026 21:53:23 GMT
+
+https://movieweb.com/harry-potter-paapa-essiedu-snape-backlash/
+
+Paapa Essiedu opened up about some of the negative commentary surrounding his casing as Snape in the 'Harry Potter' series.
+---------
+
+# John Travolta's 132-Minute Western Classic Officially Sets New Release After 46 Years
+
+Movie News, Urban Cowboy, John Travolta, Western, Drama, Romance, Blu-ray
+
+Fri, 30 Oct 2026 21:01:17 GMT
+
+https://movieweb.com/urban-cowboy-4k-blu-ray-release/
+
+Kino Lorber is preparing a 4K Ultra HD Blu-ray release of John Travolta's '80s Western classic, 'Urban Cowboy.'
+---------
+
+# 10 Greatest American Martial Arts Action Movie Stars of All Time, Ranked
+
+Movie Lists, Martial Arts, Action, Thriller
+
+Fri, 30 Oct 2026 21:01:17 GMT
+
+https://movieweb.com/greatest-american-martial-arts-stars-ranked/
+
+These action movie stars may have mastered martial arts from around the world, but they were all born in the United States of America.
+---------
+
+# "SEAL Team Meets Ridley Scott's Gladiator" in New 91-Minute Military Action Thriller Now Streaming Free
+
+Movie News, Action, Coming/Leaving Streaming, Tubi
+
+Fri, 30 Oct 2026 20:01:17 GMT
+
+https://movieweb.com/land-of-wolves-streaming-free-tubi-october-2026/
+
+An overlooked thriller that combines the action of 'SEAL Team' with the combat of 'Gladiator' has just landed on free streaming.
+---------
+
+# 'The Simpsons' Honors Late 'Looney Tunes' Icon Eric Bauza With Long-Awaited Debut
+
+TV News, The Simpsons, Animation, Comedy, Eric Bauza
+
+Fri, 30 Oct 2026 19:53:43 GMT
+
+https://movieweb.com/the-simpsons-eric-bauza/
+
+Weeks after his tragic death, the late Eric Bauza was confirmed for a role on one of the most famous animated shows of all time.
+---------
+
 # 9 Movie Novelizations Better Than The Films They’re Based On
 
 Books, Movies
