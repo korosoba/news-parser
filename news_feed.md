@@ -1,3 +1,399 @@
+# Returning John Grisham Series Is TV's Best Answer For The Lincoln Lawyer's Replacement
+
+Streaming TV, Masked Recs
+
+Sat, 31 Oct 2026 19:15:18 GMT
+
+https://screenrant.com/john-grisham-the-rainmaker-season-2-lincoln-lawyer-replacement/
+
+The Rainmaker is the ideal legal drama to fill The Lincoln Lawyer's void after its end, with its own set of captivating storytelling and characters.
+---------
+
+# 7 Hidden Firefly References In Totally Unrelated Shows
+
+Classic TV, Firefly
+
+Sat, 31 Oct 2026 19:01:18 GMT
+
+https://screenrant.com/firefly-references-in-other-shows/
+
+Firefly is such a sci-fi cult icon that other totally unrelated TV shows have referenced it, both quietly and as direct fan service.
+---------
+
+# Shin Godzilla Is Still Toho's Most Terrifying Monster
+
+Movies, Shin Godzilla
+
+Sat, 31 Oct 2026 19:01:18 GMT
+
+https://screenrant.com/video/shin-godzilla-is-still-toho-s-most-terrifying-monster/
+
+Shin Godzilla: The Ending Makes His Defeat Terrifying. Humanity may have stopped Godzilla, but the final moments of the 2016 film suggest the nightmare is far from over. Ten years later, that disturbing conclusion remains one of the most unsettling endings in the entire Godzilla franchise.
+---------
+
+# Final Fantasy 6 Officially Returning In 2027
+
+Gaming, Final Fantasy
+
+Sat, 31 Oct 2026 19:01:18 GMT
+
+https://screenrant.com/final-fantasy-6-crystal-edition-2027-release/
+
+Celebrate 40 years of Final Fantasy with the Crystal Edition collection launching January 2027.
+---------
+
+# 8 Harry Potter Characters The Movies Totally Wasted
+
+Movies, Harry Potter, J.K. Rowling
+
+Sat, 31 Oct 2026 18:50:18 GMT
+
+https://screenrant.com/harry-potter-movies-book-characters-wasted/
+
+From Ginny Weasley to Mad-Eye Moody, these 8 Harry Potter characters deserved much better treatment in the movie adaptations.
+---------
+
+# Martin Scorsese’s “Wild” Historical Epic Was Scrapped Because Of Seth Rogen
+
+Movies, Martin Scorsese
+
+Sat, 31 Oct 2026 18:41:48 GMT
+
+https://screenrant.com/martin-scorsese-cleopatra-movie-scrapped-seth-rogen-sony-hack/
+
+A "wild" historical epic film starring Angelina Jolie and directed by Martin Scorsese is now revealed to have been scrapped because of Seth Rogen.
+---------
+
+# Only One Justice League Hero Can Go Super Saiyan, And It Isn't Superman
+
+DC Comics, Justice League
+
+Sat, 31 Oct 2026 18:30:18 GMT
+
+https://screenrant.com/flash-super-saiyan-justice-league/
+
+DC once revealed that one Justice League hero can attain a transformation literally described as "Super Saiyan," with a dangerous caveat.
+---------
+
+# Pierce Brown Says Red Rising Movie Follows The Lord Of The Rings Playbook
+
+Books, red rising
+
+Sat, 31 Oct 2026 18:30:18 GMT
+
+https://screenrant.com/pierce-brown-red-rising-faithful-adaptation-comments/
+
+The Hunger Games director Francis Lawrence will tackle the adaptation of Red Rising, which will somewhat be inspired by The Lord of the Rings.
+---------
+
+# 10 Great Streaming Shows With More Than 5 Seasons
+
+Streaming TV, television show
+
+Sat, 31 Oct 2026 18:30:18 GMT
+
+https://screenrant.com/streaming-original-series-with-more-than-5-seasons/
+
+Not too many streaming television shows have made it more than five seasons, surprisingly, but these ten are long-lived and still great.
+---------
+
+# Super Mario 64 Gets Stunning Next-Gen Remaster To Rival Ocarina Of Time Remake
+
+Gaming, Super Mario 64, The Legend of Zelda: Ocarina of Time
+
+Sat, 31 Oct 2026 18:27:35 GMT
+
+https://screenrant.com/super-mario-64-rtx-remaster-download/
+
+Super Mario 64 gets a stunning ray-tracing upgrade, adding realistic lighting, reflections, and global illumination to the classic N64 platformer.
+---------
+
+# 10 Sci-Fi Anime That Are 10/10 Masterpieces
+
+Anime, Sci-Fi, Innovation
+
+Sat, 31 Oct 2026 19:15:11 GMT
+
+https://www.cbr.com/sci-fi-anime-masterpieces-1010/
+
+The sci-fi genre is filled with some of the most intriguing series in anime, but only a select few are good enough to be considered masterpieces.
+---------
+
+# James Bond's New Actor Confirms Major Formula Shift for Prime Video's 007 Reboot
+
+Movies, James Bond, Thriller, Innovation
+
+Sat, 31 Oct 2026 19:00:11 GMT
+
+https://www.cbr.com/james-bond-new-actor-shift-prime-video-spy-thriller-reboot/
+
+The James Bond actor will be a major diversion for the franchise.
+---------
+
+# Sci-Fi's Most Divisive Epic Is Heading to HBO Max Just in Time for 2026's Most Anticipated Sequel
+
+Movies, Dune, Sci-Fi, HBO Max
+
+Sat, 31 Oct 2026 19:00:11 GMT
+
+https://www.cbr.com/dune-1984-sci-fi-streaming-home-hbo-max-november-2026/
+
+Ahead of the sequel to Denis Villeneuve's acclaimed reboot, the original Dune is about to get a new streaming home.
+---------
+
+# 6 Netflix Detective Shows With No Bad Episodes
+
+TV, Netflix, His & Hers, Mystery, Innovation
+
+Sat, 31 Oct 2026 19:00:11 GMT
+
+https://www.cbr.com/best-netflix-detective-shows-list/
+
+From twisty whodunits to gripping retellings of true events, these are the best Netflix detective shows.
+---------
+
+# Dark Souls 2 & 3 Officially Shut Down Online Servers Across All Platforms
+
+Games, Dark Souls, Dark Souls 2, Dark Souls III
+
+Sat, 31 Oct 2026 18:35:11 GMT
+
+https://www.cbr.com/dark-souls-official-shutdown-playstation-xbox/
+
+FromSoftware has announced that the servers for Dark Souls 2 & 3 have been taken down across all platforms due to an unspecified problem.
+---------
+
+# The 20 Best Retro Horror Games of All Time
+
+Games, Video Games, Horror, Resident Evil, Silent Hill, Fatal Frame, Innovation
+
+Sat, 31 Oct 2026 18:30:11 GMT
+
+https://www.cbr.com/greatest-retro-horror-games/
+
+From pure dread and atmosphere to explicit body horror, classic horror games like Resident Evil and Silent Hill can still induce terror today.
+---------
+
+# 10 Dragon Ball Villains Stronger Than Majin Vegeta
+
+Anime, Dragon Ball, Vegeta, Dragon Ball Z
+
+Sat, 31 Oct 2026 18:15:11 GMT
+
+https://www.cbr.com/dragon-ball-villains-stronger-than-majin-vegeta/
+
+Dragon Ball Z's Majin Vegeta brings the Saiyan Prince back to his dark roots, but there are some vicious villains who present even greater power.
+---------
+
+# The 10 Best Horror Comics of 2026, Ranked
+
+Comics, Event Horizon, idw publishing, image comics, Horror
+
+Sat, 31 Oct 2026 18:00:11 GMT
+
+https://www.cbr.com/the-best-horror-comics-of-2026/
+
+2026 has marked the release of the biggest breakout horror hits of the decade, as well as some of the most underrated genre masterpieces.
+---------
+
+# DC's New Batman Casting Is So Good James Gunn Needs To Make It DCU Canon
+
+Movies, Dynamic Duo, DCU, Batman, Innovation
+
+Sat, 31 Oct 2026 18:00:11 GMT
+
+https://www.cbr.com/dcu-batman-casting-chris-pine-dynamic-duo/
+
+A new version of Batman has just been cast at DC Studios, and this could spell good news for the DCU's upcoming The Brave and the Bold.
+---------
+
+# Spy x Family Meets 86 in New Sci-Fi Military Drama Coming to Steam This December
+
+Anime, Spy X Family, 86: EIGHTY-SIX, Steam
+
+Sat, 31 Oct 2026 18:00:11 GMT
+
+https://www.cbr.com/torch-and-trigger-steam-december-2026-release/
+
+Spy x Family meets 86 in an upcoming indie game where a pair of top-ranked students must care for a child genius in a war-torn apocalyptic setting.
+---------
+
+# Chris Pratt's 128-Minute Action Epic Officially Arrives on HBO Max
+
+Movie News, Jurassic World Fallen Kingdom, Chris Pratt, HBO Max, Jurassic Park
+
+Sat, 31 Oct 2026 19:00:12 GMT
+
+https://collider.com/chris-pratt-jurassic-world-fallen-kingdom-streaming-hbo-max-november-2026/
+
+Amid The Terminal List's successful return, Chris Pratt's $1.3 billion blockbuster has been added to the HBO Max library. Find out more.
+---------
+
+# Stephen King’s Twisted Horror Masterpiece Officially Finds a Free Streaming Home
+
+Horror, Misery, Stephen King, Kathy Bates
+
+Sat, 31 Oct 2026 18:30:12 GMT
+
+https://collider.com/stephen-king-misery-streaming-free-tubi-november-2026/
+
+Stephen King’s Misery begins streaming free on Tubi November 1, bringing Kathy Bates’ Oscar-winning nightmare home after Halloween.
+---------
+
+# Starz's New Romantasy Series Is the Perfect 'Outlander' Replacement
+
+TV Features, Outlander, Starz, Books, Romance
+
+Sat, 31 Oct 2026 18:27:12 GMT
+
+https://collider.com/the-wolf-king-starz-romantasy-outlander-replacement/
+
+Starz already has the perfect book adaptation to replace Outlander, which blends romance and fantasy in a Scottish setting.
+---------
+
+# ‘Ghosts’ Season 6 Officially Changes Everything With Major Plot Twist: “He's Not Our Friend Anymore”
+
+Exclusives, Ghosts, Asher Grodman, Rebecca Wisocky, CBS
+
+Sat, 31 Oct 2026 18:17:12 GMT
+
+https://collider.com/ghosts-season-6-pete-memory-loss/
+
+Ghosts stars Asher Grodman and Rebecca Wisocky exclusively tease the fallout from Season 6's Pete plot twist and what's next for Woodstone.
+---------
+
+# Ghosts: The Cast Has a Secret to Making Late Scripts Work | Set Stories
+
+TV, Ghosts
+
+Sat, 31 Oct 2026 18:15:12 GMT
+
+https://collider.com/video/ghosts-the-cast-has-a-secret-to-making-late-scripts-work-set-stories/
+
+Rebecca Wisocky and Asher Grodman explain why CBS's hit supernatural comedy is often just one small step away from becoming something genuinely devastating.
+---------
+
+# Taylor Sheridan’s 122-Minute Crime Thriller Officially Hits 30-Day Streaming Milestone
+
+Movie News, Sicario: Day Of The Soldado, Taylor Sheridan, Sicario, Josh Brolin
+
+Sat, 31 Oct 2026 18:00:12 GMT
+
+https://collider.com/taylor-sheridan-sicario-day-of-the-soldado-streaming-success-october-2026/
+
+Taylor Sheridan's two-hour neo-Western officially crosses one month at the top of streaming charts. Find out how to watch the film here.
+---------
+
+# 8 Perfect Thriller Movies That Nobody Remembers Today
+
+Movie, Michael Clayton, Thriller, Martha Marcy May Marlene, Phone Booth
+
+Sat, 31 Oct 2026 17:57:12 GMT
+
+https://collider.com/perfect-thriller-movies-nobody-remembers-today/
+
+Phone Booth, The Game, Martha Marcy May Marlene, Triangle, Badlands, and more make up our list of perfect thriller movies nobody remembers.
+---------
+
+# The 10 Most Uplifting Movies of All Time, Ranked
+
+Movie, The Shawshank Redemption, Singin' in the Rain, 127 Hours, The Lion King
+
+Sat, 31 Oct 2026 17:52:12 GMT
+
+https://collider.com/most-uplifting-movies-all-time-ranked/
+
+If you want movies that will make you feel good, classics like The Shawshank Redemption and It's a Wonderful Life are among the most uplifting.
+---------
+
+# 10 Thrilling Miniseries That Don't Slow Down for a Single Episode
+
+TV, TV Miniseries, Bodyguard, Baby Reindeer, Chernobyl
+
+Sat, 31 Oct 2026 17:32:12 GMT
+
+https://collider.com/thrilling-miniseries-fast-paced-episodes/
+
+From the action mayhem of Bodyguard to the dramatic intensity of Baby Reindeer, these miniseries offer breakneck tension from start to finish.
+---------
+
+# Ethan Hawke's Acclaimed Religious Thriller Officially Moves to Free Streaming
+
+Movie News, Ethan Hawke, First Reformed, Plex, Streaming
+
+Sat, 31 Oct 2026 17:30:12 GMT
+
+https://collider.com/ethan-hawke-first-reformed-streaming-plex-november-2026/
+
+One of Ethan Hawke's best performances in First Reformed is about to become available to stream for free. Read on for more.
+---------
+
+# Forget 'Band of Brothers', Tom Hanks's 10-Part Masterpiece Has Been Praised by Experts for Its Accuracy
+
+Features, Band of Brothers, The Pacific, Tom Hanks, War
+
+Sat, 31 Oct 2026 19:01:16 GMT
+
+https://movieweb.com/the-pacific-accurate/
+
+Tom Hanks backed numerous WWII projects, with one of his best, hailed for its historical accuracy down to the smallest details.
+---------
+
+# Jason Statham's 116-Minute Sci-Fi Thriller Hit (And Biggest Film Ever) Officially Arrives on Streaming
+
+Movie News, Jason Statham, The Meg, Sci-Fi, Thriller, Coming/Leaving Streaming
+
+Sat, 31 Oct 2026 19:01:16 GMT
+
+https://movieweb.com/the-meg-jason-statham-stream-november-2026/
+
+Statham's most dangerous opponents have never been this... big.
+---------
+
+# George R.R. Martin's Original 'Game of Thrones' Plan Fixed the King Bran Ending
+
+Features, Game Of Thrones, Game of Thrones, George R.R. Martin, Fantasy
+
+Sat, 31 Oct 2026 18:00:16 GMT
+
+https://movieweb.com/game-of-thrones-grrm-original-plan-king/
+
+George R.R. Martin's original plan for the 'Song of Ice and Fire' books was very different, and it would have made King Bran a bit more satisfying.
+---------
+
+# The Best Detective Thriller Since 'True Detective' Has 4 Perfect Seasons & Is Streaming on Netflix
+
+Features, The Sinner, True Detective, Thriller, Netflix
+
+Sat, 31 Oct 2026 17:00:16 GMT
+
+https://movieweb.com/the-sinner-streaming-recommendation/
+
+'True Detective' is one of HBO's best thriller TV series, and this detective anthology show streaming on Netflix is equally memorable.
+---------
+
+# 'The Pitt' Star Officially Confirmed for Season 3 After Major Cast Update
+
+TV News, The Pitt, HBO Max, Noah Wyle, Drama
+
+Sat, 31 Oct 2026 16:39:37 GMT
+
+https://movieweb.com/the-pitt-jalen-thomas-brooks-confirmed-season-3/
+
+A series regular has confirmed their return to 'The Pitt' for Season 3 after concerns among fans that they had left the show
+---------
+
+# Goodbye 'Berserk,' 24-Part Fantasy Action Epic Is Slaying the Competition on Streaming
+
+TV News, Goblin Slayer, Apple TV, Hot on Streaming, Berserk, Fantasy, Action, Anime
+
+Sat, 31 Oct 2026 16:00:18 GMT
+
+https://movieweb.com/goblin-slayer-stream-apple-october-2026/
+
+This is probably the closest we'll get to a good 'Berserk' anime adaptation.
+---------
+
 # Every Stephen King Movie On Prime Video, Ranked
 
 Movies, Stephen King, Prime Video, Carrie
