@@ -1,3 +1,344 @@
+# PlayStation Plus Officially Losing 10/10 Masterpiece November 17
+
+Gaming, PlayStation Plus
+
+Sat, 31 Oct 2026 09:00:18 GMT
+
+https://screenrant.com/playstation-plus-losing-10-rated-masterpiece-november-17/
+
+Catch up on these 11 games leaving PlayStation Plus by November 17.
+---------
+
+# Star Trek: The Next Generation Mashed Up With $401 Million Horror Hit Is Nightmare Fuel
+
+Classic TV, Star Trek, Star Trek: The Next Generation, Halloween 2026
+
+Sat, 31 Oct 2026 09:00:18 GMT
+
+https://screenrant.com/star-trek-the-next-generation-backrooms-horror/
+
+The reassuring comfort of the USS Enterprise-D takes a terrifying turn when Star Trek: The Next Generation is fused with the horror hit Backrooms.
+---------
+
+# HBO's IT Prequel Returns With Surprising New Episode At The Perfect Time
+
+Horror, It: Welcome to Derry
+
+Sat, 31 Oct 2026 08:02:15 GMT
+
+https://screenrant.com/it-welcome-to-derry-new-episode-release-a-story-of-derry-hbo/
+
+Pennywise has returned as HBO has dropped a surprising episode of It: Welcome to Derry titled "A Story of Derry" just in time for Halloween.
+---------
+
+# HBO's Neo-Noir Masterpiece Officially Returns In 2027
+
+Streaming TV, Masked Recs
+
+Sat, 31 Oct 2026 07:30:18 GMT
+
+https://screenrant.com/hbo-true-detective-season-5-release-2027/
+
+HBO is the home of prestige TV, and after a long hiatus, its neo-noir masterpiece True Detective is returning next year, with a new star.
+---------
+
+# Netflix's 62-Episode 'Lost Meets The Leftovers' Sci-Fi Series Is A Mystery Box Masterclass
+
+Streaming TV, Masked Recs
+
+Sat, 31 Oct 2026 07:00:19 GMT
+
+https://screenrant.com/manifest-netflix-sci-fi-mystery-box-lost-leftovers/
+
+Netflix is the streaming of a compelling supernatural series that combines Lost and The Leftover’s best elements to deliver a mystery box masterclass.
+---------
+
+# Apple TV's 19-Episode High-Concept Series Delivers A Masterclass In Hard Sci-Fi
+
+Streaming TV, Masked Recs
+
+Sat, 31 Oct 2026 06:30:19 GMT
+
+https://screenrant.com/dark-matter-apple-tv-high-concept-sci-fi/
+
+One Apple TV+ series turns the multiverse from a source of light-hearted adventure into the foundation of a philosophically complex thriller.
+---------
+
+# Netflix’s 33-Episode Dystopian Sci-Fi Masters The Art Of Predicting Our Darkest Future
+
+Streaming TV, Masked Recs
+
+Sat, 31 Oct 2026 06:00:19 GMT
+
+https://screenrant.com/black-mirror-netflix-predict-darkest-future/
+
+One of Netflix’s greatest dystopian science fiction TV shows seems to master the art of predicting humanity’s darkest future in its 33-episode runtime
+---------
+
+# The Wheel Of Time: The One Power Officially Releases 2027
+
+Gaming, The Wheel of Time
+
+Sat, 31 Oct 2026 06:00:19 GMT
+
+https://screenrant.com/wheel-of-time-one-power-2027-release-date-psa/
+
+Discover the upcoming board game The Wheel of Time: The One Power releasing in 2027, plus details on War of the Dragon.
+---------
+
+# The Stargate SG-1 Franchise Official Return Announced
+
+Gaming, Stargate SG-1, Stargate, PC
+
+Sat, 31 Oct 2026 05:46:19 GMT
+
+https://screenrant.com/stargate-sg1-lego-style-sets-announced/
+
+Stargate SG-1 is making an official return that will feature iconic enemies from the franchise such as the Goa'uld Symbiont and Jaffa warriors.
+---------
+
+# 10 Most Lovecraftian TV Shows Of All Time
+
+Classic TV, television show
+
+Sat, 31 Oct 2026 05:30:20 GMT
+
+https://screenrant.com/tv-shows-most-like-hp-lovecraft/
+
+Lovecraft's horror canon isn't easy to put on screen, but the unimaginable terrors make their way to it anyway, no more so than in these 10 shows.
+---------
+
+# Wildwood Review: Laika's Brilliant Epic Is Narnia Meets The Lord of the Rings
+
+Movies, Wildwood, laika
+
+Sat, 31 Oct 2026 04:32:01 GMT
+
+https://www.cbr.com/wildwood-review/
+
+Laika's Wildwood is the perfect blend of the magic of Narnia, the darkness of Coraline, and the epic battles of The Lord of the Rings.
+---------
+
+# Klara and the Sun Review: Jenna Ortega Shines in Taika Waititi’s Uneven Sci-Fi
+
+Movies, Klara and the Sun, taika waititi
+
+Sat, 31 Oct 2026 04:03:06 GMT
+
+https://www.cbr.com/klara-and-the-sun-review/
+
+Taika Waititi's Klara and the Sun features one of Jenna Ortega's best performances, showing her range outside Wednesday Addams.
+---------
+
+# Obsession Director Reveals the Secret Influence Jared Leto's Joker Had on Nikki
+
+Movies, Obsession, Suicide Squad
+
+Sat, 31 Oct 2026 03:58:33 GMT
+
+https://www.cbr.com/obsession-jared-leto-joker-influence/
+
+There's a sneaky nod to the Joker in Curry Barker's Obsession.
+---------
+
+# 10 Masterpiece SNES Games That Were Way Ahead of Their Time
+
+Games, Nintendo, retro games
+
+Sat, 31 Oct 2026 03:55:12 GMT
+
+https://www.cbr.com/snes-games-ahead-of-their-time-list/
+
+SNES games like EarthBound were so far ahead of their time that they weren't appreciated when they were first released.
+---------
+
+# 7 Greatest Hard Sci-Fi Anime Series Since 2000
+
+Anime, Planetes, Ghost in the Shell: Stand Alone Complex
+
+Sat, 31 Oct 2026 03:45:11 GMT
+
+https://www.cbr.com/greatest-hard-sci-fi-anime-series-since-2000/
+
+Anime series like Planetes and Starship Operators are the best exemplars of hard sci-fi the medium has seen this century.
+---------
+
+# X-Men Movie Star Will 'Absolutely F—ing Not' Reprise Role for MCU's Multiverse
+
+Movies, X-Men
+
+Sat, 31 Oct 2026 03:41:23 GMT
+
+https://www.cbr.com/jennifer-lawrence-x-men-mystique-return/
+
+Count this one out for a return in Avengers: Doomsday or Secret Wars.
+---------
+
+# Keira Knightley's Pulpy 6-Episode Netflix Spy Thriller Deserves Its Near-Perfect RT Score
+
+TV, Black Doves, Thriller, Netflix, Innovation
+
+Sat, 31 Oct 2026 03:30:12 GMT
+
+https://www.cbr.com/black-doves-keira-knightley-netflix-near-perfect-rt-score/
+
+Keira Knightley's latest hit is a standout Netflix spy thriller with a 92% Rotten Tomatoes score, and it has more than earned its place with fans.
+---------
+
+# 10 Best Peanuts Characters, Ranked
+
+Comics, Peanuts
+
+Sat, 31 Oct 2026 03:30:12 GMT
+
+https://www.cbr.com/best-peanuts-characters-ranked/
+
+From Lucy to Snoopy to the ever-suffering Charlie Brown himself, the Peanuts comics and movies are full of lovable characters.
+---------
+
+# Paramount's Star Trek Revival Trilogy Is As Perfect As Reboots Can Get
+
+Movies, Star Trek, Sci-Fi, Peacock, Innovation
+
+Sat, 31 Oct 2026 03:15:12 GMT
+
+https://www.cbr.com/star-trek-kelvin-timeline-perfect-sci-fi-reboot/
+
+This epic sci-fi reboot remains the gold standard all these years later.
+---------
+
+# 10 Games From 1994 That '90s Kids Still Love
+
+Games, Video Games, Nintendo, sega
+
+Sat, 31 Oct 2026 03:15:12 GMT
+
+https://www.cbr.com/best-video-games-of-1994/
+
+1994 was an incredible year for video games, with ten titles in particular standing out as the best of the year.
+---------
+
+# Two ‘Slow Horses’ Stars Officially Reunite in an Oscar-Winning WWII Epic on Prime Video
+
+Movie News, Darkest Hour, Gary Oldman, World War II, Prime Video
+
+Sat, 31 Oct 2026 09:00:12 GMT
+
+https://collider.com/gary-oldman-ww2-darkest-hour-streaming-prime-video-november-2026/
+
+Gary Oldman's Dunkirk companion piece, for which he won an Oscar, is now streaming on Prime Video. Find out more.
+---------
+
+# Apple TV's 'True Detective' Reunion Is Officially a Major Streaming Hit
+
+TV News, Brothers, Apple TV, Matthew McConaughey, Woody Harrelson
+
+Sat, 31 Oct 2026 08:40:12 GMT
+
+https://collider.com/apple-tv-brothers-streaming-success-30-days-october-2026/
+
+Apple TV's official replacement for True Detective has officially stormed past one month at the top of streaming charts.
+---------
+
+# Pokémon Fans Officially Get the Ghost-Type Upgrade They’ve Been Waiting For
+
+Gaming News, Pokémon, Pokemon GO, Video Game, iPhone
+
+Sat, 31 Oct 2026 08:20:12 GMT
+
+https://collider.com/pokemon-go-shiny-greavard-halloween-2026-debut/
+
+Shiny Greavard debuts in Pokémon GO during Halloween Part II, giving Trainers new chances to catch the Ghost-type puppy starting November 1.
+---------
+
+# The Best Sci-Fi Series of the 2020s Officially Returns Next Year
+
+TV News, Paradise, Sci-Fi, Hulu, Dan Fogelman
+
+Sat, 31 Oct 2026 08:00:12 GMT
+
+https://collider.com/hulu-sci-fi-series-paradise-season-3-release-window-2027/
+
+Hulu's best sci-fi show of the 2020s is officially set to return next year with its third and final season.
+---------
+
+# The Greatest Gothic Book of the Last 5 Years Is a Dark Fantasy Take on 'The Gilded Age'
+
+Books and Comics, Books, The Gilded Age, Fantasy, Horror
+
+Sat, 31 Oct 2026 04:05:12 GMT
+
+https://collider.com/the-scarlet-ball-2026-book-fantasy-gilded-age/
+
+The Scarlet Ball is the latest book from author Nghi Vo, and it perfectly marries the dread of Gothic fantasy with the allure of TV's The Gilded Age.
+---------
+
+# 'The Gilded Age' Season 3 Recap: What To Remember Before HBO's Period Drama Returns
+
+TV Features, The Gilded Age, HBO Max, Carrie Coon, Julian Fellowes
+
+Sat, 31 Oct 2026 03:48:12 GMT
+
+https://collider.com/the-gilded-age-season-3-recap/
+
+Before The Gilded Age returns, it's time to recap the biggest shocks and scandals of Season 3.
+---------
+
+# Antonio Banderas' 'The Mummy' Replacement Is Officially Back on Free Streaming
+
+Movie Features, The Mask of Zorro, Anthony Hopkins, Antonio Banderas, The Mummy
+
+Sat, 31 Oct 2026 03:09:12 GMT
+
+https://collider.com/antonio-banderas-mask-of-zorro-the-mummy-streaming-october-2026/
+
+Antonio Banderas and Anthony Hopkins revived a classic big screen hero in 1998's The Mask of Zorro, with the help of a James Bond director.
+---------
+
+# Netflix's 14-Episode Workplace Sitcom is Gen Z's 'The Office' Replacement
+
+TV, Minimum Wage, Comedy, Netflix, The Office
+
+Sat, 31 Oct 2026 03:01:12 GMT
+
+https://collider.com/office-replacement-minimum-wage-netflix-comedy/
+
+Netflix's new show Minimum Wage is the perfect workplace sitcom for Gen Z audiences to binge.
+---------
+
+# Netflix’s Twisted 2-Season Fantasy Horror Will Keep You Hooked From Start to Finish
+
+TV Features, American Horror Story, The White Lotus, Netflix, Mayfair Witches
+
+Sat, 31 Oct 2026 02:44:12 GMT
+
+https://collider.com/mayfair-witches-netflix-fantasy-horror-series/
+
+Alexandra Daddario stars in Anne Rice's Mayfair Witches, a two-season fantasy horror series on Netflix that's perfect for American Horror Story fans.
+---------
+
+# Netflix Officially Confirms Fate of Supernatural Hit 3 Weeks After Streaming Debut
+
+TV News, Haunted Hotel, Comedy, Animation
+
+Sat, 31 Oct 2026 04:14:56 GMT
+
+https://movieweb.com/haunted-hotel-netflix-season-3-renewal/
+
+It's time to check back in to Undervale.
+---------
+
+# Jason Statham's 98-Minute Non-Stop Action Thriller Shoots Onto New Free Streaming Home
+
+Movie News, Jason Statham, Mechanic: Resurrection, Action, Thriller, Coming/Leaving Streaming
+
+Fri, 30 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/jason-statham-mechanic-resurrection-stream-free-action-thriller-october-2026/
+
+The Stath's action thriller box office success hits free streaming in November.
+---------
+
 # Netflix's 26-Episode Romantasy Mega-Hit Is Still The Perfect Weekend Binge-Watch
 
 Streaming TV, Netflix
