@@ -1,3 +1,421 @@
+# All 7 Calvin and Hobbes Halloween Comics, Including A Bill Watterson Masterpiece
+
+Comics, Calvin and Hobbes
+
+Sat, 31 Oct 2026 22:30:18 GMT
+
+https://screenrant.com/calvin-hobbes-best-halloween-comics-bill-watterson-art/
+
+Candy, costumes and creepiness! Plus, some of Watterson's best art.
+---------
+
+# Grey's Anatomy: Why Patrick Dempsey's Derek Was Killed Off In Season 11
+
+TV, Grey's Anatomy
+
+Sat, 31 Oct 2026 22:07:18 GMT
+
+https://screenrant.com/greys-anatomy-derek-shepherd-patrick-dempsey-leave-reason/
+
+Season 11 of Grey's Anatomy saw the departure of a very important & beloved character: Derek Shepherd, played by Patrick Dempsey. Here's why he left.
+---------
+
+# Best Mystery Books Of All Time
+
+Books, Mystery
+
+Sat, 31 Oct 2026 22:06:18 GMT
+
+https://screenrant.com/best-mystery-books-all-time/
+
+From classic detective stories like Sherlock Holmes to cozy mysterys and hard-boiled noir, these are the best mystery books ever published.
+---------
+
+# 3 Horror Games From The '90s Everyone Has Played At Least Once
+
+Gaming, Horror, Triple-A Games
+
+Sat, 31 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/horror-games-franchises-1990s-everyone-played/
+
+Explore three iconic '90s horror games that defined survival horror with creepy mansions, psychological terror, and unforgettable nightmares.
+---------
+
+# Ronald D. Moore's 19-Part Syfy Masterpiece Is Cyberpunk Done Right
+
+Classic TV, Masked Recs
+
+Sat, 31 Oct 2026 22:00:18 GMT
+
+https://screenrant.com/caprica-sci-fi-series-cyberpunk-done-right/
+
+The Battlestar Galactica creator's stylish prequel traded starship battles for corporate intrigue and a cyberpunk take on AI's quest for identity.
+---------
+
+# Robert Downey Jr. Gives Doctor Doom a Peanuts Makeover In Surprising Avengers: Doomsday Crossover
+
+Movies, Avengers: Doomsday, Peanuts
+
+Sat, 31 Oct 2026 21:51:57 GMT
+
+https://screenrant.com/robert-downey-jr-doctor-doom-peanuts-avengers-doomsday-crossover/
+
+Robert Downey Jr. celebrates Halloween with a surprising crossover, featuring the characters of Avengers: Doomsday in the world of Peanuts.
+---------
+
+# How Old The Harry Potter Cast Was Compared To Their Characters
+
+Movies, Harry Potter
+
+Sat, 31 Oct 2026 21:30:19 GMT
+
+https://screenrant.com/how-old-harry-potter-cast-actors/
+
+Translations from book to film can be difficult for franchises, so how accurate was Harry Potter when regarding the ages of the actors and characters?
+---------
+
+# John Dutton's 8 Most Iconic Yellowstone Quotes
+
+Classic TV, Yellowstone
+
+Sat, 31 Oct 2026 21:30:18 GMT
+
+https://screenrant.com/yellowstone-john-dutton-best-quotes/
+
+Yellowstone is one of the most quotable Western TV shows ever written, with Kevin Costner's John Dutton providing some unconventional wisdom.
+---------
+
+# James Cameron's Greatest Sci-Fi Sequel Secures New Streaming Home as the Franchise Keeps Thriving
+
+Movies, Aliens, Hulu
+
+Sat, 31 Oct 2026 22:30:11 GMT
+
+https://www.cbr.com/james-cameron-aliens-sci-fi-hulu-november-2026/
+
+One of the greatest sci-fi horror movies of all time is officially coming to a streaming platform soon.
+---------
+
+# 10 Hardest Arcade Games of All Time, Ranked
+
+Games, Arcade Games, Video Games, Donkey Kong, Gaming, Dragon's Lair Comics & Games
+
+Sat, 31 Oct 2026 22:15:11 GMT
+
+https://www.cbr.com/hardest-arcade-games-of-all-time-ranked/
+
+Mastering the hardest games in the arcade sometimes meant devoting all a player's spare time, with some never managing to achieve it at all.
+---------
+
+# It's the End of an Era for PlayStation's Hit Space Opera on November 11
+
+Anime, PlayStation 5, RPG, JRPG
+
+Sat, 31 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/honkai-star-rail-4-7-planarcadia-finale-aeon-aha/
+
+It's the end of an era for PlayStation's hit anime space opera Honkai: Star Rail as its final Planarcadia update introduces a playable 5-star Aeon.
+---------
+
+# In Just 1 Day, Apple TV's New Crime Thriller Based on a Book Becomes a Streaming Hit
+
+TV, Nocturne, Apple TV, Thriller
+
+Sat, 31 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/nocturne-crime-thriller-apple-tv-success-october-2026/
+
+Apple TV's latest star-studded thriller based on a book, Nocturne, is an instant streaming hit.
+---------
+
+# George R. R. Martin's Elden Ring is Bigger Than Peak Game of Thrones
+
+Movies, Elden Ring
+
+Sat, 31 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/george-r-r-martin-elden-ring-bigger-fantasy-than-peak-game-of-thrones/
+
+When Game of Thrones was at its peak, it was a fantasy juggernaut, but George R.R. Martin's newest adaptation will be even bigger.
+---------
+
+# Green Lantern Comics Run By a Divisive Writer Is Actually The Perfect Read After Lanterns
+
+Comics, DC Comics, Green Lantern, geoff johns
+
+Sat, 31 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/green-lantern-rebirth-geoff-johns-perfect-after-hbo-lanterns/
+
+An important chapter of Green Lantern history should be read to fully understand the franchise after the Lanterns show.
+---------
+
+# Amazon Is Abandoning Its Rings of Power Strategy With a Historic LOTR Reset
+
+TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Fantasy
+
+Sat, 31 Oct 2026 22:00:11 GMT
+
+https://www.cbr.com/prime-video-lotr-rings-of-power-soft-reboot/
+
+The upcoming third season of Prime Video's The Lord of the Rings: The Rings of Power will deviate from the series' earlier storytelling approach.
+---------
+
+# Stephen King-Approved 4-Part Thriller Is One of the Most-Watched Shows on Streaming
+
+TV, The Diplomat, Thriller, Netflix
+
+Sat, 31 Oct 2026 21:30:11 GMT
+
+https://www.cbr.com/the-diplomat-political-thriller-netflix-success-october-2026/
+
+Netflix's addictive 4-season thriller, The Diplomat, is a streaming hit.
+---------
+
+# The Lord of the Rings' Battle of Helm's Deep Is Better Than Peak Game of Thrones In Every Way
+
+Movies, The Lord of the Rings, Game Of Thrones, Fantasy, Innovation
+
+Sat, 31 Oct 2026 21:30:11 GMT
+
+https://www.cbr.com/lord-of-the-rings-helms-deep-battle-better-than-game-of-thrones/
+
+Game of Thrones had some pretty impressive battles over the years, but none of them compare to The Lord of the Rings.
+---------
+
+# 5 Upcoming 2027 Anime, Ranked By Hype
+
+Anime, One Piece, Chainsaw Man
+
+Sat, 31 Oct 2026 21:15:11 GMT
+
+https://www.cbr.com/upcoming-2027-most-anticipated-anime/
+
+From The One Piece to Chainsaw Man Season 3, these are the most anticipated anime of 2027.
+---------
+
+# HBO’s Greatest 2-Part Epic Series Is Better Than 'Game of Thrones'
+
+TV Features, Rome, HBO, Game Of Thrones, HBO Max
+
+Sat, 31 Oct 2026 22:36:12 GMT
+
+https://collider.com/hbo-rome-epic-series-better-than-game-of-thrones/
+
+HBO's Rome outshines Game of Thrones with its historical intrigue and epic storytelling, but the 2005 TV series doesn't get enough credit for it.
+---------
+
+# Samuel L. Jackson's Forgotten Crime Thriller Officially Leaves Netflix Ahead of Taylor Sheridan Reunion
+
+Movie News, Cleaner, Samuel L. Jackson, Training Day, Netflix
+
+Sat, 31 Oct 2026 22:30:12 GMT
+
+https://collider.com/samuel-l-jackson-cleaner-leaving-netflix-october-2026/
+
+Samuel L. Jackson's answer to Denzel Washington's Training Day has officially been removed from Netflix's streaming library.
+---------
+
+# 7 Essential Spy Thriller Books for Beginners
+
+Books and Comics, Thriller, James Bond, Casino Royale, Mystery
+
+Sat, 31 Oct 2026 22:08:12 GMT
+
+https://collider.com/essential-spy-thriller-books-beginners/
+
+For readers exploring the spy genre for the first time, books like Casino Royale and The Spy Who Came in from the Cold are a great place to start.
+---------
+
+# CBS' 'Lincoln Lawyer' Replacement Officially Doubles Viewership
+
+TV News, Cupertino, Matlock, CBS, Drama
+
+Sat, 31 Oct 2026 22:00:12 GMT
+
+https://collider.com/cupertino-cbs-series-premiere-viewership-ratings/
+
+CBS' new Matlock replacement drama doubles viewership as streaming boosts it. Get all the details here.
+---------
+
+# Pulling 'Minecraft' From PlayStation and Nintendo May Be Xbox's Biggest Gamble Yet
+
+Gaming, A Minecraft Movie, Halo: Infinite, Fallout 76, The Elder Scrolls V: Skyrim
+
+Sat, 31 Oct 2026 21:55:12 GMT
+
+https://collider.com/minecraft-xbox-exclusive-gamble-playstation-nintendo-switch/
+
+Xbox is surveying fans about pulling 'Minecraft' from PlayStation and Nintendo Switch. Here’s why Asha Sharma should make the gamble.
+---------
+
+# 8 Sci-Fi Shows More Universally Loved Than 'Stranger Things'
+
+TV, Sci-Fi, Stranger Things, The Twilight Zone, Dark
+
+Sat, 31 Oct 2026 21:41:12 GMT
+
+https://collider.com/sci-fi-shows-more-loved-than-stranger-things/
+
+These iconic sci-fi series are even more universally loved than Stranger Things, from classics like The Twilight Zone to modern hits like Dark.
+---------
+
+# Gerard Butler’s Highest-Grossing Movie Officially Smashes 120-Day Milestone
+
+Movie News, How to Train Your Dragon, Gerard Butler, Netflix
+
+Sat, 31 Oct 2026 21:30:12 GMT
+
+https://collider.com/gerard-butler-how-to-train-your-dragon-streaming-success-120-days-october-2026/
+
+Gerard Butler's highest-grossing movie in history has crossed 120 days at the top of watchlists. Find out more information here.
+---------
+
+# 10 Thrillers That Will Officially Be Classics in 10 Years
+
+Movie, Thriller, Obsession, Whiplash
+
+Sat, 31 Oct 2026 21:30:12 GMT
+
+https://collider.com/thriller-movies-officially-classics-10-years/
+
+Thrillers like No Other Choice, Good Time, and this year's Obsession are well on their way to becoming certified classics of cinema in a decade or so.
+---------
+
+# ‘The Chosen’ Season 6 Officially Confirms Prime Video Release Date
+
+TV News, The Chosen, Dallas Jenkins, Prime Video, Religious
+
+Sat, 31 Oct 2026 21:15:12 GMT
+
+https://collider.com/the-chosen-season-6-prime-video-release-date-november-15-2026/
+
+The OG faith-based sensation, The Chosen, is all set to return with a sixth season on Prime Video. Find out more.
+---------
+
+# The 10 Heaviest TV Finales of All Time, Ranked
+
+TV, The Sopranos, The Americans, Six Feet Under, M*A*S*H
+
+Sat, 31 Oct 2026 21:14:12 GMT
+
+https://collider.com/heaviest-tv-finales-all-time-ranked/
+
+The heaviest finales in television history can be found at the very end of remarkable shows like The Sopranos, Blackadder, and The Americans.
+---------
+
+# Gerard Butler's Non-Stop 140-Minute Action Thriller Is Officially Being Cut From Streaming in 1 Day
+
+Movie News, Den of Thieves, Tubi, Coming/Leaving Streaming, Action, Thriller, Gerard Butler
+
+Sat, 31 Oct 2026 22:31:16 GMT
+
+https://movieweb.com/den-of-thieves-leaving-free-streaming-tubi-november-2026/
+
+Gerard Butler gives 100% in this cat-and-mouse action thriller that's being removed from streaming.
+---------
+
+# Brad Pitt's Rare $409M Tarantino Sequel Officially Gets Rejected by 2 Biggest Theater Chains Weeks Before Release
+
+Movie News, The Further Mis-Adventures of Cliff Booth, Drama, Brad Pitt
+
+Sat, 31 Oct 2026 22:10:35 GMT
+
+https://movieweb.com/further-mis-adventures-of-cliff-booth-imax-theater-rejection/
+
+Regal and Cinemark are officially out.
+---------
+
+# 10 Near-Perfect Stephen King Sci-Fi Books That Prove He's Not Just the King of Horror
+
+Features, Stephen King, Sci-Fi
+
+Sat, 31 Oct 2026 22:00:16 GMT
+
+https://movieweb.com/stephen-king-sci-fi-books-perfect/
+
+Stephen King may be most famous for his spine-chilling stories, but some of his most engaging and entertaining works fall into the sci-fi genre.
+---------
+
+# Goodbye Black Widow, Scarlett Johansson Delivers Her Most "Intense" Turn Yet in Mike Flanagan's 2027 Thriller
+
+Movie News, Black Widow, Scarlett Johansson, Mike Flanagan, The Exorcist, The Exorcist: Martyrs, Thriller, Horror
+
+Sat, 31 Oct 2026 21:33:36 GMT
+
+https://movieweb.com/the-exorcist-martyrs-scarlett-johansson-performance/
+
+Scarlett Johansson's upcoming thriller features her most "raw" and "intense" performance to date, according to director Mike Flanagan.
+---------
+
+# DC's New 'Superman' Spin-Off Officially Hits a Major Milestone Ahead of 2027 Debut
+
+TV News, The People v. Gorilla Grodd, DCU, True Crime, Comedy
+
+Sat, 31 Oct 2026 21:00:42 GMT
+
+https://movieweb.com/people-v-gorilla-grodd-filming-wrap/
+
+The spin-off is anticipated to release after 'Man of Tomorrow.'
+---------
+
+# Guy Ritchie's Debut Mystery Thriller on Prime Is Better Than 'The Gentlemen'
+
+Features, Guy Ritchie, The Gentlemen, Young Sherlock, Mystery, Thriller
+
+Sat, 31 Oct 2026 21:00:16 GMT
+
+https://movieweb.com/young-sherlock-the-gentlemen-comparison/
+
+Guy Ritchie has found another world of criminals, conspiracies, and clever characters that's even better than 'The Gentlemen.'
+---------
+
+# Near-Perfect "Avatar Meets War of the Worlds" Sci-Fi Thriller Is Being Cut From Streaming on Nov. 1
+
+Movie News, District 9, Tubi, Coming/Leaving Streaming, Sci-Fi, Action, Thriller, Avatar, War of the Worlds
+
+Sat, 31 Oct 2026 21:00:16 GMT
+
+https://movieweb.com/district-9-leaving-free-streaming-tubi-november-2026/
+
+17 years later, it's still one of the greatest sci-fi movies of the century.
+---------
+
+# 10 Gunslinger Western Movies With 10/10 Action
+
+Movie Lists, Western, Action
+
+Sat, 31 Oct 2026 20:30:16 GMT
+
+https://movieweb.com/gunslinger-western-movies-good-action/
+
+These 10 gunslinger Westerns deliver shootouts that are still the greatest the genre has ever staged, making them ideal for action lovers.
+---------
+
+# Fan Beats LEGO After Turning a $110 'Avengers: Doomsday' Set Into a First-of-Its-Kind Fantastic Four Build
+
+Movie News, Marvel Cinematic Universe, The Fantastic Four: First Steps, Avengers: Doomsday, LEGO, Superhero
+
+Sat, 31 Oct 2026 20:23:33 GMT
+
+https://movieweb.com/avengers-doomsday-fantastic-four-lego-moc/
+
+One dedicated builder used an existing 'Avengers: Doomsday' set to give 'The Fantastic Four' the LEGO offering they always deserved.
+---------
+
+# Paramount’s 61-Episode Fantasy Masterpiece Has Some of the Best World-Building in TV History
+
+Features, Avatar: The Last Airbender, Fantasy, Paramount Plus, The Legend of Korra, Avatar: Seven Havens
+
+Sat, 31 Oct 2026 20:01:16 GMT
+
+https://movieweb.com/avatar-last-airbender-best-world-building/
+
+The Nickelodeon series proves that great world-building can feel seamless.
+---------
+
 # Returning John Grisham Series Is TV's Best Answer For The Lincoln Lawyer's Replacement
 
 Streaming TV, Masked Recs
