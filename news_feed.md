@@ -1,3 +1,355 @@
+# Netflix's 26-Episode Romantasy Mega-Hit Is Still The Perfect Weekend Binge-Watch
+
+Streaming TV, Netflix
+
+Sat, 31 Oct 2026 02:00:28 GMT
+
+https://screenrant.com/my-happy-marriage-netflix-romantasy-series-mega-hit/
+
+Netflix's best romantasy series blends love and magic in a binge-worthy twenty-six-episode watch that can be finished in a single weekend.
+---------
+
+# 10 Most Chaotic Far Side Comics That Are Complete Classics
+
+Comics
+
+Sat, 31 Oct 2026 01:46:57 GMT
+
+https://screenrant.com/most-chaotic-far-side-comics-complete-classics/
+
+Though every Far Side comic is a masterclass in comedy, these unique panels represent Larson at his chaotic best.
+---------
+
+# 8 DC Villains Who Are Genuinely Nightmare Fuel
+
+Comics, DC Comics
+
+Sat, 31 Oct 2026 01:36:16 GMT
+
+https://screenrant.com/dc-villains-genuine-nightmare-fuel/
+
+These DC villains go beyond ordinary depictions of wrongdoing and are genuinely night terrors brought to life.
+---------
+
+# Mama Bear Ending Explained: Who Killed Who In Curry Barker's Horror Movie Short?
+
+Movies, Obsession
+
+Sat, 31 Oct 2026 01:30:17 GMT
+
+https://screenrant.com/mama-bear-ending-explained-who-killed-who/
+
+Curry Barker’s Mama Bear ends with a bloody reveal that changes who’s to blame. But the reason for Lacey’s revenge is harder to pin down.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Weekend (October 31-Nov 1)
+
+Movies, HBO Max, Recommendation
+
+Sat, 31 Oct 2026 01:08:06 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-weekend-october-31/
+
+The best movies on HBO Max this weekend are Guy Ritchie's detective hit, an iconic slasher, and a fiery 2026 horror that is perfect for Halloween.
+---------
+
+# 7 Things Guy Ritchie’s MobLand Does Better Than The Gentlemen
+
+Streaming TV, MobLand, The Gentlemen
+
+Sat, 31 Oct 2026 01:00:18 GMT
+
+https://screenrant.com/mobland-better-than-the-gentlemen-guy-ritchie-reasons/
+
+Guy Ritchie's two biggest streaming hits are also close rivals on different streaming platforms, but one of them manages to do some things better.
+---------
+
+# Every Friday The 13th Movie (In Chronological Order)
+
+Movies, Friday The 13th, Movie/TV Show Timelines
+
+Sat, 31 Oct 2026 00:48:17 GMT
+
+https://screenrant.com/friday-the-13th-movies-every-in-chronological-order/
+
+The chronological order of the Friday the 13th movies starts off simple enough, but it gets more complicated further down the road.
+---------
+
+# Disney’s Revival Of 35-Year-Old Sci-Fi Cult Classic Gets New Update After Director Exit
+
+Movies, The Rocketeer
+
+Sat, 31 Oct 2026 00:38:16 GMT
+
+https://screenrant.com/return-of-the-rocketeer-disney-failed-plans-update/
+
+David Oyelowo gives a new update on Disney's long-delayed sequel The Return of the Rocketeer after several years of setbacks and exits.
+---------
+
+# 32 Years Later, Calvin and Hobbes' Best Strip About Homework Is Still Perfect
+
+Comics, Calvin and Hobbes
+
+Sat, 31 Oct 2026 00:30:18 GMT
+
+https://screenrant.com/calvin-and-hobbes-best-comic-homework/
+
+The wildly imaginative young kid always had a distaste for homework, and this particular story captured why that's not a weakness.
+---------
+
+# Original Street Fighter Director Defends the 1994 Film After New Reboot Renews Criticism
+
+Movies, Street Fighter
+
+Sat, 31 Oct 2026 02:16:32 GMT
+
+https://www.cbr.com/street-fighter-1994-director-defense/
+
+Some fans have been throwing shade at the 1994 version of Street Fighter after watching the new reboot now playing in theaters.
+---------
+
+# 5 Turn-Based RPGs With Virtually Perfect Character Builds
+
+Games, Video Games, Role Playing Game, Innovation
+
+Sat, 31 Oct 2026 02:15:11 GMT
+
+https://www.cbr.com/turn-based-rpgs-perfect-character-builds/
+
+These five turn-based RPGs feature perfect character builds that give players something new to try every playthrough.
+---------
+
+# Peacock Officially Lands Disney's $350M Sci-Fi Thriller Sequel That Revived a Franchise
+
+Movies, Alien: Romulus, Alien, Peacock
+
+Sat, 31 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/alien-romulus-coming-to-peacock-november-2026/
+
+Peacock subscribers can finally stream the hit sci-fi-horror revival.
+---------
+
+# 10 Greatest Anime Series of the '80s, Ranked
+
+Anime, Innovation, Legend Of The Galactic Heroes, Dragon Ball, Space Cobra
+
+Sat, 31 Oct 2026 02:00:21 GMT
+
+https://www.cbr.com/greatest-1980s-anime-series-ranked/
+
+The animation might look different from what fans are used to today, but these '80s classics helped shape today's anime industry.
+---------
+
+# 5 Masterpiece Isekai Anime With the Most Perfect Magic Systems
+
+Anime, Isekai, Mushoku Tensei: Jobless Reincarnation
+
+Sat, 31 Oct 2026 01:45:11 GMT
+
+https://www.cbr.com/masterpiece-isekai-anime-most-perfect-magic-systems/
+
+These isekai anime have the best magic systems in the entire genre.
+---------
+
+# The 10 Most Exciting Fantasy Movies of All Time, Ranked
+
+Movies, Fantasy
+
+Sat, 31 Oct 2026 01:30:11 GMT
+
+https://www.cbr.com/most-exciting-fantasy-movies-ranked-list/
+
+From Harry Potter to The Lord of the Rings, these 10 films represent the best fantasy films ever made.
+---------
+
+# 5 Best Horror Tabletop RPGs To Play On Halloween
+
+Games, Tabletop, Dungeons and Dragons, Aliens
+
+Sat, 31 Oct 2026 01:25:12 GMT
+
+https://www.cbr.com/best-horror-tabletop-rpgs-play-halloween/
+
+Tabletop RPGs are a great Halloween activity for friends, and a handful are the best choices for freaking people out during the spooky season.
+---------
+
+# Adam Sandler's 102-Minute Happy Gilmore Horror Returns as a Streaming Hit 6 Years Later
+
+Movies, Hubie Halloween, Netflix, Happy Gilmore
+
+Sat, 31 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/adam-sandler-hubie-halloween-horror-netflix-success-october-2026/
+
+This Halloween hit starring Adam Sandler is back in the streaming charts.
+---------
+
+# 8 DC Villains Who Deserve Their Own DCU Movie After Clayface
+
+Movies, Clayface, DCU
+
+Sat, 31 Oct 2026 01:00:11 GMT
+
+https://www.cbr.com/dcu-villain-movies-after-clayface-list/
+
+Clayface marks the first DC Universe movie to spotlight one of DC Comics' most unusual and sinister villains, but more could now come into the light.
+---------
+
+# 8 Fantasy Anime That Are 10/10 Masterpieces
+
+Anime, Fantasy, Frieren: Beyond Journey's End
+
+Sat, 31 Oct 2026 00:45:11 GMT
+
+https://www.cbr.com/fantasy-anime-1010-masterpieces/
+
+Fantasy anime series come in all shapes and sizes, and out of all the hits, there are a handful that deserve to be called 10/10 masterpieces.
+---------
+
+# Florence Pugh’s Netflix Western Miniseries Officially Hits a Massive Streaming Milestone
+
+TV News, Florence Pugh, Netflix, East of Eden, Western
+
+Sat, 31 Oct 2026 02:30:12 GMT
+
+https://collider.com/florence-pugh-western-east-of-eden-netflix-streaming-success-october-2026/
+
+Florence Pugh's East of Eden earns 1.16 billion minutes watched on Netflix, becoming one of America's biggest streaming hits.
+---------
+
+# The 10 Greatest Crime Movies of the Last 25 Years, Ranked
+
+Movie, Crime, The Departed, Uncut Gems, The Girl With the Dragon Tattoo
+
+Sat, 31 Oct 2026 02:22:11 GMT
+
+https://collider.com/best-crime-movies-past-25-years-ranked/
+
+The Departed, Promising Young Woman, and Uncut Gems are among the best crime movies of the last quarter century.
+---------
+
+# 3 Years Later, Nicolas Cage's Surreal Gem Is Officially Back on Streaming
+
+Movie News, Nicolas Cage, Dream Scenario, Plex, Streaming
+
+Sat, 31 Oct 2026 02:15:12 GMT
+
+https://collider.com/nicolas-cage-dream-scenario-streaming-plex-november-2026/
+
+Nicolas Cage's surreal gem, Dream Scenario, is moving to a free streamer three years after it was released. Read on for more.
+---------
+
+# Netflix Officially Reveals the All-Star Cast of New 'Heated Rivalry’ Meets ‘The Cutting Edge’ Rom-Com
+
+Movie News, Miles Teller, Hailee Steinfeld, Netflix, Romance
+
+Sat, 31 Oct 2026 02:06:11 GMT
+
+https://collider.com/winter-games-hailee-steinfeld-miles-teller-netflix-filming/
+
+Netflix’s Winter Games, starring Hailee Steinfeld and Miles Teller, has officially set a 2-month filming schedule. Get the details.
+---------
+
+# 6 Taylor Sheridan Shows You Can Binge in a Weekend
+
+TV, Taylor Sheridan, Landman, 1923, 1883
+
+Sat, 31 Oct 2026 02:05:12 GMT
+
+https://collider.com/taylor-sheridan-shows-binge-weekend/
+
+1883, Landman, Lioness, The Madison, and more make up our list of Taylor Sheridan shows you can binge in a weekend.
+---------
+
+# ‘Resident Evil’ Fans Can Officially Grab the Franchise's Best Game for Just $10
+
+Gaming News, Resident Evil 4, Resident Evil, Video Game, Capcom
+
+Sat, 31 Oct 2026 02:00:22 GMT
+
+https://collider.com/resident-evil-4-remake-steam-sale-10-dollars/
+
+Resident Evil 4 is just $9.99 on Steam for a limited time. Here’s when the sale ends and what’s included.
+---------
+
+# 11 Years Later, CBS' Finale Flop Was an Insult to Its Main Character
+
+TV Features, Simon Baker, Robin Tunney, The Mentalist, CBS
+
+Sat, 31 Oct 2026 01:55:12 GMT
+
+https://collider.com/the-mentalist-series-finale-lisbon-ending/
+
+The Mentalist finale gave Jane closure — but left Lisbon sidelined, reduced to a trophy in a show that never gave her equal footing.
+---------
+
+# It’s Officially the End of an Era for Apple TV’s 9/10 Sci-Fi Series
+
+TV News, Dark Matter, Apple TV, Joel Edgerton, Jennifer Connelly
+
+Sat, 31 Oct 2026 01:45:12 GMT
+
+https://collider.com/apple-tv-dark-matter-season-2/
+
+It's officially the end of an era for Apple TV's near-perfect sci-fi series after the conclusion of its second season.
+---------
+
+# The Minions' Best Movie Officially Finds the Perfect Streaming Home for Halloween
+
+Movie News, Minions & Monsters, Minions, Minions 2, Peacock
+
+Sat, 31 Oct 2026 01:30:12 GMT
+
+https://collider.com/minions-and-monsters-streaming-peacock-october-2026/
+
+Minions & Monsters is now streaming on Peacock, bringing the animated franchise’s monster-filled adventure home for Halloween weekend.
+---------
+
+# Forget 'Captain America,' Anthony Mackie's Brutal Crime Epic Is Officially Streaming for Free
+
+Movie News, Anthony Mackie, Detroit, Plex, Streaming
+
+Sat, 31 Oct 2026 01:15:12 GMT
+
+https://collider.com/anthony-mackie-detroit-streaming-plex-november-2026/
+
+The new Captain America, Anthony Mackie, has his brutal crime epic moving to a new streamer. Read on for more details.
+---------
+
+# Recasting 'Star Trek: The Next Generation' in 2026: The 10 Biggest Characters & Who Should Play Them
+
+TV Lists, Star Trek: The Next Generation, Star Trek, Sci-Fi
+
+Sat, 31 Oct 2026 01:01:16 GMT
+
+https://movieweb.com/star-trek-the-next-generation-recast/
+
+If 'Star Trek: The Next Generation' were made today, the cast would be filled with star power from across the industry. Read on for more.
+---------
+
+# The Highest-Rated Movie Ever Officially Takes Over 3,200 Theaters to Rule the Box Office
+
+Movie News, You Can See Everything, A24, Box Office Milestones, Documentary
+
+Sat, 31 Oct 2026 00:00:16 GMT
+
+https://movieweb.com/you-can-see-everything-box-office-october-2026/
+
+A24 may have stumbled into one of the strangest box office stories of the year.
+---------
+
+# 37 Years Later, Patrick Stewart's Single Most Important Star Trek Line Is Still Unbeaten In Sci-Fi History
+
+Features, Star Trek, Patrick Stewart, Star Trek: The Next Generation, Sci-Fi
+
+Sat, 31 Oct 2026 00:00:16 GMT
+
+https://movieweb.com/star-trek-patrick-stewart-best-line/
+
+Captain Picard taught an entire generation that someone can do everything right and still lose, and it's one of the lessons viewers will keep.
+---------
+
 # 2026 Global Box Office Is Headed For Its Best Year Since 2019
 
 Movies, Box Office
