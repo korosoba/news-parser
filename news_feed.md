@@ -1,3 +1,432 @@
+# New Hogwarts Legacy Replacement Officially Arrives In 2027
+
+Gaming, Hogwarts Legacy, Triple-A Games
+
+Sun, 01 Nov 2026 19:31:18 GMT
+
+https://screenrant.com/hogwarts-legacy-replacement-witchbrook-2027-release/
+
+Although Hogwarts Legacy 2 might not be out in 2027, there's something else you can play instead that's coming out early in the year.
+---------
+
+# The Lincoln Lawyer Season 6 Update Puts The Ball Fully In Netflix's Court
+
+TV, The Lincoln Lawyer
+
+Sun, 01 Nov 2026 19:31:18 GMT
+
+https://screenrant.com/the-lincoln-lawyer-season-6-netflix-decision/
+
+The Lincoln Lawyer's creator Michael Connelly pins season six hopes on Netflix alone, leaving fans anxious as contracts and budgets loom.
+---------
+
+# Next James Bond: Mystery Fourth Audition Contenders Ranked, Including Tom Holland
+
+Movies, James Bond
+
+Sun, 01 Nov 2026 19:31:18 GMT
+
+https://screenrant.com/james-bond-mystery-fourth-audition-actors-ranked/
+
+Auditions for the next James Bond are reportedly down to the final stretch, but one mystery act is still apparently in the running.
+---------
+
+# All 13 American Horror Story Seasons & The TV Shows They're Most Like
+
+Streaming TV, American Horror Story
+
+Sun, 01 Nov 2026 19:15:17 GMT
+
+https://screenrant.com/american-horror-story-seasons-tv-show-counterparts/
+
+No matter which American Horror Story season you loved most, there are shows with similar vibes out there that could become a new favorite.
+---------
+
+# Former James Bond Actor Wants The Franchise "Reinvented" Amid Amazon's Casting Battle
+
+Movies, James Bond
+
+Sun, 01 Nov 2026 19:14:52 GMT
+
+https://screenrant.com/james-bond-ben-whishaw-amazon-adaptation-response/
+
+James Bond's future is hanging in the balance, as a former Bond actor weighs in on the adaptation, with Amazon's casting battle almost complete.
+---------
+
+# After 88 Years, Superman Just Changed Which Power He Discovered First
+
+Comics, Superman
+
+Sun, 01 Nov 2026 19:00:17 GMT
+
+https://screenrant.com/superman-new-first-power-durability-not-strength/
+
+For someone called the Man of Steel, it's surprising this power isn't often the one given the spotlight first.
+---------
+
+# Best High Potential Replacement Officially Will No Longer Return In 2026
+
+Network TV, R.J. Decker
+
+Sun, 01 Nov 2026 19:00:17 GMT
+
+https://screenrant.com/rj-decker-2026-return-cancelled/
+
+An ABC crime drama proved High Potential's perfect replacement among the shows in Fall 2026, but it won't return by the end of the year.
+---------
+
+# Best Movies On HBO Max In November 2026, Including Sherlock Holmes: A Game of Shadows
+
+Movies, HBO Max
+
+Sun, 01 Nov 2026 18:46:18 GMT
+
+https://screenrant.com/best-movies-hbo-max-november-2026/
+
+These are the new movies on HBO Max in November that you should consider checking out, including thrillers, comedies, sci-fi, superheroes, and more.
+---------
+
+# 8-Part 'Modern Day X-Files' Series Is Coming For Mulder & Scully's Crown
+
+TV, The X-Files
+
+Sun, 01 Nov 2026 18:46:18 GMT
+
+https://screenrant.com/the-black-tapes-tv-series-x-files-rival/
+
+Based on a hit podcast, this eight-episode horror series about a skeptical psychiatrist could replace The X-Files reboot with its cinematic scope.
+---------
+
+# 6 Marvel Stories The MCU Could Use That Prove We Don't Need Another Solo Hulk Movie
+
+Movies, Hulk
+
+Sun, 01 Nov 2026 18:46:18 GMT
+
+https://screenrant.com/hulk-mcu-marvel-stories-no-solo-movie-prove/
+
+Multiple storylines in Marvel Comics go to show that there's plenty the MCU can do with the Hulk without giving him another solo movie.
+---------
+
+# 20 Years Later, Christopher Nolan's Sci-Fi Masterpiece Returning to IMAX Is Still His Best
+
+Movies, The Prestige, Christopher Nolan, Innovation
+
+Sun, 01 Nov 2026 19:30:11 GMT
+
+https://www.cbr.com/the-prestige-best-christopher-nolan-film-ever/
+
+Christopher Nolan has cultivated a career of big-budget achievements but his best film is one of his most underrated.
+---------
+
+# 5 Greatest Super Saiyan Transformations in Dragon Ball History, Ranked
+
+Anime, Dragon Ball, Super saiyan, Dragon Ball Z
+
+Sun, 01 Nov 2026 19:15:11 GMT
+
+https://www.cbr.com/dragon-ball-greatest-super-saiyan-transformations/
+
+These legendary Super Saiyan transformations that have etched themselves into the history of Dragon Ball.
+---------
+
+# The X-Files' Mulder and Scully Officially Return For A Frightening New Case Full of Shocking Secrets
+
+Comics, The X-Files
+
+Sun, 01 Nov 2026 19:00:11 GMT
+
+https://www.cbr.com/dynamite-entertainment-the-x-files-2-release-date-confirmed/
+
+Scully and Mulder are back for a new case - and the new teaser promises an ever-growing alien threat.
+---------
+
+# My Dress-Up Darling Gives Marin a Life-Size Upgrade With New $8,000 Release
+
+Anime, My Dress-Up Darling, merchandise, collectibles
+
+Sun, 01 Nov 2026 19:00:11 GMT
+
+https://www.cbr.com/my-dress-up-darling-marin-kitagawa-life-size-statue/
+
+Prime1 Studio unveils a massive, gorgeously-designed Marin Kitagawa statue which fans will have to shell out a whopping eight grand for.
+---------
+
+# Apple TV’s New 10-Episode Crime Mystery Is the Perfect Slow Horses Replacement
+
+TV, Nocturne, Apple TV, Crime, Innovation
+
+Sun, 01 Nov 2026 18:30:11 GMT
+
+https://www.cbr.com/apple-tv-nocturne-rivals-slow-horses/
+
+After Slow Horses Season 6, Apple TV's crime-mystery series Nocturne offers the perfect thriller to replace it.
+---------
+
+# Red Dead Redemption 2 Free Downloads Available Until November 4
+
+Games, Red Dead Redemption 2
+
+Sun, 01 Nov 2026 18:20:11 GMT
+
+https://www.cbr.com/red-dead-redemption-2-free-downloads-november-2026-limited/
+
+Red Dead Redemption 2 players have just a few days to grab free in-game downloads.
+---------
+
+# 4 Long 2026 RPGs That Take Forever to Complete
+
+Games, RPG, action rpg, The Witcher 3: Wild Hunt, Innovation
+
+Sun, 01 Nov 2026 18:15:11 GMT
+
+https://www.cbr.com/longest-2026-rpgs-to-play/
+
+2026 has been a solid year for role-playing games, but players who want to play these four better settle in for weeks or months of gameplay.
+---------
+
+# One Piece Officially Appoints the Pirate King's Spear & Shield | Review
+
+Anime, One Piece, Manga, Innovation
+
+Sun, 01 Nov 2026 18:15:10 GMT
+
+https://www.cbr.com/one-piece-chapter-1197-sanji-conqueror-haki-shield/
+
+Sanji's impending evolution from Chapter 1196 reaches its glorious pinnacle
+---------
+
+# Black Clover Season 2, Episode 5 Review
+
+Anime, Black Clover, Innovation
+
+Sun, 01 Nov 2026 17:35:11 GMT
+
+https://www.cbr.com/black-clover-season-2-episode-5-review/
+
+Black Clover delivers an exciting episode as Magna's battle with Dante takes center stage.
+---------
+
+# Netflix’s Overlooked 8-Part Murder Thriller Is an Adaptation Done Right
+
+TV, Ripley, Innovation, Netflix, Thriller
+
+Sun, 01 Nov 2026 17:30:12 GMT
+
+https://www.cbr.com/netflix-ripley-overlooked-adaptation/
+
+Netflix has no shortage of crime thrillers, but the 2024 Ripley adaptation has something particularly interesting up its sleeve.
+---------
+
+# 10 Best Children & Family Movies on Netflix Right Now
+
+Movie, Netflix, The Mitchells vs. the Machines, The Willoughbys, Nightbooks
+
+Sun, 01 Nov 2026 19:50:12 GMT
+
+https://collider.com/best-family-kids-movies-on-netflix/
+
+Wallace and Gromit: Vengeance Most Fowl, Leo, Nimona, Enola Holmes, and more make up our list of the best family movies on Netflix right now.
+---------
+
+# 6 Pulitzer Prize-Winning Books That Became Great Movies
+
+Books and Comics, Gone with the Wind, All the King's Men, To Kill A Mockingbird, The Color Purple
+
+Sun, 01 Nov 2026 19:40:12 GMT
+
+https://collider.com/pulitzer-prize-winning-books-great-movies/
+
+Pulitzer Prize-winning books like To Kill a Mockingbird,
+---------
+
+# 10 Greatest Fantasy Books of All Time, Ranked by Goodreads
+
+Books and Comics, Books, Fantasy, Science Fiction, J.R.R. Tolkien
+
+Sun, 01 Nov 2026 19:33:12 GMT
+
+https://collider.com/greatest-fantasy-books-all-time-ranked-goodreads/
+
+Discover the 10 greatest fantasy books of all time, ranked by Goodreads popularity, from The Hobbit to Wicked.
+---------
+
+# Jake Gyllenhaal’s 124-Minute Sci-Fi Blockbuster Officially Takes Over Netflix
+
+Movie News, The Day After Tomorrow, Geostorm, Sci-Fi, Jake Gyllenhaal
+
+Sun, 01 Nov 2026 19:30:12 GMT
+
+https://collider.com/jake-gyllenhaal-sci-fi-day-after-tomorrow-streaming-netflix-november-2026/
+
+Jake Gyllenhaal and Dennis Quaid's $552 million disaster thriller The Day After Tomorrow is streaming on Netflix. Read on for more details.
+---------
+
+# The Mosquito Bowl: 15 Football Players Died Months Later | Collider BTS
+
+Movie, The Mosquito Bowl
+
+Sun, 01 Nov 2026 19:15:11 GMT
+
+https://collider.com/video/the-mosquito-bowl-15-football-players-died-months-later-collider-bts/
+
+What happens when the writer behind a World War II story visits the movie set and Peter Berg unexpectedly tells him to put on a Marine uniform? Buzz Bissinger shares the hilarious story of how he ended up playing a drill sergeant in the film, and why the experience was unlike anything he expected.
+---------
+
+# These Are Officially the 8 Best Miniseries Ever Made
+
+TV, Miniseries, The Haunting of Hill House, Adolescence, Mare of Easttown
+
+Sun, 01 Nov 2026 19:15:11 GMT
+
+https://collider.com/best-miniseries-ever-made/
+
+From Roots to Band of Brothers, these miniseries are the best you'll ever watch.
+---------
+
+# The ’80s Classic That Inspired ‘Stranger Things’ Officially Dominates Streaming Charts
+
+Movie News, The Goonies, Tubi, Sci-Fi, Streaming
+
+Sun, 01 Nov 2026 19:00:12 GMT
+
+https://collider.com/josh-brolin-the-goonies-streaming-hit-tubi-october-2026/
+
+The Goonies, cited as a main inspiration for the hit series Stranger Things, is a free streaming hit this October. Read on for more.
+---------
+
+# 46 Years Later, the Scene That Changed TV Forever Still Has No Equal
+
+TV Features, Dallas, CBS, Soap, Drama
+
+Sun, 01 Nov 2026 18:58:11 GMT
+
+https://collider.com/dallas-tv-show-who-shot-jr-cliffhanger-changed-television/
+
+46 years ago, one TV show revolutionized the industry with an iconic cliffhanger that changed the way season finales were made.
+---------
+
+# ‘Saturday Night Live’ Just Made a Huge Mistake on Its Halloween Episode
+
+TV Features, Saturday Night Live, Saturday Night Live UK, Late Night With Seth Meyers, NBC
+
+Sun, 01 Nov 2026 18:52:12 GMT
+
+https://collider.com/saturday-night-live-snl-uk-crossover-missed-opportunity/
+
+Saturday Night Live missed a major opportunity for a historic SNL UK crossover after George Fouracres appeared on Late Night With Seth Meyers.
+---------
+
+# Apple TV’s 6-Year Legal Battle With M. Night Shyamalan Officially Ends
+
+TV News, Servant, Apple TV, M. Night Shyamalan, Horror
+
+Sun, 01 Nov 2026 18:30:12 GMT
+
+https://collider.com/servant-lawsuit-dismissed-apple-tv-m-night-shyamalan/
+
+Apple TV and M. Night Shyamalan's show Servant were sued for intellectual property infringement, and the verdict is in. Get all the details.
+---------
+
+# 19 Years Later, the 'Stargate SG-1' Franchise Officially Returns With New Release
+
+TV News, LEGO, Sci-Fi, Stargate
+
+Sun, 01 Nov 2026 19:05:13 GMT
+
+https://movieweb.com/stargate-sg-1-bluebrixx/
+
+BlueBrixx allows people to take 'Stargate' home with them.
+---------
+
+# Steven Spielberg Beat Taylor Sheridan at His Own Game With a 6-Part Western Series You Can Binge in One Night
+
+Features, Into the West, Steven Spielberg, Taylor Sheridan, Western
+
+Sun, 01 Nov 2026 19:00:16 GMT
+
+https://movieweb.com/into-the-west-streaming-recommendation/
+
+Steven Spielberg and Dreamworks collaborated on a sprawling epic Western series that boasts one of the greatest casts of any show in the 21st century.
+---------
+
+# Forget 'Saving Private Ryan', Ridley Scott's Only WWII Epic Is a 96-Minute Historical War Movie With an Even Better Cast
+
+Features, The Gathering Storm, War, Saving Private Ryan
+
+Sun, 01 Nov 2026 18:00:16 GMT
+
+https://movieweb.com/the-gathering-storm-streaming-recommendation/
+
+Saving Private Ryan has lots of future stars, but a BBC TV movie produced by Ridley Scott has a better cast.
+---------
+
+# Disney's New Remake of Its $592M Classic Is Officially Making a Big Change From the Original
+
+Movie News, Tangled, Fantasy, Kathryn Hahn
+
+Sun, 01 Nov 2026 17:36:51 GMT
+
+https://movieweb.com/tangled-kathryn-hahn-disney-change/
+
+Disney is remaking another one of its beloved animated film in live-action, and it's changing the climactic scene.
+---------
+
+# Sylvester Stallone's 113-Minute Action Thriller Cult Classic Officially Hits Netflix Ahead of New Reboot
+
+Movie News, Cliffhanger, Sylvester Stallone, Coming/Leaving Streaming, Action, Thriller
+
+Sun, 01 Nov 2026 17:00:18 GMT
+
+https://movieweb.com/cliffhanger-sylvester-stallone-streaming-netflix-november-2026/
+
+As 'Tulsa King' continues to soar on Paramount+, Netflix is getting into the Sylvester Stallone business with one of his iconic action hits.
+---------
+
+# 'Tulsa King' Season 4, Episode 3's Emotional Ending Explained By Garrett Hedlund
+
+Exclusives, Tulsa King, Garrett Hedlund, Action, Crime, Drama
+
+Sun, 01 Nov 2026 16:24:52 GMT
+
+https://movieweb.com/tulsa-king-season-4-episode-3-ending/
+
+The doom-and-gloom episode had one silver lining.
+---------
+
+# Stephen King Praises New Must-See 95% RT-Rated Crime Thriller as "The Thing Meets Silence of the Lambs"
+
+Features, The Cycle, Stephen King, Crime, Thriller, Horror, The Thing, The Silence of the Lambs, Rotten Tomatoes
+
+Sun, 01 Nov 2026 16:00:16 GMT
+
+https://movieweb.com/the-cycle-stephen-king-praise/
+
+Stephen King offers high praise for a new thriller drawing rave reviews for its chilling mix of police procedural and supernatural intrigue.
+---------
+
+# Amazon's 8-Episode 'Reacher' Substitute Action Thriller Officially Becomes the No. 1 Series in the World
+
+TV News, The Terminal List, Action, Thriller, Hot on Streaming
+
+Sun, 01 Nov 2026 16:00:16 GMT
+
+https://movieweb.com/the-terminal-list-stream-october-2026/
+
+One of television's most popular heroes has suffered a setback at the hands of a long-awaited returning character.
+---------
+
+# One of the Greatest Dystopian Sci-Fi Classics Officially Returns 20 Years Later, and It Hits Harder Than Ever
+
+Movie News, V For Vendetta, Sci-Fi, Stephen Fry
+
+Sun, 01 Nov 2026 15:33:54 GMT
+
+https://movieweb.com/v-for-vendetta-stephen-fry-anniversary/
+
+One of the stars remembers making the film, and explains why it remains as relevant as ever.
+---------
+
 # The Jurassic World Movies Have One Big Problem That Jenna Ortega & Glen Powell's Netflix Show Fixed
 
 Movies, Jurassic Park, Jurassic World: Camp Cretaceous
