@@ -1,3 +1,399 @@
+# Attack on Titan's 17-Year Journey Project Is Just 1 Month Away
+
+Anime, Attack on Titan, Attack on Titan 3
+
+Sun, 01 Nov 2026 01:30:17 GMT
+
+https://screenrant.com/attack-on-titan-3-building-to-17-years/
+
+Spanning the entire 17-year timeline of the manga, this massive new Attack on Titan release lets you replay every brutal battle.
+---------
+
+# Ahsoka & Maul's 2027 Returns Point To Something Undeniable About Star Wars
+
+Streaming TV, Star Wars
+
+Sun, 01 Nov 2026 01:30:17 GMT
+
+https://screenrant.com/star-wars-ahsoka-maul-2027-returns-clone-wars-importance/
+
+Ahsoka and Maul will both be big parts of Star Wars' 2027 slate, proving an irrefutable fact about the wider franchise that began decades ago.
+---------
+
+# Recasting Batman For The DCU: All 8 Major Candidates, Ranked
+
+Movies, Batman, DC Universe
+
+Sun, 01 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/batman-dcu-actors-recasting-favorites-ranked/
+
+James Gunn's DC Universe is preparing to cast Batman, so here's our ranking of some of the biggest fancasted names for the DCU's Dark Knight.
+---------
+
+# 10 Most Devastating Losses The Autobots Have Suffered in Transformers History
+
+Comics, Transformers
+
+Sun, 01 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/most-devastating-losses-autobots-suffer-transformers/
+
+Freedom is the right of all sentient beings, but fighting for it has cost the Autobots dearly through these devastating defeats.
+---------
+
+# Stargate SG-1 Has Officially Switched Genres, But Not Every Fan Is On Board
+
+Gaming, Stargate SG-1
+
+Sun, 01 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/stargate-sg1-timekeepers-user-reviews-genre-switch/
+
+Explore the Stargate: Timekeepers game set in SG-1 universe.
+---------
+
+# Sydney Sweeney’s 10-Part Euphoria Forerunner On Netflix Is The Better Show
+
+Streaming TV, Masked Recs
+
+Sun, 01 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/everything-sucks-sydney-sweeney-netflix-better-than-euphoria/
+
+Before she became Cassie Howard in Euphoria, Sydney Sweeney was another teen drama queen in an even better coming-of-age series on Netflix.
+---------
+
+# 7 Near-Perfect Sci-Fi Series Inspired By Albert Einstein
+
+Classic TV, Sci-Fi
+
+Sun, 01 Nov 2026 00:45:18 GMT
+
+https://screenrant.com/sci-fi-tv-shows-inspired-by-albert-einstein/
+
+Albert Einstein is one of the most influential figures in history, with his intellect and ideas contributing to many breakthroughs, and even some TV.
+---------
+
+# Star Wars Actor Reveals Shocking Real-Life Encounter With His Strangest Fan
+
+Movies, Star Wars
+
+Sun, 01 Nov 2026 00:41:43 GMT
+
+https://screenrant.com/star-wars-hayden-christensen-real-life-encounter-strangest-fan/
+
+Star Wars actor, Hayden Christensen, reveals the most shocking encounter he has ever had with a fan and the strange turn the incident took.
+---------
+
+# The Rings Of Power's Big Season 3 Tolkien Change Is A No-Win Scenario
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Sun, 01 Nov 2026 00:30:17 GMT
+
+https://screenrant.com/rings-of-power-season-3-orc-change-no-win/
+
+Rings of Power season 3 has backed itself into a corner with another Tolkien change - but can it still pay off, and what would Tolkien think?
+---------
+
+# 8 TV Shows Recommended By Taylor Swift
+
+Classic TV, Taylor Swift
+
+Sun, 01 Nov 2026 00:30:17 GMT
+
+https://screenrant.com/taylor-swift-favorite-tv-shows/
+
+Taylor Swift may be the Queen of Pop, but how does her taste in TV shows stack up, and what does she make time to binge on despite her busy schedule?
+---------
+
+# Michael Fassbender $125M Video Game Movie That Never Became a Franchise Makes Streaming Change
+
+Movies, Assassin's Creed
+
+Sun, 01 Nov 2026 01:30:11 GMT
+
+https://www.cbr.com/michael-fassbender-assassins-creed-hulu-release-date/
+
+One of the most divisive video game adaptations of an entire generation is about to get another shot at the streaming charts when it moves to Hulu.
+---------
+
+# 10 Greatest Single-Player Games of All Time, Ranked
+
+Games, Elden Ring, The Witcher 3: Wild Hunt, Resident Evil, Video Games
+
+Sun, 01 Nov 2026 01:25:12 GMT
+
+https://www.cbr.com/all-time-greatest-single-player-games/
+
+From Resident Evil 4 to The Witcher 3, some of the greatest games of all time have been single-player only.
+---------
+
+# Ridley Scott's 153-Minute Fantasy Flop Is Heading to Hulu Soon
+
+Movies, The Last Duel, ridley scott
+
+Sun, 01 Nov 2026 01:00:11 GMT
+
+https://www.cbr.com/ridley-scott-the-last-duel-hulu-november-2026/
+
+Ridley Scott's big-budget historical drama flop is heading to a new streaming home just a few years after a lackluster run at the box office.
+---------
+
+# 7 Classic '90s Anime That Are Completely Unwatchable Today
+
+Anime, Dragon Ball GT, Tenchi Muyo
+
+Sun, 01 Nov 2026 00:45:11 GMT
+
+https://www.cbr.com/classic-90s-anime-completely-unwatchable-today-list/
+
+The '90s was a monumental decade for anime, but some titles that were previously praised are now considerably harder to enjoy.
+---------
+
+# Star Wars: 10 Facts You Didn't Know About The Gray Jedi Code
+
+Lists, Star Wars
+
+Sun, 01 Nov 2026 00:30:12 GMT
+
+https://www.cbr.com/star-wars-facts-gray-jedi-code/
+
+In Star Wars, Gray Jedi use both the light and dark sides of the Force, but not much is definitive about them, including their own code.
+---------
+
+# Star Trek's Captain Kirk Gets a 'Perfect' New Release, Says Brandon Sanderson
+
+Games, Magic The Gathering, Star Trek, Brandon Sanderson, TCG
+
+Sun, 01 Nov 2026 00:30:11 GMT
+
+https://www.cbr.com/brandon-sanderson-honors-star-trek-captain-kirk-magic-the-gathering/
+
+Brandon Sanderson spoke about his excitement over Captain Kirk's upcoming Magic: The Gathering release on his podcast and he's absolutely right.
+---------
+
+# The Jurassic Franchise's Darkest Modern Blockbuster With $1.3B Is Coming to HBO Max In Just 1 Day
+
+Movies, Jurassic Park, Jurassic World Fallen Kingdom
+
+Sun, 01 Nov 2026 00:30:11 GMT
+
+https://www.cbr.com/jurassic-world-fallen-kingdom-hbo-max-november-2026/
+
+The darkest entry in the entire Jurassic Park feature film franchise is about to tear its way into a new streaming home on HBO Max.
+---------
+
+# Christopher Lloyd Officially Names His Favorite Back to the Future Movie
+
+Movies, Back to the Future, Back to the Future Part III
+
+Sun, 01 Nov 2026 00:24:42 GMT
+
+https://www.cbr.com/christopher-lloyd-favorite-back-to-the-future-movie/
+
+Doc Brown actor Christopher Lloyd speaks about his favorite installment of the Back to the Future trilogy.
+---------
+
+# 10 Most Powerful Dragon Ball Z Movie Transformations, Ranked
+
+Anime, Dragon Ball Z, Dragon Ball
+
+Sun, 01 Nov 2026 00:15:11 GMT
+
+https://www.cbr.com/dragon-ball-z-most-powerful-movie-transformations-ranked-list/
+
+Dragon Ball Z's many movies feature exciting action spectacles, but they're also rich in transformations that showcase exceptional strength!
+---------
+
+# The Best Action Movie From Each of The Last 10 Decades
+
+Movies, Action, Star Wars, Innovation
+
+Sun, 01 Nov 2026 00:00:11 GMT
+
+https://www.cbr.com/best-action-movie-from-every-decade-list/
+
+The action genre has enthralled audiences for nearly all of movie history, and these genre masterpieces are the best from each of the last 10 decades.
+---------
+
+# Everything Coming to Netflix in November 2026
+
+Movie, Netflix, The Hunting Wives, Black Doves, North of North
+
+Sun, 01 Nov 2026 01:33:12 GMT
+
+https://collider.com/everything-coming-to-netflix-november-2026/
+
+New seasons of The Hunting Wives, Black Doves, and North and North, and movies like Bridesmaids and Whiplash are coming to Netflix this November.
+---------
+
+# 'The Rookie's Spin-Off Is Making the Same Mistake as the Franchise’s Cancelled Show
+
+TV Features, The Rookie, Alexi Hawley, ABC, Procedural
+
+Sun, 01 Nov 2026 01:01:12 GMT
+
+https://collider.com/the-rookie-north-spinoff-same-storyline/
+
+The Rookie spin-off, The Rookie: North, looks like it's going to make the same mistakes as The Rookie: Feds, using the same premise.
+---------
+
+# Before ‘Jumanji,’ Dwayne Johnson’s Wild Adventure Movie Officially Hits Prime Video
+
+Movie News, The Rundown, Indiana Jones, Lethal Weapon, Dwayne Johnson
+
+Sun, 01 Nov 2026 00:45:12 GMT
+
+https://collider.com/dwayne-johnson-the-rundown-prime-video-streaming-october-2026/
+
+Dwayne Johnson and Seann William Scott's action-adventure The Rundown is available on Prime Video, bringing the 2003 cult favorite back.
+---------
+
+# 8 Greatest Netflix Shows With Fewer Than 40 Episodes
+
+TV, Netflix, East of Eden, The Queen's Gambit, Sex Education
+
+Sun, 01 Nov 2026 00:34:12 GMT
+
+https://collider.com/best-netflix-shows-under-40-episodes/
+
+From the coming-of-age series Sex Education to the miniseries East of Eden, these are the best Netflix shows that have less than 40 episodes total.
+---------
+
+# 2 of Rockstar's Biggest Games Officially Removed From PlayStation Plus Mere Days Before 'GTA 6'
+
+Gaming News, Rockstar Games, PlayStation Plus, Red Dead Redemption 2, Grand Theft Auto 5
+
+Sun, 01 Nov 2026 00:30:12 GMT
+
+https://collider.com/gta-5-red-dead-redemption-2-leaving-playstation-plus-november-2026/
+
+GTA 5 and Red Dead Redemption 2 are leaving PlayStation Plus Extra and Premium in November. Here’s how long subscribers have left.
+---------
+
+# Elle Fanning's Near-Perfect $7M Masterpiece Officially Makes Streaming Comeback
+
+Movie News, Elle Fanning, 20th Century Women, Plex, Streaming
+
+Sun, 01 Nov 2026 00:15:12 GMT
+
+https://collider.com/elle-fanning-20th-century-women-streaming-plex-november-2026/
+
+20th Century Women, starring Elle Fanning, is moving to a free streamer next month. Keep reading for more details.
+---------
+
+# Taylor Sheridan's 'Yellowstone' Replacement Officially Loses 5 Million Viewers
+
+TV News, Marshals, CBS, Drama, Procedural
+
+Sun, 01 Nov 2026 00:00:12 GMT
+
+https://collider.com/taylor-sheridan-marshals-season-2-viewership-drop/
+
+After an astounding launch early this year, Yellowstone's new spin-off has lost 5 million viewers. Get all the details.
+---------
+
+# Forget ‘Carrie,’ Mike Flanagan’s Best Horror Miniseries Is a Masterpiece From Start to Finish
+
+TV Features, Midnight Mass, Mike Flanagan, Netflix, Horror
+
+Sat, 31 Oct 2026 23:52:12 GMT
+
+https://collider.com/mike-flanagan-midnight-mass-netflix-perfect-horror-miniseries/
+
+If you've already binged Carrie, Mike Flanagan's best horror masterpiece is a Netflix miniseries that explores faith, addiction, and redemption.
+---------
+
+# Harry Potter Star’s 108-Minute Sci-Fi Masterpiece Is Officially Streaming for Free
+
+Movie News, Ex Machina, Sci-Fi, Plex, Streaming
+
+Sat, 31 Oct 2026 23:30:12 GMT
+
+https://collider.com/domhnall-gleeson-ex-machina-streaming-plex-november-2026/
+
+The sci-fi masterpiece Ex Machina is about to move to a free streamer starting next month. Read on for more details.
+---------
+
+# Tom Cruise’s Divisive Take on ‘Reacher’ Officially Gets a Second Chance on Free Streaming
+
+Movie News, Tom Cruise, Jack Reacher, Tubi
+
+Sat, 31 Oct 2026 23:15:12 GMT
+
+https://collider.com/tom-cruise-jack-reacher-streaming-free-tubi-november-2026/
+
+Tom Cruise’s Jack Reacher begins streaming free on Tubi November 1, bringing his first Lee Child adaptation home this weekend.
+---------
+
+# It's Only Been 8 Days, but New 108-Minute Thriller is Already Dominating the Box Office in 3,400 Theaters
+
+Movie News, Clayface, Box Office Milestones, Thriller
+
+Sun, 01 Nov 2026 01:30:16 GMT
+
+https://movieweb.com/clayface-box-office-milestone-october-2026/
+
+Clayface is shaping up as one of DC’s more encouraging box office stories in years.
+---------
+
+# Patrick Stewart's 7-Part Sci-Fi Masterpiece Officially Returns to Dominate Streaming 39 Years Later
+
+TV News, Star Trek, Patrick Steward, Apple TV, Sci-Fi, Hot on Streaming
+
+Sun, 01 Nov 2026 00:31:16 GMT
+
+https://movieweb.com/star-trek-next-generation-apple-tv-october-2026/
+
+Star Trek: The Next Generation is finding renewed attention as viewers honor Patrick Stewart by spending time with it once again.
+---------
+
+# 10 Near-Perfect Paramount+ Shows That Will Hook You in the First 10 Minutes
+
+TV Lists, Paramount Plus
+
+Sun, 01 Nov 2026 00:31:16 GMT
+
+https://movieweb.com/paramount-shows-hook-10-minutes/
+
+No matter what genre you prefer, these Paramount+ series are absolutely worth your time — and they prove as much in 10 minutes or less.
+---------
+
+# Jean-Claude Van Damme's ‘Reacher Meets Yellowstone’ Action Thriller Finds Redemption on Streaming
+
+Movie News, Nowhere to Run, Action, Western, Apple TV, Hot on Streaming, Netflix
+
+Sat, 31 Oct 2026 23:31:16 GMT
+
+https://movieweb.com/nowhere-to-run-netflix-october-2026/
+
+Jean-Claude Van Damme’s Nowhere to Run was met with a rough critical response in 1993, but the film is now getting a second life on Netflix.
+---------
+
+# HBO's Emmy-Winning Crime Thriller Begins Season 3 With Major Update
+
+TV News, Big Little Lies, HBO Max, Thriller, Reese Witherspoon, Nicole Kidman, Zoë Kravitz, Laura Dern
+
+Sat, 31 Oct 2026 23:14:07 GMT
+
+https://movieweb.com/hbos-big-little-lies-season-3-begins-production/
+
+The smash-hit thriller is finally back in production. But as always, there's a catch.
+---------
+
+# George R. R. Martin's Upcoming Epic Fantasy Movie Can Beat 'Game of Thrones' at Its Own Game
+
+Features, Elden Ring, Game Of Thrones, George R.R. Martin, Fantasy
+
+Sat, 31 Oct 2026 23:00:16 GMT
+
+https://movieweb.com/elden-ring-game-of-thrones-comparison/
+
+George R.R. Martin's newest fantasy world is the natural evolution of the fantasy genre in Hollywood.
+---------
+
 # All 7 Calvin and Hobbes Halloween Comics, Including A Bill Watterson Masterpiece
 
 Comics, Calvin and Hobbes
