@@ -1,3 +1,432 @@
+# Netflix Will Smash The Crown & Bridgerton With One Single Release Next Month
+
+Streaming TV, Netflix
+
+Sun, 01 Nov 2026 23:15:18 GMT
+
+https://screenrant.com/pride-and-prejudice-netflix-beat-bridgerton-the-crown/
+
+Netflix has a period drama in the works for December that could outperform The Crown and Bridgerton: a remake of Jane Austen's Pride and Prejudice.
+---------
+
+# The Elder Scrolls Is Officially Switching Genre For November 2026 Return
+
+Gaming, The Elder Scrolls
+
+Sun, 01 Nov 2026 23:00:17 GMT
+
+https://screenrant.com/elder-scrolls-november-2026-genre-switch-betrayal/
+
+Discover The Elder Scrolls: Betrayal of the Second Era tabletop game launching this November. Pre-order now!
+---------
+
+# Every Batman Villain Movie & TV Show, Ranked
+
+Movies, DC Universe, Batman
+
+Sun, 01 Nov 2026 22:55:17 GMT
+
+https://screenrant.com/batman-villain-movies-tv-shows-ranked-worst-best/
+
+Batman has one of cinema and TV's greatest rogues' galleries, but which villains have delivered the best solo adventures, and which missed the mark?
+---------
+
+# Ghost Rider's New Era Officially Begins In 3 Days
+
+Marvel Comics, Ghost Rider
+
+Sun, 01 Nov 2026 22:49:57 GMT
+
+https://screenrant.com/ghost-rider-kushala-1-new-era/
+
+Marvel's best Ghost Rider is getting their own solo title this week, confirmed with a tease of the Spirit of Vengeance's battle against Doctor Doom.
+---------
+
+# Netflix's Nobody Wants This Star Disputes Set Tension With Co-Star
+
+TV, Nobody Wants This
+
+Sun, 01 Nov 2026 22:45:46 GMT
+
+https://screenrant.com/nobody-wants-this-season-3-tovah-feldshuh-set-tension-adam-brody/
+
+Nobody Wants This star Tovah Feldshuh denies on set tensions with star Adam Brody and expresses hopes for a fourth season renewal in the future.
+---------
+
+# The Rings Of Power Season 2 Ending Explained (In Full)
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Sun, 01 Nov 2026 22:30:19 GMT
+
+https://screenrant.com/the-rings-of-power-season-2-ending-explained/
+
+The Rings of Power season 2 culminates in a finale that wraps up most major storylines while leaving teases for future installments.
+---------
+
+# Every Dwarf In The Lord Of The Rings, Ranked By Strength
+
+Movies, The Lord of the Rings
+
+Sun, 01 Nov 2026 22:30:17 GMT
+
+https://screenrant.com/lord-of-the-rings-the-hobbit-dwarves-ranked-strength/
+
+The Dwarves of Middle-earth are some of J.R.R. Tolkien's most fearsome warriors. But which of his Dwarves was actually the strongest?
+---------
+
+# After Decades Of Waiting, One Piece Is Gearing Up To Deliver It's Greatest Team Up
+
+Anime, One Piece
+
+Sun, 01 Nov 2026 22:30:17 GMT
+
+https://screenrant.com/one-piece-teamup-zoro-luffy-sanji/
+
+The final battle of One Piece's Elbaph arc is approaching, and the story has perfectly setup what could be the most satisfying team up of the decade.
+---------
+
+# Studio Ghibli's Latest Big Release Has Some Life Lessons That Every Fan Needs
+
+Books, Studio Ghibli
+
+Sun, 01 Nov 2026 22:30:17 GMT
+
+https://screenrant.com/studio-ghibli-new-release-zen-ghibli-life-lessons/
+
+Studio Ghibli's big and underrated October 2026 release has many life lessons that every fan of the adorable franchise needs to check out.
+---------
+
+# Ryan Gosling's Sequel to $200M Netflix Action Thriller Gets New Update After Filming Rumors
+
+Movies, The Gray Man, ryan gosling, Netflix
+
+Sun, 01 Nov 2026 23:15:11 GMT
+
+https://www.cbr.com/the-gray-man-sequel-ryan-gosling-rumors-action-thriller-netflix/
+
+Is Ryan Gosling shooting a sequel to The Gray Man? Here's everything we know.
+---------
+
+# 10 Hardest NES Boss Fights of All Time, Ranked
+
+Games, Video Games, The Legend of Zelda, Innovation, Nintendo
+
+Sun, 01 Nov 2026 23:15:11 GMT
+
+https://www.cbr.com/hardest-nes-boss-fights-all-time-ranked/
+
+Nintendo is notorious for difficult boss fights, with Dark Link and the Grim Reaper himself stepping into player's path to prohibit game completion.
+---------
+
+# Taika Waititi Goes Nuclear on Critics After Latest Film Sets Record Low on Rotten Tomatoes
+
+Movies, Klara and the Sun, taika waititi
+
+Sun, 01 Nov 2026 23:06:53 GMT
+
+https://www.cbr.com/taika-waititi-critics-klara-and-the-sun/
+
+Taika Waititi blasts movie critics with no holding back after setting a new low on Rotten Tomatoes.
+---------
+
+# Keanu Reeves' Genre-Defining Cyberpunk Franchise Is Now Free to Watch
+
+Movies, The Matrix
+
+Sun, 01 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/keanu-reeves-the-matrix-trilogy-pluto-tv-november-2026/
+
+The most important sci-fi trilogy of an entire generation now has a new streaming home, and fans won't need a paid subscription to watch it.
+---------
+
+# Studio Ghibli Lights Up Your Home With New Limited-Edition Antique-Style Kiki's Delivery Service Lamp
+
+Anime, Kiki's Delivery Service, Studio Ghibli, merchandise
+
+Sun, 01 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/studio-ghibli-kikis-delivery-service-jiji-antique-lamp/
+
+Studio Ghibli's latest piece of Kiki-themed decor allows fans to illuminate their homes while infusing their living spaces with cozy retro vibes.
+---------
+
+# 10 X-Men Storylines That Changed the Game With a Single Issue
+
+Comics, Marvel, X-Men, comics
+
+Sun, 01 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/x-men-storylines-that-changed-the-game-with-a-single-issue/
+
+These X-Men issues changed everything for the series moving forward.
+---------
+
+# HBO's New '60s Alfred Hitchcock Reboot Is a Murder Mystery Classic in the Making
+
+TV, The Birds, alfred hitchcock, Mystery, Innovation
+
+Sun, 01 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/hbo-the-birds-alfred-hitchcock-murder-mystery-reboot/
+
+The Leftovers writer Tom Spezialy is blending detective mystery with natural horror in The Birds, and it sounds just wild enough to work.
+---------
+
+# RDJ's Sherlock Holmes Reunion Will Hit Even Harder Than the BBC Series
+
+Movies, Sherlock Holmes, Sherlock Holmes: A Game of Shadows, Sherlock
+
+Sun, 01 Nov 2026 22:30:11 GMT
+
+https://www.cbr.com/sherlock-holmes-3-robert-downey-jr-reunion-bigger-than-bbc-show/
+
+It has been 15 years since Robert Downey Jr. and Jude Law were on-screen together as Holmes and Watson, so we can't wait for their reunion.
+---------
+
+# 7 Masterpiece Sci-Fi Anime Better Than Neon Genesis Evangelion
+
+Anime, Neon Genesis Evangelion, Cowboy Bebop
+
+Sun, 01 Nov 2026 22:15:11 GMT
+
+https://www.cbr.com/masterpiece-sci-fi-anime-better-than-neon-genesis-evangelion/
+
+Neon Genesis Evangelion is an undeniable masterpiece, yet it doesn't hold a candle to Cowboy Bebop and Legend of the Galactic Heroes.
+---------
+
+# Netflix's New 122-Minute Crime Thriller Explodes as the Most-Watched Movie in the World
+
+Movies, Netflix
+
+Sun, 01 Nov 2026 22:00:11 GMT
+
+https://www.cbr.com/collision-course-netflix-success-november-2026/
+
+The new film is perfect for Money Heist fans.
+---------
+
+# 30 Years Later, Kevin Costner’s Notorious Sci-Fi Flop Officially Makes a Massive Streaming Comeback
+
+Movie News, Kevin Costner, Waterworld, Sci-Fi, Tubi
+
+Sun, 01 Nov 2026 23:15:12 GMT
+
+https://collider.com/kevin-costner-waterworld-streaming-hit-tubi-october-2026/
+
+The hugely controversial sci-fi financial disaster Waterworld, starring Kevin Costner, is the latest free streaming hit on Tubi. Read on for more.
+---------
+
+# 8 Most Violent Action Movies of All Time, Ranked
+
+Movie, Kill Bill: Vol. 1, Sisu, Rambo, Action
+
+Sun, 01 Nov 2026 23:03:12 GMT
+
+https://collider.com/most-violent-action-movies-all-time-ranked/
+
+Kill Bill: Volume 1, Sisu, Rambo, The Night Comes for Us, and more make up our list of the most violent action movies of all time.
+---------
+
+# ‘The Terminal List’ Star Chris Pratt Officially Returns With a New Military Movie This Month
+
+Movie News, Chris Pratt, Way of the Warrior Kid, Apple TV, Comedy
+
+Sun, 01 Nov 2026 23:00:12 GMT
+
+https://collider.com/chris-pratt-way-of-the-warrior-kid-release-date-apple-tv/
+
+With Terminal List dominating Prime Video, Chris Pratt's next military story has a release date. Get all the details here.
+---------
+
+# The 8 Most Fun Blockbuster Movies of All Time, Ranked
+
+Movie, Jurassic Park, The Avengers, Raiders of the Lost Ark, Back to the Future
+
+Sun, 01 Nov 2026 22:42:12 GMT
+
+https://collider.com/most-fun-blockbuster-movies-all-time-ranked/
+
+From Jurassic Park to The Mummy, these blockbusters are the most fun you'll ever have.
+---------
+
+# Jessica Chastain's 2014 Thriller Is Officially the Perfect Watch Before It Leaves Streaming for Good
+
+Movie News, A Most Violent Year, Jessica Chastain, Plex, Streaming
+
+Sun, 01 Nov 2026 22:30:11 GMT
+
+https://collider.com/a-most-violent-year-streaming-plex-november-2026/
+
+Forget Other Mommy, Jessica Chastain's 2014 crime drama A Most Violent Year is streaming for free. Read on for more.
+---------
+
+# 3 Decades Later, Stephen King's Hit Miniseries Officially Finds New Life on Streaming
+
+TV News, Stephen King, The Stand, Horror, Gary Sinise
+
+Sun, 01 Nov 2026 22:15:11 GMT
+
+https://collider.com/stephen-king-the-stand-itunes-streaming-success-october-2026/
+
+Stephen King's star-studded miniseries is seeing renewed interest on PVOD services. Get more details here.
+---------
+
+# Where ‘The Terminal List: Dark Wolf’ Fits the Original Show's Timeline
+
+TV Features, Taylor Kitsch, Chris Pratt, The Terminal List: Dark Wolf, The Terminal List
+
+Sun, 01 Nov 2026 22:14:12 GMT
+
+https://collider.com/terminal-list-dark-wolf-timeline-explained/
+
+Discover when The Terminal List: Dark Wolf is set in relation to the original series and how it expands on the backstory of Ben Edwards.
+---------
+
+# 4 Years Later, Paul Mescal's Generational Masterpiece Is Officially Streaming for Free
+
+Movie News, Paul Mescal, Aftersun, Plex, Streaming
+
+Sun, 01 Nov 2026 22:00:11 GMT
+
+https://collider.com/paul-mescal-aftersun-streaming-plex-november-2026/
+
+Paul Mescal's life-changing masterpiece Aftersun is officially streaming for free next month. Read on for more.
+---------
+
+# 8 Most Amazing Action Movies Ever Made, Ranked
+
+Movie, Action, Mad Max: Fury Road, Terminator 2: Judgment Day, Die Hard
+
+Sun, 01 Nov 2026 21:47:12 GMT
+
+https://collider.com/most-amazing-action-movies-ever-made-ranked/
+
+From Police Story to Terminator 2: Judgment Day, these eight phenomenal films prove the best action lives in human stakes, not stunts.
+---------
+
+# 'Stargate' Officially Hits Free Streaming Ahead of Prime Video's Resurrected Reboot
+
+Movie News, Stargate, Kurt Russell, James Spader, Pluto TV
+
+Sun, 01 Nov 2026 21:45:12 GMT
+
+https://collider.com/kurt-russell-sci-fi-stargate-free-streaming-pluto-tv-november-2026/
+
+Kurt Russell and James Spader’s Stargate is joining Pluto TV’s free November lineup. Revisit the sci-fi adventure that launched the franchise.
+---------
+
+# 89-Episode Dark Fantasy Action Masterpiece With a "Perfect" Ending Stages Streaming Comeback 3 Years Later
+
+TV News, Attack on Titan, Action, Fantasy, Crunchyroll, Hot on Streaming
+
+Sun, 01 Nov 2026 23:06:59 GMT
+
+https://movieweb.com/attack-on-titan-streaming-hit-november-2026/
+
+Attack on Titan is climbing Crunchyroll’s most-watched rankings again as anniversary events and franchise momentum drive fans back to the series.
+---------
+
+# Star Trek Is No Longer TV's Best Space Exploration Sci-Fi Series Thanks to a 91% RT Hit
+
+Features, Star Trek, For All Mankind, Sci-Fi, Thriller, Action, Ronald D. Moore, Patrick Stewart
+
+Sun, 01 Nov 2026 23:01:16 GMT
+
+https://movieweb.com/for-all-mankind-star-trek-comparison/
+
+With five seasons, 50 episodes and counting.
+---------
+
+# Margot Robbie's 354-Episode Breakout Role Officially Gets A Spin-Off Without Her 15 Years Later
+
+TV News, Neighbours, Margot Robbie, Drama
+
+Sun, 01 Nov 2026 22:41:40 GMT
+
+https://movieweb.com/neighbours-margot-robbie-new-release/
+
+Margot Robbie's time on an Aussie soap opera will soon get the microdrama treatment, thanks to AI
+---------
+
+# Ridley Scott's Forgotten 152-Minute Historical Action Epic Officially Lands on Free Streaming
+
+Movie News, The Last Duel, Tubi, Coming/Leaving Streaming, Ridley Scott, Action
+
+Sun, 01 Nov 2026 22:01:16 GMT
+
+https://movieweb.com/the-last-duel-stream-free-tubi-november-2026/
+
+Ridley Scott's action cult-classic is higher rated than 'Gladiator.'
+---------
+
+# Chris Pratt's New Navy SEAL Action Movie Is a "Zero Dark Thirty Meets Karate Kid" Blockbuster
+
+Features, Way of the Warrior Kid, Chris Pratt, The Karate Kid, Action, Family, Zero Dark Thirty
+
+Sun, 01 Nov 2026 22:01:16 GMT
+
+https://movieweb.com/way-of-the-warrior-kid-chris-pratt-comparison/
+
+The perfect 'Karate Kid' replacement is around the corner, with Chris Pratt leading a film adaptation of a Navy SEAL's bestselling book.
+---------
+
+# Prime Video’s Best Detective Show Is So Good, It Spawned 10 Seasons and Two Spin-offs
+
+Features, Bosch, Prime Video, Mystery
+
+Sun, 01 Nov 2026 21:30:16 GMT
+
+https://movieweb.com/bosch-prime-video-best-detective-show/
+
+Prime Video's greatest detective series had all the right ingredients for a lengthy run, and it turned that into 10 seasons and two spin-offs.
+---------
+
+# 8 Flawless Fantasy Series Where Every Book Is a 10/10
+
+TV Lists, Fantasy
+
+Sun, 01 Nov 2026 20:30:16 GMT
+
+https://movieweb.com/fantasy-series-every-book-perfect/
+
+Not every fantasy series can maintain a high quality and solid momentum throughout, but these offer a seamless experience from book to book.
+---------
+
+# "Midsommar Meets Shutter Island" in Trailer for New R-Rated Thriller That's Coming in Just 2 Months
+
+Movie News, Pendulum, Horror, Thriller
+
+Sun, 01 Nov 2026 20:26:29 GMT
+
+https://movieweb.com/pendulum-2027-official-trailer/
+
+2027 hits the ground running with a terrifying venture into folk horror.
+---------
+
+# The 'Spiritual Sequel' to 49-Year-Old Sci-Fi Thriller Classic Is Officially One of Streaming's Most-Watched Movies
+
+Movie News, Disclosure Day, Sci-Fi, Close Encounters of The Third Kind, Steven Spielberg
+
+Sun, 01 Nov 2026 20:24:48 GMT
+
+https://movieweb.com/disclosure-day-peacock-streaming-ratings/
+
+After a decent (if unremarkable) run at the box office, this new sci-fi thriller is finding a receptive audience on streaming.
+---------
+
+# Goodbye 'Lioness,' Paramount's 114-Episode Military Action Thriller Is One of 2026's Most Streamed Shows
+
+TV News, SEAL Team, Paramount Plus, Hot on Streaming, Lioness, Action, Thriller
+
+Sun, 01 Nov 2026 20:01:16 GMT
+
+https://movieweb.com/seal-team-stream-paramount-nielsen-november-2026/
+
+Who needs Taylor Sheridan when you have this intense, seven-season military thriller?
+---------
+
 # New Hogwarts Legacy Replacement Officially Arrives In 2027
 
 Gaming, Hogwarts Legacy, Triple-A Games
