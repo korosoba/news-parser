@@ -1,3 +1,311 @@
+# The Walking Dead Officially Switches Genres In Streets Of Survival, To Mixed Reviews
+
+Gaming, The Walking Dead
+
+Sun, 01 Nov 2026 08:00:18 GMT
+
+https://screenrant.com/walking-dead-streets-of-survival-genre-shift-reviews/
+
+The Walking Dead continues to be one of the most popular franchises around, but the latest adaptation isn't a standout hit.
+---------
+
+# The Best Depiction Of Dragons Isn’t In Fourth Wing, It’s In This 1995 Epic Fantasy Series
+
+Books, Fourth Wing (2023), Fantasy
+
+Sun, 01 Nov 2026 07:30:18 GMT
+
+https://screenrant.com/realm-of-the-elderlings-robin-hobb-dragons-fourth-wing-comparison/
+
+Fourth Wing has brought dragons back to the mainstream in fantasy novels, but this classic series from the '90s has even better dragon lore.
+---------
+
+# 46-Episode HBO Max Sci-Fi Series Deserves Kudos For Successfully Adapting An Unfilmable Comic Book
+
+Classic TV, Masked Recs
+
+Sun, 01 Nov 2026 07:30:18 GMT
+
+https://screenrant.com/doom-patrol-hbo-max-unfilmable-comic-book-team/
+
+HBO Max took one of the strangest and most surreal stories about the weirdest superhero team in comics and turned it into a masterpiece TV show.
+---------
+
+# Prime Video's 32-Episode Action Series Delivers A Masterclass In Adapting Books For TV
+
+TV, Masked Recs
+
+Sun, 01 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/reacher-prime-video-book-adaptation-masterclass/
+
+Prime Video's 32-episode powerhouse stretches pulpy, roadbound action thriller novels into a meticulous longform show with a towering iconic lead.
+---------
+
+# Star Trek Is Officially Bringing Back The Kelvin Timeline One Last Time
+
+Gaming, Star Trek
+
+Sun, 01 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/star-trek-kelvin-2009-movie-era-revival-online-rediscovered/
+
+Star Trek's Kelvin Timeline is one of the more interesting parts of the franchise as a whole, and it's about to return in one of the best adaptations.
+---------
+
+# 8 Episodes Of Netflix's New Fantasy Series Deliver Peak Stephen King Horror
+
+Streaming TV, Masked Recs
+
+Sun, 01 Nov 2026 05:59:34 GMT
+
+https://screenrant.com/dead-end-job-netflix-fantasy-k-drama-stephen-king-horror/
+
+Netflix’s new 8-episode fantasy series adopts an original story but is brilliantly reminiscent of many Stephen King horror tropes and story devices.
+---------
+
+# Fallout 5 Setting Officially Confirmed In New Teaser
+
+Gaming, Fallout 5
+
+Sun, 01 Nov 2026 05:30:18 GMT
+
+https://screenrant.com/fallout-5-setting-confirmed-bethesda-tease/
+
+Fallout 5 will be more familiar to fans than originally thought.
+---------
+
+# Terry Pratchett's Best Live-Action Fantasy Adaptation Takes Less Than 4 Hours To Binge
+
+TV, The Color of Magic
+
+Sun, 01 Nov 2026 05:30:18 GMT
+
+https://screenrant.com/terry-pratchett-the-color-of-magic-short-watch/
+
+Star-studded chaos and deadpan wit collide in a four-hour adaptation that channels Pratchett's surreal comic energy into an epic fantasy parody.
+---------
+
+# New Dungeons & Dragons Release Announced With Preorders Live Now
+
+Gaming, Dungeons and Dragons, tabletop games
+
+Sun, 01 Nov 2026 05:10:18 GMT
+
+https://screenrant.com/dungeons-dragons-wow-dice-backordered-preorders/
+
+Dungeons & Dragons is entering a new era this month, and the latest slate of products celebrates what might be its biggest crossover yet.
+---------
+
+# 2026 Line it is Drawn Spooktacular
+
+Comics, The Line It Is Drawn, Halloween, CSBG
+
+Sun, 01 Nov 2026 03:55:13 GMT
+
+https://www.cbr.com/2026-line-it-is-drawn-spooktacular/
+
+In a brand-new Halloween celebration, our artists got spooky just in time for the Witching Hour!
+---------
+
+# Aaron Paul & Krysten Ritter's Breaking Bad Reunion Goes Viral: 'Jesse & Jane Forever'
+
+TV, Breaking Bad
+
+Sun, 01 Nov 2026 03:55:09 GMT
+
+https://www.cbr.com/aaron-paul-krysten-ritter-breaking-bad-reunion/
+
+Former on-screen lovers Aaron Paul and Krysten Ritter have gone viral after reuniting.
+---------
+
+# Cyberpunk Anime Series Where Every Episode Is a Masterpiece
+
+Anime, Cyberpunk: Edgerunners
+
+Sun, 01 Nov 2026 03:45:11 GMT
+
+https://www.cbr.com/cyberpunk-anime-every-episode-masterpiece/
+
+Some cyberpunk anime start strong but struggle to maintain momentum. These five series stand out for their consistent storytelling.
+---------
+
+# 3 Years Later, Netflix's 100% RT Thriller Is Still TV's Best 6-Hour Binge
+
+TV, Netflix, Dear Child, Thriller, Innovation
+
+Sun, 01 Nov 2026 03:30:11 GMT
+
+https://www.cbr.com/netflix-dear-child-best-speedy-binge/
+
+Dive into the psychological thriller that leaves fans unsettled and craving answers thanks to a gripping miniseries format that keeps viewers on edge.
+---------
+
+# Legendary Hard Sci-Fi Anime Brings Back Its '80s Police Robots With a 2-in-1 Upgrade
+
+Anime, Patlabor: The TV Series, Patlabor: The Movie, merchandise, toys, action figures, collectibles
+
+Sun, 01 Nov 2026 03:30:11 GMT
+
+https://www.cbr.com/patlabor-ingram-unit2-robo-dou-action-figure-release/
+
+A beloved hard science fiction anime franchise is giving fans and collectors the chance to bring home a pair of iconic robots in one kit.
+---------
+
+# 10 Life Lessons We Learned From Charlie Brown
+
+Comics, Peanuts
+
+Sun, 01 Nov 2026 03:30:11 GMT
+
+https://www.cbr.com/life-lessons-learned-from-charlie-brown/
+
+From learning patience to deciding not to give up, several life lessons can be gleaned from Charlie Brown's adventures with the Peanuts cast.
+---------
+
+# 10 Best Pokémon TCG Chase Cards From the Sword & Shield Era, Ranked
+
+Games, Pokemon, Pokemon Trading Card Game, Pokemon TCG
+
+Sun, 01 Nov 2026 03:15:11 GMT
+
+https://www.cbr.com/pokemon-best-tcg-chase-cards-sword-shield-era/
+
+The Pokémon Trading Card Game's Sword & Shield era stretched from Feb 2020 to Jan 2023, and had some great chase cards.
+---------
+
+# 10 Classic Fighting Games That Are Unplayable Today
+
+Games, Video Games, Street Fighter, Mortal Kombat, Sonic the Hedgehog
+
+Sun, 01 Nov 2026 02:45:11 GMT
+
+https://www.cbr.com/classic-fighting-games-unplayable-today/
+
+Not every older fighting game from the '90s and 2000s was a success.
+---------
+
+# 5 Darkest Anime Ever Aired on Toonami, Ranked
+
+Anime, toonami, Attack on Titan, Innovation
+
+Sun, 01 Nov 2026 02:30:11 GMT
+
+https://www.cbr.com/darkest-toonami-anime-ever-ranked-list/
+
+A few Toonami anime, such as Attack on Titan and Paranoia Agent, are so dark they can keep viewers up all night.
+---------
+
+# 10 Greatest Sci-Fi Movie Quotes Of All Time, Ranked
+
+Movies, Sci-Fi, Terminator, Innovation
+
+Sun, 01 Nov 2026 02:20:11 GMT
+
+https://www.cbr.com/greatest-sci-fi-movie-quotes-of-all-time-ranked-list/
+
+These iconic sci-fi movie lines continue to thrill fans, spark debates, and remind us why the films became classics.
+---------
+
+# The Greatest Western of the 2010s Is a Remake That Totally Outshines the Original
+
+Movie Features, True Grit, Coen Brothers, Hailee Steinfeld, Jeff Bridges
+
+Sun, 01 Nov 2026 03:49:12 GMT
+
+https://collider.com/true-grit-2010-greatest-western-movie-remake-coen-brothers/
+
+The remake of a John Wayne classic was a better Western in every way.
+---------
+
+# The 10 Best Alternative Rock Songs of the ‘90s, Ranked
+
+Music Features, Nirvana, Pearl Jam, Rock, Music
+
+Sun, 01 Nov 2026 03:41:12 GMT
+
+https://collider.com/alternative-rock-best-songs-1990s/
+
+Top ten alternative rock songs from the 1990s, including songs by Nirvana, Pearl Jam, Soundgarden, The Cranberries, Sublime, Hole, Radiohead, R.E.M.
+---------
+
+# 7 Greatest ‘Peanuts’ Comic Strips of the 1990s, Ranked
+
+Books and Comics, Peanuts, Comics, 1990s, Family
+
+Sun, 01 Nov 2026 03:39:12 GMT
+
+https://collider.com/best-peanuts-comic-strips-1990s-ranked/
+
+I Might As Well Go Back To Sleep, You Have a Dog... Be Happy, Just Lie There and Worry, and more make our list of the best Peanuts strips of the 90s.
+---------
+
+# Prime Video's New 8-Episode Sci-Fi Series Continues a Modern Masterpiece
+
+TV Features, Prime Video, Blade Runner 2099, Hunter Schafer, Michelle Yeoh
+
+Sun, 01 Nov 2026 03:07:12 GMT
+
+https://collider.com/prime-video-blade-runner-2099-sci-fi-series-masterpiece-spinoff/
+
+'Blade Runner 2099' starring Hunter Schaffer and Michelle Yeoh is the next chapter in the iconic series.
+---------
+
+# 10 Essential Dystopian Movies, Ranked
+
+Movie, Children of Men, A Clockwork Orange, WALL-E, Sci-Fi
+
+Sun, 01 Nov 2026 03:05:12 GMT
+
+https://collider.com/dystopian-movies-essential-ranked/
+
+Children of Men, A Clockwork Orange, and Brazil are all among the best, most essential dystopian sci-fi movies ever made.
+---------
+
+# The 10 Best HBO TV Miniseries Based on Books, Ranked
+
+TV, HBO, TV Miniseries, Sharp Objects, Band of Brothers
+
+Sun, 01 Nov 2026 02:22:11 GMT
+
+https://collider.com/best-hbo-miniseries-based-on-books-ranked/
+
+From Show Me a Hero to Sharp Objects, these are the greatest and most iconic HBO limited series based on novels.
+---------
+
+# Netflix's 18-Episode Series Redefined Video Game Adaptations
+
+TV Features, Arcane, video game movies, Ella Purnell, Hailee Steinfeld
+
+Sun, 01 Nov 2026 02:21:12 GMT
+
+https://collider.com/netflix-arcane-series-redefined-video-game-adaptations/
+
+Arcane, an animated video game adaptation created by Christian Linke and Alex Yee, officially changed the genre forever.
+---------
+
+# 9 Essential Adult Animated Shows That Belong on Every Fan's Bucket List
+
+TV, Animation, Rick and Morty, Invincible, The Boondocks
+
+Sun, 01 Nov 2026 01:53:12 GMT
+
+https://collider.com/essential-adult-animated-shows-bucket-list/
+
+From sci-fi satires like Rick and Morty to superhero favorites like Invincible, fans of adult animated series should experience these shows once.
+---------
+
+# David Tennant's 6 Best Crime Thriller Series, Ranked
+
+TV Lists, Crime, David Tennant, Thriller, Broadchurch, Gracepoint
+
+Sun, 01 Nov 2026 02:00:26 GMT
+
+https://movieweb.com/david-tennant-best-crime-thrillers/
+
+From 'Broadchurch' to 'Deadwater Fell,' Scottish actor David Tennant has starred in some truly incredible TV crime thrillers.
+---------
+
 # Attack on Titan's 17-Year Journey Project Is Just 1 Month Away
 
 Anime, Attack on Titan, Attack on Titan 3
