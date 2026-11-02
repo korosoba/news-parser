@@ -1,3 +1,377 @@
+# Marvel Confirms Captain Marvel's New Superpowers After Huge Nerf
+
+Marvel Comics, Captain Marvel
+
+Mon, 02 Nov 2026 02:30:17 GMT
+
+https://screenrant.com/avengers-captain-marvel-new-powers/
+
+Captain Marvel is no longer the strongest Avenger in Marvel lore, as officially confirmed by Carol Danvers herself in Marvel's new Avengers release.
+---------
+
+# After 18 Episodes, Marshals Has Finally Separated Itself From Yellowstone
+
+Network TV, Marshals, Yellowstone
+
+Mon, 02 Nov 2026 02:30:17 GMT
+
+https://screenrant.com/marshals-season-2-episode-5-yellowstone-separate/
+
+Marshals finally establishes its own identity after 18 episodes, separating from Yellowstone's influence without losing the spark of the Sheridan hit.
+---------
+
+# PlayStation Officially Drops 4 New Free Downloads You Don't Need PS Plus For
+
+Gaming, PlayStation, Final Fantasy Resonance, Triple-A Games
+
+Mon, 02 Nov 2026 02:30:17 GMT
+
+https://screenrant.com/playstation-4-free-downloads-november-2026-demos-trials/
+
+These four free downloads available on the PlayStation Store don't require PS+, and they are more than worth taking a look at this November.
+---------
+
+# We're Officially 4 Months Away From The Best Friday The 13th Replacement Movie
+
+Movies
+
+Mon, 02 Nov 2026 02:30:17 GMT
+
+https://screenrant.com/were-officially-4-months-away-from-the-best-friday-the-13th-replacement-movie/
+
+It may be nearly 20 years since Jason Voorhees graced the big screen, but an upcoming movie is the next best thing to a new Friday the 13th movie.
+---------
+
+# New Treasure Island Adaptation Reinvents Two Major Characters From The 143-Year-Old Novel
+
+TV, Treasure Island
+
+Mon, 02 Nov 2026 02:07:33 GMT
+
+https://screenrant.com/treasure-island-new-tv-adaptation-reinvents-long-john-silver-bess-hawkins/
+
+David Oyelowo and Hayley Atwell explain how the new adaptation of Treasure Island changes their characters and sets them apart from older versions.
+---------
+
+# 76 Years Later, Charles M. Schulz's Biggest Peanuts Regret Is More Hilarious Than Ever
+
+Comics, Peanuts
+
+Mon, 02 Nov 2026 02:00:17 GMT
+
+https://screenrant.com/peanuts-schulz-creator-hated-comic-strip-name/
+
+Perhaps the most beloved comic strip of the last century, Peanuts' creator still had plenty of unresolved regrets even by its end.
+---------
+
+# Anakin Skywalker's 10 Most Impressive Clone Wars Feats
+
+Classic TV, Star Wars: The Clone Wars, Star Wars, Anakin Skywalker/Darth Vader
+
+Mon, 02 Nov 2026 02:00:17 GMT
+
+https://screenrant.com/anakin-skywalker-most-impressive-clone-wars-feats/
+
+Anakin Skywalker achieved quite a bit in Star Wars: The Clone Wars, but these 10 feats were the most influential and impressive things he did.
+---------
+
+# 5 Best New Prime Video Series To Binge-Watch This Week (November 2–6, 2026)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 02 Nov 2026 01:41:18 GMT
+
+https://screenrant.com/best-new-prime-video-shows-to-watch-week-november-2-2026/
+
+The Greatest, The Terminal List, Carrie, Devil's Crest, and Campus Drivers lead Prime Video's best new series to binge this week,  November 2–6, 2026.
+---------
+
+# Best Movies Streaming For Free In November 2026, Including Jack Reacher
+
+Movies, Tubi TV
+
+Mon, 02 Nov 2026 01:32:38 GMT
+
+https://screenrant.com/best-movies-streaming-free-november-2026/
+
+The best movies streaming for free in November include The Hunger Games films, a Jack Reacher adaptation, a Best Picture Oscar winner, and many more.
+---------
+
+# After 32 Years, The Original Power Rangers Are Returning For Start Of New Mighty Morphin' Era
+
+Comics, Power Rangers, BOOM! Studios
+
+Mon, 02 Nov 2026 01:30:17 GMT
+
+https://screenrant.com/original-power-rangers-return-new-era-mighty-morphin/
+
+The original Power Rangers officially reunite in 2027 for a brand-new adventure set after the events of the original television series.
+---------
+
+# Scarlett Johansson's Forgotten Space Opera on Netflix Is Mandatory Viewing for Sci-Fi Fans
+
+Movies, Transformers One, Sci-Fi, Netflix, Innovation
+
+Mon, 02 Nov 2026 02:30:11 GMT
+
+https://www.cbr.com/scarlett-johansson-transformers-one-best-sci-fi-netflix/
+
+Scarlett Johansson's best sci-fi movie is the one you probably haven't seen.
+---------
+
+# 10 Underrated Netflix Anime That Are 10/10 Masterpieces
+
+Anime, Netflix, Innovation, Pluto, Kotaro Lives Alone, Blue Period
+
+Mon, 02 Nov 2026 02:25:11 GMT
+
+https://www.cbr.com/underrated-masterpiece-netflix-anime/
+
+A lot of the anime on Netflix is good, but the rare gem masterpieces are the ones fans often miss.
+---------
+
+# Steven Spielberg & Tom Cruise's Futurist Crime Thriller Is Available to Stream for Free Today
+
+Movies, Minority Report
+
+Mon, 02 Nov 2026 02:00:11 GMT
+
+https://www.cbr.com/steven-spielberg-tom-cruise-minority-report-pluto-tv-november-2026/
+
+One of the best sci-fi crime thrillers of the 2000s now has a brand-new streaming home, and it is available to watch without any paid subscription.
+---------
+
+# 5 Anime Demons Stronger Than Muzan Kibutsuji
+
+Anime, Demon Slayer, Innovation
+
+Mon, 02 Nov 2026 01:45:11 GMT
+
+https://www.cbr.com/demon-slayer-anime-demons-stronger-muzan-list/
+
+Muzan from Demon Slayer is one of the deadliest anime villains ever, but some demonic anime characters are even stronger.
+---------
+
+# Prime Video Finds Global Hit in Sequel to 2-Year-Old Zombie Movie After Changing the Format
+
+Movies, Apocalypse Z: The Beginning of the End, Prime Video
+
+Mon, 02 Nov 2026 01:30:11 GMT
+
+https://www.cbr.com/apocalyse-z-new-world-zombie-prime-video-global-success-november-2026/
+
+The zombie horror genre has never lacked new entries and Prime Video thrived with the 2024 release.
+---------
+
+# 10 Most Unplayable Classic '90s Games
+
+Games, Innovation, Video Games, Mortal Kombat II
+
+Mon, 02 Nov 2026 01:30:11 GMT
+
+https://www.cbr.com/unplayable-classic-90s-games/
+
+The 1990s were an iconic era for video games, but not every classic holds up by today's standards.
+---------
+
+# 7 Strongest Characters in Dragon Ball Super: Beerus, Ranked
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball, Innovation
+
+Mon, 02 Nov 2026 01:15:11 GMT
+
+https://www.cbr.com/dragon-ball-super-beerus-official-strongest-characters-ranked/
+
+Dragon Ball Super: Beerus is filled with powerhouse characters far stronger than the cast of DBZ.
+---------
+
+# 9 Things That Make No Sense About The Gray Jedi Code (& 1 That Does)
+
+Movies, Star Wars, Sci-Fi
+
+Mon, 02 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/star-wars-gray-jedi-code-ranked-list/
+
+In Star Wars, Gray Jedi were a group who split from the Jedi order. Their belief in using the light and dark side of the force is mostly misguided.
+---------
+
+# Animal Crossing Fans Officially Get New Cozy Sci-Fi Game for Nintendo Switch 2 in 2027
+
+Anime, Animal Crossing, Nintendo Switch, Steam
+
+Mon, 02 Nov 2026 01:00:11 GMT
+
+https://www.cbr.com/petit-planet-nintendo-switch-2-2027-release/
+
+Nintendo Switch 2 owners are getting a new Animal Crossing alternative: a cozy galactic life sim arriving in 2027.
+---------
+
+# 10 Masterpiece PS1 Games Better Than Castlevania: Symphony of the Night
+
+Games, Video Games, Castlevania: Symphony of the Night
+
+Mon, 02 Nov 2026 01:00:11 GMT
+
+https://www.cbr.com/masterpiece-ps1-games-better-than-castlevania-symphony-of-the-night/
+
+Symphony of the Night is a masterpiece, but it had fierce competition on the PS1, like Tomb Raider and Crash Bandicoot.
+---------
+
+# The Best Thriller Movie From Every Year of the 1990s
+
+Movie, 1990s, Thriller, The Silence of the Lambs, Se7en
+
+Mon, 02 Nov 2026 02:22:11 GMT
+
+https://collider.com/best-90s-thriller-movies-each-year/
+
+From the Stephen King adaptation Misery to the mind-blowing masterpiece The Sixth Sense, the 1990s featured one excellent thriller after another.
+---------
+
+# The 10 Best Netflix Shows With Less Than 20 Episodes, Ranked
+
+TV, Netflix, When They See Us, The Haunting of Hill House, Adolescence
+
+Mon, 02 Nov 2026 01:02:11 GMT
+
+https://collider.com/best-netflix-shows-shorter-than-20-episodes/
+
+There are the best Netflix shows that excel with fewer than 20 episodes, including The Haunting of Hill House, Adolescence, and Midnight Mass.
+---------
+
+# Forget 'Bosch,' Titus Welliver Stole the Show in One of Sci-Fi's Greatest Franchises
+
+TV Features, Titus Welliver, The Mandalorian, Star Wars, Disney+
+
+Mon, 02 Nov 2026 00:27:11 GMT
+
+https://collider.com/the-mandalorian-season-2-titus-welliver-cameo/
+
+Titus Welliver’s scene-stealing role in The Mandalorian episode “The Heiress” improved one of the show’s most exciting installments.
+---------
+
+# 8 Most Perfect HBO Shows of the Last 5 Years, Ranked
+
+TV, HBO, House of the Dragon, The Gilded Age, Mare of Easttown
+
+Mon, 02 Nov 2026 00:21:12 GMT
+
+https://collider.com/most-perfect-hbo-shows-last-5-years-ranked/
+
+The Gilded Age, House of the Dragon, and The White Lotus are among the best HBO shows of the last 5 years, but which series is the greatest?
+---------
+
+# The Perfect 'Gone Girl' Replacement Is Officially Streaming for Free Next Month
+
+Movie News, Dark Places, Gone Girl, Plex, Streaming
+
+Mon, 02 Nov 2026 00:15:11 GMT
+
+https://collider.com/charlize-theron-dark-places-streaming-plex-november-2026/
+
+Charlize Theron's Dark Places, a perfect option for Gone Girl fans, is streaming for free next month. Read on for more details.
+---------
+
+# Matt Damon's Beloved ’90s Classic Is Officially Streaming on Prime Video
+
+Movie News, Good Will Hunting, Matt Damon, The Odyssey, Prime Video
+
+Mon, 02 Nov 2026 00:00:12 GMT
+
+https://collider.com/matt-damon-good-will-hunting-streaming-prime-video-november-2026/
+
+One of Matt Damon's most memorable films is back on streaming nearly three decades after its theatrical release. Find out where to watch it here.
+---------
+
+# 26 Years Later, 'Star Trek's Spiritual Successor Is Waiting To Be Discovered on Streaming
+
+TV Features, Star Trek, Andromeda, Gene Roddenberry, Sci-Fi
+
+Sun, 01 Nov 2026 23:46:12 GMT
+
+https://collider.com/andromeda-star-trek-sci-fi-series-streaming/
+
+Gene Roddenberry's known for Star Trek, but his 5-season series Andromeda is a perfect binge for sci-fi fans.
+---------
+
+# 'The Boys' Favorite Officially Goes Full Horror in This New Free Streaming Gem
+
+Movie News, Cobweb, The Boys, Horror, Plex
+
+Sun, 01 Nov 2026 23:45:12 GMT
+
+https://collider.com/antony-starr-horror-cobweb-streaming-plex-november-2026/
+
+The Boys favorite Antony Starr's horror gem is officially moving to a free streamer next month. Read on for more.
+---------
+
+# One of the Best Final Fantasy Games Is Officially Taking Over Xbox
+
+Gaming News, Final Fantasy, Final Fantasy VII Remake, Final Fantasy VII Remake Intergrade, Xbox Series X/S
+
+Sun, 01 Nov 2026 23:30:12 GMT
+
+https://collider.com/final-fantasy-7-remake-intergrade-xbox-game-pass/
+
+Final Fantasy 7 Remake Intergrade has joined Xbox Game Pass. Here’s which subscriptions include it and where you can play.
+---------
+
+# 7 Near-Perfect TV Shows Held Back by a Single Season
+
+TV Lists
+
+Mon, 02 Nov 2026 02:03:10 GMT
+
+https://movieweb.com/tv-shows-almost-perfect-bad-season/
+
+These TV shows were consistently great throughout their run, but their legacies are tarnished by a single season that didn't match the rest.
+---------
+
+# Doctor Doom Is Already Box Office Gold After Crushing DC's $170M Sci-Fi Action Flop
+
+Movie News, Avengers: Doomsday, Box Office Milestones, Superhero, Supergirl
+
+Mon, 02 Nov 2026 01:00:16 GMT
+
+https://movieweb.com/avengers-doomsday-presales/
+
+Avengers: Doomsday has reportedly racked up presales that are already approaching the full global box office total of DC’s Supergirl.
+---------
+
+# Forget 'Indiana Jones,' Chuck Norris's 40-Year-Old Action Adventure Classic Is Taking Over Free Streaming
+
+Movie News, Firewalker, Hot on Streaming, Tubi, Chuck Norris, Adventure
+
+Mon, 02 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/firewalker-streaming-hit-november-2026/
+
+Firewalker is now one of the most-watched movies on Tubi in the U.S.
+---------
+
+# Netflix's New Fantasy Franchise With 33 Years of Lore Is Already Much Bigger Than Peak 'Game of Thrones'
+
+Features, Fantasy, Game Of Thrones, Netflix, Warcraft
+
+Mon, 02 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/warcraft-netflix-game-of-thrones-comparison/
+
+This franchise has a bigger audience and way more lore from the get-go. Scale isn't everything, but it's a great start for a competitor.
+---------
+
+# Netflix's New World War II Epic Officially Compared To "Intense" Psychological Thriller
+
+Exclusives, The Mosquito Bowl, Peter Berg, War, Drama, Action, Thriller
+
+Sun, 01 Nov 2026 23:23:36 GMT
+
+https://movieweb.com/the-mosquito-bowl-climax-movie/
+
+Director Peter Berg's war drama draws from a surprisingly unlikely inspiration.
+---------
+
 # Netflix Will Smash The Crown & Bridgerton With One Single Release Next Month
 
 Streaming TV, Netflix
