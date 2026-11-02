@@ -1,3 +1,355 @@
+# 16 Episodes Of Netflix's R-Rated Thriller Deliver Peak Psychological Horror
+
+Classic TV, Masked Recs
+
+Mon, 02 Nov 2026 07:30:18 GMT
+
+https://screenrant.com/the-glory-netflix-r-rated-thriller-psychological-horror/
+
+Netflix is the streaming home of a gripping 16-episode thriller that remains intense throughout its runtime and delivers peak psychological horror.
+---------
+
+# Star Trek: Klingon Fury Officially Arrives On November 13
+
+Gaming, Star Trek, Star Trek: The Next Generation, Star Trek: Deep Space Nine, PC, Magic: The Gathering
+
+Mon, 02 Nov 2026 07:30:18 GMT
+
+https://screenrant.com/star-trek-klingon-fury-mtg-cards/
+
+Star Trek: Klingon Fury officially brings back the iconic Worf's classic look, as well as Kang, Martok, Voq, and multiple other Klingon legends.
+---------
+
+# The Battlestar Galactica Franchise Officially Returns In 2027
+
+Gaming, Battlestar Galactica
+
+Mon, 02 Nov 2026 07:00:17 GMT
+
+https://screenrant.com/battlestar-galactica-board-game-2027-official-return-confirmed/
+
+Explore the return of Battlestar Galactica with a new board game launching in 2027, revitalizing the classic experience.
+---------
+
+# Dungeon Crawler Carl: The Royal Court Officially Releases This Month
+
+Gaming, Dungeon Crawler Carl
+
+Mon, 02 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/dungeon-crawler-carl-royal-court-november-2026/
+
+Explore Dungeon Crawler Carl: The Royal Court TTRPG launching this month with miniatures and rulebooks available now.
+---------
+
+# All 56 Episodes Of Prime Video's Fantasy Franchise Deliver D&D Adventure At Its Best
+
+TV, Dungeons & Dragons
+
+Mon, 02 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/prime-video-critical-role-franchise-best-fantasy-adventure/
+
+Focused character work and comic worldbuilding turn familiar quests into emotional, unpredictable journeys in Prime Video's fantasy masterpiece.
+---------
+
+# Matt Damon & David Letterman Just Had A Secret Cameo In HBO’s The Gilded Age
+
+Streaming TV, The Gilded Age, Matt Damon, David Letterman
+
+Mon, 02 Nov 2026 06:23:15 GMT
+
+https://screenrant.com/gilded-age-matt-damon-david-letterman-season-4-premiere-cameo/
+
+The Gilded Age season 4's premiere had a wedding, a birth, a secret hotel dalliance, and... Matt Damon and David Letterman making a cameo?
+---------
+
+# Pokémon TCG Confirms New Set Releasing November 27
+
+Gaming, Pokemon Trading Card Game, Pokemon
+
+Mon, 02 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/pokemon-tcg-new-set-november-27-aura-seeker/
+
+The Pokémon Trading Card Game has officially confirmed a new set is releasing on November 27, giving us an early glimpse of 2027's first expansion.
+---------
+
+# HBO's 'Lost But Better' Mystery Series Deserves Credit For Ending At The Perfect Time
+
+TV, Masked Recs
+
+Mon, 02 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/the-leftovers-end-perfect-time-hbo-series/
+
+Three seasons of patient, emotionally raw storytelling saw HBO's classic reward close viewing by favoring human consequences over puzzle chasing.
+---------
+
+# Metal Gear Solid 6 Tease Leaves Gamers Seriously Conflicted
+
+Gaming, Metal Gear Solid
+
+Mon, 02 Nov 2026 05:30:18 GMT
+
+https://screenrant.com/metal-gear-solid-6-no-kojima/
+
+Gamers debate the future of Metal Gear Solid without Kojima.
+---------
+
+# Xbox Game Pass Adds 5 New Games For November 2026
+
+Gaming, Xbox Game Pass
+
+Mon, 02 Nov 2026 05:02:18 GMT
+
+https://screenrant.com/xbox-game-pass-november-2026-free-games-confirmed/
+
+Xbox Game Pass has confirmed five new games will arrive on the subscription service at no additional cost, and the first title drops today.
+---------
+
+# 10 Untouchable '90s Games Nobody Remembers
+
+Games, retro games, Innovation
+
+Mon, 02 Nov 2026 04:55:11 GMT
+
+https://www.cbr.com/untouchable-90s-games-nobody-remembers-list/
+
+'90s games like System Shock stand as some of the best games of their decade, even though they've been forgotten.
+---------
+
+# 10 Strongest Pokémon Owned by Team Rocket, Ranked
+
+Anime, Pokemon
+
+Mon, 02 Nov 2026 04:45:11 GMT
+
+https://www.cbr.com/strongest-pokemon-owned-by-team-rocket/
+
+Across the Pokémon anime, these are the strongest partners to ever fight alongside Team Rocket.
+---------
+
+# Legendary Cartoon Network Anime Officially Returns With All 26 Episodes
+
+Anime, The Big O, merchandise
+
+Mon, 02 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/the-big-o-complete-series-blu-ray-release/
+
+One of the most beloved Cartoon Network/Toonami anime of all time is finally back in its entirety, and fans couldn't be happier to revisit The Big O.
+---------
+
+# Orlando Bloom's 2-Season Prime Video Show Is the Last Great Fantasy Series of Its Kind
+
+TV, Fantasy, Carnival Row, Prime Video
+
+Mon, 02 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/prime-video-carnival-row-fantasy-end-of-an-era/
+
+Prime Video has delivered some amazing fantasy shows, but only one marked the end of an era for the fantasy TV genre.
+---------
+
+# Top 10 Peanuts Specials (According to IMDb)
+
+TV, Peanuts
+
+Mon, 02 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/top-peanuts-specials-according-to-imdb/
+
+Charlie Brown and the rest of the Peanuts gang have gone beyond their comic strips with their specials. These are some of the best ones based on IMDb.
+---------
+
+# 10 Dreamcast Games That Were Years Ahead of Their Time
+
+Games, dreamcast, Video Games
+
+Mon, 02 Nov 2026 04:15:11 GMT
+
+https://www.cbr.com/dreamcast-games-ahead-of-their-time/
+
+Gamers back around the late '90s and early 2000s just couldn't understand Dreamcast classics like Seaman and Typing of the Dead.
+---------
+
+# 10 Greatest Film Noir Movies Released Since 2000
+
+Movies, Crime, Thriller, Innovation
+
+Mon, 02 Nov 2026 04:00:11 GMT
+
+https://www.cbr.com/best-film-noir-movies-since-2000-list/
+
+The 21st century has provided some truly classic film noir movies, and these 10 stand as the very best of the last 26 years.
+---------
+
+# 10 Most Unplayable Sega Genesis Games, Ranked
+
+Games, Sega Genesis, Video Games, Gaming
+
+Mon, 02 Nov 2026 03:45:11 GMT
+
+https://www.cbr.com/most-unplayable-sega-genesis-games-ranked/
+
+The Sega Genesis is a beloved classic video game console, but some of its classic games have aged like milk.
+---------
+
+# 10 Best Anime That Ended in the Last 10 Years, Ranked
+
+Anime, Innovation
+
+Mon, 02 Nov 2026 03:30:11 GMT
+
+https://www.cbr.com/best-finished-anime-last-10-years-list/
+
+Anime like My Hero Academia are now finished, and they stayed strong from beginning to end.
+---------
+
+# Sydney Sweeney's Controversial $220M R-Rated Comedy Is 1 of the Most-Watched Movies on Streaming
+
+Movies, Anyone But You, The Housemaid
+
+Mon, 02 Nov 2026 03:00:21 GMT
+
+https://www.cbr.com/sydney-sweeney-anyone-but-you-hbo-max-success-november-2026/
+
+Sweeney has not just one but two films in the Top 10.
+---------
+
+# The 15 Best Epic Animated Movies, Ranked
+
+Movie, Animation, The Prince of Egypt, Princess Mononoke, Fantasia
+
+Mon, 02 Nov 2026 10:11:12 GMT
+
+https://collider.com/best-epic-animated-movies-ranked/
+
+Animation has produced some of cinema's best epic movies, from Disney's The Hunchback of Notre Dame to DreamWorks' The Prince of Egypt.
+---------
+
+# Forget 'Saving Private Ryan,' This World War II Movie Is the Perfect Replacement
+
+Movie Features, Alec Guinness, The Bridge On The River Kwai, Lawrence of Arabia, Saving Private Ryan
+
+Mon, 02 Nov 2026 10:09:12 GMT
+
+https://collider.com/bridge-on-the-river-kwai-saving-private-ryan-replacement-streaming-youtube-november-2026/
+
+David Lean crafted one of the all-time great World War II films with 1958's Bridge on the River Kwai, now streaming free on YouTube.
+---------
+
+# The Biggest Horror Movie of 2026 Is Officially Ready to Scare Netflix
+
+Movie News, Obsession, Curry Barker, Inde Navarrette, Netflix
+
+Mon, 02 Nov 2026 10:00:12 GMT
+
+https://collider.com/curry-barker-obsession-streaming-netflix-november-2026/
+
+The 2026 horror thriller Obsession is officially heading to Netflix, bringing one of the year's biggest genre sensations to a new streaming home.
+---------
+
+# ‘The Terminal List’ Showrunner Confirms the Franchise’s Future on Prime Video and Potential Spin-Off Plans
+
+Interviews, The Terminal List, David DiGilio, Chris Pratt, The Terminal List: Dark Wolf
+
+Mon, 02 Nov 2026 09:00:11 GMT
+
+https://collider.com/the-terminal-list-showrunner-david-digilio-season-3-plans/
+
+Showrunner David DiGilio discusses The Terminal List Season 2, James Reece's redemption, what he's hoping to explore in Season 3, possible spin-offs.
+---------
+
+# These 7 Songs From the '60s Laid the Foundation for Alternative Rock
+
+Music Features, Rock, The Beatles, David Bowie, The Kinks
+
+Mon, 02 Nov 2026 05:08:11 GMT
+
+https://collider.com/alternative-rock-songs-1960s/
+
+Innovative rock music from the 1960s that informed alternative rock, including songs from The Beatles, Jimi Hendrix, David Bowie and more.
+---------
+
+# 8 Years Later, Harlan Coben's First Netflix Miniseries Is Still His Best
+
+TV Features, Safe, Harlan Coben, Netflix, Michael C. Hall
+
+Mon, 02 Nov 2026 04:59:12 GMT
+
+https://collider.com/safe-harlan-coben-best-netflix-miniseries/
+
+8 years after its premiere, Harlan Coben's first-ever Netflix miniseries remains his best, thanks to a thrilling performance from Michael C. Hall.
+---------
+
+# Quentin Tarantino's Worst Film Still Manages To Deliver a Stellar Walton Goggins Performance
+
+Movie Features, The Hateful Eight, Walton Goggins, Quentin Tarantino, Samuel L. Jackson
+
+Mon, 02 Nov 2026 04:49:51 GMT
+
+https://collider.com/hateful-eight-walton-goggins-performance-quentin-tarantino/
+
+While The Hateful Eight is one of Quentin Tarantino's worst films, Walton Goggins delivers one of the director's best characters in it.
+---------
+
+# 6 Classic Fantasy Books That Rival Harry Potter
+
+Books and Comics, Fantasy, Harry Potter, The Lord of the Rings, Merlin
+
+Mon, 02 Nov 2026 04:22:12 GMT
+
+https://collider.com/classic-fantasy-books-rival-harry-potter/
+
+From The Lord of the Rings to The Once and Future King, these classic fantasy books feature a rich lore that rivals the Harry Potter series.
+---------
+
+# 6 Crime Miniseries That Are 10/10 With No Weak Episodes, Ranked
+
+TV, Crime, TV Miniseries, Mare of Easttown, Unbelievable
+
+Mon, 02 Nov 2026 04:05:12 GMT
+
+https://collider.com/best-crime-miniseries-perfect-ranked/
+
+Crime drama has been produced many of the miniseries format's most defining triumphs, including Mare of Easttown, Unbelievable, and Sharp Objects.
+---------
+
+# ‘Youth’ Creator Addresses That Finale Breakup and the HBO Show's Future
+
+Interviews, Sharon Horgan, Youth, HBO Max, Bad Sisters
+
+Mon, 02 Nov 2026 03:35:12 GMT
+
+https://collider.com/youth-finale-breakup-season-2-sharon-horgan/
+
+Sharon Horgan discusses Youth, the finale breakup, the possibility of Season 2, and whether she'd want to do a third season of Bad Sisters.
+---------
+
+# Taylor Sheridan’s Greatest Western Was So Perfect, It Made Sam Elliott Want to Work With Him
+
+Features, 1883, Yellowstone, Taylor Sheridan, Western
+
+Mon, 02 Nov 2026 03:30:16 GMT
+
+https://movieweb.com/1883-sam-elliot-performance/
+
+Although icon Sam Elliott noted that he didn't like Taylor Sheridan's 'Yellowstone', a different script changed his perspective on working together.
+---------
+
+# 'Tracker' Season 4 Officially Rewrites the Rules of CBS' Action Thriller
+
+Features, Action, Thriller, Tracker
+
+Mon, 02 Nov 2026 03:06:16 GMT
+
+https://movieweb.com/tracker-season-4-jensen-ackles-change/
+
+'Tracker' Season 4, Episode 5 aired on Sunday, November 1, 2026, and finds Colter Shaw (Justin Hartley) working on an interesting case.
+---------
+
 # Marvel Confirms Captain Marvel's New Superpowers After Huge Nerf
 
 Marvel Comics, Captain Marvel
