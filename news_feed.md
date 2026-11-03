@@ -1,3 +1,344 @@
+# PlayStation Plus Officially Drops 5 New Free Games You Can Download Now
+
+Gaming, PlayStation Plus
+
+Tue, 03 Nov 2026 10:09:22 GMT
+
+https://screenrant.com/playstation-plus-5-free-games-november-2026/
+
+PlayStation Plus is back at it again for another month, and the essentials tier comes with plenty of options for players to enjoy.
+---------
+
+# Every Major Sequel & Series Continuation Still To Come In 2026
+
+Books, Fantasy, Sci-Fi, Romance
+
+Tue, 03 Nov 2026 09:11:59 GMT
+
+https://screenrant.com/major-book-sequels-series-continuations-november-december-2026/
+
+The year isn't over yet, and readers still have a few major sequels and new series installments to look forward to as we round out 2026.
+---------
+
+# Netflix's Bass X Machina Is An Enthralling Mix Of Westerns & Anime | Review
+
+Streaming TV, Bass X Machina, Bass x Machina - Season 1, Netflix
+
+Tue, 03 Nov 2026 08:01:20 GMT
+
+https://screenrant.com/bass-x-machina-netflix-review/
+
+Netflix's Bass X Machina is a glorious mixture of old-school Western thrills, steampunk anime, and an outright thrilling soundtrack and score.
+---------
+
+# Jason Momoa's 12-Part Neo-Western, Based On A True Story, Has Hit Netflix At The Perfect Time
+
+Classic TV, Jason Momoa
+
+Tue, 03 Nov 2026 08:00:18 GMT
+
+https://screenrant.com/the-red-road-netflix-series-perfect-time/
+
+Influenced by The Shield and The Wire, this compact, morally tangled, grimy Neo-western cop drama places Jason Momoa in a fiercely conflicted role.
+---------
+
+# Prime Video's 32-Episode Action Series Deserves Kudos For Successfully Adapting The Source Material
+
+Streaming TV, Masked Recs
+
+Tue, 03 Nov 2026 07:31:18 GMT
+
+https://screenrant.com/invincible-prime-video-successfully-adapts-comic-book/
+
+One of Prime Video’s greatest action shows does an incredible job of translating its source material to the screen and capturing its true essence.
+---------
+
+# Alien Meets Interstellar In Netflix's 8-Part Lovecraftian Sci-Fi Series
+
+TV, Masked Recs
+
+Tue, 03 Nov 2026 07:02:18 GMT
+
+https://screenrant.com/the-silent-sea-netflix-alien-meets-interstellar/
+
+In Netflix's underrated sci-fi, a moonbound rescue mission unravels into claustrophobic body horror amid abandoned lab ruins and desperate survival.
+---------
+
+# The Elder Scrolls: Valenwood Officially Releases This Month
+
+Gaming, The Elder Scrolls 6, The Elder Scrolls, PC
+
+Tue, 03 Nov 2026 07:00:17 GMT
+
+https://screenrant.com/elder-scrolls-valenwood-november-2026-release-reminder/
+
+As fans wait for the eventual release of Elder Scrolls 6, they can officially check out TES: Valenwood later this month.
+---------
+
+# 26 Episodes Of Netflix's Best Time Travel Show Leave Zero Plot Holes
+
+Classic TV, Masked Recs
+
+Tue, 03 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/dark-time-travel-show-netflix-zero-plot-holes/
+
+One of Netflix’s greatest sci-fi shows brilliantly uses time travel as a narrative device and surprisingly leaves no plot holes in its 26 episodes.
+---------
+
+# All 66 Episodes Of Hulu's R-Rated Thriller Deliver Psychological Horror At Its Best
+
+TV, The Handmaid's Tale
+
+Tue, 03 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/the-handmaids-tale-hulu-best-psychological-horror/
+
+One acclaimed Hulu sci-fi series was secretly also a masterpiece of psychological horror thanks to the sheer dread of the show's storyline.
+---------
+
+# The Star Trek Franchise Officially Reunites Kirk And Spock On November 13
+
+Gaming, Star Trek, Star Trek: The Next Generation, Star Trek: The Original Series, PC, Magic: The Gathering
+
+Tue, 03 Nov 2026 05:30:18 GMT
+
+https://screenrant.com/star-trek-kirk-spock-november-13-2026/
+
+November 13 is a huge day for longtime Star Trek fans, with Captain Kirk and Spock officially reuniting alongside several other beloved characters.
+---------
+
+# 10 Hardest Action RPGs of All Time, Ranked
+
+Games, Role Playing Game, Innovation
+
+Tue, 03 Nov 2026 04:45:11 GMT
+
+https://www.cbr.com/hardest-action-rpgs-of-all-time-list/
+
+Action RPGs like Bloodborne and Elden Ring will test players at every turn.
+---------
+
+# Anthony Hopkins' 48-Year-Old Horror Cult Classic Gets a New Physical Release
+
+Movies, Magic
+
+Tue, 03 Nov 2026 04:42:43 GMT
+
+https://www.cbr.com/magic-4k-blu-ray-release/
+
+The forgotten Anthony Hopkins horror movie now looks better than ever before.
+---------
+
+# Apple TV's 'Unfilmable' Space Opera Series Beats Star Wars at Its Own Game
+
+TV, Foundation, Apple TV, Sci-Fi
+
+Tue, 03 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/apple-tv-foundation-better-sci-fi-than-star-wars/
+
+Foundation is Apple TV's best sci-fi show, and while it was thought impossible to adapt, it secretly is everything Star Wars wants to be.
+---------
+
+# The Heartwarming Story Behind Peanuts' Linus van Pelt, and Charles Schulz's Inspiration For His Name
+
+Comics, Peanuts
+
+Tue, 03 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/peanuts-linus-van-pelt-charles-schulz-name-explained/
+
+Charles M. Schulz had a few unforgettable stories behind the creation of his Peanuts characters, though one of the best is about Linus van Pelt.
+---------
+
+# 7 Most Unwatchable Anime That Aired On Cartoon Network
+
+Anime, Cartoon Network, Innovation
+
+Tue, 03 Nov 2026 04:15:11 GMT
+
+https://www.cbr.com/unwatchable-anime-that-aired-on-cartoon-network-list/
+
+Cartoon Network introduced the world to anime like Dragon Ball Z, but some series haven't stood the test of time.
+---------
+
+# Patrick Stewart's 'Brutally Satisfying' R-Rated Horror Flick Now Streaming for Free
+
+Movies, Green Room
+
+Tue, 03 Nov 2026 04:14:27 GMT
+
+https://www.cbr.com/green-room-free-streaming-just-watch-tv-november-2026/
+
+Patrick Stewart delivered an unforgettable performance as a ruthless villain in the underseen horror thriller.
+---------
+
+# My Hero Academia Star Defends Anime's Most Hated Character: 'He Was Just a Kid'
+
+Anime, My Hero Academia, voice actors
+
+Tue, 03 Nov 2026 04:10:11 GMT
+
+https://www.cbr.com/my-hero-academia-brina-palencia-mineta-defend-interview/
+
+Maybe anime's most divisive character deserves to be understood a bit more.
+---------
+
+# Masterpiece Isekai Anime With Better Heroes Than Mushoku Tensei
+
+Anime, Isekai, Mushoku Tensei: Jobless Reincarnation, Innovation, Re:Zero -Starting Life in Another World-
+
+Tue, 03 Nov 2026 03:45:11 GMT
+
+https://www.cbr.com/masterpiece-isekai-anime-better-heroes-than-mushoku-tensei/
+
+These six isekai anime feature heroes with stronger character arcs, more appealing personalities, and plenty of memorable moments.
+---------
+
+# Mckenna Grace Refuses Nudity & Sexual Roles: 'My Dream Is to Be a Disney Princess Someday'
+
+Movies
+
+Tue, 03 Nov 2026 03:37:42 GMT
+
+https://www.cbr.com/mckenna-grace-rejects-nudity-disney-princess/
+
+Modern scream queen Mckenna Grace explains why she rejects movie roles that are too sexual.
+---------
+
+# 4 Masterpiece SNES Games Better Than Chrono Trigger
+
+Games, Nintendo, Chrono Trigger, The Legend of Zelda: A Link to the Past, Innovation
+
+Tue, 03 Nov 2026 03:30:11 GMT
+
+https://www.cbr.com/snes-masterpieces-better-than-chrono-trigger/
+
+Chrono Trigger is one of the greatest SNES games ever made, but there are a few masterpieces of the era that give it a run for its money.
+---------
+
+# Kevin Costner's 'The Mummy' Replacement Is Officially Back on Streaming
+
+Movie Features, Robin Hood: Prince of Thieves, Kevin Costner, The Mummy, Alan Rickman
+
+Tue, 03 Nov 2026 10:10:12 GMT
+
+https://collider.com/kevin-costner-robin-hood-prince-of-thieves-the-mummy-streaming-november-2026/
+
+The English folk hero was given the Hollywood treatment in Kevin Costner's 1991 hit Robin Hood: Prince of Thieves, now streaming.
+---------
+
+# Quentin Tarantino's Next Movie Officially Removed From 43% of Theaters
+
+Movie News, The Further Mis-Adventures of Cliff Booth, Quentin Tarantino, Once Upon a Time in Hollywood, Brad Pitt
+
+Tue, 03 Nov 2026 10:00:12 GMT
+
+https://collider.com/cliff-booth-netflix-imax-regal-cinemark-theater-release/
+
+Netflix's Cliff Booth movie has lost access to Regal and Cinemark's IMAX screens ahead of its November 25 theatrical release.
+---------
+
+# The 15 Best Miniseries of the 1970s, Ranked
+
+TV, 1970s, Roots, Tinker Tailor Soldier Spy, From Here to Eternity
+
+Tue, 03 Nov 2026 09:58:12 GMT
+
+https://collider.com/70s-miniseries-best-ranked/
+
+The 1970s introduced an array of new stories with hit miniseries such as Roots, King, and Tinker Tailor Soldier Spy. Which is the best one?
+---------
+
+# Harry Potter Officially Returns on November 17
+
+Books and Comics News, Harry Potter, Harry Potter and the Sorcerer's Stone
+
+Tue, 03 Nov 2026 09:00:12 GMT
+
+https://collider.com/harry-potter-philosophers-stone-gryffindor-common-room-audioscapes-november-17/
+
+Harry Potter returns November 17 with a new immersive Dolby Atmos audio experience recreating the Gryffindor common room.
+---------
+
+# Netflix's 'Bass X Machina' Is the Dark Western Epic You Didn't Know You Needed | Review
+
+TV Reviews, Netflix, Bass X Machina, Brian Tyree Henry, Western
+
+Tue, 03 Nov 2026 08:01:13 GMT
+
+https://collider.com/bass-x-machina-review-netflix/
+
+Brian Tyree Henry leads an all-star cast in Netflix's out-of-this-world steampunk Western epic Bass X Machina.
+---------
+
+# Every Jane Austen Love Interest, Ranked
+
+Books and Comics, Jane Austen, Pride and Prejudice, Sense and Sensibility, Emma.
+
+Tue, 03 Nov 2026 05:18:12 GMT
+
+https://collider.com/jane-austen-love-interests-ranked/
+
+From Sense and Sensibility's Colonel Brandon to Pride and Prejudice's Mr. Darcy, who is the most romantic love interest found in Jane Austen's books?
+---------
+
+# This Sci-Fi Kids' Series Captures the Horrors of War Better Than Most Adult Books
+
+Books and Comics, Books, Science Fiction, War, Animorphs
+
+Tue, 03 Nov 2026 05:14:12 GMT
+
+https://collider.com/animorphs-kids-book-series-best-depiction-war/
+
+Despite being aimed at kids, the sci-fi saga Animorphs offers a nuanced depiction of war that's far more complex and harrowing than most adult books.
+---------
+
+# The 8 Heaviest Gangster Movies of All Time, Ranked
+
+Movie, Casino, The Irishman, The Godfather Part II, Killing Them Softly
+
+Tue, 03 Nov 2026 05:05:11 GMT
+
+https://collider.com/heaviest-gangster-movies-all-time-ranked/
+
+The heaviest gangster movies of all time include disturbing classics like Once Upon a Time in America, The Godfather Part II, and Pusher.
+---------
+
+# Goodbye 'Ocean's Eleven,' Ben Affleck's Heist Thriller Is Now Officially Streaming
+
+Movie Features, Action, Ben Affleck, Reindeer Games, Charlize Theron
+
+Tue, 03 Nov 2026 05:05:11 GMT
+
+https://collider.com/ben-affleck-reindeer-games-heist-thriller-streaming-paramount-plus-november-2026/
+
+Ben Affleck's twisty 2000 heist thriller Reindeer Games, which was previously only available as a rental, is finally streaming on Paramount+.
+---------
+
+# 9 Dystopian Sci-Fi Shows That Are 10/10 Masterpieces
+
+TV, Sci-Fi, Science Fiction, Severance, Black Mirror
+
+Tue, 03 Nov 2026 04:55:11 GMT
+
+https://collider.com/dystopian-sci-fi-shows-masterpieces/
+
+From the gripping Apple TV series Severance to the hit Netflix anthology Black Mirror, these dystopian sci-fi shows are genuine masterpieces.
+---------
+
+# 8 Completed Netflix Shows That Are Perfect From Start to Finish
+
+TV Lists, Netflix
+
+Tue, 03 Nov 2026 03:01:47 GMT
+
+https://movieweb.com/netflix-shows-completed-perfect/
+
+Watching completed Netflix shows reduces the risk of facing sudden cancellations, and these gems are perfect from beginning to end.
+---------
+
 # 37 Years Later, Marvel's Original Vision Quest Series Is Still A Timeless Classic
 
 Comics, VisionQuest, Vision, Marvel
