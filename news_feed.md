@@ -1,3 +1,443 @@
+# 37 Years Later, Marvel's Original Vision Quest Series Is Still A Timeless Classic
+
+Comics, VisionQuest, Vision, Marvel
+
+Tue, 03 Nov 2026 02:30:17 GMT
+
+https://screenrant.com/vision-quest-marvel-comics-explained/
+
+With Marvel Studios giving us the MCU's VisionQuest on Disney+, it's lots of fun to look back at the original storyline published 37 years ago.
+---------
+
+# Ezra Bridger Officially Returns & It's The Start Of A New Star Wars Era
+
+Streaming TV, Ahsoka, Star Wars
+
+Tue, 03 Nov 2026 02:30:17 GMT
+
+https://screenrant.com/ahsoka-season-2-ezra-bridger-return-thrawn-era/
+
+Ezra Bridger has finally returned to the main Star Wars galaxy, and his upcoming adventure in Ahsoka season 2 could be the start of a new era.
+---------
+
+# Josh Brolin & Jeremy Renner Reunite For Their Fourth Movie Together
+
+Movies, Josh Brolin, Jeremy Renner
+
+Tue, 03 Nov 2026 02:19:48 GMT
+
+https://screenrant.com/a-speck-in-the-sea-movie-josh-brolin-jeremy-renner-cast/
+
+A new movie has brought Josh Brolin and Jeremy Renner back together for the fourth time, this time in a survival thriller based on a true story.
+---------
+
+# 10 Years Later, DC Admits Killing Joke's Batman/Batgirl Romance Was A Terrible Idea
+
+Comics, Batman, Batgirl, DC, Batman: The Killing Joke
+
+Tue, 03 Nov 2026 02:00:17 GMT
+
+https://screenrant.com/batman-batgirl-couple-killing-joke-bad-idea/
+
+Batman: The Killing Joke paired the Dark Knight and Batgirl together romantically, and a decade later, even DC has acknowledged this was a bad move.
+---------
+
+# NBC Dethrones Tracy Morgan As The Best Part Of The Fall And Rise of Reggie Dinkins In Season 2 | Review
+
+Network TV, The Fall and Rise of Reggie Dinkins
+
+Tue, 03 Nov 2026 02:00:17 GMT
+
+https://screenrant.com/the-fall-and-rise-of-reggie-dinkins-season-2-episode-1-review/
+
+The Fall and Rise of Reggie Dinkins Season 2 premiere delivers family drama and laughs, but Reggie's comeback storyline struggles to impress.
+---------
+
+# NBC Cements St. Denis Medical’s Place In Network Comedy Hierarchy | Review
+
+Network TV, St. Denis Medical
+
+Tue, 03 Nov 2026 01:30:17 GMT
+
+https://screenrant.com/st-denis-medical-season-3-episode-1-review/
+
+NBC's St. Denis Medical return for season 3 with some changes for the Oregon hospital's emergency department, but the comedy remains consistent.
+---------
+
+# 20 Best HBO Series Performances Of All Time, Ranked
+
+Classic TV, HBO
+
+Tue, 03 Nov 2026 01:15:17 GMT
+
+https://screenrant.com/best-hbo-series-actor-performances/
+
+From James Gandolfini as Tony Soprano to Julia Louis-Dreyfus as the Veep, Selina Meyer, these are the finest performances in HBO history.
+---------
+
+# Steven Spielberg’s Long-Delayed Sci-Fi Movie Based On Bestselling Novel Is Switching Formats
+
+TV, Robopocalypse
+
+Tue, 03 Nov 2026 01:12:43 GMT
+
+https://screenrant.com/robopocalypse-tv-show-development-steven-spielberg-ron-howard/
+
+After Steven Spielberg confirmed earlier this year that his long-delayed sci-fi movie was no longer happening, it is switching into a new format.
+---------
+
+# The Gilded Age True Story: Who George Russell Is Based On
+
+TV, The Gilded Age
+
+Tue, 03 Nov 2026 01:00:19 GMT
+
+https://screenrant.com/gilded-age-true-story-george-russell-jay-gould/
+
+The Gilded Age's George Russell is based on a real-life robber baron whose contentious relationship with the real Mrs. Astor hints at George's arc.
+---------
+
+# Carrie Season 2 Is Making Up For A Disastrous 4-Year-Old Stephen King Adaptation
+
+Streaming TV, Carrie
+
+Tue, 03 Nov 2026 01:00:17 GMT
+
+https://screenrant.com/carrie-season-2-firestarter-movie-redemption/
+
+Carrie White going on the run with other telekinetic teens and uncovering a sinister conspiracy sounds a lot more Firestarter than Carrie.
+---------
+
+# Hudson William's New 8-Part Witchy Series Dethroned by $259M Iconic Slasher Sequel
+
+TV, Yaga, Halloween, AMC
+
+Tue, 03 Nov 2026 02:30:11 GMT
+
+https://www.cbr.com/halloween-dethrones-yaga-amc-plus-november-2026/
+
+Viewers can't get enough horror, even after Halloween.
+---------
+
+# 5 Best High-Fantasy Anime Movies
+
+Anime, Fantasy, Maquia: When the Promised Flower Blooms, Innovation
+
+Tue, 03 Nov 2026 02:25:11 GMT
+
+https://www.cbr.com/best-high-fantasy-anime-movies/
+
+The truth is, high-fantasy anime movies are so rare, the number of good ones is incredibly limited.
+---------
+
+# Stephen King's Hit 8-Part Series Returns to the Charts After Surprise Episode
+
+TV, It, It: Welcome to Derry
+
+Tue, 03 Nov 2026 02:00:11 GMT
+
+https://www.cbr.com/stephen-king-it-welcome-to-derry-hbo-max-success-november-2026/
+
+It: Welcome to Derry returned with a special episode on Halloween.
+---------
+
+# Syfy Only Has 1 Original Series Left & It's a 10/10 Space Adventure for Sci-Fi Fans
+
+TV, The Ark, Sci-Fi, syfy
+
+Tue, 03 Nov 2026 02:00:11 GMT
+
+https://www.cbr.com/syfy-the-ark-last-flawless-original-sci-fi-series/
+
+Now that Syfy has canceled the underrated Revival, it only has one original series left, but thankfully, The Ark is a flawless sci-fi adventure.
+---------
+
+# 8 PS1 Games From the '90s That Are Harder Than You Remember
+
+Games, PlayStation (Original), Innovation
+
+Tue, 03 Nov 2026 01:45:11 GMT
+
+https://www.cbr.com/90s-ps1-games-harder-than-you-remember/
+
+These PlayStation 1 titles might have seemed fun at the time, but are far more difficult than first appear.
+---------
+
+# HBO Renews 8-Part Raunchy Comedy Drama With 94% RT
+
+TV, Youth, HBO Max
+
+Tue, 03 Nov 2026 01:43:18 GMT
+
+https://www.cbr.com/hbo-renews-sharon-horgan-british-romantic-comedy-youth/
+
+Right after its climactic season finale, this hilarious new comedy drama gets a speedy Season 2 renewal.
+---------
+
+# Matt Dinniman Officially Confirms Title Details For Dungeon Crawler Carl Book 9
+
+Books, Dungeon Crawler Carl, Fantasy
+
+Tue, 03 Nov 2026 01:40:11 GMT
+
+https://www.cbr.com/dungeon-crawler-carl-new-book-announcement-title-fantasy/
+
+A new Dungeon Crawler Carl book is officially on its way, and the author just dropped some big news.
+---------
+
+# Attack on Titan Finally Reveals Why Its New Sequel Took 7 Years
+
+Anime, Attack on Titan, Attack On Titan
+
+Tue, 03 Nov 2026 01:25:11 GMT
+
+https://www.cbr.com/attack-on-titan-3-long-production-explain/
+
+After seven long years, the team behind a major Attack on Titan project is finally releasing its magnum opus this December.
+---------
+
+# 7 Most Unwatchable Anime of the ‘80s
+
+Anime, Innovation
+
+Tue, 03 Nov 2026 01:15:11 GMT
+
+https://www.cbr.com/most-unwatchable-80s-anime/
+
+From arcade battles that go wildly overboard to space horror that struggles to frighten, these ’80s anime show how easily ambition can collapse.
+---------
+
+# Who Were the Most Evil Lord of the Rings Villains?
+
+Movies, The Lord of the Rings
+
+Tue, 03 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/lotr-evil-movie-vilains-sauron/
+
+The Lord of the Rings has introduced many antagonists, but between Orcs and Sauron, there are many other evil villains in Middle-earth.
+---------
+
+# 3 Elite Prime Video Series to Binge This Week (Nov 2-6)
+
+TV, Prime Video, Wild Cards, Longmire, Catastrophe
+
+Tue, 03 Nov 2026 02:11:11 GMT
+
+https://collider.com/prime-video-shows-binge-november-2-2026/
+
+Catastrophe, Wild Cards, and Longmire make up our list of the best Prime Video shows to binge this week.
+---------
+
+# Godzilla Officially Returns to Theaters in One Week
+
+Movie News, Godzilla Minus Zero, Godzilla Minus One, Sci-Fi, Takashi Yamazaki
+
+Tue, 03 Nov 2026 02:00:11 GMT
+
+https://collider.com/godzilla-minus-zero-sci-fi-movie-release-date-november-2026/
+
+The most-anticipated sci-fi movie of 2026 is officially hitting the big screen this week. Find out more information about the film here.
+---------
+
+# 8 Near-Perfect Prime Video Thriller Series That Hooked Us in the First 5 Minutes
+
+TV, Fallout, Reacher, The Terminal List, Bosch
+
+Tue, 03 Nov 2026 01:44:38 GMT
+
+https://collider.com/near-perfect-prime-video-thrillers-hooked-first-5-minutes/
+
+The 8 best thriller series on Prime Video that hook you in the first 5 minutes, led by Fallout and Reacher.
+---------
+
+# Ridley Scott’s 118-Minute Sci-Fi Thriller Officially Crowned #1 Movie on Prime Video
+
+Movie News, The Dog Stars, Ridley Scott, Jacob Elordi, Prime Video
+
+Tue, 03 Nov 2026 01:30:12 GMT
+
+https://collider.com/ridley-scott-the-dog-stars-streaming-success-prime-video-november-2026/
+
+Ridley Scott's 2026 sci-fi bomb has officially been crowned the most-watched movie on Prime Video. Find out more details here.
+---------
+
+# The Biggest Video Game of All-Time Officially Releases This Month
+
+Gaming News, Grand Theft Auto 6, Rockstar Games, Red Dead Redemption 2, Video Game
+
+Tue, 03 Nov 2026 01:00:12 GMT
+
+https://collider.com/grand-theft-auto-6-release-date-november-2026-rockstar-games/
+
+The biggest video game of all time officially releases this month. Find out everything you need to know about GTA 6 here.
+---------
+
+# James Bond Star Officially Confirms Franchise Exit Ahead of Denis Villeneuve's Reboot
+
+Movie News, James Bond, Denis Villeneuve, Amazon Studios, Ben Whishaw
+
+Tue, 03 Nov 2026 00:30:11 GMT
+
+https://collider.com/james-bond-q-ben-whishaw-denis-villeneuve-reboot-return/
+
+Ben Whishaw confirms he won't return as Q for Denis Villeneuve's James Bond reboot and says the franchise needs to be completely reinvented.
+---------
+
+# ‘Star Trek: The Next Generation’ Officially Returns in 2027
+
+Books and Comics News, Star Trek: The Next Generation, Star Trek, IDW, comic books
+
+Tue, 03 Nov 2026 00:21:00 GMT
+
+https://collider.com/star-trek-next-generation-mirror-universe-new-release-2027/
+
+Star Trek: The Next Generation officially returns to the Mirror Universe with new release coming in 2027. Get the details.
+---------
+
+# 10 Great Books To Read if You Love 'The Lord of the Rings'
+
+TV, The Lord of the Rings, Books, Fantasy, J.R.R. Tolkien
+
+Tue, 03 Nov 2026 00:12:11 GMT
+
+https://collider.com/books-like-lord-of-the-rings/
+
+From Earthsea to The Wheel of Time, these are the best books that feel like The Lord of the Rings.
+---------
+
+# 'Avengers: Doomsday' Has Reportedly Already Outgrossed 'Supergirl' 6 Weeks Before Release
+
+Movie News, Avengers: Doomsday, Supergirl, Robert Downey Jr, MCU
+
+Tue, 03 Nov 2026 00:00:12 GMT
+
+https://collider.com/avengers-doomsday-supergirl-worldwide-box-office-presales/
+
+Avengers: Doomsday reportedly reaches $125 million in worldwide presales 46 days before release, nearly matching Supergirl’s entire box office run.
+---------
+
+# Sydney Sweeney’s 131-Minute R-Rated Franchise Starter Officially Confirms New 2027 Release
+
+Movie News, Sydney Sweeney, The Housemaid, The Housemaid's Secret, Thriller
+
+Mon, 02 Nov 2026 23:43:44 GMT
+
+https://collider.com/the-housemaid-stage-play-premiere-2027-sydney-sweeney/
+
+Sydney Sweeney’s R-rated thriller, The Housemaid, expands with a new adaptation premiering officially set for September 14, 2027.
+---------
+
+# 'Scream 8' Confirms Major Character Return After Record-Breaking $214M Sequel
+
+Movie News, Scream 8, Scream 7, Neve Campbell, Horror
+
+Tue, 03 Nov 2026 00:18:29 GMT
+
+https://movieweb.com/scream-8-neve-campbell/
+
+Neve Campbell has revealed she will appear in 'Scream 8' and that the film is in the works.
+---------
+
+# 9 Best Far Side Comics Where Dogs Get the Upper Hand on Owners
+
+Movie Lists, The Far Side, Gary Larson, comics, Comedy
+
+Tue, 03 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/far-side-best-dogs-upper-hand/
+
+These Far Side comics prove Gary Larson knew dogs were always one step ahead of their owners.
+---------
+
+# 'FBI' Season 9 Sets Major Return for 'Most Wanted' Star After Cancellation
+
+TV News, FBI, Drama
+
+Mon, 02 Nov 2026 23:20:48 GMT
+
+https://movieweb.com/fbi-season-9-guest-star/
+
+A familiar face reenters the field.
+---------
+
+# Amazon's New 118-Minute Post-Apocalyptic Military Action Thriller Is Already the No. 1 Movie on Streaming
+
+Movie News, Apocalypse Z: The Beginning of the End, Hot on Streaming, Action, Thriller, Prime Video
+
+Mon, 02 Nov 2026 22:30:16 GMT
+
+https://movieweb.com/apocalypse-z-new-world-streaming-prime-video-november-2026/
+
+It didn't take long for the anticipated new sequel to one of Amazon's biggest franchises to make a big impact on streaming.
+---------
+
+# 15 Years Later, HBO's 'Game of Thrones' Officially Sets New Release
+
+TV News, Blu-ray, Game Of Thrones, Fantasy, Drama, Action, Adventure
+
+Mon, 02 Nov 2026 22:21:05 GMT
+
+https://movieweb.com/game-of-thrones-4k-steelbook-release/
+
+'Game of Thrones' will make its way back into the spotlight with a new release more than a decade after first hitting the air.
+---------
+
+# Keanu Reeves' "Banned" R-Rated Action Thriller is Dominating International Box Office 12 Years Later
+
+Movie News, John Wick, Keanu Reeves, Box Office Milestones, Action
+
+Mon, 02 Nov 2026 22:17:07 GMT
+
+https://movieweb.com/john-wick-international-box-office/
+
+The original John Wick has suddenly made an unexpected box office entrance in one of the world’s biggest movie markets.
+---------
+
+# Harlan Coben’s Debut Netflix Mystery Thriller Is Even Better Than 'I Will Find You'
+
+Features, I Will Find You, Safe, Harlan Coben, Netflix, Thriller
+
+Mon, 02 Nov 2026 22:00:16 GMT
+
+https://movieweb.com/safe-i-will-find-you-comparison/
+
+Harlan Coben's Netlfix thriller adaptations follow a memorable formula, and the first one stands out for a few reasons.
+---------
+
+# 'Tracker' Finds Jensen Ackles Substitute as 'Yellowstone' Vet Joins CBS Action Thriller
+
+TV News, Tracker, Jensen Ackles, Action, Thriller, Josh Holloway, Justin Hartley
+
+Mon, 02 Nov 2026 21:57:22 GMT
+
+https://movieweb.com/tracker-josh-holloway-season-4/
+
+'Tracker' Season 4 is officially set to feature Josh Holloway in a key guest role.
+---------
+
+# Netflix's 'The Lincoln Lawyer' Gets Season 5 Release Date From Micheal Connelly
+
+TV News, The Lincoln Lawyer, Drama, Netflix
+
+Mon, 02 Nov 2026 21:56:44 GMT
+
+https://movieweb.com/lincoln-lawyer-season-5-release-month/
+
+Mickey Haller's journey is coming to an end, and now we have a better idea of when.
+---------
+
+# 10 Most Powerful Avengers of All Time, Ranked
+
+Movie Lists, The Avengers, Marvel Cinematic Universe, Superhero
+
+Mon, 02 Nov 2026 21:00:17 GMT
+
+https://movieweb.com/marvel-most-powerful-avengers/
+
+From Norse gods to androids to sorcerers, these are the strongest heroes on the Avengers roster. These are truly Earth Mightiest heroes.
+---------
+
 # What Is Sinners Really About? The Deeper Meaning Explained
 
 New Movies, Sinners
