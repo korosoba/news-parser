@@ -1,3 +1,333 @@
+# Gambit's Solo MCU Movie Chances Get New Update From Channing Tatum
+
+Movies, Gambit, X-Men, Marvel Cinematic Universe, Channing Tatum
+
+Wed, 04 Nov 2026 10:00:19 GMT
+
+https://screenrant.com/gambit-mcu-solo-movie-chances-update-channing-tatum/
+
+Exclusive: Channing Tatum offers a new update on the possibility of a Gambit solo movie in the MCU as the world of the X-Men gears up to return.
+---------
+
+# AMC's Best Walking Dead Series Is Changing In 2027
+
+Streaming TV, The Walking Dead
+
+Wed, 04 Nov 2026 10:00:19 GMT
+
+https://screenrant.com/the-walking-dead-best-show-daryl-dixon-change-2027/
+
+The Walking Dead's best series, according to Rotten Tomatoes, is Rick and Michonne's The Ones Who Live, but 2027 could prove otherwise.
+---------
+
+# Legend Of Zelda: Ocarina Of Time Remake First Review Appears Online
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo, Nintendo Switch 2
+
+Wed, 04 Nov 2026 09:24:52 GMT
+
+https://screenrant.com/legend-of-zelda-ocarina-of-time-remake-first-review-leak/
+
+The very first review for The Legend of Zelda: Ocarina of Time has finally appeared online, giving us a glimpse at whether it holds up.
+---------
+
+# Syfy Cancelled Its Ambitious Sci-Fi Series — Now It’s Prime Video’s Greatest Space Opera
+
+Classic TV, Masked Recs
+
+Wed, 04 Nov 2026 08:02:10 GMT
+
+https://screenrant.com/the-expanse-syfy-cancelled-prime-video-space-opera/
+
+After Syfy cancelled one of its most ambitious sci-fi shows, Prime Video gave it a streaming home before it became an epic space opera masterpiece.
+---------
+
+# Dead End Job Season 2: Release Date, Story & Everything We Know
+
+Streaming TV, Dead-End Job
+
+Wed, 04 Nov 2026 08:00:18 GMT
+
+https://screenrant.com/dead-end-job-season-2-explained/
+
+Dead-End Job has quickly become one of Netflix's best K-dramas of 2026, but the supernatural horror limited series left the door open for expansion.
+---------
+
+# Pokémon Officially Gives Charizard A New Look For 30th Anniversary
+
+Gaming, Pokemon
+
+Wed, 04 Nov 2026 08:00:18 GMT
+
+https://screenrant.com/pokemon-new-charizard-design-enso-ring/
+
+Pokémon has officially given one of its most popular Kanto creatures a new look, and if you're a fan of Charizard, then you won't want to miss it.
+---------
+
+# Apple TV's 30-Episode Sci-Fi Masterpiece Deserves Kudos For Daring To Change The Books
+
+Streaming TV, Masked Recs
+
+Wed, 04 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/foundation-successfully-changes-isaac-asimov-books/
+
+Apple TV is the streaming home of a sci-fi masterpiece that deserves a lot of credit daring to significantly change to change its source material.
+---------
+
+# Elden Ring: Path Of The Elden Lord Officially Announced
+
+Gaming, Elden Ring: Tarnished Edition, Elden Ring, PC, FromSoftware, Elden Ring: Shadow of the Erdtree
+
+Wed, 04 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/elden-ring-path-of-the-elden-lord/
+
+Elden Ring: Path of the Elden Lord is a brand-new experience in the Lands Between for both longtime players and newly arrived Tarnished alike.
+---------
+
+# No Dark Fantasy Show Does Lovecraft Better Than Netflix's 8-Part Miniseries
+
+TV, Masked Recs
+
+Wed, 04 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/guillermo-del-toro-cabinet-of-curiosities-best-lovecraft/
+
+This Netflix anthology's visions of cosmic dread merge meticulous filmmaking with bold adaptations that reckon with Lovecraft's controversial legacy.
+---------
+
+# Dungeon Crawler Carl's Latest Official Release Is Facing Serious Backlash
+
+Gaming, Dungeon Crawler Carl, PC
+
+Wed, 04 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/dungeon-crawler-carl-trading-card-backlash/
+
+Dungeon Crawler Carl's massive success hasn't been all great for longtime readers, with the franchise's newest release garnering major backlash.
+---------
+
+# 5 Naruto Characters Stronger Than Every Akatsuki Member
+
+Anime, Naruto, Naruto: Shippuden, Innovation
+
+Wed, 04 Nov 2026 04:45:11 GMT
+
+https://www.cbr.com/naruto-characters-stronger-than-every-akatsuki-member/
+
+The Akatsuki is a formidable organization, but these Naruto characters possess enough power to defeat every member.
+---------
+
+# Netflix's 10/10 Samurai Masterpiece Finally Sets Season 2 Premiere Date After 3-Year Wait
+
+TV, Blue Eye Samurai
+
+Wed, 04 Nov 2026 04:39:12 GMT
+
+https://www.cbr.com/blue-eye-samurai-season-2-release-date-netflix/
+
+Three years after the highly-praised animated show's premiere, Netflix has finally announced when it will return for Season 2.
+---------
+
+# Stephen King & George RR Martin's Instant Sci-Fi Classic Is as Close to Perfect as Remakes Get
+
+TV, The Outer Limits, Sci-Fi, Horror
+
+Wed, 04 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/the-outer-limits-stephen-king-george-rr-martin-perfect-sci-fi-remake/
+
+The Outer Limits got an upgrade with literary voices like Stephen King and George R.R. Martin shaping its near-perfect anthology format.
+---------
+
+# 10 Best Peanuts Halloween Comic Strips, Ranked
+
+Comics, Peanuts
+
+Wed, 04 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/best-peanuts-halloween-comic-strips-ranked/
+
+Fall is here, and fans are feeling nostalgic for the beloved Halloween and, of course, Great Pumpkin strips featured in the successful Peanuts comics.
+---------
+
+# 5 Classic Open-World RPGs That Are Unplayable Today
+
+Games, open world, RPG, Innovation
+
+Wed, 04 Nov 2026 04:15:11 GMT
+
+https://www.cbr.com/unplayable-classic-open-world-rpgs-today-list/
+
+Open-world RPGs like The Simpsons: Hit & Run haven't stood the test of time.
+---------
+
+# Gundam Wing Gives Its Most Iconic Mecha a Major Upgrade for New 2027 U.S. Release
+
+Anime, Mobile Suit Gundam, Gundam Wing: Endless Waltz, merchandise, action figures, toys, bandai
+
+Wed, 04 Nov 2026 04:10:11 GMT
+
+https://www.cbr.com/wing-gundam-zero-ew-renewal-action-figure-america-release/
+
+Mobile Suit Gundam fans can officially look forward to one of the most iconic mecha of all time returning as an awe-striking collectible in 2027.
+---------
+
+# Nintendo Confirms Next 3D Zelda Game Inspired by Ocarina of Time
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Nintendo
+
+Wed, 04 Nov 2026 04:05:11 GMT
+
+https://www.cbr.com/zelda-next-3d-game-ocarina-of-time-inspiration/
+
+Zelda producer Eiji Aonuma reveals the Ocarina of Time remake was created to give the series’ new post-BOTW dev team insight for “future development.”
+---------
+
+# 5 Classic Anime Deaths Censored for American Television
+
+Anime, Dragon Ball Z, Yu-Gi-Oh! Duel Monsters, Sailor Moon
+
+Wed, 04 Nov 2026 03:45:12 GMT
+
+https://www.cbr.com/classic-anime-deaths-censored-american-television/
+
+American broadcasters made some drastic changes to classic anime, rewriting or removing major character deaths to meet television standards.
+---------
+
+# Lord of the Rings' 169-Minute Prequel Is a Global Streaming Hit Ahead of Franchise Return
+
+Movies, The Hobbit: An Unexpected Journey, The Lord of the Rings, Netflix
+
+Wed, 04 Nov 2026 03:30:11 GMT
+
+https://www.cbr.com/the-hobbit-an-unexpected-journey-fantasy-netflix-success-november-2026/
+
+The Hobbit: An Unexpected Journey is experiencing a global streaming resurgence on HBO Max.
+---------
+
+# Anne Hathaway's 169-Minute Sci-Fi Masterpiece Is 1 of the Most-Watched Films on Streaming
+
+Movies, Interstellar, anne hathaway, Apple TV, Christopher Nolan
+
+Wed, 04 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/anne-hathaway-interstellar-sci-fi-apple-tv-november-2026/
+
+One of Christopher Nolan's most successful movies ever is a hit again on streaming.
+---------
+
+# Before ‘The Rings of Power’ Returns, Peter Jackson’s Epic Fantasy Is a Global Streaming Hit
+
+Movie Features, The Lord of the Rings: The Rings of Power, The Hobbit, The Hobbit: An Unexpected Journey, J.R.R. Tolkien
+
+Wed, 04 Nov 2026 10:08:12 GMT
+
+https://collider.com/the-hobbit-unexpected-journey-the-rings-of-power-hbo-max-streaming-november-2026/
+
+In advance of The Rings of Power's third season debut on November 11, fans have made 2012's The Hobbit: An Unexpected Journey a global streaming hit.
+---------
+
+# Edgar Wright Officially Condemns Unauthorized Restoration of His Iconic Sitcom
+
+TV News, Edgar Wright, Spaced, Simon Pegg, Nick Frost
+
+Wed, 04 Nov 2026 10:00:12 GMT
+
+https://collider.com/edgar-wright-spaced-ai-4k-blu-ray-restoration-response/
+
+Edgar Wright has condemned an unauthorized AI-assisted 4K restoration of Spaced, revealing he wasn't consulted about the new Blu-ray release.
+---------
+
+# Harry Potter Will Officially Become Free December 2026
+
+Books and Comics News, Harry Potter, Audible, Harry Potter and the Sorcerer's Stone
+
+Wed, 04 Nov 2026 09:00:12 GMT
+
+https://collider.com/harry-potter-full-cast-audiobooks-free-december-2026/
+
+Harry Potter's full-cast audiobooks are coming to public libraries worldwide for free, beginning December 1. Here's what you need to know.
+---------
+
+# Prime Video's Muhammad Ali Biopic 'The Greatest' Doesn't Do the Legend Justice | Review
+
+TV Reviews, The Greatest, Muhammad Ali, Prime Video, Michael B. Jordan
+
+Wed, 04 Nov 2026 05:45:12 GMT
+
+https://collider.com/the-greatest-prime-video-review/
+
+Prime Video's new biopic miniseries The Greatest isn't worthy of one of sports' most compelling journeys.
+---------
+
+# 8 Books to Read if You Love Prime Video's ‘Reacher'
+
+Books and Comics, Reacher, Jack Ryan, The Day of the Jackal, Bourne
+
+Wed, 04 Nov 2026 05:27:12 GMT
+
+https://collider.com/books-like-reacher-prime-video/
+
+The Day of the Jackal, Patriot Games, Zero Day, Capture or Kill, and more make up our list of books to read if you love Prime Video's Reacher.
+---------
+
+# Tolkien Had a Deeper Meaning Behind These 3 Classic Lord of the Rings Characters
+
+Books and Comics, Books, The Lord of the Rings, J.R.R. Tolkien, Fantasy
+
+Wed, 04 Nov 2026 05:08:12 GMT
+
+https://collider.com/lord-of-the-rings-tolkien-frodo-gandalf-aragorn-deeper-meaning/
+
+The Lord of the Rings is full of iconic fantasy characters, but heroes like Frodo, Gandalf, and Aragorn have a much more profound meaning behind them.
+---------
+
+# Forget 'Memento,' Billy Bob Thornton's Noir Thriller Is the Perfect Replacement
+
+Movie Features, The Man Who Wasn't There, Billy Bob Thornton, Joel Coen, Ethan Coen
+
+Wed, 04 Nov 2026 04:27:12 GMT
+
+https://collider.com/billy-bob-thornton-the-man-who-wasnt-there-thriller-streaming-november-2026/
+
+The 2001 Coen Brothers film The Man Who Wasn't There, which starred Billy Bob Thornton, was a forgotten noir homage to Hitchcock's thrillers.
+---------
+
+# HBO Max's 10-Episode Sci-Fi Series Could Be the Perfect 'Lanterns' Replacement
+
+TV Features, Lanterns, My Adventures With Superman, HBO Max, Cartoon Network
+
+Wed, 04 Nov 2026 04:11:12 GMT
+
+https://collider.com/green-lantern-replacement-series-hbo-max-my-adventures-with-green-lantern/
+
+HBO Max is going all in on a DC Comics hero with My Adventures with Green Lantern.
+---------
+
+# ‘Dungeon Crawler Carl’s Most Terrifying Enemy Isn’t Inside the Dungeon
+
+TV Features, Dungeon Crawler Carl, Peacock, NBCUniversal, Fantasy
+
+Wed, 04 Nov 2026 03:12:12 GMT
+
+https://collider.com/dungeon-crawler-carl-biggest-enemy-borant-corporation/
+
+Dungeon Crawler Carl is not really about Carl fighting against in-game enemies — it's about him fighting against the Borant Corporation and the system
+---------
+
+# ‘VisionQuest’s T’Nia Miller Breaks Down Jocasta’s “Godlike, Badass” Moment in Episode 7
+
+TV, VisionQuest, T'Nia Miller, Disney Plus, Marvel TV
+
+Wed, 04 Nov 2026 03:00:22 GMT
+
+https://collider.com/visionquest-episode-7-tnia-miller-jocasta-disney-plus/
+
+VisionQuest's T'Nia Miller breaks down Jocasta's biggest moments in Episode 7 and shares the incredible thing James Spader did to help her on set.
+---------
+
 # Upcoming Paramount+ Shows Reportedly Eying Move To HBO Max
 
 TV, Paramount Plus, HBO Max
