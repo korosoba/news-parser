@@ -1,3 +1,443 @@
+# 7 Best Underrated Tony Todd Horror Movies You Haven't Seen, Including The Hatchet Movies
+
+Movies, Tony Todd
+
+Thu, 05 Nov 2026 20:20:18 GMT
+
+https://screenrant.com/underrated-tony-todd-horror-movies/
+
+Tony Todd delivered countless knock out horror performances, including in the Hatchet movies and the indie western West of Hell.
+---------
+
+# Keanu Reeves' DC Movie Return Becomes More Unlikely After New Update
+
+Movies, DC Universe, Constantine
+
+Thu, 05 Nov 2026 20:13:17 GMT
+
+https://screenrant.com/keanu-reeves-dc-movie-return-becomes-more-unlikely-after-new-update/
+
+A new DC movie update has made Keanu Reeves' return to the comic book franchise more unlikely following the long wait for his fantasy sequel.
+---------
+
+# 195-Minute Fantasy Epic Ramayana Divides Critics On Rotten Tomatoes
+
+Movies, Ramayana: Rise of a Legend
+
+Thu, 05 Nov 2026 20:10:15 GMT
+
+https://screenrant.com/ramayana-rise-of-a-legend-rotten-tomatoes-score/
+
+A new epic fantasy film that’s over three hours long is dividing critics on Rotten Tomatoes on the day of its theatrical release in the United States.
+---------
+
+# Marvel Officially Retcons Chris Evans' Captain America Origin Before Avengers: Doomsday
+
+Streaming TV, VisionQuest, Avengers: Doomsday, Marvel Cinematic Universe, Captain America
+
+Thu, 05 Nov 2026 20:06:39 GMT
+
+https://screenrant.com/visionquest-jim-retcons-chris-evans-captain-america-before-avengers-doomsday/
+
+A brand-new MCU reveal suggests a major change to the history Chris Evans' Steve Rogers and his origins as Captain America, right before Doomsday.
+---------
+
+# Why There's No Ghosts Tonight (November 5) & When New Episodes Release
+
+Network TV, Ghosts
+
+Thu, 05 Nov 2026 20:00:18 GMT
+
+https://screenrant.com/ghosts-no-new-episode-november-8-2026-season-6-release-date/
+
+It's been one week since Ghosts aired its latest Halloween special, but there's an important reason why a new episode isn't on tonight.
+---------
+
+# Zelda: Ocarina Of Time Remake - How To Get Fire Arrows
+
+Gaming, The Legend of Zelda: Ocarina of Time, Triple-A Games
+
+Thu, 05 Nov 2026 20:00:18 GMT
+
+https://screenrant.com/zelda-ocarina-of-time-remake-fire-arrow-location-secret/
+
+Given how many tough enemies there are, Fire Arrows can come in handy in Ocarina of Time, but they are easily missed if you don't know where to look.
+---------
+
+# Gilmore Girls Star To Publish First Novel In 2027
+
+Books, Gilmore Girls
+
+Thu, 05 Nov 2026 19:46:25 GMT
+
+https://screenrant.com/gilmore-girls-kelly-bishop-novel-2027-broad-appeal/
+
+Gilmore Girls star Kelly Bishop debuts her first novel 'Broad Appeal' in 2027, exploring friendship and life after 70.
+---------
+
+# How Old The Gossip Girl Cast Was Compared To Their Characters
+
+Classic TV, Gossip Girl
+
+Thu, 05 Nov 2026 19:45:20 GMT
+
+https://screenrant.com/how-old-gossip-girl-actors/
+
+Gossip Girl featured a cast full of talented young actors who went on to have impressive careers, and many of them got their start on the show.
+---------
+
+# Reacher Season 5 Casts Action Series Star In Gritty New Recurring Role
+
+TV, Reacher
+
+Thu, 05 Nov 2026 19:35:24 GMT
+
+https://screenrant.com/reacher-season-5-ari-stidham-casting/
+
+Reacher season 5 is staging a reunion by casting a television action star, revealing new details about what to expect from the hit show's return.
+---------
+
+# FBI Flips Scola's 2-Season Problem For A Bigger CBS Issue
+
+Network TV, FBI
+
+Thu, 05 Nov 2026 19:30:19 GMT
+
+https://screenrant.com/fbi-season-9-scola-leaving-problem/
+
+Scola's struggling in FBI season 9 as he confronts a tough choice between family and career, which could lead to the show losing a core character.
+---------
+
+# Bridgerton Meets Game of Thrones in New Disney+ Fantasy Epic Based on 2.97 Billion-View Hit
+
+Anime, webtoon, The Remarried Empress, webtoons
+
+Thu, 05 Nov 2026 20:19:28 GMT
+
+https://www.cbr.com/remarried-empress-webtoon-new-spinoff-release/
+
+There has never been a better time than now for fans to revisit the breakout hit that inspired Disney's latest romance streaming sensation.
+---------
+
+# 10 Greatest Single-Player Nintendo Games of All Time, Ranked
+
+Games, Nintendo, Video Games
+
+Thu, 05 Nov 2026 20:15:12 GMT
+
+https://www.cbr.com/greatest-single-player-nintendo-games-of-all-time/
+
+Nintendo single-player games like Super Mario Galaxy and Chrono Trigger are some of the best titles ever.
+---------
+
+# Reboot of David Fincher’s $233M Thriller Completes Cast After Replacing Daniel Craig
+
+TV, The Girl With the Dragon Tattoo
+
+Thu, 05 Nov 2026 20:11:20 GMT
+
+https://www.cbr.com/the-girl-with-the-dragon-tattoo-reboot-completes-cast/
+
+The cast has been set for Sky's upcoming small screen reboot of David Fincher's Daniel Craig-led thriller from 2011.
+---------
+
+# 8 Masterpiece Adventure Movies Better Than Indiana Jones, According to Letterboxd
+
+Movies, Indiana Jones
+
+Thu, 05 Nov 2026 20:00:12 GMT
+
+https://www.cbr.com/best-adventure-films-better-than-indiana-jones-letterboxd-ranked-list/
+
+Underseen movies like Star Wars, Wildwood, Interstellar, Lord of the Rings, are among the most underrated the adventure genre has to offer.
+---------
+
+# Netflix's New 7-Part Thriller Based on a Dark Bestselling '80s Novel
+
+TV, Netflix, Drama
+
+Thu, 05 Nov 2026 20:00:12 GMT
+
+https://www.cbr.com/netflix-feral-savages-book-adaptation/
+
+Netflix's upcoming dark-comedy survival series Feral is a grueling adaptation of the 1987 novel Savages.
+---------
+
+# Paul Bettany Jumps From Marvel to Netflix for New Supernatural Horror Series
+
+TV, Pagans, paul bettany, Netflix
+
+Thu, 05 Nov 2026 19:58:23 GMT
+
+https://www.cbr.com/paul-bettany-netflix-pagans/
+
+VisionQuest star Paul Bettany heads to Netflix for his next leading role.
+---------
+
+# Netflix Scores Season 2 of NBC's Hit Scrubs Replacement
+
+TV, St. Denis Medical, Netflix, Television
+
+Thu, 05 Nov 2026 19:27:44 GMT
+
+https://www.cbr.com/st-denis-medical-season-2-netflix-streaming-november-2026/
+
+One of NBC's hit sitcoms added another season to Netflix.
+---------
+
+# Nintendo & PlayStation Game Will Officially Disappear in December 2026
+
+Games, Nintendo, PlayStation 5, Hotel Transylvania
+
+Thu, 05 Nov 2026 19:25:12 GMT
+
+https://www.cbr.com/nintendo-playstation-game-officially-disappear-december-2026/
+
+Nintendo and PlayStation fans need to say goodbye before a shared game disappears forever.
+---------
+
+# 10 One Piece Characters Who've Changed the Most Since the Beginning
+
+Anime, One Piece, Innovation
+
+Thu, 05 Nov 2026 19:15:12 GMT
+
+https://www.cbr.com/one-piece-characters-who-change-the-most/
+
+One Piece's longevity allows for a lot of character growth, and some of the series' most familiar faces have changed a lot over the years.
+---------
+
+# Disney's Biggest 2026 Movie With $1.1B Worldwide Just Lost to a 36-Year-Old Classic on Streaming
+
+Movies, Home Alone, Toy Story 5, Disney+
+
+Thu, 05 Nov 2026 19:00:12 GMT
+
+https://www.cbr.com/home-alone-beats-toy-story-5-disney-plus-streaming-chart/
+
+The tide is turning on Disney+, with subscribers beginning to stream a certain genre more than any new 2026 release.
+---------
+
+# Prime Video’s Forgotten Sci-Fi Miniseries Is So Good, You Can Rewatch It Multiple Times
+
+TV Features, Stargate Origins, Stargate, Sci-Fi, Prime Video
+
+Thu, 05 Nov 2026 19:58:12 GMT
+
+https://collider.com/best-prime-video-sci-fi-miniseries-stargate-origins/
+
+Stargate Origins offers a quick, 10-part sci-fi adventure that explores the franchise's beginnings while fans await its next chapter.
+---------
+
+# Potential ‘Godzilla Minus Zero’ Sequel Officially Confirmed
+
+Movie News, Godzilla, Godzilla Minus Zero, Godzilla Minus One, Takashi Yamazaki
+
+Thu, 05 Nov 2026 19:34:45 GMT
+
+https://collider.com/godzilla-minus-zero-sequel-comments-takashi-yamazaki/
+
+Godzilla Minus Zero director Takashi Yamazaki officially addresses if a sequel to the hit monster movie could be on the way.
+---------
+
+# Mary Shelley's Classic Book Is a Tragic Masterpiece That Hollywood Never Understood
+
+Books and Comics, Frankenstein, Books, Movies, Mary Shelley's Frankenstein
+
+Thu, 05 Nov 2026 19:34:12 GMT
+
+https://collider.com/mary-shelley-frankenstein-book/
+
+Mary Shelley's classic novel explores love, loneliness, and the devastating consequences of rejection in ways Hollywood has never fully captured.
+---------
+
+# 7 Netflix Mystery Shows That Hook You in the First Scene
+
+TV, Netflix, Mystery, Mindhunter, The Night Agent
+
+Thu, 05 Nov 2026 19:09:12 GMT
+
+https://collider.com/netflix-mystery-shows-hook-you-first-scene/
+
+From the crime drama Mindhunter to the hilarious whodunit The Residence, these Netflix mystery shows grip you in its first scene and refuse to let go.
+---------
+
+# 6 Near-Perfect Prime Video Miniseries With 8 Episodes or Less
+
+TV, Prime Video, TV Miniseries, Swarm, Tales from the Loop
+
+Thu, 05 Nov 2026 18:18:12 GMT
+
+https://collider.com/near-perfect-prime-video-miniseries-8-episodes-or-less/
+
+From The Girlfriend to Tales From the Loop, these six brilliant miniseries prove that eight episodes or fewer is the streaming sweet spot.
+---------
+
+# 3 Best Short Books To Read in One Afternoon This Weekend (November 7-8)
+
+Books and Comics, Books, Breakfast at Tiffany's, The Strange Case of Dr. Jekyll and Mr. Hyde, The Metamorphosis
+
+Thu, 05 Nov 2026 18:08:12 GMT
+
+https://collider.com/best-short-books-read-this-weekend-november-7-8/
+
+You can start and finish classic novellas like The Metamorphosis and Breakfast at Tiffany's in one afternoon, making them perfect for this weekend.
+---------
+
+# ‘Elsbeth’ Creators’ 10/10 Legal Thriller Officially Takes on Its First Murder Case
+
+Exclusives, Cupertino, CBS, Mike Colter, Rachel Keller
+
+Thu, 05 Nov 2026 18:01:29 GMT
+
+https://collider.com/cupertino-episode-8-images-mike-colter-rachel-keller/
+
+Exclusive new images and details from Cupertino Episode 8 tease a timely case as Mike Colter and Rachel Keller fight for a client framed for murder.
+---------
+
+# David Boreanaz’s ‘Rockford Files’ Reboot Officially Sets Release Date
+
+TV News, The Rockford Files, David Boreanaz, NBC, Jacki Weaver
+
+Thu, 05 Nov 2026 18:00:12 GMT
+
+https://collider.com/the-rockford-files-premiere-date-hotline/
+
+David Boreanaz' reboot of The Rockford Files is coming soon...and we finally know how soon. Read on for more.
+---------
+
+# ‘Masters of the Air’ Meets ‘Saving Private Ryan’ in First Look at New WWII Movie
+
+Exclusives, World War II, War, History, 28 Years Later
+
+Thu, 05 Nov 2026 18:00:12 GMT
+
+https://collider.com/ill-get-by-josh-bolt-louis-ashbourne-serkis-wwii-first-look-images/
+
+Exclusive: Josh Bolt and Louis Ashbourne Serkis take flight in the first behind-the-scenes images from the upcoming WWII drama I'll Get By.
+---------
+
+# Jeremy Renner Officially Leaves 'Mayor of Kingstown' Behind for New 'John Wick' Replacement
+
+Movie News, Jeremy Renner, Mayor of Kingstown, Hawkeye, John Wick
+
+Thu, 05 Nov 2026 17:55:18 GMT
+
+https://collider.com/jeremy-renner-action-movie-12-bullets/
+
+Ahead of Mayor of Kingstown's final season, Jeremy Renner is leaving Taylor Sheridan behind for his first action movie in 7 years.
+---------
+
+# John Malkovich’s New Spy Thriller Is One of the Year’s Best, and He’s Never Been Better | Review
+
+Movie Reviews, Wild Horse Nine, John Malkovich, Sam Rockwell, Steve Buscemi, Parker Posey, Martin McDonagh, Thriller, Action
+
+Thu, 05 Nov 2026 20:15:16 GMT
+
+https://movieweb.com/wild-horse-nine-review/
+
+Martin McDonagh reverses the Banshees premise and hands John Malkovich a dying CIA officer who deflects with jokes until he can’t.
+---------
+
+# Guy Ritchie's 123-Minute War Thriller Streaming Free Is Better Than 'The Gentlemen'
+
+Features, Guy Richie's The Covenant, War, The Gentlemen
+
+Thu, 05 Nov 2026 20:00:17 GMT
+
+https://movieweb.com/guy-ritchie-the-covenant-free-youtube/
+
+Guy Ritchie is known for crime thrillers like 'The Gentleman,' but his war movie with a talented cast is memorable and streaming for free.
+---------
+
+# Netflix's New 3-Episode Series Officially Becomes the No. 1 Show in the World
+
+TV News, Netflix, Hot on Streaming, The One About Matthew Perry, Documentary
+
+Thu, 05 Nov 2026 19:30:17 GMT
+
+https://movieweb.com/the-one-about-matthew-perry-stream-november-2026/
+
+Netflix's most recent hit is as illuminating as it is engrossing, and audiences across the world agree.
+---------
+
+# 'Reacher' Season 5 Officially Confirms New Cast Ahead of Streaming Return
+
+TV News, Reacher, Action, Thriller, Crime, Mystery, Prime Video
+
+Thu, 05 Nov 2026 19:29:32 GMT
+
+https://movieweb.com/reacher-season-5-cast-ari-stidham/
+
+Alan Ritchson has a new influx of co-stars joining him in the new season of 'Reacher.'
+---------
+
+# Goodbye Tom Hardy, Charlie Hunnam Is a Criminal in Prime Video's Explosive New Crime Thriller
+
+TV News, Criminal, Prime Video, Thriller, Action
+
+Thu, 05 Nov 2026 19:18:27 GMT
+
+https://movieweb.com/criminal-trailer-prime-video/
+
+Prime Video's new action thriller 'Criminal' reveals explosive first trailer.
+---------
+
+# 16 Years Later, 'Scrubs' Officially Restores a Dr. Kelso Season 9 Retcon
+
+Features, Scrubs, Comedy
+
+Thu, 05 Nov 2026 19:00:16 GMT
+
+https://movieweb.com/scrubs-revival-kelso-enid-death/
+
+'Scrubs: Med School' largely doesn't count toward the show's canon anymore, but it's not totally irrelevant. Read on for more.
+---------
+
+# 15 Best 'So Bad It's Good' Movies of All Time
+
+Movie Lists, Comedy
+
+Thu, 05 Nov 2026 18:30:17 GMT
+
+https://movieweb.com/best-bad-movies/
+
+These so-bad-it’s-good movies turn bad acting, cheap effects, and baffling scripts into pure entertainment.
+---------
+
+# Keira Knightley's Netflix Action Thriller Officially Hailed as "TV’s Best Spy Show" on Rotten Tomatoes
+
+TV News, Netflix, Keira Knightley, Action, Black Doves
+
+Thu, 05 Nov 2026 18:00:29 GMT
+
+https://movieweb.com/black-doves-season-2-rotten-tomatoes/
+
+Netflix’s stylish espionage hit is still competing at the top of the genre.
+---------
+
+# 7 Biggest Questions After 'Godzilla Minus Zero's Ending, Explained
+
+Features, Godzilla Minus Zero, Godzilla
+
+Thu, 05 Nov 2026 18:00:17 GMT
+
+https://movieweb.com/godzilla-minus-zero-biggest-questions/
+
+'Godzilla Minus Zero' featured some of the most jaw-dropping kaiju action ever put on film, but there are a few points that require clarification.
+---------
+
+# "Star Trek Meets Firefly" in 88-Episode Sci-Fi Cult Classic That's One of Free Streaming's Biggest Hits
+
+TV News, Farscape, Hot on Streaming, Sci-Fi, Tubi
+
+Thu, 05 Nov 2026 17:30:18 GMT
+
+https://movieweb.com/farscape-streaming-free-november-2026/
+
+This sci-fi gem has everything from bizarre alien creatures to intergalactic adventures, and it's finally getting the love it deserves on streaming.
+---------
+
 # Wheel Of Time Franchise's Official Return Inspired By Star Wars, Lord Of The Rings
 
 Gaming, The Wheel of Time, The Lord of the Rings
