@@ -1,3 +1,377 @@
+# One Piece Star's 10-Episode Superhero Series Is The Boys Meets The Umbrella Academy
+
+Classic TV, Masked Recs
+
+Thu, 05 Nov 2026 04:16:20 GMT
+
+https://screenrant.com/the-imperfects-inaki-godoy-netflix-superhero-series/
+
+A One Piece star was once among the leads of a forgotten superhero series that comes off as a crossover between The Boys and The Umbrella Academy.
+---------
+
+# Bass X Machina Season 2: Renewal Status & Everything We Know
+
+Streaming TV, Bass X Machina
+
+Thu, 05 Nov 2026 03:31:19 GMT
+
+https://screenrant.com/bass-x-machina-season-2-explained/
+
+Bass X Machina has already impressed critics, and despite its finale giving Bass a victory, the series is a great candidate for a second season.
+---------
+
+# Every Robin in Order From The First Boy Wonder to DC’s New Heir, Explained
+
+Comics, Robin
+
+Thu, 05 Nov 2026 03:15:18 GMT
+
+https://screenrant.com/all-robins-in-order-dc-comics/
+
+Dick Grayson may have been the original Boy Wonder to fight along Batman's side, but he was by far the last to don the Robin name and pixie boots.
+---------
+
+# Chicago Fire’s 300th Episode Fasttracks Its Death By A Thousand Cuts | Review
+
+Network TV, Chicago Fire, One Chicago
+
+Thu, 05 Nov 2026 03:01:21 GMT
+
+https://screenrant.com/chicago-fire-season-15-episode-5-review/
+
+NBC celebrates a rare milestone as Chicago Fire hits 300th episode. Unfortunately, the hour fails to be match the importance of the moment.
+---------
+
+# Sylvester Stallone's 113-Minute Action Thriller Classic Officially Hits Netflix Ahead Of 2027 Reboot
+
+Movies, Masked Recs
+
+Thu, 05 Nov 2026 03:01:21 GMT
+
+https://screenrant.com/sylvester-stallone-cliffhanger-movie-netflix-november-2026/
+
+Sylvester Stallone is one of the most iconic action stars of all time, and a classic film of his has now made its way to Netflix.
+---------
+
+# Power Rangers' Evil New Ranger Sets Up The Dark Reboot Fans Have Waited Years For
+
+Comics, Power Rangers
+
+Thu, 05 Nov 2026 02:37:19 GMT
+
+https://screenrant.com/power-rangers-evil-black-turbo-ranger/
+
+Power Rangers introduces a mysterious new villain who could hold the key to the franchise's darkest and most ambitious reboot yet.
+---------
+
+# Obi-Wan Kenobi's 10 Most Impressive Clone Wars Feats
+
+Classic TV, Star Wars: The Clone Wars, Star Wars, Obi-Wan Kenobi
+
+Thu, 05 Nov 2026 02:30:19 GMT
+
+https://screenrant.com/obi-wan-kenobi-most-impressive-clone-wars-feats/
+
+Obi-Wan Kenobi accomplished quite a bit in Star Wars: The Clone Wars, but these 10 feats secured his legacy as one of the greatest Jedi in the galaxy.
+---------
+
+# 6 Episodes Of One Of Netflix's Best Sci-Fi Thrillers Deliver Peak Body Horror
+
+Classic TV, Masked Recs
+
+Thu, 05 Nov 2026 02:01:19 GMT
+
+https://screenrant.com/parasyte-the-grey-sci-fi-body-horror-netflix-show/
+
+One of Netflix’s greatest thrillers of all time does an incredible of delivering never-seen-before and hard-hitting body horror in just 6 episodes.
+---------
+
+# Fans Are Convinced That Nathan Fielder And Elizabeth Holmes Have Romantic Tension In You Can See Everything
+
+Movies, You Can See Everything
+
+Thu, 05 Nov 2026 02:01:19 GMT
+
+https://screenrant.com/you-can-see-everything-nathan-fielder-elizabeth-holmes-romance-theories/
+
+Nathan Fielder's latest work is a documentary focusing on Elizabeth Holmes, and many viewers had the same reaction upon seeing the film.
+---------
+
+# Keanu Reeves’ DC Character Sets New Movie Despite Long-Delayed Sequel
+
+Movies, Constantine, Constantine 2, DC Universe, Keanu Reeves
+
+Thu, 05 Nov 2026 01:30:39 GMT
+
+https://screenrant.com/john-constantine-new-dc-movie-development/
+
+As Keanu Reeves' sequel is still in the works, DC Studios is developing another movie based on John Constantine, with Francis Galluppi attached.
+---------
+
+# Netflix's 96% RT Dystopian Thriller Is the Sci-Fi TV Event of the Decade
+
+TV, The Eternaut, Netflix, Sci-Fi
+
+Thu, 05 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/netflix-the-eternaut-dystopian-sci-fi-event/
+
+Netflix's hit sci-fi adaptation, The Eternaut, returns for a second season in 2027, promising a bigger budget and an expanded storyline.
+---------
+
+# How Charles Schulz's Peanuts Took the World by Storm
+
+Comics, Peanuts
+
+Thu, 05 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/charles-schulz-peanuts-world-domination/
+
+Discover how Charles Schulz's Peanuts evolved over the years, turning the likes of Snoopy and Charlie Brown into pop culture icons.
+---------
+
+# The Hunt for Gollum's Latest Casting Rumor Signals a LOTR Shakeup
+
+Movies, The Lord of the Rings, The Lord of the Rings: The Hunt for Gollum, Fantasy
+
+Thu, 05 Nov 2026 04:15:12 GMT
+
+https://www.cbr.com/hunt-for-gollum-sam-heughan-casting-rumor-lotr-formula/
+
+A fantasy television star is rumored to appear in The Hunt for Gollum, revealing a major change to The Lord of the Rings' casting trends.
+---------
+
+# 7 Classic SNES Games That Aged Like Fine Wine
+
+Games, Nintendo, Innovation
+
+Thu, 05 Nov 2026 04:15:12 GMT
+
+https://www.cbr.com/masterpiece-snes-games-aged-well-list/
+
+SNES games like Chrono Trigger and Super Mario World have aged flawlessly and are still must-play games today.
+---------
+
+# Transformers Officially Gives Arcee a Major New G1 Upgrade
+
+Anime, Transformers, The Transformers, The Transformers: The Movie, toys, action figures, merchandise
+
+Thu, 05 Nov 2026 04:10:12 GMT
+
+https://www.cbr.com/transformers-missing-link-arcee-action-figure-release/
+
+Transformers fans can finally own a G1 cartoon-accurate rendition of Arcee's final appearance through the latest Missing Link action figure.
+---------
+
+# 5 Best Dark Fantasy Anime Movies of All Time, Ranked
+
+Anime, Chainsaw Man - The Movie: Reze Arc, Vampire Hunter D: Bloodlust, Fantasy
+
+Thu, 05 Nov 2026 03:45:12 GMT
+
+https://www.cbr.com/best-dark-fantasy-anime-movies-all-time-ranked/
+
+The best dark fantasy anime movies are the ones with grim worlds, bleak events and heartbreaking storylines.
+---------
+
+# Zach Cregger's Resident Evil Reboot Officially Sets Physical Release
+
+Movies, Resident Evil
+
+Thu, 05 Nov 2026 03:34:34 GMT
+
+https://www.cbr.com/zach-cregger-resident-evil-physical-media-release-date/
+
+Take the T-Virus home with the new physical release of Zach Cregger's Resident Evil.
+---------
+
+# 5 NES Games Better Than Castlevania
+
+Games, Castlevania, Nintendo, Video Games
+
+Thu, 05 Nov 2026 03:30:11 GMT
+
+https://www.cbr.com/nes-games-better-than-castlevania/
+
+The first Castlevania game is one of the best NES games ever made, but there are others that far surpass it, including Metroid and Crystalis.
+---------
+
+# 5 Best Anime That Ended in 2026, Ranked
+
+Anime, My Hero Academia, Fire Force, Bleach
+
+Thu, 05 Nov 2026 03:15:12 GMT
+
+https://www.cbr.com/best-anime-ended-in-2026-ranked/
+
+2026 is a year of goodbyes, as a few classic anime have reached their endings.
+---------
+
+# Disney+'s New No. 1 Sci-Fi Show Finally Runs Out of Gas as It Loses Top Spot on Streaming
+
+TV, VisionQuest
+
+Thu, 05 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/visionquest-sci-fi-disney-plus-streaming-success-november-2026/
+
+The hit Disney+ sci-fi finally met its match.
+---------
+
+# Ridley Scott's Apple TV Crime Thriller Is a 10/10 Binge-Watch
+
+TV Features, Dope Thief, Apple TV, Ridley Scott, Wagner Moura
+
+Thu, 05 Nov 2026 04:15:12 GMT
+
+https://collider.com/dope-thief-apple-tv-ridley-scott-crime-thriller/
+
+Ridley Scott's Apple TV crime thriller Dope Thief, starring Wagner Moura and Brian Tyree Henry, is packed with action and dark humor.
+---------
+
+# Denzel Washington's Sci-Fi Crime Thriller 'Déjà Vu' Is 'Minority Report' Meets 'Looper'
+
+Movie Features, Denzel Washington, Déjà Vu, Tony Scott, Val Kilmer
+
+Thu, 05 Nov 2026 04:03:12 GMT
+
+https://collider.com/denzel-washington-deja-vu-thriller-streaming-free-tubi-november-2026/
+
+The sci-fi crime thriller Déjà Vu, starring Denzel Washington as an ATF agent who uses time travel to stop a terrorist, is streaming free on Tubi.
+---------
+
+# 5 Sci-Fi Books You Can Finish in a Weekend
+
+Books and Comics, Science Fiction, Sci-Fi, The Martian, Fahrenheit 451
+
+Thu, 05 Nov 2026 04:01:12 GMT
+
+https://collider.com/sci-fi-books-read-in-one-weekend/
+
+From the dystopian classic Fahrenheit 451 to Andy Weir's modern masterpiece The Martian, these sci-fi books are perfect for a weekend of reading.
+---------
+
+# Ben Affleck’s New 106-Minute Thriller Clings to Streaming Crown
+
+Movie News, Animals, Ben Affleck, Netflix, Thriller
+
+Thu, 05 Nov 2026 03:00:22 GMT
+
+https://collider.com/ben-affleck-animals-streaming-success-netflix-november-2026/
+
+Ben Affleck's political thriller, Animals, has retained the number-one spot on the streamer's viewership charts for the fourth week in a row.
+---------
+
+# Keanu Reeves Is Officially Ready to Party for New Bill and Ted Spin-Off
+
+Gaming News, Bill & Ted's Excellent Adventure, Keanu Reeves, Video Game
+
+Thu, 05 Nov 2026 02:30:12 GMT
+
+https://collider.com/keanu-reeves-bill-and-ted-excellent-adventure-arcade/
+
+Keanu Reeves and Alex Winter are officially reprising their roles as Bill and Ted for a brand-new release. Read on for more.
+---------
+
+# New Constantine Movie Officially Confirmed After 20 Years, But There’s a Catch
+
+Movie News, Constantine, DCU, Keanu Reeves, Evil Dead Wrath
+
+Thu, 05 Nov 2026 02:04:49 GMT
+
+https://collider.com/constantine-reboot-movie-new-director-francis-galluppi/
+
+A new Constantine movie is officially in development, but it has cast doubt on Keanu Reeves' long-awaited sequel.
+---------
+
+# The 6 Worst Steamy Thriller Movies of All Time, Ranked
+
+Movie, 365 Days, Basic Instinct 2, Color of Night, The Boy Next Door
+
+Thu, 05 Nov 2026 02:03:12 GMT
+
+https://collider.com/worst-steamy-thriller-movies-ranked/
+
+Critically panned disasters like Body of Evidence, 365 Days, and The Boy Next Door are among the worst steamy thriller movies ever made.
+---------
+
+# Anne Hathaway's 2026 Thriller Sets Surprise Return With New Alternate Ending
+
+Movie News, Verity, Anne Hathaway, Josh Hartnett, Colleen Hoover
+
+Thu, 05 Nov 2026 02:00:12 GMT
+
+https://collider.com/anne-hathaway-verity-alternate-ending-4k-blu-ray-release-date-december-2026/
+
+Anne Hathaway's recently released thriller is officially coming home with a brand-new alternate ending. Read on for more.
+---------
+
+# Nicole Kidman's 104-Minute Fantasy Classic Officially Takes Over HBO Max
+
+Movie News, Nicole Kidman, Practical Magic, Fantasy, HBO Max
+
+Thu, 05 Nov 2026 01:30:12 GMT
+
+https://collider.com/practical-magic-streaming-success-hbo-max-november-2026/
+
+Nicole Kidman's fantasy favorite Practical Magic is proving a big hit on HBO Max as the sequel leaves theaters.
+---------
+
+# 'Scrubs' Star Reveals J.D. and Elliot's Romance Is Far From Being Over in Season 2
+
+Exclusives, Sarah Chalke, Scrubs, Hulu
+
+Thu, 05 Nov 2026 01:30:12 GMT
+
+https://collider.com/scrubs-season-2-episode-7-sarah-chalke-jd-elliot-romance/
+
+Collider speaks to Sarah Chalke about J.D. and Elliot's complex relationship and the surprising twist in Scrubs Season 2, Episode 7.
+---------
+
+# Kevin Costner Beat Taylor Sheridan at His Own Game With a 3-Part Western Miniseries You Can Binge in One Night
+
+Features, Hatfields & McCoys, Taylor Sheridan, Western
+
+Thu, 05 Nov 2026 03:31:17 GMT
+
+https://movieweb.com/hatfields-mccoys-streaming-recommendation/
+
+One of Taylor Sheridan's greatest strengths is his ability to craft intense drama, but one miniseries outshines even Sheridan's greatest efforts.
+---------
+
+# 21 Years Later, DC's New 'Constantine' Movie Takes Major Step Forward
+
+Movie News, Constantine / Hellblazer, DCU, Constantine
+
+Thu, 05 Nov 2026 03:00:18 GMT
+
+https://movieweb.com/constantine-movie-francis-galluppi/
+
+'Evil Dead Wrath's Francis Galluppi has been hired to write a screenplay for a new movie based on the character John Constantine for DC Studios.
+---------
+
+# Prime Video’s 48-Episode High Fantasy Series Is So Good, It Received a Rare Perfect Score 5 Times in a Row
+
+Features, The Legend of Vox Machina, Fantasy, Prime Video
+
+Thu, 05 Nov 2026 01:00:16 GMT
+
+https://movieweb.com/legend-vox-machina-perfect-score/
+
+Prime Video's best fantasy show has consistently gotten great ratings, and it shows no signs of slowing down any time soon.
+---------
+
+# In Just 2 Weeks, New R-Rated Thriller Officially Becomes the Highest-Grossing Movie of Its Kind Ever
+
+Movie News, Clayface, Box Office Milestones, DCU, Horror, Thriller, Superhero
+
+Thu, 05 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/clayface-highest-grossing-body-horror-november-2026/
+
+Calling the film a "highest-grosser" is a low-hanging pun.
+---------
+
 # Jenna Ortega & Winona Ryder’s Wednesday Season 3 Story Reunion Teased By Netflix Series Creators
 
 TV, Wednesday, Jenna Ortega, Winona Ryder
