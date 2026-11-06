@@ -1,3 +1,432 @@
+# Jason Statham's 98-Minute James Bond-Esque Action Sequel Officially Hits Free Streaming
+
+Movies, Jason Statham, Mechanic: Resurrection, The Mechanic, Lock, Stock and Two Smoking Barrels, The Beekeeper, The Beekeeper 2
+
+Fri, 06 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/jason-statham-mechanic-resurrection-stream-tubi-november-2026/
+
+Jason Statham is beloved for his action movies, and one of his spy thriller-esque films is now available to stream for free without a subscription.
+---------
+
+# Tom Welling & Michael Rosenbaum's Smallville Sequel Series Addressed By Creators
+
+TV, Smallville, DC Universe, Superman, Tom Welling, Michael Rosenbaum
+
+Fri, 06 Nov 2026 00:51:55 GMT
+
+https://screenrant.com/smallville-dc-sequel-series-al-gough-miles-millar-update/
+
+EXCLUSIVE: Smallville creators Al Gough and Miles Millar share their approach for Tom Welling and Michael Rosenbaum's potential DC sequel show.
+---------
+
+# Walter Koenig Had A Hilarious Explanation For Star Trek’s Infamous Khan Plot Hole
+
+Movies, Star Trek, Star Trek II: The Wrath of Khan, Walter Koenig
+
+Fri, 06 Nov 2026 00:39:47 GMT
+
+https://screenrant.com/star-trek-ii-khan-plot-hole-walter-koenig-explanation/
+
+Khan recognizing Chekov in Star Trek II is one of the franchise's most famous plot holes, but Walter Koenig came to the rescue with an explanation.
+---------
+
+# The Biggest High Fantasy Series Of The Decade Officially Returns In 1 Week After Key Change
+
+Streaming TV, Masked Recs
+
+Fri, 06 Nov 2026 00:32:25 GMT
+
+https://screenrant.com/the-rings-of-power-season-3-prime-video-fantasy-series-november-2026-release/
+
+The biggest high fantasy series of the decade will return with multiple episodes next week, and this new season changes the game in one key way.
+---------
+
+# Ramayana Ending Explained: What Happens To Rama & How It Sets Up Part 2
+
+Movies, Ramayana: Rise of a Legend
+
+Fri, 06 Nov 2026 00:30:18 GMT
+
+https://screenrant.com/ramayana-ending-explained/
+
+Ramayana: Rise of a Legend ends on a massive cliffhanger that highlights the moral core of the legendary myth and sets up the upcoming sequel.
+---------
+
+# Black Doves Cast & Character Guide: Who Joins Season 2
+
+Streaming TV, Black Doves
+
+Fri, 06 Nov 2026 00:00:20 GMT
+
+https://screenrant.com/black-doves-cast-characters/
+
+The cast of Netflix's Black Doves were instrumental in making the spy thriller into one of the most unique holiday movies in recent memory.
+---------
+
+# 10 Greatest American Martial Arts Stars Of All Time, Ranked
+
+Movies, Only the Strong, Enter the Dragon, The Way of the Dragon, Drive, Blade, John Wick: Chapter 3 - Parabellum, The Perfect Weapon, Bloodfist, Blood and Bone, China O'Brien
+
+Fri, 06 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/best-american-martial-arts-movie-stars-all-time-ranked/
+
+Martial arts movies have remained a cinema mainstay for decades, and here is a selection of some of the greatest American names in the genre.
+---------
+
+# All Upcoming Guillermo Del Toro Movies & TV Shows
+
+Movies, Guillermo del Toro
+
+Fri, 06 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/guillermo-del-toro-upcoming-movies-tv-shows/
+
+Guillermo del Toro has several upcoming movies in the works, bringing his signature blend of fantasy, horror, and emotional storytelling to the screen
+---------
+
+# Chris Pratt’s Terminal List Franchise Future Confirmed At Prime Video
+
+TV, The Terminal List
+
+Thu, 05 Nov 2026 23:47:07 GMT
+
+https://screenrant.com/terminal-list-spinoff-savage-son-chris-pratt/
+
+Prime Video has announced its plans for The Terminal List as the popular franchise continues to grow for the streaming platform.
+---------
+
+# Smallville Creators Reveal Why Justin Hartley Replaced Alan Ritchson As Aquaman In Scrapped DC Pilot
+
+TV, Smallville, DC Universe, Superman, Justin Hartley, Alan Ritchson, Aquaman
+
+Thu, 05 Nov 2026 23:42:46 GMT
+
+https://screenrant.com/smallville-aquaman-spinoff-justin-hartley-alan-ritchson-cast-replaced/
+
+EXCLUSIVE: The Smallville creators open up about the canceled Aquaman show and why Alan Ritchson was replaced by Justin Hartley for the pilot.
+---------
+
+# The Lord of the Rings' Most Dreaded Creatures Don't Even Have Names
+
+Movies, The Lord of the Rings
+
+Fri, 06 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-nazgul-fellbeasts-explained/
+
+The Lord of the Rigs has plenty of terrifying creatures, but the Nazgûl mounts are also fascinating
+---------
+
+# After Just 1 Day, Robert Pattinson's New Anti-Batman Movie Emerges as a Streaming Smash
+
+Movies, Primetime, robert pattinson
+
+Fri, 06 Nov 2026 01:00:11 GMT
+
+https://www.cbr.com/primetime-thriller-pvod-apple-tv-success-november-2026/
+
+One of Pattinson's many 2026 hits is already a streaming smash after appearing on digital storefronts.
+---------
+
+# 10 Anime Characters Who Hate Having Overpowered Abilities
+
+Anime, Innovation, My Hero Academia, One-Punch Man
+
+Fri, 06 Nov 2026 00:15:12 GMT
+
+https://www.cbr.com/anime-characters-who-hate-their-op-abilities/
+
+For some anime characters, having ultimate power at their disposal is more curse than blessing.
+---------
+
+# The 3-Episode Sci-Fi Masterpiece Based on an Arthur C. Clarke Classic
+
+TV, Childhood's End, Sci-Fi, syfy
+
+Fri, 06 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/syfy-childhoods-end-arthur-c-clarke-sci-fi-masterpiece/
+
+A 2015 Syfy miniseries transformed Arthur C. Clarke's Childhood's End into three haunting, ambitious episodes of science fiction.
+---------
+
+# Project Hail Mary's Has the Greatest Quote in Hard Sci-Fi History
+
+Movies, Sci-Fi
+
+Fri, 06 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/project-hail-mary-best-quote-hard-sci-fi-history/
+
+Project Hail Mary explores human scientist Ryland Grace and alien Rocky's unusual comradeship.
+---------
+
+# Druski Teases 'Last-Ever Episode of SNL' With Controversial Hosting Plans
+
+TV, Saturday Night Live, NBC
+
+Thu, 05 Nov 2026 23:59:28 GMT
+
+https://www.cbr.com/saturday-night-live-druski-promo/
+
+Druski hints at getting Saturday Night Live canceled with a controversial hosting debut.
+---------
+
+# Chris Pratt's The Terminal List Future Officially Confirmed by Prime Video With Surprise Twist
+
+Movies, The Terminal List, Prime Video
+
+Thu, 05 Nov 2026 23:42:48 GMT
+
+https://www.cbr.com/the-terminal-list-savage-son-chris-pratt-prime-video/
+
+Chris Pratt returns as James Reece in Savavge Son.
+---------
+
+# Adam Driver Confirms Kylo Ren's Star Wars Future 7 Years After The Rise of Skywalker
+
+Movies, Star Wars, Star Wars: Episode IX - The Rise of Skywalker, Sci-Fi
+
+Thu, 05 Nov 2026 23:35:22 GMT
+
+https://www.cbr.com/star-wars-hunt-for-ben-solo-kylo-ren-adam-driver-its-over/
+
+Adam Driver says "it's over" to Kylo Ren return.
+---------
+
+# Legendary 31-Year-Old Space Western Officially Returns With New Release This Winter
+
+Anime, Trigun, Trigun Stampede
+
+Thu, 05 Nov 2026 23:35:11 GMT
+
+https://www.cbr.com/trigun-manuscript-winter-release-announce/
+
+One of the most beloved space westerns of the '90s is making a surprise comeback this winter.
+---------
+
+# Zelda Brings Back 4 Classic Releases Starting November 6
+
+Games, The Legend of Zelda, The Legend of Zelda: Tears of the Kingdom
+
+Thu, 05 Nov 2026 23:30:12 GMT
+
+https://www.cbr.com/zelda-brings-back-4-classic-releases-starting-november-6/
+
+The Legend of Zelda is bringing back four figures this November, including three adorable plushies and an awesome figure of Link.
+---------
+
+# Jake Gyllenhaal’s 124-Minute Disaster Thriller Officially Makes a Streaming Comeback
+
+Movie News, The Day After Tomorrow, Jake Gyllenhaal, Dennis Quaid, Sci-Fi
+
+Fri, 06 Nov 2026 01:00:12 GMT
+
+https://collider.com/jake-gyllenhaal-the-day-after-tomorrow-streaming-success-netflix-november-2026/
+
+Jake Gyllenhaal's sci-fi disaster hit The Day After Tomorrow continues to dominate Netflix's streaming charts decades later.
+---------
+
+# 5 HBO Mystery Shows With No Bad Seasons, Ranked
+
+TV, HBO, Mystery, True Detective, The White Lotus
+
+Fri, 06 Nov 2026 00:39:12 GMT
+
+https://collider.com/hbo-mystery-shows-no-bad-seasons-ranked/
+
+From the satirical anthology The White Lotus to the fantasy horror series True Blood, these HBO mystery shows don’t feature a single bad season.
+---------
+
+# The 10 Best Netflix Original Thriller Movies, Ranked
+
+Movie, Netflix, Thriller, The Killer, Carry On
+
+Fri, 06 Nov 2026 00:12:12 GMT
+
+https://collider.com/best-netflix-original-thriller-movies-ranked/
+
+Netflix has released many well-crafted thrillers over the years, including the likes of The Night Comes for Us, Carry-On, and Rebel Ridge.
+---------
+
+# Jon Bernthal’s 13-Episode Action-Packed Thriller Is a Start to Finish Masterpiece
+
+TV Features, The Punisher, Jon Bernthal, Netflix, Spider-Man: Brand New Day
+
+Fri, 06 Nov 2026 00:02:12 GMT
+
+https://collider.com/jon-bernthal-the-punisher-netflix-marvel-perfect-action-thriller/
+
+The Punisher series on Netflix is a bloody, gripping watch thanks to Jon Bernthal’s masterful performance as Frank Castle.
+---------
+
+# James Bond Frontrunner Officially Reacts to Recent Rumors
+
+Movie News, Josh O'Connor, James Bond, Amazon, Steven Spielberg
+
+Fri, 06 Nov 2026 00:00:12 GMT
+
+https://collider.com/josh-oconnor-james-bond-rumors-reaction/
+
+Disclosure Day star Josh O'Connor has officially responded to rumors that he's being considered for the next James Bond role.
+---------
+
+# 'Yellowstone' Killed Off One of Its Best Characters Too Early
+
+TV Features, Yellowstone, Taylor Sheridan, Paramount, Western
+
+Thu, 05 Nov 2026 23:58:12 GMT
+
+https://collider.com/yellowstone-lee-dutton-death-killed-off-too-early/
+
+What happened to Lee Dutton on Yellowstone, and why did Dave Annable leave the show so abruptly?
+---------
+
+# Prime Video Officially Decides the Fate of Chris Pratt's 'The Terminal List' After Season 2
+
+TV News, The Terminal List, Chris Pratt, Prime Video, Action
+
+Thu, 05 Nov 2026 23:48:45 GMT
+
+https://collider.com/prime-video-the-terminal-list-savage-son-chris-pratt-return/
+
+Chris Pratt will officially reprise his role as James Reece as Prime Video officially decides the long-term future of The Terminal List.
+---------
+
+# 'Matlock' Officially Won't Return in 2026
+
+TV News, Matlock, CBS, Procedural, Drama
+
+Thu, 05 Nov 2026 23:40:28 GMT
+
+https://collider.com/matlock-season-3-2027-return-cbs/
+
+Kathy Bates’ Matlock won’t return in 2026. Season 3 moves to CBS’s 2027 midseason lineup with a new mystery and a major reset.
+---------
+
+# Sylvester Stallone Lays Down the Law in New ‘Tulsa King’ Season 4 Clip
+
+TV News, Tulsa King, Taylor Sheridan, Sylvester Stallone, Paramount Plus
+
+Thu, 05 Nov 2026 23:00:12 GMT
+
+https://collider.com/tulsa-king-season-4-episode-4-first-look-clip/
+
+An exclusive new Tulsa King Season 4 clip shows Sylvester Stallone’s Dwight warning Ray — and anyone thinking about helping him.
+---------
+
+# Anya Taylor-Joy’s 128-Minute Sci-Fi Thriller Is Officially One of Apple TV’s Biggest Movies Ever
+
+Movie News, The Gorge, Anya Taylor-Joy, Apple TV, Scott Derrickson
+
+Thu, 05 Nov 2026 23:00:12 GMT
+
+https://collider.com/anya-taylor-joy-the-gorge-streaming-success-apple-tv-november-2026/
+
+Apple TV's must-watch sci-fi thriller starring Anya Taylor-Joy has officially been in the Top 10 for over 300 days.
+---------
+
+# The Biggest R-Rated Movie Ever Officially Returns to 1,000 Theaters After $1.8 Billion Run
+
+Movie News, The Odyssey, Fantasy, Adventure, Box Office Milestones
+
+Fri, 06 Nov 2026 00:00:17 GMT
+
+https://movieweb.com/the-odyssey-december-theatrical-rerelease/
+
+The Odyssey is heading back to theaters for a limited-format encore that says a lot about how event movies now play.
+---------
+
+# All 7 Marvel Characters Paul Bettany Has Played in the MCU (Number 1 Pays Off a 15 Year Old Easter Egg)
+
+Movie Lists, Paul Bettany, Marvel Cinematic Universe, VisionQuest, WandaVision, Superhero
+
+Fri, 06 Nov 2026 00:00:17 GMT
+
+https://movieweb.com/paul-bettany-marvel-characters/
+
+While Vision is Paul Bettany's most iconic role, the actor has played a number of characters across the MCU timeline.
+---------
+
+# Keanu Reeves' Long-Awaited 'John Wick' Prequel Takes Major Step Forward
+
+Movie News, John Wick, Keanu Reeves, Action
+
+Thu, 05 Nov 2026 23:46:13 GMT
+
+https://movieweb.com/john-wick-keanu-reeves-animated-prequel/
+
+Keanu Reeves is set to reprise his role as John Wick in a film that details The Impossible Task.
+---------
+
+# 22 Years Later, HBO's 36-Episode Western Masterpiece Is Still Better Than Peak 'Yellowstone'
+
+Features, Deadwood, HBO Max, Yellowstone, Western
+
+Thu, 05 Nov 2026 23:00:16 GMT
+
+https://movieweb.com/deadwood-yellowstone-comparison/
+
+HBO has a far better TV show that deconstructs the myths of the American West than Taylor Sheridan's 'Yellowstone'.
+---------
+
+# One of the Best Sci-Fi Thrillers of the 21st Century Is Officially Getting a New Release
+
+Movie News, The Host, Bong Joon  Ho, Sci-Fi, Thriller, Blu-ray
+
+Thu, 05 Nov 2026 23:00:16 GMT
+
+https://movieweb.com/the-host-4k-blu-ray-release/
+
+Magnolia Home Entertainment is celebrating the 20th anniversary of Bong Joon-ho's 'The Host' with a brand new 4K Blu-ray combo release.
+---------
+
+# Sydney Sweeney's 'Sleepy Hollow' Reboot Recruits 'He-Man' Star for Iconic Role
+
+Movie News, Sydney Sweeney, Sleepy Hollow, Nicholas Galitzine, Horror, Thriller
+
+Thu, 05 Nov 2026 22:54:08 GMT
+
+https://movieweb.com/sleepy-hollow-reboot-nicholas-galitzine/
+
+'Hollow', in which Sydney Sweeney will star and produce, has cast a 'Masters of the Universe' star for a role previously played by Johnny Depp.
+---------
+
+# Denzel Washington's 126-Minute Sci-Fi Action Thriller Officially Shoots Onto Free Streaming
+
+Movie News, Déjà Vu, Denzel Washington, Coming/Leaving Streaming, Sci-Fi, Action, Thriller
+
+Thu, 05 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/deja-vu-denzel-washington-streaming-free-tubi-november-2026/
+
+Denzel Washington teamed with the late Tony Scott in 2006 to deliver an action thriller that puts a unique spin on the sci-fi genre.
+---------
+
+# Adam Driver Officially Confirms Villain Role in DiCaprio's Long-Awaited Action Thriller Sequel
+
+Movie News, Heat 2, Heat, Adam Driver, Action, Thriller, Crime
+
+Thu, 05 Nov 2026 21:19:35 GMT
+
+https://movieweb.com/heat-2-adam-driver/
+
+Adam Driver is set to go full villain mode with his upcoming role.
+---------
+
+# 'VisionQuest' Finally Solves a 48-Year-Old Marvel Comics Mystery
+
+Features, VisionQuest, Marvel Cinematic Universe, Superhero
+
+Thu, 05 Nov 2026 21:00:16 GMT
+
+https://movieweb.com/visionquest-paladin-real-name/
+
+The Paladin is a great addition to the MCU, and the franchise has made sure to boldly flesh out the character's lore. Read on for more.
+---------
+
 # 7 Best Underrated Tony Todd Horror Movies You Haven't Seen, Including The Hatchet Movies
 
 Movies, Tony Todd
