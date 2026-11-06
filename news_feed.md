@@ -1,3 +1,344 @@
+# Stranger Things Cast Reunites For One Last Laugh In Surprising New Release
+
+TV, Stranger Things
+
+Fri, 06 Nov 2026 08:01:19 GMT
+
+https://screenrant.com/stranger-things-cast-netflix-blooper-reel/
+
+Netflix celebrates Stranger Things Day with a surprising new release, reuniting the hit science fiction series' cast on screen one more time.
+---------
+
+# The Lord Of The Rings Officially Unveils A Very Different Aragorn
+
+Gaming, The Lord of the Rings, Beyond the Movie: The Fellowship of the Ring, The Lord of the Rings: The Two Towers, The Lord of the Rings: The Return of the King, PC
+
+Fri, 06 Nov 2026 08:01:19 GMT
+
+https://screenrant.com/lord-of-the-rings-aragorn-redesign-figures/
+
+The Lord of the Rings' newest Aragorn look is something completely unexpected and different, reimagining the iconic Viggo Mortenson role.
+---------
+
+# Michael B. Jordan's Fantasy Series On Prime Video Reinvents The Genre, And Some Fans Won't Like It
+
+TV, Michael B. Jordan, Masked Recs
+
+Fri, 06 Nov 2026 07:34:19 GMT
+
+https://screenrant.com/fourth-wing-change-fantasy-tv-genre-not-like/
+
+Sinners star Michael B. Jordan might be behind Prime Video’s lavish dragon rider epic, but the fantasy show could sink thanks to one huge risk.
+---------
+
+# Stardew Valley: Timberline Falls Adds Whole New Region To Explore
+
+Gaming, Stardew Valley
+
+Fri, 06 Nov 2026 07:30:18 GMT
+
+https://screenrant.com/stardew-valley-timberline-falls-fan-expansion/
+
+Stardew Valley: Timberline Falls adds a whole new region to the game, including brand-new NPCs, quests, special orders, and so much more.
+---------
+
+# 8 Episodes Of Netflix’s Greatest Sci-Fi Hit Deliver Peak Lovecraftian Horror
+
+Streaming TV, Masked Recs
+
+Fri, 06 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/netflix-stranger-things-lovecraftian-cosmic-horror/
+
+One of Netflix’s greatest sci-fi hits of all time delivers peak Lovecraftian cosmic horror in the first 8 episodes of its long 42-episode runtime.
+---------
+
+# A Knight Of The Seven Kingdoms Officially Returns December 16
+
+Gaming, A Knight Of The Seven Kingdoms, Game of Thrones, Game Of Thrones, PC, George R.R. Martin
+
+Fri, 06 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/knight-of-seven-kingdoms-december-2026-tcg-release/
+
+A Knight of the Seven Kingdoms is officially back on December 16th thanks to a brand-new collection featuring George R.R. Martin's beloved characters.
+---------
+
+# Steam Officially Drops 4 Free 10/10 Games
+
+Gaming
+
+Fri, 06 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/steam-4-free-10-rated-games-november-2026/
+
+Steam's newest slate of free games includes four 10/10 bangers from a range of popular genres, including RPGs, horror, and puzzle games.
+---------
+
+# 100-Episode Sci-Fi Series Successfully Mastered The Monster-Of-The-Week Formula
+
+TV, Masked Recs
+
+Fri, 06 Nov 2026 06:05:18 GMT
+
+https://screenrant.com/fringe-sci-fi-monster-of-the-week-formula/
+
+An inventive monster-of-the-week rhythm let Fox's 100-episode hit explore bizarre cases while still unspooling a tangled multiverse conspiracy.
+---------
+
+# New 9/10 Bloodborne Replacement Announces Major Update
+
+Gaming, Bloodborne, Steam, PC
+
+Fri, 06 Nov 2026 06:00:17 GMT
+
+https://screenrant.com/bloodborne-replacement-tombwater-boss-respec-update/
+
+This 9/10 Bloodborne replacement released earlier this year just announced a major update, and it's the perfect time to try it out for yourself.
+---------
+
+# The Wheel Of Time Universe's True Finale Officially Arrives June 2027
+
+Gaming, The Wheel of Time, PC
+
+Fri, 06 Nov 2026 05:30:17 GMT
+
+https://screenrant.com/wheel-of-time-true-finale-june-2027-war-of-dragon/
+
+The Wheel of Time's 2027 return is one of the most anticipated events for the franchise in years, and fans are finally getting its true finale.
+---------
+
+# David Lynch-Produced Movie Replaces Both Lead Stars Ahead of 2027 Production Start
+
+Movies, David Lynch, Twin Peaks, Mulholland Drive
+
+Fri, 06 Nov 2026 04:51:49 GMT
+
+https://www.cbr.com/david-lynch-hyena-cast-kiernan-shipka-dpharaoh-woon-a-tai/
+
+One of the final films to bear the name of the late, great David Lynch gets new stars just months ahead of the start of production.
+---------
+
+# 10 Greatest Anime Rivalries of All Time, Ranked
+
+Anime, Dragon Ball, Naruto, Jujutsu Kaisen
+
+Fri, 06 Nov 2026 04:45:11 GMT
+
+https://www.cbr.com/greatest-anime-rivalries-of-all-time-ranked/
+
+The best rivalries bring the best out of a character, forcing them to become the best version of themselves in order to take their rival on.
+---------
+
+# The Acolyte Creator Sets Rosamund Pike to Star in Remake of Acclaimed Horror Movie
+
+Movies, Horror, Rosamund Pike
+
+Fri, 06 Nov 2026 04:37:51 GMT
+
+https://www.cbr.com/rosamund-pike-body-horror-movie-feed/
+
+The Wheel of Time's Rosamund Pike is leading the cast of the horror remake.
+---------
+
+# The 2-Part Fantasy Series That Wasted 2 Smallville Stars Is Still 1 of TV's Biggest Fumbles
+
+TV, Earthsea
+
+Fri, 06 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/legend-of-earthsea-biggest-fantasy-tv-fumble/
+
+This classic fantasy Earthsea novel series still lacks a good adaptation, and the disappointing trend began with a 2004 live-action miniseries.
+---------
+
+# 10 Best Running Gags In Peanuts Comic Strips
+
+Comics, Peanuts
+
+Fri, 06 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/best-running-gags-in-peanuts-comic-strips/
+
+The Peanuts comic strip has amazing running gags that have made Snoopy, Charlie Brown, and more into beloved household names.
+---------
+
+# Lost Fantasy and Fireborn Creator Reveals His Brand-New Comic Book Universe
+
+Comics, image comics
+
+Fri, 06 Nov 2026 04:21:33 GMT
+
+https://www.cbr.com/creature-corps-lost-fantasy-fireborn-image-curt-pires-interview/
+
+In a CBR exclusive interview with Curt Pires, we discuss his new comic book, Creature Corps, which is a whole new universe to add to Lost Fantasy
+---------
+
+# Zelda vs. GTA 6, Ranked By CBR Readers
+
+Games, The Legend of Zelda: Ocarina of Time, Grand Theft Auto 6, The Legend of Zelda
+
+Fri, 06 Nov 2026 04:15:12 GMT
+
+https://www.cbr.com/zelda-ocarina-of-time-gta-6-ranked-by-cbr-readers/
+
+Two massive video game releases are dropping in November 2026, and CBR readers have weighed in about which one they're most excited for.
+---------
+
+# Transformers Officially Unites 5 Classic Dinobots for Major New Combiner
+
+Anime, Transformers, The Transformers, merchandise, toys
+
+Fri, 06 Nov 2026 04:10:11 GMT
+
+https://www.cbr.com/transformers-volcanicus-combining-accessory-model-kit-release/
+
+The newest wave of Blokees Transformers model kits includes the pieces necessary to unite a prehistoric group of Autoobts into the ultimate Combiner.
+---------
+
+# Michael Bay & John Krasinski's 144-Minute War Thriller Is a Streaming Hit 10 Years Later
+
+Movies, michael bay, john krasinski, Paramount Plus
+
+Fri, 06 Nov 2026 04:10:00 GMT
+
+https://www.cbr.com/13-hours-secret-soldiers-benghazi-thriller-paramountsuccessnovember2026/
+
+John Krasinski and Michael Bay's war movie is finding new life 10 years later.
+---------
+
+# John Wick Fans Have a New 140-Minute Spy Thriller to Watch on HBO Max
+
+Movies, Red Sparrow, HBO Max, From the World of John Wick: Ballerina
+
+Fri, 06 Nov 2026 03:58:45 GMT
+
+https://www.cbr.com/red-sparrow-hbo-max-streaming-success-november-2026/
+
+A divisive spy thriller starring Jennifer Lawrence has entered the streaming charts.
+---------
+
+# 7 Best Miniseries You Can Binge in a Weekend, Ranked
+
+TV, TV Miniseries, The Night Of, Sharp Objects, One Day
+
+Fri, 06 Nov 2026 05:51:12 GMT
+
+https://collider.com/best-miniseries-binge-one-weekend/
+
+From The Queen's Gambit to One Day, these filler-free masterpieces trade multi-season commitments for complete, unforgettable stories.
+---------
+
+# 5 Most Mind-Bending Sci-Fi Books of All Time, Ranked
+
+Books and Comics, Science Fiction, Sci-Fi, 3 Body Problem, Solaris
+
+Fri, 06 Nov 2026 05:08:12 GMT
+
+https://collider.com/sci-fi-books-most-mind-bending-all-time-ranked/
+
+From the classic alien tale Solaris to the modern masterpiece The Three-Body Problem, these sci-fi books are genuinely mind-bending stories.
+---------
+
+# Fox Officially Replaces ‘9-1-1’ in 2027
+
+TV Features, 9-1-1, Fox, Baywatch, Stephen Amell
+
+Fri, 06 Nov 2026 04:05:12 GMT
+
+https://collider.com/baywatch-reboot-911-replacement-fox/
+
+Fox greenlights Baywatch revival to replace 9-1-1 and boost ratings. With original creators returning, will the iconic series capture the magic of the
+---------
+
+# Russell Crowe's Crime Thriller 'The Nice Guys' Resurfaces as a #1 Streaming Hit 10 Years Later
+
+Movie Features, The Nice Guys, Russell Crowe, Ryan Gosling, AppleTV
+
+Fri, 06 Nov 2026 04:03:12 GMT
+
+https://collider.com/russell-crowe-the-nice-guys-streaming-apple-tv-number-one/
+
+Russell Crowe's 2016 crime thriller The Nice Guys was a box office disappointment, but it has found a second life  as Apple TV's most-streamed movie.
+---------
+
+# 'High Potential' Officially Won't Return Until 2027
+
+TV News, High Potential, ABC, Kaitlin Olson, Drew Goddard
+
+Fri, 06 Nov 2026 02:59:25 GMT
+
+https://collider.com/high-potential-season-3-2027-return-super-bowl-abc/
+
+High Potential won’t return in 2026. ABC has a new episode of the Kaitlin Olson-led crime series set to air after the Super Bowl.
+---------
+
+# Netflix's 'Haunted Hotel' Just Broke a Major Streaming Curse
+
+TV Features, Haunted Hotel, Netflix, Comedy, Animation
+
+Fri, 06 Nov 2026 02:36:12 GMT
+
+https://collider.com/haunted-hotel-season-3-renewed-netflix-streaming-curse/
+
+Haunted Hotel has officially been renewed for Season 3, effectively snapping a streaming curse that's killed many Netflix shows.
+---------
+
+# 8 Worst Book-to-Movie Adaptations Ever, Ranked
+
+Movie, Persuasion, World War Z, The Giver, Books
+
+Fri, 06 Nov 2026 02:24:12 GMT
+
+https://collider.com/worst-book-to-movie-adaptations-ranked/
+
+Persuasion, The Giver, World War Z, The Dark Tower, Dune, and more make up our list of the worst book-to-movie adaptations.
+---------
+
+# CBS Officially Gives Mike Colter's New Legal Thriller a Sunday Night Takeover
+
+TV News, Cupertino, CBS, Mike Colter, Thriller
+
+Fri, 06 Nov 2026 01:49:35 GMT
+
+https://collider.com/cupertino-cbs-sunday-takeover-mike-colter-november-8/
+
+Mike Colter’s Cupertino takes over CBS on November 8 with 3 back-to-back episodes, including the new episode “Harper.”
+---------
+
+# Forget ‘The Traitors,’ Alan Cumming’s 2-Season Apple TV Flop Demands a Weekend Binge
+
+TV Features, Schmigadoon!, Apple TV, Alan Cumming, Keegan Michael Key
+
+Fri, 06 Nov 2026 01:13:12 GMT
+
+https://collider.com/schmigadoon-alan-cumming-traitors-apple-tv/
+
+Alan Cumming's standout performance in the musical comedy Schmigadoon! is streaming on Apple TV for all Traitors fans.
+---------
+
+# ‘Ghosts’ Fans Waiting for Season 6 Have the Perfect 5-Season Replacement on Prime Video
+
+TV Features, iZombie, Rose McIver, Ghosts, Prime Video
+
+Fri, 06 Nov 2026 01:10:31 GMT
+
+https://collider.com/cbs-ghosts-season-6-replacement-cw-izombie-prime-video/
+
+iZombie is the perfect follow-up to Ghosts, sharing leading lady Rose McIver and similar supernatural hijinks. It’s now streaming on Prime Video.
+---------
+
+# The 8 Greatest Hobbes Quotes in ‘Calvin and Hobbes’ History
+
+Movie Lists, comics, Calvin and Hobbes
+
+Fri, 06 Nov 2026 03:00:26 GMT
+
+https://movieweb.com/calvin-hobbes-best-hobbes-quotes/
+
+You may think Calvin has all the good lines in Calvin and Hobbes, but often, the imaginary tiger was equally witty and philosophical.
+---------
+
 # Jason Statham's 98-Minute James Bond-Esque Action Sequel Officially Hits Free Streaming
 
 Movies, Jason Statham, Mechanic: Resurrection, The Mechanic, Lock, Stock and Two Smoking Barrels, The Beekeeper, The Beekeeper 2
