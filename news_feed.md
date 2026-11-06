@@ -1,3 +1,443 @@
+# 'Bond Meets Sherlock' Series With 32 Episodes Is Hands Down Prime Video's Best Show
+
+Streaming TV, Masked Recs
+
+Fri, 06 Nov 2026 21:31:19 GMT
+
+https://screenrant.com/reacher-best-prime-video-series/
+
+With so many great options, selecting Prime Video's best show is tough, but this four-season gem combining James Bond with Sherlock is hard to beat.
+---------
+
+# ABC’s New Medical Spinoff Series Delayed To Fall 2027 As It Changes Locations
+
+TV, Grey's Anatomy
+
+Fri, 06 Nov 2026 21:20:26 GMT
+
+https://screenrant.com/greys-anatomy-spinoff-series-location-change-release-date-delay/
+
+ABC was expected to launch a brand-new medical spinoff series in midseason 2027. Those plans have now changed following a shocking setback.
+---------
+
+# 5 Action Movie Trilogies Better Than Die Hard, Ranked
+
+Movies, Die Hard
+
+Fri, 06 Nov 2026 21:20:19 GMT
+
+https://screenrant.com/action-movie-trilogies-better-than-die-hard-ranked/
+
+The original Die Hard films features some of the greatest action stories ever told on the big screen, but these excellent trilogies are even better.
+---------
+
+# Bradley Cooper's New GI Joe Movie Sets Official Release Date
+
+Movies, G.I. Joe Reboot
+
+Fri, 06 Nov 2026 21:14:50 GMT
+
+https://screenrant.com/paramount-gi-joe-danny-mcbride-bradley-cooper-release-date/
+
+Bradley Cooper's highly anticipated movie adaptation of Hasbro's G.I. Joe finally receives an official release date from Paramount.
+---------
+
+# 3 Best New Netflix Series To Binge-Watch This Weekend (November 6–8, 2026)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 06 Nov 2026 21:00:19 GMT
+
+https://screenrant.com/best-new-netflix-shows-to-binge-weekend-november-6-2026/
+
+The top 3 new Netflix series to binge-watch this weekend, November 6–8, 2026, include Taken: Natalee Holloway, Under Siege, and Black Doves season 2.
+---------
+
+# Dungeons & Dragons Unveils Brand-New Species You Can Play For Free
+
+Tabletop, Dungeons and Dragons, tabletop games
+
+Fri, 06 Nov 2026 21:00:19 GMT
+
+https://screenrant.com/dungeons-dragons-free-new-species-bariaur-november-2026/
+
+A brand-new playable species for Dungeons and Dragons 5.5e has just been revealed, and it’s entirely free for players to check out and use.
+---------
+
+# NBC Quietly Writes Out Three More Chicago Fire Characters After Cruz's Exit
+
+Network TV, Chicago Fire
+
+Fri, 06 Nov 2026 20:45:19 GMT
+
+https://screenrant.com/chicago-fire-chloe-otis-javi-exit/
+
+Chicago Fire's 300th episode was more than a final goodbye to Cruz; it also confirmed the departures of three other integral characters.
+---------
+
+# The Remarried Empress Cast Reveal Their Characters' Inner Lives
+
+Interviews, The Remarried Empress, The Remarried Empress - Season 1
+
+Fri, 06 Nov 2026 20:41:22 GMT
+
+https://screenrant.com/the-remarried-empress-cast-shin-mina-ju-jihoon-lee-jongsuk-lee-seyoung/
+
+Shin Min-a, Ju Ji-hoon, Lee Jong-suk, and Lee Se-young break down the hidden sides and vulnerabilities of The Remarried Empress' infamous characters.
+---------
+
+# Medusa Movie In Development From Tangled Writer
+
+Movies, Disney
+
+Fri, 06 Nov 2026 20:40:18 GMT
+
+https://screenrant.com/medusa-movie-development/
+
+Disney is bringing new life to Ancient Greece, as the live-action Tangled remake writer is working on a whole new movie focused on Medusa.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (November 7-8)
+
+Movies, Disney+, Recommendation
+
+Fri, 06 Nov 2026 20:37:10 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-november-7/
+
+Disney+ subscribers will find the streamer's best movies this weekend to be a $1.5 billion space opera, a superhero epic, and a fantasy classic.
+---------
+
+# Jujutsu Kaisen Officially Reveals First Look at New Culling Game Release Coming This Month
+
+Anime, Jujutsu Kaisen
+
+Fri, 06 Nov 2026 21:40:12 GMT
+
+https://www.cbr.com/jujutsu-kaisen-culling-game-visual-phantom-parade/
+
+Jujutsu Kaisen fans get their first glimpse at the next chapter of the Culling Game with a beautiful new piece of artwork.
+---------
+
+# Solo Leveling's New Episode Officially Changes the OG Manhwa's Ending Forever
+
+Anime, Solo Leveling
+
+Fri, 06 Nov 2026 21:35:12 GMT
+
+https://www.cbr.com/solo-leveling-ragnarok-episode-71-change-original-manhwa-ending/
+
+It's impossible to look at the original epilogue of the Solo Leveling manhwa the same after the latest episode of the Solo Leveling: Ragnarok webtoon.
+---------
+
+# 10 Hardest Pinball Machines of the 1980s, Ranked
+
+Games, Pinball
+
+Fri, 06 Nov 2026 21:16:12 GMT
+
+https://www.cbr.com/hardest-pinball-machines-1980s-ranked/
+
+From Black Hole to Black Knight 2000, these 1980s pinball machines pushed players' reflexes, timing, and ball control to their limits.
+---------
+
+# TMNT’s Live-Action & Animated Futures Get Major Update After Paramount/Warner Bros. Merger
+
+Movies, Teenage Mutant Ninja Turtles, Teenage Mutant Ninja Turtles: Mutant Mayhem 2, Teenage Mutant Ninja Turtles: Mutant Mayhem
+
+Fri, 06 Nov 2026 21:12:53 GMT
+
+https://www.cbr.com/teeange-mutant-ninja-turtles-tmnt-movie-reboot-mutant-mayhem-2/
+
+Two TMNT movies are in development.
+---------
+
+# Forget The Odyssey, Dwayne Johnson Is Making His Own Greek Mythology Movie
+
+Movies, dwayne johnson
+
+Fri, 06 Nov 2026 21:11:35 GMT
+
+https://www.cbr.com/medusa-movie-dwayne-johnson/
+
+The Rock sets his sights on Greek mythology for his next ambitious feature.
+---------
+
+# Netflix’s R-Rated 4-Part Sci-Fi Show Is Bigger Than Black Mirror in Every Possible Way
+
+TV, Love, Death & Robots, Netflix, Sci-Fi
+
+Fri, 06 Nov 2026 21:01:12 GMT
+
+https://www.cbr.com/netflix-love-death-robots-rivals-black-mirror/
+
+Netflix's sci-fi anthology series Love, Death & Robots does everything bigger and better than Black Mirror.
+---------
+
+# Spider-Man's Greatest Story In The Comics Finally Needs an Adaptation
+
+Comics, Marvel Comics, Spider-Man, peter parker
+
+Fri, 06 Nov 2026 21:01:12 GMT
+
+https://www.cbr.com/spider-man-kravens-last-hunt-reboot-needed/
+
+It's time for Spider-Man's best comic book story to be adapted in some form.
+---------
+
+# 10 Most Unwatchable Disney Movies Of All Time, Ranked
+
+Movies, Disney, Innovation
+
+Fri, 06 Nov 2026 21:01:12 GMT
+
+https://www.cbr.com/unwatchable-disney-movies-list/
+
+With so many movies under their belt, Disney is bound to have a few duds, but these ten films go beyond that and are outright unwatchable.
+---------
+
+# Prime Video's New Zombie Sequel Is Officially the Most-Streamed Movie in the World
+
+Movies, Apocalypse Z: The Beginning of the End, Prime Video, Horror
+
+Fri, 06 Nov 2026 20:52:17 GMT
+
+https://www.cbr.com/apocalypse-z-new-world-horror-streaming-success-november-2026/
+
+A zombie flick dominates the streaming charts on Prime Video.
+---------
+
+# Legendary Gears of War Character Free for All E-Day Players
+
+Games, Gears of War
+
+Fri, 06 Nov 2026 20:39:07 GMT
+
+https://www.cbr.com/gears-of-war-eday-free-character-raam/
+
+To celebrate the 20th anniversary of the Gears of War franchise, the games' original villain is returning as a free playable character in E-Day.
+---------
+
+# The Lord of the Rings Officially Unveils a Very Different Version of Aragorn
+
+Movie News, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, Merchandise, Viggo Mortensen
+
+Fri, 06 Nov 2026 21:39:21 GMT
+
+https://collider.com/lord-of-the-rings-aragorn-viggo-mortensen-new-design-images/
+
+Viggo Mortensen’s Aragorn gets a radical new look in a 5-character Lord of the Rings QBitz collection featuring Arwen, Gimli, and more.
+---------
+
+# ‘G.I. Joe’ Officially Returns as New Movie Sets Release Date
+
+Movie News, G.I. Joe Reboot, Bradley Cooper, Danny McBride, Hasbro
+
+Fri, 06 Nov 2026 21:34:05 GMT
+
+https://collider.com/paramount-gi-joe-reboot-release-date-october-2028/
+
+Paramount’s G.I. Joe reboot officially has a release date, with Bradley Cooper set to lead the action-packed revival.
+---------
+
+# Forget ‘The Night Agent,’ Prime Video’s 3-Part Spy Thriller Series Is the Perfect Weekend Binge
+
+TV Features, The Night Agent, Netflix, Prime Video, Thriller
+
+Fri, 06 Nov 2026 21:24:12 GMT
+
+https://collider.com/night-agent-replacement-series-prime-video-alex-rider/
+
+Alex Rider is a thrilling 24-episode spy series on Prime Video, blending dangerous missions, shocking twists, and gripping espionage.
+---------
+
+# J.J. Abrams’ ‘Jurassic Park’ Replacement HBO Max Release Date Officially Confirmed
+
+Movie News, The End of Oak Street, HBO Max, Anne Hathaway, Ewan McGregor
+
+Fri, 06 Nov 2026 20:51:45 GMT
+
+https://collider.com/jj-abrams-the-end-of-oak-street-streaming-hbo-max-november-2026/
+
+J.J. Abrams’ Jurassic Park replacement, The End of Oak Street, is officially debuting on HBO Max this month. Read on for more.
+---------
+
+# 3 Coziest Movies to Watch on Netflix This Weekend (November 7-8)
+
+Movie, Netflix, Wallace & Gromit: Vengeance Most Fowl, The Thursday Murder Club, The Guernsey Literary and Potato Peel Pie Society
+
+Fri, 06 Nov 2026 20:29:12 GMT
+
+https://collider.com/coziest-movies-watch-netflix-this-weekend-november-7/
+
+Delightful movies like Wallace & Gromit: Vengeance Most Fowl and The Thursday Murder Club are among the coziest you can watch this weekend on Netflix.
+---------
+
+# 10 Thriller Shows With the Greatest Villain Performances, Ranked
+
+TV, Mindhunter, Hannibal, Twin Peaks, Thriller
+
+Fri, 06 Nov 2026 20:08:12 GMT
+
+https://collider.com/thriller-shows-best-villain-performances-ranked/
+
+These gripping thriller TV shows feature unforgettable villains and captivating performances, from Mr. Robot to Twin Peaks.
+---------
+
+# ‘Grey’s Anatomy’ Texas Spin-Off Is Officially Coming
+
+TV News, Grey's Anatomy, ABC, Drama, Procedural
+
+Fri, 06 Nov 2026 20:02:50 GMT
+
+https://collider.com/greys-anatomy-texas-spinoff-2027-abc-shonda-rhimes/
+
+ABC has ordered a new Grey’s Anatomy spin-off set at a rural West Texas medical center, with Shonda Rhimes returning for the 2027 series.
+---------
+
+# The Cat in the Hat: 3 Art Styles Created a Huge Problem | Set Stories
+
+Movie, The Cat in the Hat
+
+Fri, 06 Nov 2026 19:16:12 GMT
+
+https://collider.com/video/the-cat-in-the-hat-3-art-styles-created-a-huge-problem-set-stories/
+
+Bill Hader, Quinta Brunson, Giancarlo Esposito, Xochitl Gomez, America Ferrera, and Tiago Martinez take us behind the scenes of The Cat in the Hat (2026), revealing the creative freedom, unexpected voice techniques, and personal connections that helped bring Dr. Seuss's beloved characters to life.
+---------
+
+# 6 Essential Crime Books for Beginners
+
+Books and Comics, Crime, The Postman Always Rings Twice, Get Shorty, Play Dirty
+
+Fri, 06 Nov 2026 19:02:13 GMT
+
+https://collider.com/essential-crime-books-beginners/
+
+For readers exploring the crime genre for the first time, books like The Postman Always Rings Twice and Harlem Shuffle are a great place to start.
+---------
+
+# ’X-Men ‘97’ Stars Officially Return for New 2027 Rogue and Gambit Release
+
+Books and Comics News, X-Men, X-Men '97, Books, Marvel
+
+Fri, 06 Nov 2026 19:00:12 GMT
+
+https://collider.com/x-men-97-rogue-gambit-audiobook-lenore-zann-aj-locascio/
+
+Collider exclusively reveals that X-Men ’97 stars Lenore Zann and A.J. LoCascio will narrate the Rogue and Gambit chapters of Marvel’s new audiobook.
+---------
+
+# Bradley Cooper's 'G.I. Joe' Movie Officially Confirms Release Date
+
+Movie News, Bradley Cooper, Action, G.I. Joe Reboot, G.I. Joe
+
+Fri, 06 Nov 2026 21:39:17 GMT
+
+https://movieweb.com/gi-joe-movie-release-date/
+
+Bradley Cooper's 'G.I. Joe' action movie reboot now has an official release date, and knowing it is half the battle.
+---------
+
+# 'Godzilla Minus Zero's 13 Biggest Easter Eggs & References
+
+Features, Godzilla Minus Zero, Godzilla Minus One, Godzilla, Sci-Fi
+
+Fri, 06 Nov 2026 21:31:17 GMT
+
+https://movieweb.com/godzilla-minus-zero-easter-eggs/
+
+Writer and director Takashi Yamazaki littered 'Godzilla Minus Zero' with Easter eggs from Godzilla's cinematic past, both American and Japanese.
+---------
+
+# After 23 Years, ‘Grey’s Anatomy’ Franchise Officially Leaves California for the First Time
+
+TV News, Grey's Anatomy, Grey's Anatomy Spin-Off, Drama
+
+Fri, 06 Nov 2026 21:03:51 GMT
+
+https://movieweb.com/greys-anatomy-spinoff-new-mexico-delay/
+
+The Grey's Anatomy franchise is making a historic production change as its upcoming spin-off faces a major delay.
+---------
+
+# Liam Neeson's $929M Action Thriller Franchise Prequel Is Officially Being Cut From Streaming
+
+TV News, Taken, Coming/Leaving Streaming, Liam Neeson, Action, Thriller
+
+Fri, 06 Nov 2026 20:01:17 GMT
+
+https://movieweb.com/taken-liam-neeson-prequel-streaming-november-2026/
+
+You only have a short time left to stream the prequel to one of Liam Neeson's best action franchises.
+---------
+
+# The 10 Greatest Kung Fu Movie Stars, Ranked
+
+Movie Lists, Action, Martial Arts
+
+Fri, 06 Nov 2026 19:30:17 GMT
+
+https://movieweb.com/greatest-kung-fu-stars-ranked/
+
+The best kung fu movie stars of all time, ranked for their skill and lasting influence.
+---------
+
+# Anne Hathaway's 'The End of Oak Street' Officially Confirms Streaming Release Date
+
+Movie News, The End of Oak Street, Anne Hathaway, HBO Max, Sci-Fi
+
+Fri, 06 Nov 2026 19:19:06 GMT
+
+https://movieweb.com/the-end-of-oak-street-hbo-max-date/
+
+David Robert Mitchell's 'The End of Oak Street' will debut on HBO Max just in time for the Thanksgiving holiday.
+---------
+
+# Netflix’s Greatest Historical Epic With 90% on Rotten Tomatoes Takes Less Than 5 Hours to Binge
+
+Features, Netflix, History, Death By Lightning
+
+Fri, 06 Nov 2026 19:00:17 GMT
+
+https://movieweb.com/death-by-lightning-streaming-recommendation/
+
+Among Netflix's many great historical TV shows, one particular one starring a talented actor will entertain you the most.
+---------
+
+# Chris Hemsworth Officially Joins Forces With Matt Damon in Daring New Action Movie
+
+Movie News, Chris Hemsworth, Matt Damon, Action, Comedy, Matthew Vaughn, Sam Rockwell
+
+Fri, 06 Nov 2026 18:54:03 GMT
+
+https://movieweb.com/stuntnuts-matt-damon-action-movie/
+
+The star-studded action movie 'Stuntnuts' featuring Chris Hemsworth is officially set to include a cameo from Matt Damon.
+---------
+
+# Al Pacino's New Action Thriller From 'Taken' Team Gets Release Update
+
+Movie News, Al Pacino, Action, Thriller
+
+Fri, 06 Nov 2026 18:35:17 GMT
+
+https://movieweb.com/father-joe-al-pacino-update/
+
+Luc Besson’s latest producer-backed pulp thriller is heading to North America, with Father Joe pairing Kiefer Sutherland and Al Pacino.
+---------
+
+# Denzel Washington's 106-Minute Action Thriller Flop Seeks Redemption on New Free Streaming Home
+
+Movie News, Denzel Washington, The Taking of Pelham 1 2 3, Action, Thriller, Coming/Leaving Streaming
+
+Fri, 06 Nov 2026 18:00:17 GMT
+
+https://movieweb.com/taking-of-pelham-123-denzel-washington-stream-november-2026/
+
+Denzel Washington vs. John Travolta? Bring it on.
+---------
+
 # Joel McHale Directs A Pageant In Oh Season Trailer
 
 Exclusive, Joel McHale
