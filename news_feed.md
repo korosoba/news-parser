@@ -1,3 +1,443 @@
+# Ultron Confirmed Who Marvel's Strongest Avenger Is, But Fans Won't Like The Answer
+
+Marvel Comics, The Avengers
+
+Sat, 07 Nov 2026 19:00:18 GMT
+
+https://screenrant.com/ultron-marvel-strongest-avenger-hulk/
+
+One of the Avengers' biggest villains confirms which of Earth's Mightiest Heroes is truly the strongest based on their destructive potential.
+---------
+
+# The Lincoln Lawyer Season 5 Successfully Replaces Harry Bosch
+
+TV, The Lincoln Lawyer, Bosch, Michael Connelly
+
+Sat, 07 Nov 2026 19:00:18 GMT
+
+https://screenrant.com/the-lincoln-lawyer-season-5-successfully-replaces-harry-bosch/
+
+Netflix's The Lincoln Lawyer season 5 moves around Bosch's narrative weight with family upheaval that shifts the tone of both Michael Connelly shows.
+---------
+
+# The Expanse Franchise Officially Returns In 2027 For A New Era
+
+Gaming, The Expanse
+
+Sat, 07 Nov 2026 19:00:18 GMT
+
+https://screenrant.com/expanse-franchise-2027-return-new-era-osiris-reborn/
+
+Discover The Expanse: Osiris Reborn, launching in 2027, an action RPG set in the beloved sci-fi universe.
+---------
+
+# Blumhouse Officially Adapting Bestselling Horror Comic Series With Battle Royale-esque Premise
+
+Movies, Blumhouse, Exquisite Corpses
+
+Sat, 07 Nov 2026 18:47:58 GMT
+
+https://screenrant.com/blumhouse-exquisite-corpses-adaptation-development-james-tynion-deal/
+
+Blumhouse is officially adapting a bestselling horror comics series with a Battle Royale-like premise, after landing a major first-look deal.
+---------
+
+# It's Officially The End Of An Era For Street Fighter At The Box Office
+
+Movies, Box Office, Street Fighter
+
+Sat, 07 Nov 2026 18:45:28 GMT
+
+https://screenrant.com/street-fighter-2026-box-office-week-4-domestic-result/
+
+During its fourth weekend at the domestic box office, 2026's Street Fighter hits a new low that signals the end of an era for the big-budget movie.
+---------
+
+# The Crucial Quote Captain Archer Didn’t Say Was The Final Mistake Of Star Trek: Enterprise’s Hated Ending
+
+TV, Star Trek, Star Trek: Enterprise
+
+Sat, 07 Nov 2026 18:30:18 GMT
+
+https://screenrant.com/star-trek-enterprise-finale-no-archer-quote-federation-speech/
+
+Star Trek: Enterprise's series finale, "These Are The Voyages...", built up one of the most important moments in Federation history, with no payoff.
+---------
+
+# Andrew Child Is Ready To Take Over The Reacher Franchise, And This Reacher Book Proves It
+
+Books, Jack Reacher
+
+Sat, 07 Nov 2026 18:30:18 GMT
+
+https://screenrant.com/andrew-child-reacher-franchise-chain-reaction/
+
+Now that Lee Child is officially stepping away from the Jack Reacher franchise, it's Andrew Child who holds the key to Reacher's future.
+---------
+
+# James Bond Returns To Franchise For New 007 Thriller On November 17
+
+Books, James Bond, Ian Fleming
+
+Sat, 07 Nov 2026 18:30:18 GMT
+
+https://screenrant.com/james-bond-king-zero-us-release-november-2026/
+
+James Bond is returning in a brand-new 007 thriller on November 17, bringing back the iconic spy to face off against a truly vile villain.
+---------
+
+# 2026 Fantasy Movie With Near-Perfect Rotten Tomatoes Score Officially Sets New Release
+
+Movies, Wildwood
+
+Sat, 07 Nov 2026 18:29:52 GMT
+
+https://screenrant.com/wildwood-4k-steelbook-release/
+
+After receiving an impressive and near-perfect Rotten Tomatoes score, this critically acclaimed 2026 fantasy movie has just set a brand-new release.
+---------
+
+# Marvel Gives Doctor Doom New Title Before Doomsday, And It's His Biggest In 64 Years
+
+Comics, Doctor Doom
+
+Sat, 07 Nov 2026 18:00:18 GMT
+
+https://screenrant.com/marvel-doctor-doom-mephisto-ruler/
+
+A new kingdom
+---------
+
+# November 11 Will Be A Perfect Day For Hobbit Fans
+
+Comics, The Hobbit, The Lord of the Rings: The Rings of Power
+
+Sat, 07 Nov 2026 19:00:12 GMT
+
+https://www.cbr.com/the-hobbit-a-graphic-novel-release-date-confirmed/
+
+The middle of November will be a momentous occasion for Hobbit fans, with the release of two new stories to behold.
+---------
+
+# 11 Years Later, CBS's 7-Season Crime Classic Is Bigger Than Game of Thrones & Breaking Bad
+
+TV, The Mentalist, Game Of Thrones, Breaking Bad
+
+Sat, 07 Nov 2026 19:00:12 GMT
+
+https://www.cbr.com/the-mentalist-crime-imdb-popularity-november-2026/
+
+More than a decade after its finale, The Mentalist is still outranking massive shows like Game of Thrones and Breaking Bad on IMDb.
+---------
+
+# Zoids Brings Back Its Iconic Blade Liger With Major New Battle Upgrade
+
+Anime, Zoids, Zoids: New Century, merchandise, toys
+
+Sat, 07 Nov 2026 19:00:12 GMT
+
+https://www.cbr.com/zoidsblade-liger-realize-model-kit-reveal/
+
+The REALIZE MODEL kit series finally adds one of the most iconic Zoids mech designs, with a new version of the Blade Liger releasing next year.
+---------
+
+# Timothy Olyphant's 8-Part Sci-Fi Horror Reaches Massive Production Milestone
+
+TV, Alien: Earth
+
+Sat, 07 Nov 2026 18:43:15 GMT
+
+https://www.cbr.com/timothy-olyphant-alien-earth-season-2-production-wrap/
+
+The series is part of a long-running sci-fi franchise.
+---------
+
+# NBC Confirms Kevin Atwater's Replacement in Chicago PD Season 14
+
+TV, NBC, Chicago P.D., Innovation
+
+Sat, 07 Nov 2026 18:30:12 GMT
+
+https://www.cbr.com/chicago-pd-season-14-penny-kevin-atwater-replacement/
+
+NBC has replaced Kevin Atwater in Chicago PD Season 14, as the 21st District Intelligence Unit undergoes major changes and welcomes a new member.
+---------
+
+# The 10 Greatest Fantasy Books of the Last 25 Years, Ranked
+
+Books, Fantasy, books, Mistborn
+
+Sat, 07 Nov 2026 18:30:12 GMT
+
+https://www.cbr.com/greatest-fantasy-books-last-25-years-ranked-list/
+
+Fantasy has evolved exponentially in the last 25 years but these fictional masterpieces are already considered modern classics of a beloved genre.
+---------
+
+# After 2-Year Wait, Keira Knightley's Netflix Spy Thriller Dubbed 'James Bond by Way of Tarantino'
+
+TV, Black Doves
+
+Sat, 07 Nov 2026 18:29:10 GMT
+
+https://www.cbr.com/keira-knightley-black-doves-season-2-rotten-tomatoes-score/
+
+Netflix's hit spy thriller Black Doves returned for Season 2 with a near-perfect score.
+---------
+
+# 10 Greatest Arcade Racing Games of All Time, Ranked
+
+Games, Video Games, Mario Kart, Nintendo
+
+Sat, 07 Nov 2026 18:15:12 GMT
+
+https://www.cbr.com/greatest-arcade-racing-games-of-all-time-ranked/
+
+The arcades were filled with amazing racing games like Daytona USA and Ridge Racer
+---------
+
+# Wild Horse Nine: John Malkovich's Tom Cruise Story
+
+Movies, Wild Horse Nine
+
+Sat, 07 Nov 2026 18:11:49 GMT
+
+https://www.cbr.com/video/wild-horse-nine-john-malkovich-s-tom-cruise-story/
+
+Martin McDonagh explains the surprising reason his movie titles often feature numbers, from Three Billboards Outside Ebbing, Missouri to Seven Psychopaths and Wild Horse Nine.
+---------
+
+# Bill Skarsgård's R-Rated Fantasy Remake With 22% on RT Is Taking Over Free Streaming
+
+Movies, The Crow, Tubi, Fantasy
+
+Sat, 07 Nov 2026 18:00:11 GMT
+
+https://www.cbr.com/the-crow-2024-fantasy-tubi-success-november-2026/
+
+Bill Skarsgård's portrayal of Eric Draven in 2024's The Crow didn't wow critics or fans, but it's become a free streaming hit on Tubi.
+---------
+
+# Quentin Tarantino’s Favorite “Character Study Ever” Is Officially Streaming
+
+Movie News, Taxi Driver, Quentin Tarantino, Martin Scorsese, Pluto TV
+
+Sat, 07 Nov 2026 19:00:12 GMT
+
+https://collider.com/martin-scorsese-taxi-driver-streaming-free-pluto-tv-november-2026/
+
+Hailed as the greatest first-person character study in the history of movies by Quentin Tarantino, the classic Taxi Driver is streaming for free.
+---------
+
+# Ben Stiller's 104-Minute Crime Thriller Officially Steals a Top Spot on Prime Video
+
+Movie News, Ben Stiller, Tower Heist, Eddie Murphy, Crime
+
+Sat, 07 Nov 2026 18:30:12 GMT
+
+https://collider.com/ben-stiller-tower-heist-streaming-prime-video-november-2026/
+
+Ben Stiller and Eddie Murphy's crime comedy Tower Heist has officially arrived on Prime Video, bringing the 2011 ensemble hit back to streaming.
+---------
+
+# 8 Upcoming Superhero Movies, Ranked by Hype
+
+Movie, Superhero, Man of Tomorrow, Avengers: Doomsday, The Batman Part II
+
+Sat, 07 Nov 2026 18:28:12 GMT
+
+https://collider.com/upcoming-superhero-movies-ranked-hype/
+
+Movies like Marvel's Avengers: Doomsday and DC's Man of Tomorrow are among the most hyped superhero adventures coming to cinemas in the next months.
+---------
+
+# 11 Best New Characters in 'Dexter: Resurrection,' Ranked
+
+TV, Dexter: Resurrection, Dexter, Crime, Mystery
+
+Sat, 07 Nov 2026 18:19:12 GMT
+
+https://collider.com/dexter-resurrection-best-new-characters-ranked/
+
+Dexter: Resurrection brought back characters from the original, but the sequel series also introduced compelling new ones that have our attention.
+---------
+
+# 5 TV Antiheroes That Make Walter White Look Tame
+
+TV, Breaking Bad, The Shield, The Boys, The Sopranos
+
+Sat, 07 Nov 2026 18:04:12 GMT
+
+https://collider.com/antihero-tv-characters-better-than-walter-white-breaking-bad/
+
+Meet compelling TV antiheroes that rival Breaking Bad's Walter White, featured in shows like The Sopranos, The Boys, and The Shield.
+---------
+
+# Win a Free 'Victorian Psycho' Popcorn Bucket from Bleecker Street
+
+Exclusives, Giveaway, Victorian Psycho, Maika Monroe, Bleecker Street
+
+Sat, 07 Nov 2026 18:01:12 GMT
+
+https://collider.com/victorian-psycho-popcorn-bucket-giveaway/
+
+Details on how to enter for your chance to win a free Victorian Psycho popcorn bucket from Bleecker Street, in theaters on November 13th!
+---------
+
+# 10 Drama Films That Are Perfect From Start to Finish
+
+Movie, Drama, The Godfather, The Shawshank Redemption, Schindler’s List
+
+Sat, 07 Nov 2026 17:36:12 GMT
+
+https://collider.com/drama-films-that-are-perfect-from-start-to-finish/
+
+Masterpieces like The Social Network and Moonlight prove that pure writing and raw acting create the most unforgettable cinema.
+---------
+
+# One of the Most Outrageous Zombie Movies Ever Made Officially Arrives on Streaming
+
+Movie News, Return of the Living Dead, Horror, Zombie, George A. Romero
+
+Sat, 07 Nov 2026 17:31:12 GMT
+
+https://collider.com/return-of-the-living-dead-1985-streaming-prime-video-november-2026/
+
+The Return of the Living Dead has officially arrived on Prime Video, bringing the beloved 1985 zombie horror comedy to a new streaming home.
+---------
+
+# The 10 Best Alternative Rock Albums of the 1980s, Ranked
+
+Music Features, Music, Rock, Pop, 1980s
+
+Sat, 07 Nov 2026 17:18:12 GMT
+
+https://collider.com/best-alternative-rock-albums-1980s-ranked/
+
+There were plenty of amazing alternative rock albums released in the 1980s, including classics like The Queen Is Dead, Doolittle, and Daydream Nation.
+---------
+
+# ‘Godzilla Minus Zero’ Officially Smashes a Box Office Record on Day 1
+
+Movie News, Godzilla Minus One, Godzilla Minus Zero, Box Office, Godzilla
+
+Sat, 07 Nov 2026 17:00:13 GMT
+
+https://collider.com/godzilla-minus-zero-box-office-opening-33-million/
+
+Godzilla Minus Zero earns ¥910 million on opening day in Japan, roughly triple the debut of Godzilla Minus One.
+---------
+
+# Jeremy Renner's Intense 131-Minute War Thriller Masterpiece Lands New Free Streaming Release
+
+Movie News, Jeremy Renner, The Hurt Locker, War, Thriller, Coming/Leaving Streaming
+
+Sat, 07 Nov 2026 19:00:16 GMT
+
+https://movieweb.com/the-hurt-locker-jeremy-renner-stream-free-november-2026/
+
+War movies have always kept viewers on the edge of their seats. However, everything changed with this one.
+---------
+
+# Netflix's New Near-Perfect Series Hits 1 Billion Views as it Officially Takes Over Streaming
+
+TV News, Netflix, The Diplomat, Drama, Thriller
+
+Sat, 07 Nov 2026 18:56:52 GMT
+
+https://movieweb.com/the-diplomat-nielsen-ratings/
+
+The thriller drama has turned into one of the streamer's steadiest performers.
+---------
+
+# With 6 Weeks to Go, 'Avengers: Doomsday' Officially Keeps One of the Best Parts of 'Thunderbolts*'
+
+Movie News, Marvel Cinematic Universe, Avengers: Doomsday, The Avengers, Thunderbolts*, Superhero
+
+Sat, 07 Nov 2026 18:20:57 GMT
+
+https://movieweb.com/avengers-doomsday-thunderbolts-david-harbour/
+
+'Avengers: Doomsday' has teased epic stakes for the MCU, and things will only hit harder after a new 'Thunderbolts*' reveal.
+---------
+
+# Netflix’s New Western Masterpiece Has a Perfect Cast and Tells an Epic Story in Just 7 Episodes
+
+Features, East of Eden, Western, Netflix
+
+Sat, 07 Nov 2026 18:00:16 GMT
+
+https://movieweb.com/east-of-eden-cast-adaptation/
+
+Netflix is slowly catching up with Paramount+ when it comes to the Western TV genre, and one seven episode series is worth watching.
+---------
+
+# Audiences Pick the "Only Right Answer" as Next James Bond After Robert Pattinson Joins 007's Final 5
+
+Movie News, James Bond, Robert Pattinson, Thriller
+
+Sat, 07 Nov 2026 17:48:52 GMT
+
+https://movieweb.com/james-bond-robert-pattinson-casting/
+
+Yet much of the conversation is still circling back to someone else entirely.
+---------
+
+# 10 Fan-Favorite 'G.I. Joe' Characters Who Can Finally Appear in Live Action in the Reboot
+
+Movie Lists, G.I. Joe, G.I. Joe Reboot, G.I. Joe: The Movie, Action, Thriller, G.I. Joe: The Rise of Cobra
+
+Sat, 07 Nov 2026 17:00:18 GMT
+
+https://movieweb.com/gi-joe-reboot-characters-should-appear/
+
+Danny McBride is writing and directing a new 'G.I. Joe' movie that could give several beloved characters their live-action debuts.
+---------
+
+# Sydney Sweeney's (Very) R-Rated Thriller Resurfaces to Take Over Streaming Ahead of New Release
+
+Movie News, The Housemaid, HBO Max, Hot on Streaming, Sydney Sweeney, Thriller
+
+Sat, 07 Nov 2026 17:00:18 GMT
+
+https://movieweb.com/the-housemaid-stream-hbo-november-2026/
+
+Sydney Sweeney's erotic thriller was so successful, two new adaptations are in development.
+---------
+
+# The 20 Most Hilarious Wedding Comedy Movies Ever Made
+
+Movie Lists, Comedy, Romance
+
+Sat, 07 Nov 2026 17:00:18 GMT
+
+https://movieweb.com/most-hilarious-wedding-comedy-movies-ever-made/
+
+From Bridesmaids to Wedding Crashers, these hilarious wedding comedies turn the walk down the aisle into laugh-out-loud chaos.
+---------
+
+# Stephen King’s Cult-Classic Masterpiece Finally Gets a Sequel 19 Years Later as Original Icons Eye Return
+
+Movie News, Stephen King, 1408, Horror, Fantasy
+
+Sat, 07 Nov 2026 16:47:26 GMT
+
+https://movieweb.com/stephen-king-1408-sequel/
+
+John Cusack is returning to Room 1408, this time with a 'Stranger Things' star.
+---------
+
+# HBO's Greatest Fantasy Adaptation Since Peak 'Game of Thrones' Is a 23-Episode Masterpiece
+
+Features, His Dark Materials, HBO Max, Fantasy, Game Of Thrones
+
+Sat, 07 Nov 2026 16:00:16 GMT
+
+https://movieweb.com/his-dark-materials-game-of-thrones-comparison/
+
+'Game of Thrones' is one of HBO's best fantasy series, but the network has another incredible adaptation that even beats it in one regard.
+---------
+
 # Yellowstone Ending Explained: What Happens To The Dutton Ranch
 
 Classic TV, Yellowstone
