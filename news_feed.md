@@ -1,3 +1,344 @@
+# 7 Great Netflix Shows You Can Only Watch Once
+
+Classic TV, Netflix
+
+Sat, 07 Nov 2026 07:30:18 GMT
+
+https://screenrant.com/netflix-shows-only-watch-once/
+
+These seven Netflix shows are some of the best original series on the platform, though for one reason or another, you'll only want to watch them once.
+---------
+
+# Dungeon Crawler Carl: Allies & Enemies Officially Releases This Month
+
+Gaming, Dungeon Crawler Carl
+
+Sat, 07 Nov 2026 07:30:18 GMT
+
+https://screenrant.com/dungeon-crawler-carl-allies-enemies-november-2026-release-reminder/
+
+Canon fighters Carl Donut and Katia appear alongside customizable builds as Allies and Enemies populate World Dungeon.
+---------
+
+# 40-Episode Sci-Fi Masterpiece Delivers A Masterclass In Mystery Box Storytelling
+
+Streaming TV, Masked Recs
+
+Sat, 07 Nov 2026 07:01:19 GMT
+
+https://screenrant.com/from-sci-fi-mystery-box-storytelling-masterpiece/
+
+A 40-episode sci-fi masterpiece is so compelling throughout its runtime that it’s hard not to label it as a masterclass in mystery box storytelling.
+---------
+
+# Steam Officially Makes 2026 Turn-Based Roguelike 100% Free Until November 13
+
+Gaming, Steam, PC
+
+Sat, 07 Nov 2026 07:01:19 GMT
+
+https://screenrant.com/steam-free-turn-based-game-november-2026-last-gambit/
+
+If you're a fan of roguelikes, you will definitely want to claim this free Steam game while you still have the chance.
+---------
+
+# Brandon Sanderson's Mistborn Officially Returns This Month
+
+Gaming, Mistborn, Brandon Sanderson, tabletop games
+
+Sat, 07 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/brandon-sanderson-mistborn-return-reminder-psa/
+
+It might not be time to venture into the bold new world of Era Three yet, but it looks like it's time to head back to the Well of Ascension instead.
+---------
+
+# 'Isaac Asimov Meets Minority Report' Series Is The 5-Part Masterpiece That Deserved Another Season
+
+TV, Masked Recs
+
+Sat, 07 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/person-of-interest-masterpiece-deserve-another-season/
+
+As a machine predicts imminent crimes, Jonathan Nolan's tense procedural blends Isaac Asimov's ethical questions with Minority Report's future tech.
+---------
+
+# Michael Connelly's 68-Episode Detective Show Perfects The Art Of Adapting Books For TV
+
+TV, Masked Recs
+
+Sat, 07 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/bosch-tv-series-perfect-book-adaptation/
+
+The Lincoln Lawyer author Michael Connelly penned an iconic detective that was so successful, it got a Prime Video sequel, a prequel, and a spinoff.
+---------
+
+# House Of The Dragon Officially Returns November 19 In Special Event
+
+Gaming, House of the Dragon, Game of Thrones: Legends, Game of Thrones, PC
+
+Sat, 07 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/game-of-thrones-house-of-the-dragon-legends-november-2026/
+
+House of the Dragon is officially back in a brand-new event fans will absolutely want to check out on November 19.
+---------
+
+# Star Trek Ascendancy: The Final Frontier Officially Announced
+
+Gaming, Star Trek, Star trek, PC
+
+Sat, 07 Nov 2026 05:30:17 GMT
+
+https://screenrant.com/star-trek-ascendancy-final-frontier-release-psa/
+
+Star Trek Ascendancy: The Final Frontier is a newly announced project that longtime fans will want to keep on their radar.
+---------
+
+# Steam Officially Drops 5 More Free Games You Can Keep Forever (November 7)
+
+Gaming, Steam
+
+Sat, 07 Nov 2026 05:00:18 GMT
+
+https://screenrant.com/steam-free-games-november-7-2026/
+
+These five games aren't just free to play forever. From a fast food tie-in RPG to robot arena shooter, they're surprisingly decent for their price.
+---------
+
+# 10 Best Anime With Underdogs Like Sung Jinwoo
+
+Anime, Solo Leveling, Black Clover, Isekai
+
+Sat, 07 Nov 2026 04:45:12 GMT
+
+https://www.cbr.com/best-anime-underdogs-like-sung-jinwoo/
+
+Sung Jinwoo has one of the greatest underdog stories in all of anime, and these series sport extremely similar stories to Solo Leveling's.
+---------
+
+# Netflix’s 6-Part Thriller Based on a Book Is Jon Bernthal's Best Performance of the Decade
+
+TV, Netflix, His & Hers, jon bernthal, Crime, Innovation
+
+Sat, 07 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/netflix-jon-bernthal-best-performance-his-and-hers/
+
+Jon Bernthal is a talented and prolific actor, and his performance in this hit Netflix crime thriller is easily one of his best.
+---------
+
+# 10 Funniest Peanuts Strips From The '60s, Ranked
+
+Comics, Peanuts
+
+Sat, 07 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/funniest-peanuts-strips-1960s-ranked/
+
+The 1960s are sometimes considered the Golden Age for Schulz's Peanuts. In many ways, this was Charlie Brown and company's funniest era.
+---------
+
+# ABC's Hit 4-Season Crime Drama Officially Returns With New Episodes After Netflix Debut
+
+TV, Will Trent, Netflix, ABC
+
+Sat, 07 Nov 2026 04:23:15 GMT
+
+https://www.cbr.com/will-trent-season-5-premiere-date-abc/
+
+On the heels of its Netflix debut, the hit ABC crime drama has officially been set to return.
+---------
+
+# 5 Classic Games Nobody Wants to See a Remake Of
+
+Games, Video Games, Innovation
+
+Sat, 07 Nov 2026 04:15:12 GMT
+
+https://www.cbr.com/classic-games-nobody-wants-remakes-of-list/
+
+Gamers might be excited about the Ocarina of Time remake, but there are some titles that no one wants to see remade.
+---------
+
+# The Rookie Universe Officially Returns to ABC With New Episodes in Just 3 Months
+
+TV, The Rookie, ABC
+
+Sat, 07 Nov 2026 04:12:54 GMT
+
+https://www.cbr.com/the-rookie-season-9-premiere-date-abc/
+
+ABC has confirmed that Season 9 of The Rookie and the series premiere of The Rookie North will be airing on Wednesday, Jan. 6.
+---------
+
+# Transformers Brings Back Megatron's Fan-Favorite Dragon Form in New Official Release
+
+Anime, Transformers, Beast Wars: Transformers, merchandise, toys
+
+Sat, 07 Nov 2026 04:10:11 GMT
+
+https://www.cbr.com/transformers-power-of-the-primes-blokees-new-release/
+
+The newest wave of Blokees Transformers model kits features Primes, Dinobots and toys from Beast Wars, Shattered Glass and even the Unicron Trilogy.
+---------
+
+# 7 Isekai Anime Villains That Went Way Too Far
+
+Anime, anime villains, Innovation
+
+Sat, 07 Nov 2026 03:45:12 GMT
+
+https://www.cbr.com/isekai-anime-villains-that-went-way-too-far/
+
+Isekai anime villains are supposed to make the hero’s life hard, but some of them obviously don’t know when to quit.
+---------
+
+# 50 Years Later, Sylvester Stallone Recalls Improvising His Favorite Rocky Scene
+
+Movies, Rocky, sylvester stallone
+
+Sat, 07 Nov 2026 03:32:14 GMT
+
+https://www.cbr.com/sylvester-stallone-favorite-rocky-scene/
+
+Five decades later, Sylvester Stallone remembers how his favorite Rocky scene came to be.
+---------
+
+# 4 Crunchyroll Mecha Anime That Are Masterpieces
+
+Anime, 86: EIGHTY-SIX, Innovation
+
+Sat, 07 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/crunchyroll-mecha-anime-perfect-masterpieces/
+
+Crunchyroll's mecha lineup features some hidden gems, including these four anime that deserve a 10/10 rating.
+---------
+
+# 10 Fantasy Movie Flops That Are Actually Misunderstood Masterpieces
+
+Movie, Fantasy, The Princess Bride, Labyrinth, Kubo and the Two Strings
+
+Sat, 07 Nov 2026 05:29:12 GMT
+
+https://collider.com/fantasy-movie-flops-misunderstood-masterpieces/
+
+From ’80s classics like The Princess Bride to animated gems like Kubo and the Two Strings, these movie flops are genuine fantasy masterpieces.
+---------
+
+# Forget 'Se7en,' Jake Gyllenhaal's Apple TV Thriller 'Prisoners' Is Even Better
+
+Movie Features, Prisoners, Hugh Jackman, Denis Villeneuve, Jake Gyllenhaal
+
+Sat, 07 Nov 2026 05:08:12 GMT
+
+https://collider.com/jake-gyllenhaal-prisoners-denis-villeneueve-apple-tv-streaming-hit-november-2026/
+
+Jake Gyllenhaal's 2013 film with Denis Villeneuve, Prisoners, a dark thriller perfect for fans of Se7en, is currently climbing the Apple TV charts.
+---------
+
+# Narnia’s Most Debated Ending Isn’t the Problem Fans Think It Is
+
+Books and Comics, Books, The Chronicles of Narnia, Fantasy, The Chronicles of Narnia: The Lion, the Witch and the Wardrobe
+
+Sat, 07 Nov 2026 05:05:12 GMT
+
+https://collider.com/narnia-books-ending-susan-absence-last-battle/
+
+Susan Pevensie's absence from the last Narnia book is a problem to many fans of the saga, but it might actually not be as big an issue as they think.
+---------
+
+# Captain Kirk’s Greatest Star Trek Quote Still Hasn't Been Beaten 60 Years Later
+
+TV Features, Star Trek, Star Trek: The Original Series, William Shatner, Gene Roddenberry
+
+Sat, 07 Nov 2026 04:41:12 GMT
+
+https://collider.com/greatest-star-trek-quote-captain-kirk-balance-of-terror/
+
+Star Trek's "Balance of Terror" episode showcases Captain Kirk's powerful message against bigotry, highlighting the franchise's enduring themes.
+---------
+
+# Forget ‘Twin Peaks,’ Ben Affleck’s Forgotten 7-Episode Mystery Was Ahead of Its Time
+
+TV Features, Ben Affleck, Twin Peaks, Push, Nevada, ABC
+
+Sat, 07 Nov 2026 03:44:12 GMT
+
+https://collider.com/ben-affleck-series-push-nevada-twin-peaks-replacement/
+
+Before his Netflix hit Animals, Ben Affleck created a bizarre Twin Peaks-style mystery series that was canceled after just seven episodes.
+---------
+
+# Netflix's Greatest Video Game Adaptation Dropped Another 10-Episode Masterpiece
+
+TV Features, Cyberpunk 2077, Cyberpunk: Edgerunners, CD Projekt Red, Netflix
+
+Sat, 07 Nov 2026 02:55:12 GMT
+
+https://collider.com/netflix-greatest-video-game-adaptation-cyberpunk-edgerunners-2/
+
+Cyberpunk: Edgerunners 2, a new anime based on Cyberpunk 2077, is back for a new season with another fantastic 10 episodes on Netflix.
+---------
+
+# Chris Pratt's 'The Terminal List' Is Making a Major Shift in Season 3
+
+TV Features, Chris Pratt, The Terminal List, Prime Video
+
+Sat, 07 Nov 2026 02:14:12 GMT
+
+https://collider.com/the-terminal-list-season-3-renewed-savage-son-chris-pratt-return/
+
+Chris Pratt is officially confirmed to return in another installment of The Terminal List, which will adapt Jack Carr's book Savage Son.
+---------
+
+# 10 Greatest Sam Rockwell Movies, Ranked
+
+Movie, Sam Rockwell, Wild Horse Nine, Jojo Rabbit, The Green Mile
+
+Sat, 07 Nov 2026 01:45:12 GMT
+
+https://collider.com/best-sam-rockwell-movies-ranked/
+
+With the release of his new film, Wild Horse Nine, we look back at Sam Rockwell’s greatest movies to date, including The Green Mile and Jojo Rabbit.
+---------
+
+# '9-1-1' Disappoints Fans Again With a Major Eddie Problem in Season 10
+
+TV Features, 9-1-1
+
+Sat, 07 Nov 2026 01:39:12 GMT
+
+https://collider.com/9-1-1-season-10-episode-4-eddie-problem-buddie/
+
+Four episodes into Season 10, 9-1-1 is still failing to explore Eddie's character adequately.
+---------
+
+# New James Bond Casting Report Reveals Unexpected Candidates to Play 007
+
+Movie News, James Bond, James Bond 26, Robert Pattinson, Thriller, Action, Adventure
+
+Sat, 07 Nov 2026 02:34:04 GMT
+
+https://movieweb.com/james-bond-casting-report-robert-pattinson/
+
+A new report reveals one of the most surprising names yet for consideration to play the world's biggest secret agent, James Bond.
+---------
+
+# 'Scrubs' Officially Rewrites JD's Season 8 Ending
+
+Features, Scrubs, Comedy
+
+Sat, 07 Nov 2026 02:00:16 GMT
+
+https://movieweb.com/scrubs-revival-jd-career-retcon/
+
+Zach Braff's character had a clear path ahead in 2009, but the revival has now changed it. Read on for more.
+---------
+
 # Sword Art Online Creator Returns With New Survival Series That's The Complete Opposite Of His Biggest Hit
 
 Anime, Sword Art Online
