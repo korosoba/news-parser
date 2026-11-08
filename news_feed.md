@@ -1,3 +1,388 @@
+# Sylvester Stallone Reveals His Honest Review Of I Play Rocky
+
+Movies, I Play Rocky, Rocky
+
+Sun, 08 Nov 2026 23:41:29 GMT
+
+https://screenrant.com/i-play-rocky-2026-movie-sylvester-stallone-reaction/
+
+Sylvester Stallone reveals his honest reaction to I Play Rocky, sharing what surprised him most about the actor portraying his younger self.
+---------
+
+# Lord Of The Rings Star Explains Why His Character Still Haunts Him
+
+Movies, The Lord of the Rings: The Hunt for Gollum
+
+Sun, 08 Nov 2026 23:35:12 GMT
+
+https://screenrant.com/lord-of-the-rings-andy-serkis-gollum-still-haunts-him/
+
+The Lord of the Rings star reveals why his iconic character still keeps him up at night over two decades after his first appearance.
+---------
+
+# Five Years Later, One MCU Hero's Official Avengers: Doomsday Debut Shows The Multiverse Saga's Biggest Problem
+
+Superheroes, Avengers: Doomsday, Marvel Cinematic Universe, Shang-Chi
+
+Sun, 08 Nov 2026 23:33:32 GMT
+
+https://screenrant.com/shang-chi-official-avengers-doomsday-debut-multiverse-saga-biggest-problem/
+
+Five years later, one MCU hero's official Avengers debut in particular highlights one of the key problems with the Multiverse Saga as a whole.
+---------
+
+# 5 Perfect Dungeons & Dragons Casting Choices To Play Strahd In Netflix’s Live-Action Series
+
+Streaming TV, Dungeons & Dragons
+
+Sun, 08 Nov 2026 23:30:18 GMT
+
+https://screenrant.com/netflix-ravenloft-d-and-d-strahd-von-zarovich-best-casting-choices/
+
+Netflix is bringing Ravenloft into live-action, and getting the casting of D&amp;D's most infamous vampire overlord right could make or break the show.
+---------
+
+# Best Brandon Sanderson Books According To Goodreads
+
+Books, Brandon Sanderson, Fantasy
+
+Sun, 08 Nov 2026 23:30:18 GMT
+
+https://screenrant.com/brandon-sanderson-books-ranked-goodreads-ratings/
+
+Brandon Sanderson novels ranked by Goodreads users.
+---------
+
+# Steps Review: Netflix's Alt-Cinderella Is A Fun Ride With Genuine Heart
+
+New Movies, Steps
+
+Sun, 08 Nov 2026 23:30:18 GMT
+
+https://screenrant.com/steps-movie-review/
+
+Though it could have used a bit more ambition in the animation, Steps is a winning, funny family film with a truly moving emotional core.
+---------
+
+# Netflix's 4-Part Thriller Masterpiece Is Hard To Watch But Deserves To Be Binged
+
+Streaming TV, Masked Recs
+
+Sun, 08 Nov 2026 23:15:18 GMT
+
+https://screenrant.com/adolescence-netflix-thriller-hard-watch-binge/
+
+Adolescence is only four episodes long, but those are four tough hours to get through. It's a brutal series, but one that everyone should watch.
+---------
+
+# Avatar: The Last Airbender's New Spinoff Timeline For Season 2 Officially Clarified By Creators
+
+TV, Avatar: Seven Havens, Avatar: The Last Airbender
+
+Sun, 08 Nov 2026 23:02:54 GMT
+
+https://screenrant.com/avatar-seven-havens-season-2-time-jump-theory-debunked/
+
+Avatar: Seven Havens creators address the prevalent fan theory that the season two will have a time jump, spurned on by concept art of Pavi and Nisha.
+---------
+
+# Dark Souls Trilogy Officially Returns In Pricey New Collection
+
+Gaming, Dark Souls, PC
+
+Sun, 08 Nov 2026 23:01:18 GMT
+
+https://screenrant.com/dark-souls-trilogy-return-vinyl-collection/
+
+The Dark Souls trilogy has been restored in a brand-new collection that will cost fans a pretty penny to purchase.
+---------
+
+# Tombstone Gave Johnny Ringo the Greatest Quote in Western History
+
+Movies, Western
+
+Sun, 08 Nov 2026 23:30:11 GMT
+
+https://www.cbr.com/tombstone-johnny-ringo-best-quote-western-history/
+
+Even after 33 years, an iconic exchange from 'Tombstone' remains the greatest life lesson in a Western.
+---------
+
+# Studio Ghibli Meets Stardew Valley in New Fantasy RPG You Can Play for Free Now
+
+Games, Stardew Valley, Studio Ghibli, Video Games
+
+Sun, 08 Nov 2026 23:15:12 GMT
+
+https://www.cbr.com/windwoven-studio-ghibli-meets-stardew-valley/
+
+Windwoven is an upcoming life simulation and fantasy RPG that combines all the best elements of Stardew Valley with Studio Ghibli's charm.
+---------
+
+# Netflix Is Losing the Anime Streaming War in New 2026 Survey
+
+Anime, Netflix
+
+Sun, 08 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/netflix-anime-streaming-war-2026-survey/
+
+Despite massive anime viewership growth, Netflix loses the top spot in a new 2026 user survey.
+---------
+
+# Syfy's 88-Episode Cult Sci-Fi Classic Is the Perfect Anti-Star Trek Binge
+
+TV, Farscape, Sci-Fi, Star Trek
+
+Sun, 08 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/syfy-farscape-perfect-anti-star-trek-binge/
+
+Unlike Star Trek, Farscape follows a human who knows nothing about the galaxy and encounters alien civilizations that know nothing about Earth.
+---------
+
+# 10 Best Silver Age Iron Man Issues, Ranked
+
+Comics, Marvel, Iron Man
+
+Sun, 08 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/best-silver-age-iron-man-issues-ranked/
+
+Iron Man went on some incredible adventures at the start of his comics.
+---------
+
+# PlayStation Game Will Officially Shut Down November 25
+
+Games, PlayStation 5
+
+Sun, 08 Nov 2026 22:55:11 GMT
+
+https://www.cbr.com/playstation-game-official-shut-down-november-2026/
+
+Another PlayStation game will disappear forever when its servers are shut down this November.
+---------
+
+# Scarlett Johansson's New Sci-Fi Arrives on 'Dunesday' to Crash the Movie Event of the Decade
+
+Movies, Ray Gunn, Avengers: Doomsday, Dune: Part Three
+
+Sun, 08 Nov 2026 22:46:34 GMT
+
+https://www.cbr.com/scarlett-johansson-ray-gunn-dunesday/
+
+Avengers: Doomsday and Dune: Part Three aren't the only big releases set for the date being called "Dunesday."
+---------
+
+# 25 Years Ago, Peter Jackson's $897M Epic Changed Fantasy Forever
+
+Movies, Fantasy, The Lord of the Rings, The Lord of the Rings: The Fellowship of the Ring, Innovation
+
+Sun, 08 Nov 2026 22:30:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-fellowship-of-the-ring-changed-fantasy-genre-forever/
+
+A quarter century ago, this fantasy epic changed the genre entirely--and things will never be the same (for better or for worse).
+---------
+
+# 5 Strongest Ninja Villages in Naruto, Ranked
+
+Anime, Naruto: Shippuden, Naruto, Innovation
+
+Sun, 08 Nov 2026 22:15:11 GMT
+
+https://www.cbr.com/strongest-ninja-villages-naruto-ranked-list/
+
+The Five Great Shinobi Countries are the strongest villages in all of Naruto, but which one is the most powerful among them?
+---------
+
+# Godzilla Minus Zero Breaks Major Global Record With First-Ever No. 1 Debut
+
+Movies
+
+Sun, 08 Nov 2026 22:13:11 GMT
+
+https://www.cbr.com/godzilla-minus-zero-breaks-international-box-office-record-japan-toho/
+
+The newest Godzilla film is not only a critical success, but a monster financial success as well!
+---------
+
+# Netflix's New 4-Part Psychological Thriller Takes Less Than 3 Hours To Binge
+
+TV Features, A Couple of Lies, Netflix, Thriller, Drama
+
+Sun, 08 Nov 2026 23:49:12 GMT
+
+https://collider.com/netflix-thriller-series-a-couple-of-lies/
+
+Netflix released the psychological thriller A Couple of Lies on October 30, and it’s already making waves.
+---------
+
+# New ‘Street Fighter’ Reboot Officially Removed From 1,700 Theaters
+
+Movie News, Street Fighter, Box Office, Noah Centineo, Action
+
+Sun, 08 Nov 2026 23:45:12 GMT
+
+https://collider.com/street-fighter-reboot-removed-from-1700-theaters/
+
+The new Street Fighter reboot has been removed from more than 1,500 theaters after underperforming at the box office. Find out more.
+---------
+
+# Prime Video’s Cancelled ‘Law and Order’ Replacement Officially Gets a Second Chance on Streaming
+
+TV News, On Call, Prime Video, Procedural
+
+Sun, 08 Nov 2026 23:31:12 GMT
+
+https://collider.com/on-call-prime-video-streaming-success-november-2026/
+
+Prime Video cancelled Dick Wolf's first streaming procedural last year, but it is seeing renewed interest. Get more details here.
+---------
+
+# Miles Teller Officially Confirms Potential ‘Top Gun 3’ Return
+
+Movie News, Miles Teller, Top Gun 3, Tom Cruise, Paramount
+
+Sun, 08 Nov 2026 23:15:12 GMT
+
+https://collider.com/top-gun-3-miles-teller-return-confirmed/
+
+Miles Teller has officially expressed interest in a return as Rooster in Tom Cruise's Top Gun 3. Read on for more.
+---------
+
+# From Seven Psychopaths to Wild Horse Nine: Tracing Sam Rockwell's 20-Year Obsession with Playing Broken Men
+
+Movie, Ray Gunn, Wild Horse Nine, Vice, Seven Psychopaths
+
+Sun, 08 Nov 2026 23:15:09 GMT
+
+https://collider.com/seven-psychopaths-wild-horse-nine-tracing-sam-rockwells-obsession-playing-broken-men/
+
+Tracing two decades of Sam Rockwell's finest broken, damaged, and unforgettable characters ahead of  Wild Horse Nine and Ray Gunn.
+---------
+
+# Every Mike Flanagan TV Show, Ranked
+
+TV, Mike Flanagan, Midnight Mass, The Haunting of Hill House, Carrie
+
+Sun, 08 Nov 2026 23:03:12 GMT
+
+https://collider.com/mike-flanagan-tv-shows-ranked/
+
+Find out where The Haunting of Hill House, Midnight Mass, Carrie, and more fall on our ranked list of every Mike Flanagan TV show.
+---------
+
+# Brad Pitt’s Survival Thriller Officially Removed From Over 2,200 Theaters
+
+Movie News, Heart of the Beast, Brad Pitt, Box Office, David Ayer
+
+Sun, 08 Nov 2026 23:00:12 GMT
+
+https://collider.com/heart-of-the-beast-brad-pitt-sleeper-hit-removed-from-2200-theaters/
+
+Brad Pitt's sleeper hit survival thriller, Heart of the Beast, is coming to digital this week after being removed from more than 2,000 theaters.
+---------
+
+# Bosch Officially Returns to Prime Video With a Brand-New Series
+
+TV News, Bosch: Start of Watch, Prime Video, Bosch, Thriller
+
+Sun, 08 Nov 2026 22:30:12 GMT
+
+https://collider.com/bosch-start-of-watch-premiere-date-january-2027/
+
+Prime Video has officially revealed the return date for Harry Bosch in the new series premiering next year. Get more details here.
+---------
+
+# The 5 Scariest Books of All Time, According to Stephen King
+
+Books and Comics, Stephen King, Lord of the Flies, The Exorcist, The Silence of the Lambs
+
+Sun, 08 Nov 2026 22:24:12 GMT
+
+https://collider.com/scariest-books-all-time-according-to-stephen-king/
+
+Stephen King is one of the true masters of horror, but he has admitted that some books, including The Exorcist and Lord of the Flies, have scared him.
+---------
+
+# Apple TV's "Unadaptable" 3-Season Series Is Mandatory Viewing for Sci-Fi Fans
+
+TV Features, Foundation, Apple TV, David S. Goyer, Lee Pace
+
+Sun, 08 Nov 2026 22:15:12 GMT
+
+https://collider.com/apple-tv-foundation-unadaptable-sci-fi-series/
+
+Apple TV's Foundation adapts Isaac Asimov's epic sci-fi saga for modern audiences without losing the original novels' spirit.
+---------
+
+# Ridley Scott's Long-Awaited Sci-Fi Sequel to Cyberpunk Masterpiece Is Less Than a Month Away
+
+TV News, Blade Runner 2099, Prime Video, Coming/Leaving Streaming, Ridley Scott, Sci-Fi, Blade Runner
+
+Sun, 08 Nov 2026 23:30:16 GMT
+
+https://movieweb.com/blade-runner-2099-ridley-scott-stream-prime-november-2026/
+
+44 years after the original, Ridley Scott's sci-fi masterpiece is getting another sequel.
+---------
+
+# Forget 'The Lord of the Rings,' the Biggest Fantasy Event of the Decade Is Just 6 Months Away
+
+Features, The Legend of Zelda, The Lord of the Rings, Fantasy
+
+Sun, 08 Nov 2026 22:01:16 GMT
+
+https://movieweb.com/legend-of-zelda-upcoming-tease/
+
+If the sucessus of 'Ocarina of Time' remake is anything to go off of, 'The Legend of Zelda' could be one of the biggest movies of 2027.
+---------
+
+# Denzel Washington & Mark Wahlberg's 109-Minute Action Thriller Is Streaming Free After Being Cut From Netflix
+
+Movie News, Denzel Washington, Mark Wahlberg, 2 Guns, Action, Thriller, YouTube
+
+Sun, 08 Nov 2026 22:01:16 GMT
+
+https://movieweb.com/2-guns-washington-wahlberg-action-thriller-stream-youtube-november-2026/
+
+Forget Netflix, the iconic pair's one and only collaboration is now free to stream.
+---------
+
+# Robert Pattinson Is Officially Winning the Race for 007 as James Bond Casting Reaches Its Endgame
+
+Movie News, james bond, Robert Pattinson, Movies, Action, Amazon
+
+Sun, 08 Nov 2026 21:45:12 GMT
+
+https://movieweb.com/robert-pattinson-leads-bond-frontrunner-race/
+
+One thing's for sure... the next James Bond will be a millennial.
+---------
+
+# 8 Hulu Miniseries Masterpieces You Can Watch in One Sitting
+
+TV Lists, Hulu, Action, Thriller, Crime, Sci-Fi, Stephen King, 11.22.63, The Act, The Dropout, Under the Bridge, Little Fires Everywhere, Dopesick, We Were the Lucky Ones, Pam & Tommy
+
+Sun, 08 Nov 2026 21:00:16 GMT
+
+https://movieweb.com/hulu-miniseries-recommendations/
+
+Hulu's most outstanding original miniseries offer something for everyone.
+---------
+
+# 16 Years Later, One of LEGO's Most Iconic Franchises Returns With Stunning Sequel Trailer
+
+TV News, LEGO, Action, Ninjago: Masters of Spinjitzu
+
+Sun, 08 Nov 2026 20:49:37 GMT
+
+https://movieweb.com/ninjago-legends-embers-and-ashes-trailer/
+
+LEGO is finally bringing its original Ninjago heroes back.
+---------
+
 # PlayStation 6 Unveiling Date Leaked Ahead Of Official Confirmation
 
 Gaming, PlayStation, PlayStation 6, Sony, PlayStation 5, Next-Gen Consoles
