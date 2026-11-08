@@ -1,3 +1,388 @@
+# 8 Dated TV Shows Nobody Wants To See Rebooted
+
+Classic TV
+
+Sun, 08 Nov 2026 01:30:18 GMT
+
+https://screenrant.com/dated-tv-shows-no-reboot/
+
+Not every classic TV series has aged well by modern standards; some have aged like spoilt milk, and it's better to leave them un-rebooted.
+---------
+
+# 7 Iconic 20th Century Miniseries That Changed Television Forever
+
+Classic TV
+
+Sun, 08 Nov 2026 01:15:18 GMT
+
+https://screenrant.com/iconic-20th-century-miniseries-changed-tv/
+
+These iconic 20th century TV miniseries were more than masterpieces, they changed the TV landscape for viewers and filmmakers forever.
+---------
+
+# 10 Far Side Caveman Comics That Are 10/10 Perfect 40 Years Later
+
+Comics, The Far Side
+
+Sun, 08 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/far-side-caveman-comics-perfect-40-years-later/
+
+Some of The Far Side's caveman strips are simply perfect and continue to bring smiles to readers' faces even more than four decades later.
+---------
+
+# Disney+'s 40-Episode Star Wars Show Is Clone Wars For The Sequel Trilogy
+
+Classic TV, Star Wars
+
+Sun, 08 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/star-wars-resistance-sequel-trilogy-clone-wars/
+
+Disney's 40-episode animated Star Wars series is the sequel trilogy's version of Star Wars: The Clone Wars. It's the Resistance vs. The First Order.
+---------
+
+# Fallout 4: Tasha's Place Turns The RPG Into A Farming Sim
+
+Gaming, Fallout 4, PC, RPG
+
+Sun, 08 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/fallout-4-tashas-place-mod-gardending-farming/
+
+Fallout 4 has been completely overhauled into a farming sim thanks to the brand-new release, Fallout 4: Tasha's Place.
+---------
+
+# Gilmore Girls: Rory And Jess' Relationship Timeline, Season By Season
+
+Classic TV, Gilmore Girls
+
+Sun, 08 Nov 2026 00:30:19 GMT
+
+https://screenrant.com/gilmore-girls-rory-jess-romance-development-seasons/
+
+When it comes to Rory's boyfriends, many Gilmore Girls fans are Team Jess. But they had a tumultuous relationship when they first met in Stars Hollow.
+---------
+
+# Solo Leveling's Sequel Teases The Return Of A Major Fan Favorite
+
+Anime, Solo Leveling
+
+Sun, 08 Nov 2026 00:30:18 GMT
+
+https://screenrant.com/solo-leveling-ragnarok-return-cha-hae-in/
+
+Solo Leveling: Ragnarok is finally back after a ten-month-long hiatus, and it's already treating fans by bringing back a fan-favorite character.
+---------
+
+# 8 Recent Prime Video Shows Where Every Episode Is A 10/10
+
+Streaming TV, Prime Video
+
+Sun, 08 Nov 2026 00:30:18 GMT
+
+https://screenrant.com/prime-video-new-shows-every-episode-is-perfect/
+
+From Mike Flanagan's Carrie series to Reacher's first spinoff Neagley, these are the best new shows to premiere on Prime Video recently.
+---------
+
+# Every Confirmed Batman Character In The DCU (So Far)
+
+Movies, Batman, DC Universe
+
+Sun, 08 Nov 2026 00:15:23 GMT
+
+https://screenrant.com/dcu-batman-characters-confirmed/
+
+Many Batman villains, heroes, and supporting characters have been confirmed or appeared in James Gunn's DC Universe so far, including major players.
+---------
+
+# Every Video Game Character In Twisted Metal
+
+TV, Twisted Metal
+
+Sun, 08 Nov 2026 00:01:20 GMT
+
+https://screenrant.com/twisted-metal-video-game-characters-appear/
+
+Peacock's Twisted Metal TV series makes many changes to the cult video game franchise, but it still features many of the same characters.
+---------
+
+# 10 Most Powerful Digimon Demon-Type Monsters
+
+Anime, Digimon, Innovation
+
+Sun, 08 Nov 2026 01:45:11 GMT
+
+https://www.cbr.com/digimon-most-powerful-demon-type-monsters/
+
+The Digimon franchise features a wide range of Demon-Type monsters and each one excels in its own field.
+---------
+
+# 7 Greatest Pinball Machines of 2026, Ranked
+
+Games, Pinball, Video Games, Fallout, Transformers
+
+Sun, 08 Nov 2026 01:30:12 GMT
+
+https://www.cbr.com/greatest-pinball-machines-2026-ranked/
+
+From Sonic the Hedgehog to Fallout, 2026 delivered an exciting lineup of pinball machines packed with inventive gameplay and memorable designs.
+---------
+
+# Harry Potter’s Killing Curse Is Too Overpowered
+
+Movies, Harry Potter
+
+Sun, 08 Nov 2026 01:30:12 GMT
+
+https://www.cbr.com/harry-potter-killing-curse-overpowered/
+
+Bellatrix Lestrange proves why the Killing Curse is considered unforgivable in Harry Potter.
+---------
+
+# 4 Best Isekai Anime of 2026 That No One Is Watching
+
+Anime, Isekai, Innovation
+
+Sun, 08 Nov 2026 01:15:12 GMT
+
+https://www.cbr.com/best-underrated-new-isekai-anime-2026/
+
+These underrated isekai anime are among the best releases of 2026, even if few fans are talking about them.
+---------
+
+# All 13 Star Trek Movies Return With New Free Streaming Release
+
+Movies, Star Trek, Sci-Fi, Pluto TV
+
+Sun, 08 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/star-trek-movies-coming-to-pluto-tv-november-2026/
+
+It's the perfect time for a Star Trek movie marathon with Pluto TV.
+---------
+
+# The 39-Episode Stephen King Sci-Fi Show Hailed as 'Lost Meets Twilight Zone'
+
+TV, Under the Dome, CBS, Stephen King, Sci-Fi
+
+Sun, 08 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/stephen-king-under-the-dome-sci-fi-adaptation/
+
+Under the Dome featured deviations from Stephen King's novel, prompting interesting comparisons to shows like Lost and The Twilight Zone.
+---------
+
+# Berserk Brings Back Griffith's Darkest Form With Major New 2027 Release
+
+Anime, Berserk, merchandise, toys, action figures
+
+Sun, 08 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/berserk-femto-action-figure-2027-release/
+
+Fans cannow pre-order the ultimate form that Griffith takes in the Berserk manga, though this epic new figure for Femto won't be released until 2027.
+---------
+
+# 10 Marvel Characters Whose Comic Identity Changed After Their MCU Debut
+
+Comics, Marvel Cinematic Universe
+
+Sun, 08 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/marvel-characters-whose-comic-identity-changed-after-their-mcu-debut/
+
+These comic book characters were completely shifted by their debut on the big screen.
+---------
+
+# 10 Strongest Ninjutsu in Naruto, Ranked
+
+Anime, Naruto, Naruto: Shippuden, Innovation
+
+Sun, 08 Nov 2026 00:45:12 GMT
+
+https://www.cbr.com/naruto-strongest-ninjutsu-ranked/
+
+Ninjutsu in Naruto becomes most dangerous when it starts ignoring the rules that limit everyone else.
+---------
+
+# Stephen King's R-Rated Dystopian Sci-Fi Is Better Than Peak Hunger Games In Every Way
+
+Movies, The Long Walk, The Hunger Games, Innovation
+
+Sun, 08 Nov 2026 00:30:12 GMT
+
+https://www.cbr.com/stephen-king-the-long-walk-better-than-the-hunger-games/
+
+Stephen King had his finger on the pulse of social commentary long before Suzanne Collins.
+---------
+
+# Anya Taylor-Joy’s 148-Minute Sci-Fi Blockbuster Officially Wins Over Fans on Streaming
+
+Movie News, Furiosa: A Mad Max Saga, Anya Taylor-Joy, Chris Hemsworth, HBO Max
+
+Sun, 08 Nov 2026 01:45:12 GMT
+
+https://collider.com/anya-taylor-joy-furiosa-streaming-success-hbo-max-november-2026/
+
+Anya Taylor-Joy's sci-fi bomb that cost over $165 million is finding continued redemption on HBO Max streaming charts.
+---------
+
+# Netflix's 6-Episode Western Thriller Masterpiece 'Territory' Is 'Yellowstone' Done Right
+
+TV Features, Territory, Anna Torv, Netflix, Western
+
+Sun, 08 Nov 2026 01:41:12 GMT
+
+https://collider.com/netflix-western-thriller-masterpiece-territory-better-than-yellowstone/
+
+Netflix's 6-episode Western thriller Territory outperforms Yellowstone in both storytelling and representation.
+---------
+
+# 10 Sci-Fi Books To Read Before Kicking the Bucket
+
+Books and Comics, Science Fiction, Dune, Frankenstein, Neuromancer
+
+Sun, 08 Nov 2026 01:34:12 GMT
+
+https://collider.com/sci-fi-books-to-read-bucket-list/
+
+Frank Herbert’s Dune, William Gibson’s Neuromancer, and Mary Shelley’s Frankenstein are sci-fi books you should add to your reading bucket list.
+---------
+
+# Ridley Scott’s 157-Minute ‘Gladiator’ Replacement Officially Gets a Second Chance on Apple TV
+
+Movie News, Ridley Scott, Napoleon, Apple TV, Streaming
+
+Sun, 08 Nov 2026 01:00:12 GMT
+
+https://collider.com/napoleon-streaming-hit-apple-tv-november-2026/
+
+One of Ridley Scott's most controversial modern movies, Napoleon, is a streaming hit on Apple TV. Read on for more.
+---------
+
+# Guy Ritchie's 'Young Sherlock' on Prime Video Is Better Than 'The Gentlemen'
+
+TV Features, Young Sherlock, Guy Ritchie, Prime Video, Hero Fiennes Tiffin
+
+Sun, 08 Nov 2026 00:52:12 GMT
+
+https://collider.com/guy-ritchie-thriller-prime-video-young-sherlock-better-than-gentlemen/
+
+Guy Ritchie's Prime Video series surpasses The Gentlemen with its thrilling mystery and complex characters.
+---------
+
+# Taylor Sheridan’s ‘Landman’ Is Officially Changing Its Winning Formula
+
+TV News, Taylor Sheridan, Billy Bob Thornton, Landman, Paramount Plus
+
+Sun, 08 Nov 2026 00:45:12 GMT
+
+https://collider.com/taylor-sheridan-billy-bob-thornton-landman-season-3-release-date-2027/
+
+Taylor Sheridan's Landman breaks its November premiere tradition as Billy Bob Thornton's Paramount+ hit prepares for Season 3.
+---------
+
+# Godzilla Is Officially Bringing a Brand-New Kaiju to Live Action
+
+Movie News, Godzilla, Toho, Monster, Sci-Fi
+
+Sun, 08 Nov 2026 00:30:12 GMT
+
+https://collider.com/godzilla-new-kaiju-xenolhu-live-action-fest-godzilla/
+
+Toho officially reveals Xenolhu as Godzilla's next monster rival, chosen by fans to face the King of the Monsters in a future Fest Godzilla short.
+---------
+
+# Rebecca Ferguson’s Stephen King Sequel Officially Returns After 7 Years
+
+Movie News, Doctor Sleep, Rebecca Ferguson, Stephen King, Ewan McGregor
+
+Sun, 08 Nov 2026 00:15:12 GMT
+
+https://collider.com/rebecca-ferguson-doctor-sleep-streaming-success-november-2026/
+
+After seven years, Rebecca Ferguson's forgotten thriller inspired by Stephen King officially returns to streaming charts.
+---------
+
+# ‘You Can See Everything’ Meets ‘Black Mirror’ in HBO's Near-Perfect Comedy Series
+
+TV Features, Nathan Fielder, HBO, You Can See Everything, The Rehearsal
+
+Sun, 08 Nov 2026 00:13:12 GMT
+
+https://collider.com/best-hbo-comedy-series-the-rehearsal-nathan-fielder-before-you-can-see-everything/
+
+Nathan Fielder's The Rehearsal is an addictive combination of surrealism and perfectly timed stomach-turning comedy.
+---------
+
+# Marvel’s $1.1B Superhero Sensation Officially Surges on Apple TV Ahead of ‘Avengers: Doomsday’
+
+Movie News, Spider-Man: Far from Home, Marvel, Apple TV, Streaming
+
+Sun, 08 Nov 2026 00:00:12 GMT
+
+https://collider.com/spider-man-far-from-home-streaming-hit-apple-tv-november-2026/
+
+One of Marvel's highest-grossing hits is a success on the Apple TV charts ahead of Avengers: Doomsday. Read on for more.
+---------
+
+# Prime Video’s 40-Episode Sci-Fi Masterpiece Has One of the Best First Episodes in TV History
+
+Features, The Boys, Sci-Fi, Prime Video
+
+Sun, 08 Nov 2026 01:00:16 GMT
+
+https://movieweb.com/the-boys-best-first-episode/
+
+One of Prime Video's best sci-fi series is a subversive take on the superhero genre, and it packs a massive punch in just a single episode.
+---------
+
+# In Just 1 Day, Prime Video's New 8-Part Series Knocks Out Its 'Reacher' Replacement for No. 1 on Streaming
+
+TV News, Hot on Streaming, The Terminal List, Prime Video, The Greatest, Drama
+
+Sun, 08 Nov 2026 00:30:16 GMT
+
+https://movieweb.com/the-greatest-prime-video-november-2026/
+
+The new series found an angle that audiences were curious enough to show up for immediately.
+---------
+
+# All 15 Godzilla vs. Ghidorah Fights, Ranked
+
+Features, Godzilla, Monsterverse, Sci-Fi
+
+Sun, 08 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/godzilla-ghidorah-fights/
+
+Godzilla and his archnemesis King Ghidorah have gone toe-to-toe many times in Goji's 72-year history, with a wide variety of battle outcomes.
+---------
+
+# On Day 1, Record-Breaking Sci-Fi Thriller Scores the Biggest Box Office Opening of Its Kind in History
+
+Movie News, Godzilla Minus Zero, Sci-Fi, Box Office Milestones
+
+Sat, 07 Nov 2026 23:30:16 GMT
+
+https://movieweb.com/godzilla-minus-zero-box-office-opening/
+
+Godzilla Minus Zero is off to a massive start in the U.S., delivering the biggest opening day ever for a live-action film not in the English language.
+---------
+
+# The 10 Greatest Final Scenes in Movie History, Ranked
+
+Movie Lists, The Godfather
+
+Sat, 07 Nov 2026 23:00:16 GMT
+
+https://movieweb.com/movies-best-final-scenes/
+
+While many movies are memorable, only a few films have final scenes that stick with audiences long after they have watched them.
+---------
+
 # DC’s Next Superman Is Here, And He’s Nothing Like The Original
 
 Comics, Superman, DC Comics
