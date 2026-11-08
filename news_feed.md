@@ -1,3 +1,311 @@
+# Star Trek Officially Brings Back Evil Worf In New Deep Space Nine Crossover
+
+Gaming, Star Trek, Star Trek: Deep Space Nine, Magic: The Gathering, PC
+
+Sun, 08 Nov 2026 08:00:18 GMT
+
+https://screenrant.com/star-trek-mtg-stardates-regent-worf/
+
+Star Trek is officially bringing back Evil Worf in a brand-new Deep Space Nine crossover, featuring the Regent of Terok Nor.
+---------
+
+# Hulu's 16-Episode 'Guy Ritchie Meets Charles Dickens' Crime Caper Is A Masterclass In Mixing Genres
+
+Streaming TV, Masked Recs
+
+Sun, 08 Nov 2026 08:00:18 GMT
+
+https://screenrant.com/the-artful-dodger-hulu-masterclass-mixing-genres/
+
+Hulu's 16-episode Charles Dickens-inspired crime caper masterfully blends multiple, typically unrelated genres. This show is a true delight.
+---------
+
+# This Lord Of The Rings: Nazgul King Officially Releases In 2027
+
+Gaming, The Lord of the Rings
+
+Sun, 08 Nov 2026 07:30:18 GMT
+
+https://screenrant.com/lord-of-the-rings-nazgul-king-redesign/
+
+The Nazgul are some of the most intimidating enemies in The Lord of the Rings, and a new release only drives that point home further.
+---------
+
+# The Stagate SG-1 Franchise Officially Returns Next Month
+
+Gaming, Stargate SG-1
+
+Sun, 08 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/stargate-sg-1-horus-december-2026-psa/
+
+Stargate SG-1 isn't quite as dead as we all thought, with the franchise set to make a return for collector's next month.
+---------
+
+# 25-Episode Netflix Adaptation Of A Classic Book Series Delivers Perfect Worldbuilding
+
+Streaming TV, Masked Recs
+
+Sun, 08 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/a-series-of-unfortunate-events-netflix-worldbuilding-book-adaptation/
+
+Back in 2017 Netflix managed to bring to life one of the most distinct literary settings in modern fiction, and the result deserves celebrating.
+---------
+
+# HBO's 36-Episode Sci-Fi Series Is A Masterclass In How Mystery Boxes Can Go Wrong
+
+Classic TV, Masked Recs
+
+Sun, 08 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/westworld-mystery-box-show-went-wrong/
+
+An unending onslaught of constant questions and answers that only add to the ambiguity do not make a good mystery box, as this HBO show pr
+---------
+
+# November 15 Is Officially A Dark Day For Xbox Game Pass
+
+Gaming, Xbox Game Pass
+
+Sun, 08 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/xbox-game-pass-games-leaving-november-15-2026/
+
+Xbox Game Pass is going to go through a somber day on November 15, as several free games have been confirmed for removal from the catalog.
+---------
+
+# Millie Bobby Brown & David Harbour's New Netflix Series Is Recreating Stranger Things
+
+Streaming TV, Millie Bobby Brown
+
+Sun, 08 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/millie-bobby-brown-david-harbour-spy-in-the-blood-series-recreate-stranger-things/
+
+Millie Bobby Brown and David Harbour are reprising their Stranger Things father-daughter dynamic in new Netflix series, A Spy in the Blood.
+---------
+
+# Steam Gamers Can Officially Grab A 10/10 Masterpiece Open-World Game Free For Limited Time
+
+Gaming, Steam
+
+Sun, 08 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/steam-free-game-december-2026-fallout-new-vegas/
+
+Steam gamers have the chance to get their hands on a truly generational masterpiece completely free.
+---------
+
+# Hogwarts Legacy 2 Officially Unveiled By Warner Bros.
+
+Gaming, Hogwarts Legacy 2, Hogwarts Legacy
+
+Sun, 08 Nov 2026 05:30:18 GMT
+
+https://screenrant.com/hogwarts-legacy-2-reveal-warner-bros-official/
+
+Hogwarts Legacy 2 is finally officially happening, so pack your bags and get ready to go back to school.
+---------
+
+# Obsession's Inde Navarrette Names the Scariest Nikki Scene: 'I Refuse to Watch It'
+
+Movies, Obsession
+
+Sun, 08 Nov 2026 04:50:41 GMT
+
+https://www.cbr.com/obsession-nikki-scariest-scene/
+
+Inde Navarrette refuses to watch one particular scene, which she calls the "scariest part of the film."
+---------
+
+# 10 Perfect 2000s Anime Movies That Nobody Remembers
+
+Anime, Steamboy, Innovation, Vampire Hunter D: Bloodlust
+
+Sun, 08 Nov 2026 04:45:11 GMT
+
+https://www.cbr.com/masterpiece-2000s-anime-movies-forgotten/
+
+Outside the reach of Studio Ghibli and a handful of films that dominate every ranking, a quieter group of anime movies exists from the 2000s.
+---------
+
+# The 80% Fresh Western That Rivals Tombstone’s Wyatt Earp & Doc Holliday
+
+TV, Wyatt Earp and the Cowboy War, Netflix, Innovation
+
+Sun, 08 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/netflix-wyatt-earp-and-the-cowboy-war-rivals-tombstone/
+
+Wyatt Earp and the Cowboy Wa redefines Wyatt Earp and Doc Holliday, delivering a complex portrait of loyalty.
+---------
+
+# Kaiju No. 8 Creator Recommends the Next Hit Supernatural Shonen Jump Series
+
+Anime, Kaiju No. 8, Shonen Jump
+
+Sun, 08 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/kaiju-no-8-creator-rokus-house-of-oddities-manga/
+
+Naoya Matsumoto has praised the cozy charm of Shonen Jump’s new horror-comedy hit.
+---------
+
+# 10 Most Morbid Peanuts Comic Strips, Ranked
+
+Comics, Peanuts
+
+Sun, 08 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/most-morbid-peanuts-comic-strips-ranked/
+
+Peanuts comics have always been more than just gag-a-day strips. Schulz also used his work to present ideas that sometimes led to morbid material.
+---------
+
+# 10 Long Open World Games That Take Forever to Complete
+
+Games, open world, Innovation
+
+Sun, 08 Nov 2026 04:15:11 GMT
+
+https://www.cbr.com/open-world-games-that-take-forever-to-complete-list/
+
+Open-world games like Elden Ring will keep players busy with hundreds of hours of content.
+---------
+
+# Bill Skarsgard Was Left Out of James Bond Auditions: 'We Can't Do a Swede for 007'
+
+Movies, James Bond, Action
+
+Sun, 08 Nov 2026 04:03:05 GMT
+
+https://www.cbr.com/bill-skarsgard-james-bond-casting/
+
+Bill Skarsgard wasn't invited to the James Bond casting auditions, but he's still got a backup plan to get involved with the franchise.
+---------
+
+# 10 Best Video Games Where the Villain Actually Won
+
+Games, Video Games, Innovation
+
+Sun, 08 Nov 2026 03:45:11 GMT
+
+https://www.cbr.com/best-video-games-where-the-villain-wins-list/
+
+Games like Final Fantasy 6 flip the script and let the villain win.
+---------
+
+# HBO's Hit Series With 97% Confirms 2 Back-to-Back Seasons & a Movie
+
+TV, Heated Rivalry
+
+Sun, 08 Nov 2026 03:32:48 GMT
+
+https://www.cbr.com/crave-hbo-heated-rivalry-seasons-2-3-back-to-back-movie/
+
+HBO's Heated Rivalry adaptation turned into a worldwide phenomenon and it's getting two seasons back-to-back and a movie.
+---------
+
+# 10 Greatest Ongoing Manhwa Everyone Should Be Reading in 2026
+
+Anime, manhwa, Innovation, webtoon
+
+Sun, 08 Nov 2026 03:30:11 GMT
+
+https://www.cbr.com/best-ongoing-manhwa-2026/
+
+The best ongoing manhwa have enough unfinished business to make waiting for the next chapter worthwhile.
+---------
+
+# The 5 Greatest Beatles Songs Written by John Lennon
+
+Music Features, John Lennon, The Beatles, Rock, Music
+
+Sun, 08 Nov 2026 05:21:12 GMT
+
+https://collider.com/john-lennon-best-songs-the-beatles/
+
+The best songs written by John Lennon for The Beatles: "Revolution", "Come Together", "All You Need is Love", "In My Life, and "Norwegian Wood".
+---------
+
+# The 10 Scariest Horror Books of All Time, According to Goodreads
+
+Books and Comics, Stephen King, Pet Sematary, The Shining, The Exorcist
+
+Sun, 08 Nov 2026 05:03:12 GMT
+
+https://collider.com/scariest-horror-books-goodreads-all-time-ranked/
+
+Goodreads users voted classic horror books like The Shining, The Exorcist, and The Haunting of Hill House as some of the scariest of all time.
+---------
+
+# 8 Thriller Shows That Are 10/10 Masterpieces, Ranked
+
+TV, Thriller, Breaking Bad, Narcos, Dark
+
+Sun, 08 Nov 2026 02:33:12 GMT
+
+https://collider.com/thriller-shows-perfect-masterpieces-ranked/
+
+Adolescence, Mindhunter, Narcos, Death Note, Dark, and more make up our list of thriller shows that are perfect masterpieces.
+---------
+
+# 8 Netflix Romance Shows Where Every Episode Is a Masterpiece
+
+TV, Netflix, Romance, Bridgerton, Nobody Wants This
+
+Sun, 08 Nov 2026 02:03:12 GMT
+
+https://collider.com/netflix-romance-shows-every-episode-masterpiece/
+
+From the sweeping Regency hit Bridgerton to the comedy series Nobody Wants This, every episode of these Netflix romance shows is a true masterpiece.
+---------
+
+# Netflix Officially Confirms a Release Date for Its 'Arcane' Replacement
+
+TV Features, Blue Eye Samurai, Maya Erskine, Netflix, Arcane
+
+Sun, 08 Nov 2026 02:01:13 GMT
+
+https://collider.com/netflix-blue-eye-samurai-season-2-release-date-arcane/
+
+Netflix offers a bold new direction for its Arcane replacement with Blue Eye Samurai Season 2.
+---------
+
+# The Biggest Movie of 2026 Is Officially Taking Over Prime Video's Streaming Charts
+
+Movie News, Spider-Man: Brand New Day, Amazon, Marvel, Streaming
+
+Sun, 08 Nov 2026 02:00:12 GMT
+
+https://collider.com/spider-man-brand-new-day-streaming-hit-amazon-november-2026/
+
+Spider-Man: Brand New Day, the biggest movie of the decade, is now a smash hit on Amazon. Read on for more details.
+---------
+
+# Disney+'s Near-Perfect Sci-Fi Series Is Officially One of the Biggest Shows on Streaming With 490 Million Views
+
+TV News, VisionQuest, Sci-Fi, Disney+
+
+Sun, 08 Nov 2026 04:34:24 GMT
+
+https://movieweb.com/visionquest-disney-nielsen-streaming-ratings/
+
+'VisionQuest' is showing up with some impressive Nielsen viewership numbers.
+---------
+
+# 10 Great Fantasy Books to Read if You Love 'The Lord of the Rings'
+
+TV Lists, Fantasy, The Lord of the Rings, J.R.R. Tolkien
+
+Sun, 08 Nov 2026 03:00:26 GMT
+
+https://movieweb.com/fantasy-books-like-lord-of-the-rings/
+
+From epic quests to a house full of mysteries, each of these fantasy novels offers something truly special after reading 'Lord of the Rings.'
+---------
+
 # 8 Dated TV Shows Nobody Wants To See Rebooted
 
 Classic TV
