@@ -1,3 +1,399 @@
+# How Every Teenage Mutant Ninja Turtle Officially Dies In TMNT: The Last Ronin
+
+Comics, Teenage Mutant Ninja Turtles
+
+Mon, 09 Nov 2026 03:46:18 GMT
+
+https://screenrant.com/tmnt-the-last-ronin-every-ninja-turtle-death/
+
+With a terrible series of events leaving the other Teenage Mutant Ninja Turtles dead, the Last Ronin had one quest left before he could know peace.
+---------
+
+# Prime Video's 13-Hour Cop Thriller Is Western Noir At Its Very Best
+
+Streaming TV, Masked Recs
+
+Mon, 09 Nov 2026 03:46:18 GMT
+
+https://screenrant.com/too-old-to-die-young-prime-video-series-best-western-noir/
+
+Too Old to Die Young stars Miles Teller in Nicolas Winding Refn’s 13-hour Prime Video crime thriller, blending neo-noir with modern Western grit.
+---------
+
+# The Lord Of The Rings: The Rings Of Power Cast & Character Guide (Including Season 3 Additions)
+
+Streaming TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power
+
+Mon, 09 Nov 2026 03:30:18 GMT
+
+https://screenrant.com/lotr-rings-of-power-cast-character-guide/
+
+The Lord of the Rings: The Rings of Power cast grows even larger with season 3 as a new batch of performers join the existing faces of the series.
+---------
+
+# Dino Crisis: Modern Edition Is A Resident Evil-Style Overhaul
+
+Gaming, Dino Crisis, Resident Evil, PC
+
+Mon, 09 Nov 2026 03:30:17 GMT
+
+https://screenrant.com/dino-crisis-modern-edition-resident-evil-style-overhaul/
+
+Fans of Dino Crisis are finally being treated to a hugely updated version titled Modern Edition that transforms it into a Resident Evil-like game.
+---------
+
+# Netflix Officially Hits Rare Rotten Tomatoes Streak With Returning Comedy Series
+
+TV, North of North
+
+Mon, 09 Nov 2026 03:04:56 GMT
+
+https://screenrant.com/north-of-north-season-2-rotten-tomatoes-netflix/
+
+A returning Netflix series maintains an impressive Rotten Tomatoes streak as its sophomore season debuts on the streamer.
+---------
+
+# The Gilded Age Season 4 Episode 2 Ending Explained: George Russell Makes A Pivotal Life-Or-Death Decision
+
+TV, The Gilded Age
+
+Mon, 09 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/gilded-age-season-4-episode-2-ending-explained/
+
+As multiple new developments occur in The Gilded Age, George Russell learns the man who shot him ties to his past and passes the final judgment.
+---------
+
+# 30 Years Later, Spider-Man's Coldest Quote Still Has No Equal
+
+Comics, Marvel, Spider-Man
+
+Mon, 09 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/spider-man-coldest-line-no-equal/
+
+Spider-Man has dropped a lot of great quotes over the decades, but the coldest one of all is still one that he angrily exclaimed 30 years ago.
+---------
+
+# Uncharted Has Finally Officially Returned
+
+Gaming, Uncharted, Uncharted 5, The Last of Us, The Last of Us Part 2
+
+Mon, 09 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/uncharted-official-return-last-of-us-dlc/
+
+Free Uncharted content. New unlockables and visual upgrades make revisiting a beloved title feel fresh while teasing Naughty Dog kinship.
+---------
+
+# Project Hail Mary's Creator Reveals Why 2 Major Scenes Almost Didn't Make The Movie
+
+Movies, Project Hail Mary
+
+Mon, 09 Nov 2026 02:30:40 GMT
+
+https://screenrant.com/project-hail-mary-2-major-scenes-almost-cut/
+
+Project Hail Mary's author revealed he fought to remove two very popular scenes from the final cut of the movie adaptation of his beloved book.
+---------
+
+# The Rings Of Power Season 2 Recap: What To Remember Before Season 3
+
+Streaming TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Mon, 09 Nov 2026 02:30:18 GMT
+
+https://screenrant.com/the-rings-of-power-season-2-recap/
+
+Prime Video's The Lord of the Rings: The Rings of Power is headed into its third season, so take a moment to catch up on all the important details.
+---------
+
+# Sylvester Stallone Admits He Forgot He Was Watching an Actor Play Him in New Biopic
+
+Movies, sylvester stallone, I Play Rocky, Rocky
+
+Mon, 09 Nov 2026 03:47:17 GMT
+
+https://www.cbr.com/sylvester-stallone-review-i-play-rocky/
+
+Sylvester Stallone, who has no direct involvement with the film, shares his thoughts on how it turned out.
+---------
+
+# 5 Turn-Based RPGs With Class Systems You Can Play With for Months
+
+Games, Role Playing Game, Video Games, Nintendo
+
+Mon, 09 Nov 2026 03:45:11 GMT
+
+https://www.cbr.com/turn-based-rpgs-class-systems-play-for-months/
+
+These turn-based RPGS feature class systems that will keep you busy and lost in gameplay for months.
+---------
+
+# 5 Forgotten Sports Anime That Have Aged Like Fine Wine
+
+Anime, Stars Align, Princess Nine
+
+Mon, 09 Nov 2026 03:30:11 GMT
+
+https://www.cbr.com/forgotten-sports-anime-aged-well-list/
+
+These forgotten anime gems, like Stars Align and Eyeshield 21, tackle deep themes while delivering thrilling sports moments.
+---------
+
+# Pokémon Celebrates 30th Anniversary With 12 New Releases Available Now
+
+Games, Pokemon
+
+Mon, 09 Nov 2026 03:25:11 GMT
+
+https://www.cbr.com/pokemon-30th-anniversary-12-new-releases-available-now/
+
+Pokémon fans just got a full dozen brand-new pieces of branded merchandise that are perfect for celebrating the 30th anniversary before it's over.
+---------
+
+# Scarlett Johansson's Adults-Only Sci-Fi Thriller Is a Free Streaming Sensation 13 Years Later
+
+Movies, scarlett johansson, Under the Skin, Sci-Fi
+
+Mon, 09 Nov 2026 03:00:21 GMT
+
+https://www.cbr.com/scarlett-johansson-under-the-skin-sci-fi-justwatch-success-november-2026/
+
+Scarlett Johansson's sci-fi Under the Skin wasn't a hit at the box office but it found a new audience on streaming.
+---------
+
+# Sailor Moon Confirms Multiple New Debuts for November 13
+
+Anime, Sailor Moon, Sailor Moon Crystal
+
+Mon, 09 Nov 2026 03:00:21 GMT
+
+https://www.cbr.com/sailor-moon-new-collectibles-november-13/
+
+Sailor Moon unveils stunning new replicas of the iconic Star Locket music box and Rainbow Moon Chalice, plus a new recording from Usagi's original VA.
+---------
+
+# 5 Single-Player RPGs With Virtually Perfect Combat
+
+Games, Role Playing Game, Video Games
+
+Mon, 09 Nov 2026 03:00:21 GMT
+
+https://www.cbr.com/single-player-rpgs-perfect-combat/
+
+These 5 single player RPGs feature nearly perfect combat systems that will keep you engage and lost fighting dozens of enemies in fantasy worlds.
+---------
+
+# 10 Dragon Ball Villains Stronger Than Ultimate Gohan
+
+Anime, Dragon Ball, gohan, Akira Toriyama
+
+Mon, 09 Nov 2026 02:45:12 GMT
+
+https://www.cbr.com/dragon-ball-villains-stronger-than-ultimate-gohan-list/
+
+Ultimate Gohan represents the powerful Saiyan's fully unlocked potential, but there are still some vicious villains who surpass his strength.
+---------
+
+# Firefly Star's CBS Crime Drama Makes Major Streaming Jump After Season 2 Return
+
+TV, Sheriff Country, Firefly, CBS, Paramount Plus
+
+Mon, 09 Nov 2026 02:37:35 GMT
+
+https://www.cbr.com/sheriff-country-streaming-success-november-2026/
+
+On the heels of the Season 2 premiere, CBS' crime drama made a major jump on the streaming charts.
+---------
+
+# 10 Most Unplayable Games on the NES, Ranked
+
+Games, Nintendo, retro games
+
+Mon, 09 Nov 2026 02:25:11 GMT
+
+https://www.cbr.com/most-unplayable-games-on-the-nes-ranked-list/
+
+NES games like The Uncanny X-Men have aged like milk.
+---------
+
+# 10 Fantasy Miniseries To Watch Before Kicking the Bucket (#1 Is Actually Flawless)
+
+TV, Fantasy, TV Miniseries, Over the Garden Wall, Guillermo del Toro's Cabinet of Curiosities
+
+Mon, 09 Nov 2026 02:22:12 GMT
+
+https://collider.com/fantasy-miniseries-to-watch-bucket-list/
+
+Explore the best fantasy miniseries every fan should see at least once, from Over the Garden Wall to Jonathan Strange & Mr. Norrell.
+---------
+
+# Netflix’s 4-Part Crime Thriller Officially Becomes a Global Streaming Sensation
+
+TV News, Netflix, Money Heist, Lupin, Omar Sy
+
+Mon, 09 Nov 2026 02:00:12 GMT
+
+https://collider.com/netflix-lupin-season-4-streaming-success-november-2026/
+
+A familiar kind of crime thriller is dominating Netflix worldwide, proving audiences still have an appetite for elaborate heists and clever thieves.
+---------
+
+# One of Star Trek's Best Characters Almost Didn't Exist Because of Gene Roddenberry
+
+TV Features, Gene Roddenberry, Star Trek, Star Trek: The Next Generation, michael dorn
+
+Mon, 09 Nov 2026 01:46:12 GMT
+
+https://collider.com/star-trek-tng-worf-gene-roddenberry/
+
+This pivotal Star Trek: The Next Generation episode revolutionized the Klingon race and Worf's character, despite resistance from the show's creator.
+---------
+
+# Disney+ Officially Has a New ‘Bridgerton’ Rival With Its Lavish Romance Series
+
+TV News, The Remarried Empress, Disney+, South Korea, Romance
+
+Mon, 09 Nov 2026 01:45:12 GMT
+
+https://collider.com/disney-fantasy-k-drama-the-remarried-empress-streaming-november-2026/
+
+Bridgerton fans have a new royal drama to binge as The Remarried Empress becomes a streaming hit on Disney+ and Hulu.
+---------
+
+# Anne Hathaway’s New Thriller Officially Removed From 2,800 Theaters After Digital Debut
+
+Movie News, Anne Hathaway, Dakota Johnson, Verity, Box Office
+
+Mon, 09 Nov 2026 01:30:12 GMT
+
+https://collider.com/verity-anne-hathaway-thriller-removed-from-2800-theaters-digital-release/
+
+The new Colleen Hoover adaptation Verity has been removed from nearly 3,000 theaters following its successful digital debut.
+---------
+
+# Forget 'Severance,' Apple TV’s 'Hello Tomorrow!' Is a Masterpiece From Start to Finish
+
+TV Features, Severance, Hello Tomorrow!, Billy Crudup, Apple TV
+
+Mon, 09 Nov 2026 01:20:12 GMT
+
+https://collider.com/hello-tomorrow-apple-tv-retro-sci-fi/
+
+Apple TV has hit sci-fi series like Severance, Silo, and Foundation, but Billy Crudup's retro-futuristic show Hello Tomorrow! has been forgotten.
+---------
+
+# Hugh Jackman’s 2013 Sci-Fi Thriller Officially Gets a Second Chance on Streaming
+
+Movie News, The Wolverine, Marvel Studios, HBO Max, Hugh Jackman
+
+Mon, 09 Nov 2026 01:15:12 GMT
+
+https://collider.com/hugh-jackman-the-wolverine-streaming-success-hbo-max-november-2026/
+
+Hugh Jackman's underrated Marvel movie The Wolverine has become a streaming hit on HBO Max ahead of Avengers: Doomsday.
+---------
+
+# 8 Sci-Fi Shows That Get Better the Stranger They Become, Ranked by Weirdness
+
+TV, Sci-Fi, Severance, The OA, Doctor Who
+
+Mon, 09 Nov 2026 01:02:12 GMT
+
+https://collider.com/weird-sci-fi-shows-ranked/
+
+These great sci-fi TV shows embrace their weirdness and captivate audiences with their strange storylines, from Severance to The OA.
+---------
+
+# HBO’s 9/10 Period Hit Officially Sets a New Series Record With Its Premiere
+
+TV News, HBO, The Gilded Age, Carrie Coon, Julian Fellowes
+
+Mon, 09 Nov 2026 01:00:12 GMT
+
+https://collider.com/hbo-the-gilded-age-season-4-premiere-series-record/
+
+HBO’s The Gilded Age scores its highest-rated season premiere yet, setting a new record for the acclaimed historical series.
+---------
+
+# ‘Seinfeld’ Meets ‘Schitt’s Creek’ in BritBox’s Near-Perfect British Series
+
+TV Features, Friday Night Dinner, Seinfeld, Schitt's Creek, Sitcom
+
+Mon, 09 Nov 2026 00:54:12 GMT
+
+https://collider.com/seinfeld-schitts-creek-britbox-british-series/
+
+BritBox’s near-perfect British comedy blends Seinfeld’s sharp humor with Schitt’s Creek’s lovable family chaos.
+---------
+
+# 'Godzilla Minus Zero's Shocking Twist Was Much Better Than the Original Plan
+
+Features, Godzilla Minus Zero, Godzilla, Godzilla Minus One, Sci-Fi
+
+Mon, 09 Nov 2026 03:00:26 GMT
+
+https://movieweb.com/godzilla-minus-one-noriko-twist/
+
+The final plan to combat Ghidorah hinges on a shocking twist related to one of its primary human characters, but that was never the original plan.
+---------
+
+# 8 Great Fantasy Book Series With 10/10 Endings
+
+TV Lists, Fantasy
+
+Mon, 09 Nov 2026 03:00:21 GMT
+
+https://movieweb.com/fantasy-book-series-perfect-endings/
+
+Endings can be difficult, but the best fantasy book series stick the landing by sticking to their overarching themes and paying off what came before.
+---------
+
+# Jenna Ortega's $40M Sci-Fi Flop Hits a New Box Office Low as Sony Reportedly Stops Counting
+
+Movie News, Jenna Ortega, Box Office Milestones, Klara and the Sun, Sci-Fi
+
+Mon, 09 Nov 2026 01:30:16 GMT
+
+https://movieweb.com/klara-and-the-sun-box-office-november-2026/
+
+Star power and acclaimed source material were nowhere near enough to overcome poor reviews.
+---------
+
+# 8 Best Hard Sci-Fi Movies of the Last 10 Years
+
+Movie Lists, Sci-Fi
+
+Mon, 09 Nov 2026 01:00:17 GMT
+
+https://movieweb.com/best-hard-sci-fi-movies-decade/
+
+These scientifically grounded sci-fi movies from the past 10 years prioritize accuracy over spectacle.
+---------
+
+# Jake Gyllenhaal's 153-Minute Crime Thriller Takes No Prisoners on New Streaming Home
+
+Movie News, Prisoners, Apple TV, Hot on Streaming, Jake Gyllenhaal, Thriller, Crime
+
+Mon, 09 Nov 2026 00:30:16 GMT
+
+https://movieweb.com/prisoners-stream-apple-november-2026/
+
+Jake Gyllenhaal and Hugh Jackman's 2013 crime thriller is making a comeback on streaming.
+---------
+
+# 'Game of Thrones' Is No Longer TV’s Greatest High Fantasy Series Thanks to a 94% Hit
+
+Features, A Knight Of The Seven Kingdoms, Game Of Thrones, Fantasy
+
+Mon, 09 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/knight-of-the-seven-kingdoms-game-of-thrones-replacement/
+
+There is only one true 'Game of Thrones' replacement, and it's arrived surprisingly quickly.
+---------
+
 # Sylvester Stallone Reveals His Honest Review Of I Play Rocky
 
 Movies, I Play Rocky, Rocky
