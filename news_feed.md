@@ -1,3 +1,443 @@
+# Joel Kinnaman's New Prime Video Crime Series Gets New Story Tease From Star
+
+TV, Bishop
+
+Mon, 09 Nov 2026 22:34:52 GMT
+
+https://screenrant.com/joel-kinnaman-bishop-prime-video-series-story-tease-jennifer-beals/
+
+Exclusive: Joel Kinnaman is leading the upcoming Prime Video crime series Bishop, and one of his co-stars teased what the show has in store.
+---------
+
+# DC's Lanterns Sequel Will Show How Powerful John Stewart Has Become
+
+TV, Lanterns, Man of Tomorrow, DC Universe
+
+Mon, 09 Nov 2026 22:31:16 GMT
+
+https://screenrant.com/lanterns-sequel-man-of-tomorrow-john-steweart-green-lantern-power/
+
+DC's Lanterns sequel is already confirmed, and the upcoming release in James Gunn's DCU should feature a very different John Stewart for one reason.
+---------
+
+# 65 Episodes Of Netflix's Best Martial Arts Series Deliver Peak Fight Choreography
+
+Streaming TV, Masked Recs
+
+Mon, 09 Nov 2026 22:30:18 GMT
+
+https://screenrant.com/cobra-kai-best-fight-choreography-netflix-action/
+
+Some of the best fight choreography in TV history managed to sustain its consistently peak quality across 65 episodes of a beloved Netflix show.
+---------
+
+# Stick Season 1 Ending Explained: Season 2's Golfer Comeback Story Might Not Be About Who We Originally Thought
+
+Streaming TV, Stick
+
+Mon, 09 Nov 2026 22:29:52 GMT
+
+https://screenrant.com/stick-season-1-ending-explained/
+
+Stick season 1 ended with a surprise twist in Santi's game, but it may have also had a huge twist for Owen Wilson's character and season 2.
+---------
+
+# Recasting Reservoir Dogs In 2026: 8 Actors Perfect For The Major Roles
+
+Movies, Reservoir Dogs
+
+Mon, 09 Nov 2026 22:20:19 GMT
+
+https://screenrant.com/reservoir-dogs-movie-actors-recast-2026/
+
+Quentin Tarantino caught lightning in a bottle with his original Reservoir Dogs cast, but which A-listers and rising stars could lead a remake now?
+---------
+
+# Paramount+'s 2-Part Action Thriller That's Dominating Streaming Is A Great Genre Throwback
+
+Movies, One Mile: Chapter One, Ryan Phillippe
+
+Mon, 09 Nov 2026 22:20:19 GMT
+
+https://screenrant.com/paramount-plus-one-mile-chapter-one-two-streaming-success-action-throwback/
+
+Ryan Phillippe leads the two-part streaming hit One Mile for Paramount+ and tips his hat to the action/thrillers of the past, such as Taken.
+---------
+
+# Dean Winchester's New Supernatural Spinoff Keeps Getting Better
+
+Comics, Supernatural
+
+Mon, 09 Nov 2026 22:14:18 GMT
+
+https://screenrant.com/dean-winchester-supernatural-spinoff/
+
+Supernatural is proving that Dean Winchester's story still has plenty of life left, with each new installment getting better than the last.
+---------
+
+# 10 Steamiest TV Romances, Ranked
+
+Classic TV, Romance
+
+Mon, 09 Nov 2026 22:00:19 GMT
+
+https://screenrant.com/best-steamy-tv-show-romances/
+
+From Heated Rivalry to Bridgerton and Outlander, these 10 steamy TV romances deliver unforgettable chemistry, passion, and spicy tension.
+---------
+
+# Stardew Valley Meets Studio Ghibli In New RPG You Can Play Free Now
+
+Gaming, Stardew Valley, Studio Ghibli, RPG, PC, Steam
+
+Mon, 09 Nov 2026 22:00:19 GMT
+
+https://screenrant.com/stardew-valley-studio-ghibli-windwoven-free-playtest/
+
+Stardew Valley fans will want to check out this new Studio Ghibli-esque RPG that is playable for free right now.
+---------
+
+# Demeter's Percy Jackson Season 3 Debut Clarified By Disney+ Star
+
+TV, Percy Jackson & the Olympians, Percy Jackson & The Olympians
+
+Mon, 09 Nov 2026 21:57:19 GMT
+
+https://screenrant.com/percy-jackson-season-3-demeter-debut-details-clarified-jennifer-beals/
+
+EXCLUSIVE: New Percy Jackson and the Olympians star Jennifer Beals clarifies what to expect from Demeter in the character's season 3 debut.
+---------
+
+# Final Fantasy Returns in 2027 With Surprise New Release
+
+Games, Final Fantasy
+
+Mon, 09 Nov 2026 22:32:37 GMT
+
+https://www.cbr.com/final-fantasy-new-release-2027-origins-of-light/
+
+Square Enix's iconic franchise has more than Final Fantasy 7 Revelation on the way in 2027, with an unexpected release following later in the year.
+---------
+
+# 4-Part Netflix Psychological Thriller Quietly Becomes 1 of the Most-Watched Shows in the World
+
+TV, A Couple of Lies, Netflix
+
+Mon, 09 Nov 2026 22:30:12 GMT
+
+https://www.cbr.com/a-couple-of-lies-thriller-netflix-streaming-success-november-2026/
+
+Just over a week after its release, Netflix's four-part psychological thriller A Couple of Lies is topping the charts across the globe.
+---------
+
+# 10 Most Broken NES Games of All Time, Ranked
+
+Games, Nintendo, nes, Ghostbusters, Innovation
+
+Mon, 09 Nov 2026 22:15:12 GMT
+
+https://www.cbr.com/most-broken-nes-games-all-time-ranked/
+
+The NES console is an essential piece of hardware for introducing gaming to a generation, some games were just too broken to consider playing.
+---------
+
+# 10 Biggest Transformers of All Time, Ranked by Size
+
+Anime, Transformers, Innovation
+
+Mon, 09 Nov 2026 22:01:12 GMT
+
+https://www.cbr.com/biggest-transformers-ranked-by-size-list/
+
+Transformers like Unicron are so big that they're quite literally the size of planets.
+---------
+
+# Stephen King's New 29-Minute HBO Horror Prequel Is Crowned No. 1 on Streaming
+
+TV, It: Welcome to Derry, Stephen King, HBO Max
+
+Mon, 09 Nov 2026 22:01:12 GMT
+
+https://www.cbr.com/stephen-king-a-story-of-derry-horror-hbo-max-success-november-2026/
+
+The latest Halloween special adapted from the work of Stephen King is officially the number one title on one of the biggest streaming charts.
+---------
+
+# 7 Greatest Magic Systems in Fantasy Book History, Ranked
+
+Books, Fantasy
+
+Mon, 09 Nov 2026 22:01:12 GMT
+
+https://www.cbr.com/best-fantasy-book-magic-systems-list/
+
+Fantasy magic systems come in many forms, but the best become inseparable from the worlds and characters at the heart of their stories.
+---------
+
+# 10 Masterpiece ‘70s Movies Better Than The Godfather
+
+Movies, The Godfather
+
+Mon, 09 Nov 2026 22:01:12 GMT
+
+https://www.cbr.com/best-70s-movies-better-than-the-godfather-list/
+
+After Hollywood was freed from the Hays Code, it entered into a golden era in the ‘70s, with some masterpieces even more watchable than The Godfather.
+---------
+
+# Say Goodbye to 2 Major Streaming Services as HBO Max & Paramount+ Merger Begins
+
+Movies, HBO Max, Paramount Plus
+
+Mon, 09 Nov 2026 21:50:35 GMT
+
+https://www.cbr.com/hbo-max-paramount-plus-bundle-merger-date/
+
+Skydance will offer HBO Max and Paramount+ as a bundle ahead of the two streaming platforms merging.
+---------
+
+# LEGO Keeps Howl's Moving Castle Calcifer Set Alive for 6 More Months
+
+Anime, LEGO, Howl's Moving Castle, Studio Ghibli
+
+Mon, 09 Nov 2026 21:40:12 GMT
+
+https://www.cbr.com/howls-moving-castle-calcifer-lego-set-6-month-milestone/
+
+A fan-created LEGO replica of anime's favorite fire demon reaches another major support milestone on the road to becoming an official LEGO set.
+---------
+
+# Fallout Brings Back 2 Classic Companions in New Releases Available for Preorder Now
+
+Games, Fallout
+
+Mon, 09 Nov 2026 21:30:11 GMT
+
+https://www.cbr.com/fallout-brings-back-2-classic-companions-in-new-releases-available-for-preorder-now/
+
+The Fallout franchise has some of the most iconic companions in gaming, and a new preorder allows fans to get their hands on two of the best.
+---------
+
+# HBO Max and Paramount+ Are Officially Headed for the End of an Era
+
+TV News, Skydance Media, Paramount Plus, HBO Max, David Ellison
+
+Mon, 09 Nov 2026 22:36:04 GMT
+
+https://collider.com/hbo-max-paramount-plus-merger-streaming-changes-2027/
+
+HBO Max and Paramount+ face major changes as Skydance plans to unite its streaming platforms. Here’s what the merger could mean for subscribers.
+---------
+
+# Chris Hemsworth’s ‘Heat’ Replacement Officially Steals a New Prime Video Milestone
+
+Movie News, Crime 101, Heat, Chris Hemsworth, Prime Video
+
+Mon, 09 Nov 2026 22:30:12 GMT
+
+https://collider.com/prime-video-crime-101-streaming-success-200-days-november-2026/
+
+Prime Video's Heat replacement has officially crossed 200 days in the streaming top 10 in 2026. Find out more details here.
+---------
+
+# As a Lord of the Rings Fan, Here's How I'd Rank Every Book
+
+Books and Comics, The Lord of the Rings, J.R.R. Tolkien, Fantasy, Books
+
+Mon, 09 Nov 2026 22:08:12 GMT
+
+https://collider.com/lord-of-the-rings-books-ranked-by-a-fan/
+
+A diehard fan of J.R.R. Tolkien and The Lord of the Rings ranks every book in the genre-defining series.
+---------
+
+# Christopher Nolan’s R-Rated Fantasy Movie Officially Sets Streaming Release Date
+
+Movie News, The Odyssey, Jon Bernthal, Christopher Nolan, Blu-ray
+
+Mon, 09 Nov 2026 22:00:12 GMT
+
+https://collider.com/the-odyssey-digital-release-date-november-17-2026/
+
+The Odyssey, one of the biggest movies of the year and a favorite for next year's Oscars, has set its at-home release date.
+---------
+
+# 3 Elite Netflix Series to Binge This Week (Nov 9-13)
+
+TV, Power, The Boroughs, Yellowjackets, Netflix
+
+Mon, 09 Nov 2026 21:47:12 GMT
+
+https://collider.com/netflix-shows-binge-november-9-2026/
+
+Power, Yellowjackets, and The Boroughs make up our list of the best Netflix shows to binge the week of November 9, 2026.
+---------
+
+# TV's Biggest ‘Lincoln Lawyer’ Replacement Officially Takes Over Netflix
+
+TV News, The Rainmaker, Netflix, Thriller, USA Network
+
+Mon, 09 Nov 2026 21:30:12 GMT
+
+https://collider.com/the-rainmaker-netflix-streaming-success-november-2026/
+
+Netflix just landed USA Network's hit legal drama, and it has become a streaming sensation. Get all the details here.
+---------
+
+# NBC’s 2-Season Post-Apocalyptic Sci-Fi Is the Perfect ‘The Last of Us’ Replacement
+
+TV Features, The Last of Us, NBC, revolution, Prime Video
+
+Mon, 09 Nov 2026 21:17:12 GMT
+
+https://collider.com/last-of-us-replacement-series-nbc-revolution/
+
+NBC’s Revolution features a unique approach to the post-apocalypse, thanks to Eric Kripke and an all-star cast.
+---------
+
+# Star Trek’s Cold War Thriller Officially Sets New Release 35 Years Later
+
+Movie News, Star Trek VI: The Undiscovered Country, William Shatner, Christopher Plummer, Nicholas Meyer
+
+Mon, 09 Nov 2026 21:15:08 GMT
+
+https://collider.com/star-trek-undiscovered-country-4k-blu-ray-release/
+
+One of Star Trek’s best movies, and the final voyage of the original cast, is officially getting a 4K Blu-ray.
+---------
+
+# A 'Game of Thrones' Star's Divisive Thriller Officially Gets Its Streaming Redemption 2 Years Later
+
+Movie News, The Beast Within, Game Of Thrones, Kit Harrington, HBO Max
+
+Mon, 09 Nov 2026 21:00:12 GMT
+
+https://collider.com/the-beast-within-streaming-success-hbo-max-november-2026/
+
+Two years later, a Game of Thrones star’s critically panned horror thriller is climbing streaming charts globally.
+---------
+
+# Russell Crowe’s New Crime Thriller Is Officially Challenging Taylor Sheridan on Streaming
+
+Movie News, Paramount Plus, Russell Crowe, The Get Out, Streaming
+
+Mon, 09 Nov 2026 20:30:13 GMT
+
+https://collider.com/russell-crowe-the-get-out-streaming-hit-paramount-plus-november-2026/
+
+Russell Crowe’s forgotten crime movie The Get Out is a streaming hit on Paramount+. Read on for more details.
+---------
+
+# Justice League & Wonder Woman DCU Plans Revealed in New DC Studios Report
+
+Movie News, DCU, Wonder Woman, Justice League, Superhero, James Gunn
+
+Mon, 09 Nov 2026 22:22:15 GMT
+
+https://movieweb.com/justice-league-wonder-woman-dc-studios/
+
+Beware potential SPOILERS for the future of the DCU!
+---------
+
+# Today Is a Great Day To Be a Zack Snyder Fan
+
+Features, DCU, Zack Snyder, James Gunn, Superhero
+
+Mon, 09 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/zack-snyder-james-gunn-dcu-comparison/
+
+The DCU superhero franchise is facing another monumental shake-up after a rollercoaster year at the box office.
+---------
+
+# Denzel Washington's 118-Minute Post-Apocalyptic Action Thriller Officially Sets New Release
+
+Movie News, The Book of Eli, Denzel Washington, Action, Thriller, Blu-ray
+
+Mon, 09 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/book-of-eli-denzel-washington-4k-blu-ray/
+
+Denzel Washington's acclaimed post-apocalyptic action thriller 'The Book of Eli' is making its 4K Ultra HD Blu-ray debut, courtesy of Arrow Video.
+---------
+
+# HBO Max & Paramount+ Bundle Officially Confirms Release Window
+
+TV News, David Ellison, HBO Max, Paramount Plus
+
+Mon, 09 Nov 2026 21:45:40 GMT
+
+https://movieweb.com/hbo-max-paramount-bundle-2027/
+
+HBO Max and Paramount+ have officially confirmed the launch date of their highly anticipated streaming bundle following the Skydance merger.
+---------
+
+# Netflix Officially Adapting One of the Most Iconic Board Games of All Time in New Live-Action Movie
+
+Movie News, Netflix, Adventure
+
+Mon, 09 Nov 2026 21:43:50 GMT
+
+https://movieweb.com/catan-netflix-live-action-movie/
+
+After acquiring the IP in 2025, Netflix is moving forward with their adaptation.
+---------
+
+# 'The Walking Dead' Gets a Martial Arts Twist in Netflix's 2-Part Apocalypse Series
+
+Features, The Walking Dead, Kingdom, Netflix, Horror
+
+Mon, 09 Nov 2026 21:30:17 GMT
+
+https://movieweb.com/kingdom-streaming-recommendation/
+
+'The Walking Dead' may be an iconic zombie TV franchise, but Netflix has a great series with a similar premise and martial arts fighting.
+---------
+
+# HBO’s Steamy Smash Hit Is So Good, 2 More Seasons and a Movie Are on the Way
+
+Features, Heated Rivalry, HBO Max
+
+Mon, 09 Nov 2026 21:00:16 GMT
+
+https://movieweb.com/heated-rivalry-season-2-3-movie/
+
+HBO's steamy TV series was a big hit when Season 1 aired in 2025, and now more of this exciting show is on the way.
+---------
+
+# Stephen King's 'Stranger Things' Substitute Sci-Fi Thriller Is Streaming Hit After New Season Debut
+
+TV News, The Institute, Stephen King, Hot on Streaming, Thriller
+
+Mon, 09 Nov 2026 21:00:16 GMT
+
+https://movieweb.com/the-institute-stephen-king-stream-november-2026/
+
+The show is based on one of King's most unsettling adaptations yet.
+---------
+
+# Denzel Washington Joins Forces With 'Sinners' Favorite in New Amazon Thriller From 'Mission: Impossible' Director
+
+Movie News, Denzel Washington, Teyonah Parris, Christopher McQuarrie, Thriller
+
+Mon, 09 Nov 2026 20:35:03 GMT
+
+https://movieweb.com/denzel-washington-amazon-thriller-miles-caton/
+
+The breakout star will be joining a stacked cast and talented director.
+---------
+
+# 10 American War Movies With Non-Stop Action
+
+Movie Lists, Action, War
+
+Mon, 09 Nov 2026 20:30:18 GMT
+
+https://movieweb.com/american-war-movies-action/
+
+From World War II classics to modern combat thrillers, these action-packed American war movies are essential viewing.
+---------
+
 # Warner Bros.'s New Dr. Seuss Movie Earns Stellar Rotten Tomatoes Audience Score
 
 Movies, The Cat in the Hat
