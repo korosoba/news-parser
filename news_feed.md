@@ -1,3 +1,377 @@
+# Christopher Nolan's The Odyssey Officially Confirms Digital Release Date
+
+Movies, The Odyssey
+
+Tue, 10 Nov 2026 04:06:12 GMT
+
+https://screenrant.com/christopher-nolan-the-odyssey-digital-release-date-confirmed/
+
+After a historic box office run, it has been officially confirmed when The Odyssey will be available to digitally and via physical media.
+---------
+
+# Netflix's New Supernatural Thriller Is What Jujutsu Kaisen Would Look Like In Live-Action
+
+Streaming TV, Masked Recs
+
+Tue, 10 Nov 2026 04:00:17 GMT
+
+https://screenrant.com/dead-end-job-live-action-jujutsu-kaisen-netflix/
+
+Netflix’s new supernatural thriller adopts an original story, but it is hard not to notice how it feels like a live-action Jujutsu Kaisen adaptation.
+---------
+
+# Nightwing’s Replacement Is Officially Taking The Teen Titans Down A Much Darker Path
+
+Comics, Teen Titans
+
+Tue, 10 Nov 2026 04:00:17 GMT
+
+https://screenrant.com/jason-todd-teen-titans-leader-dark-path-nightwing/
+
+The Teen Titans' newest leader is already dealing with more tragic moments than Nightwing ever had to. Thankfully, there’s also good news coming.
+---------
+
+# Kyle MacLachlan's Hit Prime Video Series Officially Returns With New Episodes In Just 3 Months
+
+TV, Overcompensating, Prime Video
+
+Tue, 10 Nov 2026 03:54:42 GMT
+
+https://screenrant.com/overcompensating-season-2-release-date-first-look/
+
+Prime Video’s popular comedy series has finally received a major update, more than a year after debuting its highly rated first season.
+---------
+
+# Alexandra Daddario Officially Joins Breaking Bad-Like Crime Thriller Based On A True Story
+
+Movies, The Long Island Bank Robber
+
+Tue, 10 Nov 2026 03:34:16 GMT
+
+https://screenrant.com/the-long-island-bank-robber-movie-alexandra-daddario-cast/
+
+An upcoming crime thriller movie whose real-life story has parallels to Breaking Bad officially casts Alexandra Daddario in one of the leading roles.
+---------
+
+# 10 Funniest Far Side Comics About Cows That Only Get Better With Age
+
+Comics, The Far Side
+
+Tue, 10 Nov 2026 03:30:18 GMT
+
+https://screenrant.com/far-side-greatest-cow-comics-aged-perfect/
+
+Gary Larson has a soft spot for cows in The Far Side, and these particular strips set out to prove it.
+---------
+
+# Casting Brandon Sanderson's Live-Action Stormlight Archive Series: All 9 Main Roles
+
+Streaming TV, The Stormlight Archive
+
+Tue, 10 Nov 2026 03:30:18 GMT
+
+https://screenrant.com/stormlight-archive-tv-series-casting-actors/
+
+Brandon Sanderson's upcoming Stormlight Archive TV series is set to be the fantasy TV event of the decade, with its never-before adapted story.
+---------
+
+# Superman Already Confirmed The Real Reason DC's Heroes Will Always Be Stronger Than Marvel's
+
+DC Comics, Superman, Marvel
+
+Tue, 10 Nov 2026 03:20:44 GMT
+
+https://screenrant.com/superman-real-reason-dc-stronger-than-marvel-11/
+
+DC's Justice League is inherently more powerful than Marvel's Avengers, and Superman perfectly explained the reason why when he humiliated Thor.
+---------
+
+# Patrick Stewart Was “The Silliest,” Remembers LeVar Burton In Loving Tribute
+
+TV, Star Trek, Star Trek: The Next Generation
+
+Tue, 10 Nov 2026 03:06:19 GMT
+
+https://screenrant.com/star-trek-patrick-stewart-silly-levar-burton-tribute/
+
+LeVar Burton lovingly remembers how "silly" Patrick Stewart was, and how Star Trek: The Next Generation's family changed the Shakespearean actor.
+---------
+
+# Black Bag Ending Explained: Who Was Behind The Severus Leak?
+
+New Movies, Black Bag
+
+Tue, 10 Nov 2026 03:00:29 GMT
+
+https://screenrant.com/black-bag-ending-explained/
+
+Black Bag is a sleek & sophisticated powerhouse that builds tension & holds suspense throughout its sharp 93-minute runtime up to its shocking ending.
+---------
+
+# Ridley Scott's Failed Reboot of an '80s Action Classic Is a Streaming Smash 16 Years Later
+
+Movies, The A-Team, Paramount Plus
+
+Tue, 10 Nov 2026 04:22:11 GMT
+
+https://www.cbr.com/the-a-team-action-paramount-streaming-success-november-2026/
+
+One of the most underrated box office bombs of the past decade is now lighting up the streaming charts after failing to earn a sequel.
+---------
+
+# 10 Best-Written 2000s Anime, Officially Ranked
+
+Anime, Retro Anime, Innovation
+
+Tue, 10 Nov 2026 04:15:11 GMT
+
+https://www.cbr.com/official-best-written-2000s-anime-masterpieces-list/
+
+Classic anime like Gurren Lagann have aged well because of their writing.
+---------
+
+# Star Trek: Insurrection Gave Patrick Stewart The Best Scene in Sci-Fi History
+
+Movies, Star Trek: Insurrection
+
+Tue, 10 Nov 2026 04:15:11 GMT
+
+https://www.cbr.com/star-trek-patrick-stewart-best-scene-in-sci-fi-history/
+
+There are countless great moments from the late Patrick Stewart in his Star Trek career, but the best might be in an underrated TNG film.
+---------
+
+# Sinners Breakout Lands Major Role Alongside Denzel Washington in Amazon's New Thriller
+
+Movies, Sinners, Denzel Whitaker, Thriller
+
+Tue, 10 Nov 2026 04:10:39 GMT
+
+https://www.cbr.com/miles-caton-denzel-washington-thriller-amazon/
+
+After his breakthrough role in Michael B. Jordan's Sinners, Miles Caton will next co-star with Denzel Washington.
+---------
+
+# No Game No Life Officially Reveals Massive New $8,000 Release
+
+Anime, No Game No Life, merchandise, collectibles
+
+Tue, 10 Nov 2026 04:10:12 GMT
+
+https://www.cbr.com/no-game-no-life-shiro-prime-1-studio-release/
+
+No Game No Life officially returns with a massive new $8,000 release of Shiro that's truly larger than life.
+---------
+
+# 5 Single-Season Anime With No Bad Episodes
+
+Anime, Takopi's Original Sin, Ouran High School Host Club, Innovation, Yuri on Ice
+
+Tue, 10 Nov 2026 03:45:11 GMT
+
+https://www.cbr.com/single-season-anime-no-bad-episodes/
+
+Most long-running anime often wind up with at least one botched episode that can crash the entire momentum of the season, or the entire series.
+---------
+
+# 5 Co-Op Open-World RPGs You Can Play for 100 Hours or More
+
+Games, Video Games, Elden Ring, Role Playing Game, Innovation
+
+Tue, 10 Nov 2026 03:30:11 GMT
+
+https://www.cbr.com/long-co-op-open-world-rpgs-100-plus-hours/
+
+Monster Hunter and Elden Ring take forever to complete, even when playing in co-op mode with other gamers.
+---------
+
+# 7 Most Unwatchable Anime That Aired on Toonami
+
+Anime, toonami, Innovation
+
+Tue, 10 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/most-unwatchable-anime-aired-toonami/
+
+Cartoon Network's programming block mixed celebrated hits with far weaker series but memory smooths over many of those mistakes.
+---------
+
+# 10 Gaming Masterpieces From the 1980s You Forgot Existed
+
+Games, retro games, Innovation
+
+Tue, 10 Nov 2026 02:45:11 GMT
+
+https://www.cbr.com/best-80s-video-games-all-time-masterpieces-list/
+
+Some of the best games of the '80s, like Pole Position, have mostly been forgotten.
+---------
+
+# 10 Greatest Anime Worlds of the '80s, Ranked
+
+Anime, Dragon Ball, Legend Of The Galactic Heroes, Innovation
+
+Tue, 10 Nov 2026 02:25:12 GMT
+
+https://www.cbr.com/greatest-anime-worlds-80s/
+
+In the '80s, anime series like Dragon Ball and Super Dimension Fortress Macross had the most memorable worldbuilding.
+---------
+
+# Billy Bob Thornton’s 3-Minute Scene Proves Taylor Sheridan’s ‘Landman’ Is a Must-Watch
+
+TV Features, Landman, Billy Bob Thornton, Taylor Sheridan, Demi Moore
+
+Tue, 10 Nov 2026 04:16:12 GMT
+
+https://collider.com/landman-billy-bob-thornton-taylor-sheridan-must-watch/
+
+Billy Bob Thornton's pivotal scene in Landman highlights the complexities of a controversial industry.
+---------
+
+# The 8 Best Films of the 1950s, Ranked
+
+Movie, Classics, The Night of the Hunter, The Searchers, Rear Window
+
+Tue, 10 Nov 2026 04:11:12 GMT
+
+https://collider.com/best-films-1950s-ranked/
+
+Timeless classics like The Night of the Hunter, The Searchers, and Rear Window are among the very best movies of the 1950s.
+---------
+
+# Forget ‘You,’ Netflix's Twisted Psychological Thriller With Only 6 Episodes Is Even Better
+
+TV Features, Behind Her Eyes, You, Netflix, Series
+
+Tue, 10 Nov 2026 03:12:12 GMT
+
+https://collider.com/behind-her-eyes-netflix-psychological-thriller/
+
+Netflix’s Behind Her Eyes turns an affair into a six-episode psychological thriller packed with secrets, shifting loyalties, and a wild finale.
+---------
+
+# 9 Upcoming Action Movies, Ranked by Hype
+
+Movie, Action, Violent Night 2, The Beekeeper 2, Dune: Part Three
+
+Tue, 10 Nov 2026 02:38:12 GMT
+
+https://collider.com/upcoming-action-movies-ranked-hype/
+
+With Avengers: Doomsday, Dune: Part Three, and Star Wars: Starfighter among the looming action releases, action lovers have a lot to look forward to.
+---------
+
+# ‘NCIS’ Still Hasn’t Found the Perfect Replacement for Its Most Important Character
+
+TV Features, NCIS, CBS, Series, Cote de Pablo
+
+Tue, 10 Nov 2026 02:32:12 GMT
+
+https://collider.com/ncis-ziva-david-most-important-character-legacy/
+
+NCIS has introduced plenty of agents, but Cote de Pablo's Ziva David remains irreplaceable. Here's why her legacy endures.
+---------
+
+# 3 Elite Prime Video Series to Binge This Week (Nov 9-13)
+
+TV, Prime Video, Ride or Die, Fallout, Sterling Point
+
+Tue, 10 Nov 2026 02:11:12 GMT
+
+https://collider.com/prime-video-shows-binge-november-9-2026/
+
+Sterling Point, Fallout, and Ride or Die make up our list of the best Prime Video shows to binge the week of November 9, 2026.
+---------
+
+# BBC’s Near-Perfect Detective Thriller Teases Major Changes for American Remake
+
+TV Features, Ludwig, Britbox, David Mitchell, BBC
+
+Tue, 10 Nov 2026 01:54:12 GMT
+
+https://collider.com/bbc-ludwig-rabbit-detective-thriller-american-remake/
+
+Rabbit will deliver a unique twist on BBC’s Ludwig as it transforms for its US adaptation and is set to captivate American fans.
+---------
+
+# James Gunn’s DC Studios Exit Came at the Worst Time
+
+Movie Features, Superman, Man of Tomorrow, James Gunn, Peter Safran
+
+Tue, 10 Nov 2026 00:54:06 GMT
+
+https://collider.com/dc-studios-james-gunn-peter-safran-exit-man-of-tomorrow/
+
+The news of James Gunn and Peter Safran stepping down at DC Studios comes at a time when their creative vision has found its footing.
+---------
+
+# 8 Prime Video Fantasy Shows Where Every Episode Is a Masterpiece
+
+TV, Prime Video, Fantasy, The Lord of the Rings: The Rings of Power, The Legend of Vox Machina
+
+Tue, 10 Nov 2026 00:15:12 GMT
+
+https://collider.com/prime-video-fantasy-shows-every-episode-masterpiece/
+
+From The Lord of the Rings: The Rings of Power to The Legend of Vox Machina, every episode of these Prime Video fantasy shows is a masterpiece.
+---------
+
+# 'Marshals' Cast Reveals the 'Yellowstone' Characters They Want Back the Most
+
+Exclusives, Marshals, Yellowstone, Luke Grimes, CBS
+
+Mon, 09 Nov 2026 23:59:32 GMT
+
+https://collider.com/marshals-cbs-yellowstone-set-visit-luke-grimes-jefferson-white/
+
+Our visit to the Marshals set reveals the hard work that goes into making the Yellowstone spin-off and new challenges for Kayce in Season 2.
+---------
+
+# Billy Bob Thornton's 'Landman' Replacement Proves Season 3's Harsh Reality
+
+Features, Billy Bob Thornton, Landman, Drama, Western
+
+Tue, 10 Nov 2026 01:00:16 GMT
+
+https://movieweb.com/mayflower-landman-replacement/
+
+Billy Bob Thornton has an unexpected 'Landman' replacement arriving this month, but it's a reminder that the Taylor Sheridan show should be returning.
+---------
+
+# Warner Bros.' $100M Remake Storms 4,000+ Theaters but Is Already Losing to a Sci-Fi Thriller Hit
+
+Movie News, Box Office Milestones, The Cat in the Hat, Adventure
+
+Mon, 09 Nov 2026 23:00:16 GMT
+
+https://movieweb.com/cat-in-the-hat-box-office-milestone/
+
+Godzilla Minus Zero beat The Cat in the Hat while playing in hundreds fewer theaters.
+---------
+
+# 6 Biggest Questions After James Gunn’s DCU Exit (#1 is the Most Concerning)
+
+Movie Lists, James Gunn, DCU, Man of Tomorrow
+
+Mon, 09 Nov 2026 23:00:16 GMT
+
+https://movieweb.com/james-gunn-dcu-exit-biggest-questions/
+
+With James Gunn and Peter Safran stepping down as the co-presidents of DC Studios, here are the answers to the biggest questions.
+---------
+
+# Johnny Depp's Long-Awaited Hollywood Comeback in 'Ebenezer' Gets First Reactions
+
+Movie News, Ebenezer, Johnny Depp, Ti West, Thriller
+
+Mon, 09 Nov 2026 22:46:08 GMT
+
+https://movieweb.com/ebenezer-johnny-depp-first-reactions/
+
+The initial reception to the upcoming Christmas film is here.
+---------
+
 # Joel Kinnaman's New Prime Video Crime Series Gets New Story Tease From Star
 
 TV, Bishop
