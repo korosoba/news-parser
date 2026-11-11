@@ -1,3 +1,443 @@
+# Legendary Star Trek Writer Reveals The Hardest Next Generation Character To Write For: “We Didn’t Know What To Do With That”
+
+TV, Star Trek, Star Trek: The Next Generation
+
+Wed, 11 Nov 2026 00:40:16 GMT
+
+https://screenrant.com/star-trek-the-next-generation-hardest-character-write/
+
+Ronald D. Moore looks back on his time as a writer for Star Trek: The Next Generation and discusses which main character was the most problematic.
+---------
+
+# 3 Years Later, Solo Leveling Completely Retcons Its Original Ending
+
+Anime, Solo Leveling
+
+Wed, 11 Nov 2026 00:31:18 GMT
+
+https://screenrant.com/solo-leveling-ending-retcon-jinwoo-cha-hae-in/
+
+Solo Leveling: Ragnarok just dropped a revelation that will change how fans see Solo Leveling's original ending forever.
+---------
+
+# Live-Action Lilo & Stitch Star Leads New Disney Movie After $1B Box Office Success
+
+Movies, Disney, Maia Kealoha
+
+Wed, 11 Nov 2026 00:04:57 GMT
+
+https://screenrant.com/stolen-wishes-disney-movie-maia-kealoha-cast/
+
+After the live-action Lilo & Stitch made $1 billion at the worldwide, and with a sequel on the way, Maia Kealoha will now lead another Disney movie.
+---------
+
+# Iconic Character Officially Confirmed For Buffy the Vampire Slayer's 2027 Return
+
+Comics, Buffy The Vampire Slayer
+
+Wed, 11 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/buffy-vampire-slayer-return-spike-tara-confirmed/
+
+Several fan-favorite characters will return.
+---------
+
+# Ex Machina Is Now Streaming For Free On Tubi
+
+Movies, Ex Machina, Alex Garland
+
+Wed, 11 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/ex-machina-sci-fi-movie-streaming-free-tubi/
+
+Alex Garland's second feature film, Ex Machina, finds its way on the popular free streaming platform, Tubi.
+---------
+
+# Stargate SG-1: Goa'uld Tel'tak Set Officially Releases May 2027
+
+Gaming, Stargate SG-1, PC
+
+Wed, 11 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/stargate-sg-1-master-replicas-may-2027/
+
+Stargate SG-1 returns with a stunning new set for the Tel'tak ship, one of the most dependable vessels across the SG-1 series.
+---------
+
+# All 40 Episodes Of Prime Video's Thriller Franchise Deliver R-Rated Action At Its Best
+
+TV, Masked Recs
+
+Tue, 10 Nov 2026 23:58:18 GMT
+
+https://screenrant.com/prime-video-reacher-r-rated-action-thriller/
+
+Unflinching violence and gritty realism power Prime Video's iconic action thriller franchise, where a lone drifter dismantles criminal empires.
+---------
+
+# Vision’s Return In Avengers: Doomsday Seemingly Confirmed By Anthony Mackie
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe
+
+Tue, 10 Nov 2026 23:52:23 GMT
+
+https://screenrant.com/avengers-doomsday-vision-return-anthony-mackie-response/
+
+As VisionQuest gets ready to release its finale this week, Paul Bettany's Avengers: Doomsday return has seemingly been confirmed by Anthony Mackie.
+---------
+
+# Prime Video’s Best New Action Thriller Just Scored A Massive Milestone
+
+TV, Neagley, Jack Reacher
+
+Tue, 10 Nov 2026 23:30:42 GMT
+
+https://screenrant.com/neagley-action-series-prime-video-streaming-milestone-november-2026/
+
+Prime Video's best new action thriller that scored big upon release just reached a massive milestone at the perfect time.
+---------
+
+# Helen's Real Identity & Backstory In Black Doves Explained
+
+Streaming TV, Black Doves
+
+Tue, 10 Nov 2026 23:30:19 GMT
+
+https://screenrant.com/helen-real-identity-backstory-explained-black-doves/
+
+Keira Knightley's Helen Webb / Daisy Bradshaw takes on various personas and undercover aliases in Netflix's thrilling espionage series Black Doves.
+---------
+
+# The Twilight Zone Defined an Era of TV As We Celebrate Its Creator, Rod Serling
+
+CBR Exclusives, The Twilight Zone
+
+Wed, 11 Nov 2026 00:34:54 GMT
+
+https://www.cbr.com/rod-serling-twilight-zone-impact-alan-sepinwall-interview/
+
+In a CBR exclusive interview with TV critic, Alan Sepinwall, learn more about the subject of his new book, Twilight Zone creator, Rod Serling
+---------
+
+# Mara Jade Skywalker Officially Returns to Star Wars in 2 Weeks
+
+Books, Star Wars, Sci-Fi, Star Wars Legends
+
+Wed, 11 Nov 2026 00:05:12 GMT
+
+https://www.cbr.com/star-wars-legends-mara-jade-skywalker-choices-one-audiobook-new-release/
+
+One of the most iconic characters from Star Wars Legends officially returns to the franchise this month.
+---------
+
+# Forget Yellowstone, Quentin Tarantino's 2 R-Rated Western Classics Are Taking Over Free Streaming
+
+Movies, Django Unchained, The Hateful Eight, Pluto TV
+
+Wed, 11 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/django-unchained-hateful-eight-streaming-success-november-2026/
+
+Quentin Tarantino fans are wasting no time streaming the filmmaker's two Western classics while they are on a free streaming service.
+---------
+
+# The 8-Episode Tom Hardy Crime Show That's Better Than MobLand
+
+TV, tom hardy, MobLand, Taboo, Crime
+
+Wed, 11 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/mobland-tom-hardy-taboo-underrated-crime-drama/
+
+Tom Hardy's one-season Taboo outshines MobLand in gritty crime storytelling, leaving fans on the edge of their seats, waiting for Season 2.
+---------
+
+# Sega's 37-Year-Old Console Brings Back 3 Classic Games With New Physical Release
+
+Games, Sega Genesis
+
+Tue, 10 Nov 2026 23:35:12 GMT
+
+https://www.cbr.com/segas-37-year-old-console-brings-3-classic-games-with-new-physical-release/
+
+One of Britain's most successful video game franchises is coming back nearly four decades later with a brand-new physical release.
+---------
+
+# Legendary 31-Year-Old Space Western Officially Returns With First-Ever Tabletop RPG
+
+Anime, Trigun, Trigun Stampede, Tabletop, RPG
+
+Tue, 10 Nov 2026 23:35:12 GMT
+
+https://www.cbr.com/trigun-stampede-tabletop-rpg-2027-launch/
+
+One of the most iconic space westerns of all time is getting its first official tabletop roleplaying game in 2027, and it is long-overdue.
+---------
+
+# 10 Dragon Ball Villains Stronger Than Kid Buu
+
+Anime, Dragon Ball, anime villains
+
+Tue, 10 Nov 2026 23:15:11 GMT
+
+https://www.cbr.com/dragon-ball-villains-stronger-than-kid-buu/
+
+Kid Buu is one of Dragon Ball's most cruel and chaotic villains, but there are other intimidating antagonists who possess even greater power.
+---------
+
+# 5 Classic Fantasy Books That Have Aged Like Fine Wine
+
+Books, Fantasy
+
+Tue, 10 Nov 2026 23:00:12 GMT
+
+https://www.cbr.com/fantasy-books-that-have-aged-well-list/
+
+The best fantasy books stand the test of time, and these classic stories remain just as enjoyable to read decades after they were first published.
+---------
+
+# Jake Gyllenhaal's The Day After Tomorrow is a Sci-Fi Masterpiece
+
+Movies, The Day After Tomorrow, Sci-Fi
+
+Tue, 10 Nov 2026 23:00:12 GMT
+
+https://www.cbr.com/the-day-after-tomorrow-secret-perfect-sci-fi-movie/
+
+The Day After Tomorrow wasn't well received when it hit theaters in 2004, but 22 years later, it stands the test of time as a cult classic.
+---------
+
+# Every Version of TMNT's Armaggon, Ranked
+
+Comics, Teenage Mutant Ninja Turtles, Tales of the Teenage Mutant Ninja Turtles, Rise of the Teenage Mutant Ninja Turtles
+
+Tue, 10 Nov 2026 23:00:12 GMT
+
+https://www.cbr.com/every-version-of-tmnt-armaggon-ranked/
+
+Armaggon is back in the spotlight to terrorize another one of fans' favorite versions of the Teenage Mutant Ninja Turtles, and he might be perfect.
+---------
+
+# ACOTAR’s Most Divisive Book Is Officially One of 2026’s Most Popular Fantasy Stories
+
+Books and Comics News, A Court of Thorns and Roses, Fantasy, Romance
+
+Wed, 11 Nov 2026 00:30:12 GMT
+
+https://collider.com/acotar-a-court-of-frost-and-starlight-readership-success-november-2026/
+
+The most divisive ACOTAR book has become the most-read entry in 2026, amid mixed reception to the newly released A Court of Splintered Harmony.
+---------
+
+# 'The Rings of Power' Season 2 Recap: What To Remember Before Prime Video's Epic Fantasy Series Returns
+
+TV Features, The Lord of the Rings: The Rings of Power, Prime Video, Morfydd Clark, Charlie Vickers
+
+Wed, 11 Nov 2026 00:18:12 GMT
+
+https://collider.com/rings-of-power-season-2-recap-prime-video/
+
+We recap the key events and twists from The Rings of Power Season 2 before Prime Video's epic fantasy series returns this week.
+---------
+
+# Netflix Officially Loses the Streaming War to Prime Video
+
+TV News, Netflix, Prime Video, Anime, Action
+
+Wed, 11 Nov 2026 00:00:12 GMT
+
+https://collider.com/netflix-overtaken-by-prime-video-streaming-popularity-anime/
+
+Netflix has spent years building its anime empire, but new survey results and viewing data suggest its biggest rival is catching up fast.
+---------
+
+# Apple TV’s Ambitious Heist Thriller Officially Premieres This Week
+
+TV News, 12 12 12, Apple TV, Anthony Mackie, Jamie Dornan
+
+Wed, 11 Nov 2026 00:00:12 GMT
+
+https://collider.com/12-12-12-release-date-apple-tv-heist-series/
+
+Apple TV's ambitious heist thriller, 12 12 12, starring Marvel's Anthony Mackie and Jamie Dornan, premieres this week. Here's how to watch it.
+---------
+
+# A24’s Viral Sensation Officially Removed From 770 Theaters Ahead of Major Box-Office Milestone
+
+Movie News, You Can See Everything, Box Office, Nathan Fielder, A24
+
+Tue, 10 Nov 2026 23:40:12 GMT
+
+https://collider.com/you-can-see-everything-removed-from-770-theaters-box-office-milestone/
+
+A24's You Can See Everything is making a final push toward a major box-office milestone after losing nearly 800 theaters. Find out more.
+---------
+
+# The 10 Best Crime Movies With Perfect Acting, Ranked
+
+Movie, Crime, Goodfellas, The Godfather, Prisoners
+
+Tue, 10 Nov 2026 23:21:12 GMT
+
+https://collider.com/best-crime-movies-perfect-acting-ranked/
+
+Goodfellas, The Godfather, and Prisoners are among the best crime movies that benefit from incredible acting performances.
+---------
+
+# ‘Succession’ Star’s Disastrous Sequel Heads Home After Being Removed From 2K Theaters
+
+Movie News, The Social Reckoning, Box Office, The Social Network, Aaron Sorkin
+
+Tue, 10 Nov 2026 23:20:12 GMT
+
+https://collider.com/the-social-reckoning-digital-release-date-removed-from-2600-theaters/
+
+Aaron Sorkin's sort of sequel to The Social Network is set for a digital release after drastically underperforming at the box office.
+---------
+
+# 10 Greatest Disney Movies That Are 10/10 Masterpieces
+
+Movie, Disney, Beauty and the Beast, Mary Poppins, Snow White and the Seven Dwarfs
+
+Tue, 10 Nov 2026 22:56:12 GMT
+
+https://collider.com/best-disney-movies-of-all-time/
+
+Classic Disney movies like Beauty and the Beast, Mary Poppins, and The Little Mermaid rank among the very best in the studio's history.
+---------
+
+# Steven Spielberg’s 10-Part Sci-Fi Thriller Is Perfect for ‘Person of Interest’ Fans
+
+TV Features, Minority Report, Person of Interest, Steven Spielberg
+
+Tue, 10 Nov 2026 22:46:12 GMT
+
+https://collider.com/steven-spielberg-best-sci-fi-minority-report-replacement-series-person-of-interest/
+
+Minority Report builds on the events of Steven Spielberg’s groundbreaking sci-fi thriller, but it was canceled after a single season.
+---------
+
+# 7 Romance Shows That Are 10/10 Masterpieces
+
+TV, Romance, Heated Rivalry, Bridgerton, Outlander
+
+Tue, 10 Nov 2026 22:44:12 GMT
+
+https://collider.com/romance-shows-masterpieces/
+
+From the breakout sports series Heated Rivalry to the recent The Other Bennet Sister, these romance shows are considered genuine masterpieces.
+---------
+
+# Paramount's 119-Minute Action Hit Officially Crosses Final Box Office Milestone as It Exits 1,700 Theaters
+
+Movie News, Street Fighter, Box Office Milestones, Action
+
+Wed, 11 Nov 2026 00:30:16 GMT
+
+https://movieweb.com/street-fighter-box-office-november-2026/
+
+The action reboot approaches a major milestone as it wraps up its theatrical run.
+---------
+
+# Henry Cavill's Upcoming Space Opera Epic Is Already the Sci-Fi Event of the Decade
+
+Features, Warhammer 40k, Sci-Fi, Henry Cavill, Prime Video
+
+Wed, 11 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/warhammer-40k-henry-cavill-tease/
+
+Prime Video is adapting one of sci-fi's most expansive universes.
+---------
+
+# Daisy Ridley and Catherine Zeta-Jones Unite for New Psychological Thriller
+
+Movie News, Thriller, Catherine Zeta-Jones, Daisy Ridley
+
+Tue, 10 Nov 2026 23:53:17 GMT
+
+https://movieweb.com/cupid-thriller-cast/
+
+The 'Star Wars' and 'Wednesday' actress will star in the new thriller from the director of 'The Girl on the Train.'
+---------
+
+# Chris Pratt's Action Series 'The Terminal List' Hits Big Streaming Setback 20 Days After Season 2 Debut
+
+TV News, Chris Pratt, The Terminal List, Action, Streamer Comparisons
+
+Tue, 10 Nov 2026 23:30:16 GMT
+
+https://movieweb.com/the-terminal-list-chris-pratt-stream-november-2026/
+
+Though it seemed like an absolute triumph for Amazon Prime Video, Pratt's latest has stumbled shortly after its return.
+---------
+
+# Syfy's 90-Episode Cult Sci-Fi Series Deserves Credit for Being Ahead of the Curve
+
+Features, Farscape, Farscape: The Peacekeeper Wars, Sci-Fi
+
+Tue, 10 Nov 2026 23:00:16 GMT
+
+https://movieweb.com/farscape-streaming-recommendation/
+
+Some shows walk so that others can run, and one Syfy project that ran for almost 100 episodes proves it. Read on for more.
+---------
+
+# "28 Days Later Meets the Raid" Action Thriller Masterpiece Sets New Release 10 Years Later
+
+Movie News, Train to Busan, Action, Thriller, Blu-ray
+
+Tue, 10 Nov 2026 22:30:16 GMT
+
+https://movieweb.com/train-to-busan-4k-blu-ray-release/
+
+Well Go USA is celebrating the 10th anniversary of Yeon Sang-ho's action thriller masterpiece 'Train to Busan' with a new 4K Blu-ray release.
+---------
+
+# 10 Most Rewatchable Action Series Ever Made
+
+TV Lists, Action, Reacher
+
+Tue, 10 Nov 2026 22:00:16 GMT
+
+https://movieweb.com/action-series-most-rewatchable/
+
+These action TV shows from the past few decades are so good that they're even more entertaining when you watch them more than once.
+---------
+
+# 'Lord of the Rings: The Rings of Power' Season 3 Rotten Tomatoes Score Officially Revealed
+
+TV News, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video, Fantasy
+
+Tue, 10 Nov 2026 21:36:44 GMT
+
+https://movieweb.com/rings-of-power-season-3-rotten-tomatoes/
+
+Hopes are high for the latest installment in the story.
+---------
+
+# "Jaws Meets The Rock" in First Look at New Sci-Fi Thriller Sequel 3 Years in the Making
+
+Movie News, The Black Demon, Jaws, The Rock, Thriller, Horror, Sci-Fi
+
+Tue, 10 Nov 2026 21:32:13 GMT
+
+https://movieweb.com/black-demon-atlantis-first-look/
+
+The upcoming shark thriller sequel is introducing new characters who are battling each other and the menacing jaws of a Megalodon.
+---------
+
+# Henry Cavill & Guy Ritchie's 97-Minute Spy Thriller Flop Officially Becomes the No. 1 Movie On Streaming
+
+Movie News, Henry Cavill, Guy Ritchie, In the Grey, Thriller, Hot on Streaming
+
+Tue, 10 Nov 2026 21:30:16 GMT
+
+https://movieweb.com/in-the-grey-cavill-richie-stream-november-2026/
+
+Although it failed to make a profit when it played in theaters, this 2026 action thriller has become the biggest film on streaming.
+---------
+
 # Baldur's Gate 3: Vlaakith Guide (Should You Obey?)
 
 Gaming, Baldur's Gate 3, Baldur's Gate, PC
