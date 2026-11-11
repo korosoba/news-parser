@@ -1,3 +1,443 @@
+# 10 Dark Fantasies To Read If You’re Still Not Over Agatha All Along
+
+Books, Fantasy, Agatha All Along
+
+Wed, 11 Nov 2026 22:04:18 GMT
+
+https://screenrant.com/best-dark-fantasy-books-agatha-all-along/
+
+With the Scarlet Witch confirmed for Doomsday, there's hope for Agatha's return. In the meantime, these books can recapture the magic.
+---------
+
+# Prime Video’s Modern-Day Fairytale Hit Gets A Sequel With Original Star Returning
+
+Movies, Upgraded, Marisa Tomei
+
+Wed, 11 Nov 2026 22:04:14 GMT
+
+https://screenrant.com/prime-video-upgraded-2-movie-development-marisa-tomei-return/
+
+In 2024, Prime Video released a modern-day rom-com fairytale. Now a sequel is on the way, with an original cast member reprising her role.
+---------
+
+# Arnold Schwarzenegger's The 6th Day Is Now Streaming For Free On Tubi
+
+Movies, Masked Recs, The 6th Day, Arnold Schwarzenegger
+
+Wed, 11 Nov 2026 22:00:18 GMT
+
+https://screenrant.com/arnold-schwarzenegger-sixth-day-sci-fi-streaming-free-tubi/
+
+Arnold Schwarzenegger's overlooked sci-fi thriller imagines a chilling future of human cloning, corporate conspiracies, and explosive action.
+---------
+
+# Welcome to Derry: Humans May Be Pennywise’s Way Out
+
+TV, Originals, It: Welcome to Derry
+
+Wed, 11 Nov 2026 22:00:18 GMT
+
+https://screenrant.com/video/welcome-to-derry-humans-may-be-pennywise-s-way-out/
+
+Pennywise's ancient prison has a terrifying origin, and the Halloween prequel special, The Story of Derry, finally reveals how it was created. From Maturin the Great Turtle to the cosmic material that keeps Pennywise trapped, Derry's darkest secret is bigger than anyone realized.
+---------
+
+# November 20 Is A Great Day For Dystopian Sci-Fi Fans
+
+Movies, Masked Recs
+
+Wed, 11 Nov 2026 21:34:02 GMT
+
+https://screenrant.com/the-hunger-games-sunrise-on-the-reaping-sci-fi-movie-november-20/
+
+November 20 will be a major day for dystopian sci-fi fans, as an exciting new release from a massive genre franchise is coming to change the game.
+---------
+
+# Rebecca Yarros' Threshing Day Is Officially The Most Important Read While Waiting For Empyrean Book 4
+
+Books, The Empyrean Series
+
+Wed, 11 Nov 2026 21:30:18 GMT
+
+https://screenrant.com/rebecca-yarros-threshing-day-empyrean-book-4-hints/
+
+Rebecca Yarros' short story collection Threshing Day is perfect read for those who can't wait to find out what happens in Empyrean book 4.
+---------
+
+# The Rings Of Power Season 3, Episode 4 Ending Explained: What Happened To Theo
+
+Streaming TV, The Lord of the Rings: The Rings of Power
+
+Wed, 11 Nov 2026 21:30:18 GMT
+
+https://screenrant.com/the-rings-of-power-season-3-episode-4-ending-explained/
+
+The Rings of Power's bumper season 3 premiere on Prime Video comes to a shocking conclusion, with episode 4's ending raising many a question.
+---------
+
+# Warner Bros.’ New Nightmare On Elm Street Revival Gets Disappointing Update
+
+Movies, A Nightmare on Elm Street
+
+Wed, 11 Nov 2026 21:29:49 GMT
+
+https://screenrant.com/nightmare-on-elm-street-warner-bros-revival-canceled/
+
+Warner Bros. new Nightmare on Elm Street revival film gets a disappointing update as the franchise's future becomes more complicated.
+---------
+
+# Keanu Reeves’ DC Return Gets Encouraging New Update Amid Major Studio Changes
+
+Movies, Constantine 2, Keanu Reeves, DC Universe, Constantine
+
+Wed, 11 Nov 2026 21:23:39 GMT
+
+https://screenrant.com/keanu-reeves-constantine-2-dc-return-studio-changes-update-francis-lawrence/
+
+With the massive changes going on at DC Studios, Keanu Reeves' Constantine 2 sequel gets a major positive update from the original director.
+---------
+
+# Over 130 Major Easter Eggs, Comics References, And MCU Ties In VisionQuest's Finale
+
+TV, VisionQuest, Marvel Cinematic Universe
+
+Wed, 11 Nov 2026 21:15:19 GMT
+
+https://screenrant.com/visionquest-finale-130-easter-eggs-comics-references-mcu-ties/
+
+VisionQuest's finale is absolutely packed with some of the coolest and very best Easter eggs, references, MCU ties, and other great parallels.
+---------
+
+# Marvel Finally Confirms a New Villain for Avengers: Doomsday
+
+Movies, Avengers: Doomsday, MCU, VisionQuest
+
+Wed, 11 Nov 2026 21:55:25 GMT
+
+https://www.cbr.com/visionquest-avengers-doomsday-scarlet-witch-return-doctor-doom/
+
+Doctor Doom won't be the only villain with a familiar face that the Avengers face this year.
+---------
+
+# Netflix's New 8-Episode Supernatural Horror Series Debuts With Perfect 100% RT Score
+
+TV, The Body, Netflix, Rotten Tomatoes
+
+Wed, 11 Nov 2026 21:43:36 GMT
+
+https://www.cbr.com/netflix-the-body-supernatural-horror-rotten-tomatoes-score/
+
+This new teen horror series is a hit with critics.
+---------
+
+# Studio Ghibli LEGO Dreams Shut Down Again as 92 Sets Rejected
+
+Anime, LEGO, Studio Ghibli, Spirited Away, My Neighbor Totoro
+
+Wed, 11 Nov 2026 21:40:12 GMT
+
+https://www.cbr.com/studio-ghibli-lego-set-review-update-november-2026/
+
+LEGO's first official Product Review of 2026 sadly rejects four amazing Ghibli-themed builds based on Spirited Away, My Neighbor Totoro and more.
+---------
+
+# Ebenezer: Ian McKellen Honors Patrick Stewart
+
+Movies, Ebenezer
+
+Wed, 11 Nov 2026 21:30:12 GMT
+
+https://www.cbr.com/video/ebenezer-ian-mckellen-honors-patrick-stewart/
+
+Ian McKellen reveals why Johnny Depp convinced him to join Ebenezer and shares a hilarious behind-the-scenes moment from the 2026 adaptation of A Christmas Carol.
+---------
+
+# 5 Best-Selling Sci-Fi Books of All Time, Ranked
+
+Books, Sci-Fi, The Hunger Games
+
+Wed, 11 Nov 2026 21:30:12 GMT
+
+https://www.cbr.com/best-selling-sci-fi-books-ranked-list/
+
+Continuing to sell copies even decades later, some of the best and most iconic science fiction books remain bestsellers for a reason.
+---------
+
+# 10 Best Anime That Ended in the 1990s, Ranked
+
+Anime, Dragon Ball, Yu Yu Hakusho, Berserk
+
+Wed, 11 Nov 2026 21:15:12 GMT
+
+https://www.cbr.com/best-anime-ended-in-the-1990s-ranked/
+
+The 1990s saw the beginnings and endings of some of the greatest anime ever made.
+---------
+
+# Ebenezer: Sam Claflin on Johnny Depp's Goose Antics
+
+Movies, Ebenezer
+
+Wed, 11 Nov 2026 21:00:12 GMT
+
+https://www.cbr.com/video/ebenezer-sam-claflin-on-johnny-depp-s-goose-antics/
+
+Sam Claflin shares a hilarious behind-the-scenes story from Ebenezer, including Johnny Depp's unexpected fun with a dead goose prop.
+---------
+
+# 140-Minute John Wick & Black Widow-Style Spy Thriller Is Taking Over HBO Max
+
+Movies, Red Sparrow, jennifer lawrence, HBO Max
+
+Wed, 11 Nov 2026 21:00:12 GMT
+
+https://www.cbr.com/red-sparrow-spy-thriller-hbo-max-success-november-2026/
+
+A Black Widow-like spy thriller starring Jennifer Lawrence is becoming extremely popular with HBO Max subscribers this month.
+---------
+
+# X-Men Back Issues Surge in Sales Following Ryan Reynolds Rumors
+
+Comics, ryan reynolds, alpha flight, Marvel Cinematic Universe
+
+Wed, 11 Nov 2026 21:00:12 GMT
+
+https://www.cbr.com/x-men-surge-ryan-reynolds-alpha-flight-rumors/
+
+The Deadpool actor has once again made waves in the X-Men franchise.
+---------
+
+# Say Goodbye to Netflix as the King of Cyberpunk as Apple TV’s Next Hit Shows Altered Carbon How It’s Done
+
+TV, Neuromancer, Apple TV, Sci-Fi
+
+Wed, 11 Nov 2026 21:00:12 GMT
+
+https://www.cbr.com/apple-tv-neuromancer-cyberpunk-altered-carbon-replacement/
+
+Apple TV is poised to replace Netflix as the de facto streaming service for cyberpunk television shows with the premiere of Neuromancer.
+---------
+
+# 10 Greatest Football Movies of All Time to Watch Before Thanksgiving, Ranked
+
+Movie, Remember the Titans, The Blind Side, Rudy, Madden
+
+Wed, 11 Nov 2026 21:54:12 GMT
+
+https://collider.com/best-football-movies-all-time-thanksgiving-ranked/
+
+10 greatest football movies of all time to watch before Thanksgiving, from Friday Night Lights and Remember the Titans to Rudy and The Blind Side.
+---------
+
+# 8 Greatest Thriller Books of the Last 15 Years, Ranked
+
+Books and Comics, Thriller, Gone Girl, Magpie Murders, Verity
+
+Wed, 11 Nov 2026 21:28:12 GMT
+
+https://collider.com/best-thriller-books-last-15-years-ranked/
+
+Razorblade Tears, Verity, Gone Girl, Magpie Murders, The Killer Question, and more make up our list of the best thriller books of the last 15 years.
+---------
+
+# Henry Cavill Officially Reveals His Superman Future Following James Gunn’s Exit
+
+Movie News, Henry Cavill, Man of Steel, Superman, James Gunn
+
+Wed, 11 Nov 2026 21:26:20 GMT
+
+https://collider.com/henry-cavill-superman-return-comments/
+
+With the future of DC now uncertain following James Gunn’s exit, Henry Cavill has shared if he’d be willing to reprise his role as Superman.
+---------
+
+# 'Underworld' Star's New Psychological Thriller Unleashes Chilling First Trailer
+
+Movie News, Kate Beckinsale, Toronto International Film Festival, Thriller, Ryan Phillippe
+
+Wed, 11 Nov 2026 21:00:12 GMT
+
+https://collider.com/the-patient-trailer-kate-beckinsale-ryan-phillippe/
+
+The exclusive first trailer for The Patient finds Kate Beckinsale playing a mysterious and sinister doctor to Ryan Phillippe's recovering amnesiac.
+---------
+
+# ‘VisionQuest’ May Have Just Revealed ‘Avengers: Doomsday’s Biggest Twist
+
+TV Features, VisionQuest, WandaVision, Avengers: Doomsday, Disney+
+
+Wed, 11 Nov 2026 21:00:12 GMT
+
+https://collider.com/visionquest-avengers-doomsday-scarlet-witch-resurrection-theory-twist/
+
+In the final moments of VisionQuest, a post-credits scene all but confirms a lingering fan theory about Avengers: Doomsday.
+---------
+
+# Star Trek Showrunner Reflects on Giving Patrick Stewart His Final Picard Farewell
+
+TV News, Patrick Stewart, Star Trek: Picard, Terry Matalas, VisionQuest
+
+Wed, 11 Nov 2026 20:46:25 GMT
+
+https://collider.com/star-trek-picard-patrick-stewart-final-farewell-tribute-terry-matalas/
+
+Collider exclusively spoke to Terry Matalas about sending Patrick Stewart to the final frontier in Star Trek: Picard. Read on for more.
+---------
+
+# The 10 Greatest Psychological Thrillers of the Early 2000s, Ranked
+
+Movie, Memento, American Psycho, Psychological Thriller, 2000s
+
+Wed, 11 Nov 2026 20:19:12 GMT
+
+https://collider.com/best-psychological-thrillers-early-2000s-ranked/
+
+Unbreakable, American Psycho, and Memento are among the best psychological thriller movies of the early 2000s decade.
+---------
+
+# ‘Constantine 2’ Director Officially Confirms “Renewed Hope” For Sequel After James Gunn’s DC Exit [Exclusive]
+
+Movie News, Constantine, Constantine 2, DC, Francis Lawrence
+
+Wed, 11 Nov 2026 20:11:45 GMT
+
+https://collider.com/constantine-2-update-keanu-reeves-francis-lawrence-dc/
+
+In an exclusive Collider interview, Francis Lawrence addresses how the DC leadership shake-up effects the future of Keanu Reeves’ Constantine 2.
+---------
+
+# The 10 Best Cowbell Rock Songs of All Time, Ranked
+
+Music Features, Will Ferrell, Music, Rock, Punk
+
+Wed, 11 Nov 2026 20:09:12 GMT
+
+https://collider.com/best-cowbell-rock-songs/
+
+"Rock of Ages" by Def Leppard and "We're an American Band" by Grand Funk Railroad are among the best cowbell rock songs.
+---------
+
+# From ‘Stranger Things’ to ‘Rings of Power,’ We’re All Living in Jamie Campbell Bower’s Fantasy World
+
+Collider Signature, Jamie Campbell Bower, The Lord of the Rings: The Rings of Power, Fantasy, Stranger Things, profile
+
+Wed, 11 Nov 2026 20:00:12 GMT
+
+https://collider.com/rings-of-power-season-3-jamie-campbell-bower-stranger-things-interview/
+
+Jamie Campbell Bower opens up about playing Celeborn in The Rings of Power Season 3, leaving Vecna behind, and finding creative freedom.
+---------
+
+# Michael Fassbender's 156-Minute Instant Cult Classic Sci-Fi Thriller Officially Sets New Release
+
+Movie News, Hope, Michael Fassbender, Sci-Fi, Thriller, Blu-ray
+
+Wed, 11 Nov 2026 22:00:16 GMT
+
+https://movieweb.com/hope-michael-fassbender-blu-ray-release/
+
+Decal Releasing, in association with Neon, is preparing a Blu-ray release of Na Hong-jin's 2026 sci-fi epic 'Hope,' starring Michael Fassbender.
+---------
+
+# Clive Owen Faces an Impossible Choice in New 95-Minute World War II Thriller
+
+Movie News, Clive Owen, Alex Pettyfer, Mélanie Laurent, War
+
+Wed, 11 Nov 2026 21:39:07 GMT
+
+https://movieweb.com/night-of-broken-glass-clive-owen-clip/
+
+Watch a new clip!
+---------
+
+# Keanu Reeves' Long-Awaited Fantasy Thriller Gets Official Update After James Gunn's Exit
+
+Movie News, Keanu Reeves, James Gunn, Constantine 2, Horror, Action, Thriller, Fantasy
+
+Wed, 11 Nov 2026 21:33:45 GMT
+
+https://movieweb.com/constantine-2-keanu-reeves-francis-lawrence/
+
+An eagerly awaited Keanu Reeves sequel now has a new update following a major change in leadership at Skydance.
+---------
+
+# Netflix's New 100%-Rated Survival Thriller Is Officially the Biggest Series in the World on Streaming
+
+TV News, Dead-End Job, Hot on Streaming, Thriller, Netflix
+
+Wed, 11 Nov 2026 21:00:16 GMT
+
+https://movieweb.com/dead-end-job-streaming-netflix-november-2026/
+
+Netflix's latest hit brings new meaning to the term "working yourself to death."
+---------
+
+# Denis Villeneuve Confirms James Bond Casting Status
+
+Movie News, James Bond, Denis Villeneuve, Thriller
+
+Wed, 11 Nov 2026 20:09:16 GMT
+
+https://movieweb.com/james-bond-denis-villeneuve-casting-status/
+
+Denis Villeneuve reveals where James Bond casting stands as speculation continues over the next actor to play 007.
+---------
+
+# ‘Safe’ Is No Longer Harlan Coben’s Best Netflix Thriller Thanks to a 92% Hit
+
+Features, Harlan Coben, Safe, Stay Close, Netflix, Thriller
+
+Wed, 11 Nov 2026 20:00:16 GMT
+
+https://movieweb.com/stay-close-safe-harlan-coben-comparison/
+
+'Safe' stars Michael C. Hall as Tom Delaney, a man who tries to find his missing daughter, but another Harlan Coben Netflix thriller is better.
+---------
+
+# Patrick Stewart Welcomed Newcomer Into the 'Star Trek' Family With Four Meaningful Words [Exclusive]
+
+Exclusives, Todd Stashwick, Star Trek, Star Trek: Picard, Patrick Stewart, Sci-Fi, Drama, Action, Adventure
+
+Wed, 11 Nov 2026 19:34:27 GMT
+
+https://movieweb.com/patrick-stewart-todd-stashwick/
+
+According to a co-star of the late Patrick Stewart, the 'Star Trek' icon made him feel right at home with one small but powerful comment on set.
+---------
+
+# 'SNL' Scores One of Its Biggest Ratings Wins in Years Thanks to Druski
+
+TV News, Saturday Night Live, Comedy
+
+Wed, 11 Nov 2026 19:33:48 GMT
+
+https://movieweb.com/snl-druski-ratings/
+
+If the latest 'Saturday Night Live' ratings are any indication, social media stars may become commonplace as hosts.
+---------
+
+# Marvel’s Biggest Missing Avenger Officially Returns To The MCU After 4 Years (& Joins Doctor Doom)
+
+Features, VisionQuest, Marvel Cinematic Universe, Avengers: Doomsday, Superhero
+
+Wed, 11 Nov 2026 19:19:11 GMT
+
+https://movieweb.com/wanda-visionquest-avengers-doomsday-return/
+
+'Avengers: Doomsday' excitement just doubled as a returning Avenger arrives to flip the scales.
+---------
+
+# Netflix Scores Big as New 7-Episode Western Epic Remains One of the Biggest Shows on Streaming
+
+TV News, East of Eden, Netflix, Western, Hot on Streaming
+
+Wed, 11 Nov 2026 19:00:17 GMT
+
+https://movieweb.com/east-of-eden-stream-tudum-netflix-november-2026/
+
+Netflix's retelling of the American classic remains one of the year's biggest streaming hits.
+---------
+
 # Henry Cavill & Guy Ritchie's R-Rated Spy Thriller In The Grey Is One Of The Biggest Movies On Streaming
 
 Movies, In the Grey
