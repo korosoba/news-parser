@@ -1,3 +1,377 @@
+# Dungeon Crawler Carl-Inspired Free Steam RPG Is Blowing Up With 9/10 Reviews
+
+Gaming, Dungeon Crawler Carl, tabletop games, RPG
+
+Wed, 11 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/dungeon-crawler-carl-style-free-steam-rpg-outcast-tales/
+
+A free Steam RPG captures Dungeon Crawler Carl's essence. With its dark comedy, brutal turn based fights and evolving party bonds that surprise.
+---------
+
+# Stargate SG-1 Franchise Officially Returning For A New Era
+
+Gaming, Stargate SG-1, PC
+
+Wed, 11 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/stargate-sg-1-bluebrixx-new-era-confirmed/
+
+If you've been feeling down about Stargate over the past few years, things are looking up for the franchise, with its official return imminent.
+---------
+
+# Picard Goes Full Locutus In Star Trek: Showdown At Sector 001
+
+Gaming, Jean-Luc Picard, Star Trek, Star Trek: The Next Generation, PC, Magic: The Gathering
+
+Wed, 11 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/star-trek-picard-locutus-showdown-sector-001/
+
+Star Trek's Showdown at Sector 001 is a throwback to Picard's terrifying transformation into Locutus of Borg in The Next Generation.
+---------
+
+# Patrick Stewart’s 12-Part Historical Drama Delivers A Masterclass In Political Storytelling
+
+TV, Masked Recs
+
+Wed, 11 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/i-claudius-patrick-stewart-masterpiece-political-history-tv-show/
+
+From calculated alliances to sudden betrayals, the late, great Patrick Stewart's presence sharpens a vast historical tale into intimate danger.
+---------
+
+# A Knight Of The Seven Kingdoms' Dunk & Egg Officially Return In February 2027 Collection
+
+Gaming, A Knight Of The Seven Kingdoms, PC, Game of Thrones, House of the Dragon
+
+Wed, 11 Nov 2026 05:30:18 GMT
+
+https://screenrant.com/a-knight-seven-kingdoms-dunk-egg-collection-february-2027/
+
+A Knight of the Seven Kingdoms is making an official return ahead of Season 2, bringing back Dunk & Egg in a very different sort of collection.
+---------
+
+# Elden Ring: Path Of Shadows Officially Announced For December 1
+
+Gaming, Elden Ring: Shadow of the Erdtree, Elden Ring, PC
+
+Wed, 11 Nov 2026 05:00:18 GMT
+
+https://screenrant.com/elden-ring-path-of-shadows-december-1/
+
+Elden Ring: Path of Shadows takes players back to the Abyssal Woods for a brand-new experience that is sure to challenge even the veteran Tarnished.
+---------
+
+# 7 Far Side Comics That Expose The Funniest Truths About Human Nature
+
+Comics, The Far Side
+
+Wed, 11 Nov 2026 04:59:18 GMT
+
+https://screenrant.com/best-far-side-comics-human-nature/
+
+Humanity can make puzzling or even awful decisions seemingly on a whim, and The Far Side takes aim at all of them.
+---------
+
+# 10 Marvel Mutants Whose Powers Are Actually Horrific Nightmares To Live With
+
+Comics, X-Men, Marvel
+
+Wed, 11 Nov 2026 04:37:56 GMT
+
+https://screenrant.com/marvel-mutants-bad-powers-nightmare/
+
+Explore 10 Marvel mutants whose powers lead to horrific consequences, making their lives a constant struggle.
+---------
+
+# After James Gunn’s Shocking Departure, It Looks Like Clayface Will Be DC’s Last R-Rated Movie
+
+Superheroes, James Gunn, Clayface, DC Universe
+
+Wed, 11 Nov 2026 04:30:18 GMT
+
+https://screenrant.com/after-james-gunns-shocking-departure-it-looks-like-clayface-will-be-dcs-last-r-rated-movie/
+
+Following James Gunn's shocking ousting as the head of the DC Studios, it seems very likely that Clayface will be the last DCU movie of its kind.
+---------
+
+# VisionQuest Post-Credits Scene Explodes The Internet As Major Marvel Character Returns
+
+TV, VisionQuest, Marvel Cinematic Universe
+
+Wed, 11 Nov 2026 04:09:18 GMT
+
+https://screenrant.com/visionquest-wanda-doctor-doom-post-credits-scene-reactions/
+
+Marvel fans are absolutely losing their minds over VisionQuest's game-changing post-credits scene, sparking excitement across social media.
+---------
+
+# Johnny Depp Confirms Ebenezer's A Nightmare on Elm Street Reference Was a Happy Accident
+
+CBR Exclusives, Ebenezer, A Nightmare on Elm Street, Johnny Depp
+
+Wed, 11 Nov 2026 04:57:38 GMT
+
+https://www.cbr.com/johnny-depp-confirms-ebenezer-a-nightmare-on-elm-street-reference/
+
+A major moment in Ebenezer takes Johnny Depp full circle to his debut role in A Nightmare on Elm Street, but it wasn't planned that way.
+---------
+
+# Netflix Unveils First Look at 8-Part Gilded Age Rival Based on 106-Year-Old Book
+
+TV, The Age of Innocence, Netflix, The Gilded Age
+
+Wed, 11 Nov 2026 04:54:55 GMT
+
+https://www.cbr.com/netflix-first-look-the-age-of-innocence/
+
+Netflix just gave audiences their first look at the next major adaptation of a beloved classic, and it could give The Gilded Age a run for its money.
+---------
+
+# 7 Lost '80s Anime You Can't Watch Legally Anymore
+
+Anime
+
+Wed, 11 Nov 2026 04:45:11 GMT
+
+https://www.cbr.com/lost-80s-anime-cant-watch-legally-today/
+
+Some classic 1980s anime cannot be legally watched in 2026.
+---------
+
+# Pretty Little Liars Star Lucy Hale Addresses Revival and What Aria's Doing Today
+
+TV, Pretty Little Liars
+
+Wed, 11 Nov 2026 04:34:48 GMT
+
+https://www.cbr.com/pretty-little-liars-revival-lucy-hale/
+
+Lucy Hale shares an update on what Aria would be doing in 2026 and a possible revival series.
+---------
+
+# The Character Jensen Ackles Played in 116 More Episodes Than Dean Winchester in Supernatural
+
+TV, Supernatural, Days of Our Lives, Jensen Ackles
+
+Wed, 11 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/supernatural-jensen-ackles-days-of-our-lives-more-episodes/
+
+Jensen Ackles' Dean Winchester is an iconic character, but he actually got his start on another long-running show, where he made many appearances.
+---------
+
+# 15 Best Calvin and Hobbes Strips Without Words
+
+Comics, Calvin and Hobbes
+
+Wed, 11 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/best-calvin-and-hobbes-strips-without-words/
+
+Not every four-panel comic strip is going to use words in every strip, and Calvin and Hobbes has quite a few speechless comics that are excellent.
+---------
+
+# 5 Sega Genesis Games Better Than Sonic the Hedgehog
+
+Games, Sonic the Hedgehog, Sega Genesis, Video Games
+
+Wed, 11 Nov 2026 04:15:12 GMT
+
+https://www.cbr.com/sega-genesis-games-better-than-sonic-the-hedgehog/
+
+Sonic the Hedgehog defined the Sega Genesis, but Castlevania: Bloodlines and Comix Zone are even better.
+---------
+
+# Transformers Celebrates Major 40th Anniversary With the Ultimate 2026 Release Lineup
+
+Anime, Transformers, The Transformers: The Movie, hasbro, merchandise, toys, action figures
+
+Wed, 11 Nov 2026 04:10:11 GMT
+
+https://www.cbr.com/transformers-the-movie-2026-hasbro-holiday-gift-guide/
+
+Hasbro is giving fans of The Transformers: The Movie the best way to celebrate its 40th anniversary along with the holidays this year.
+---------
+
+# 9 Non-Japanese Anime That Can Be Called Masterpieces, Ranked
+
+Anime, Avatar: The Last Airbender
+
+Wed, 11 Nov 2026 04:00:11 GMT
+
+https://www.cbr.com/non-japanese-anime-masterpieces-ranked-list-invincible/
+
+Series like Avatar: The Last Airbender are amazing because they took inspiration from anime.
+---------
+
+# James Gunn Appears to Snub Supergirl Amid DC Studios Exit
+
+Movies, Supergirl, James Gunn, DCU
+
+Wed, 11 Nov 2026 03:50:26 GMT
+
+https://www.cbr.com/james-gunn-supergirl-dc-studios-exit/
+
+James Gunn may be taking a subtle shot at Supergirl on his way out of offices at DC Studios.
+---------
+
+# 'Unforgiven' Meets 'Kill Bill' in Quentin Tarantino's Western Masterpiece
+
+Movie Features, Quentin Tarantino, Jamie Foxx, Django Unchained, Sergio Corbucci: The Smiling Man
+
+Wed, 11 Nov 2026 05:34:12 GMT
+
+https://collider.com/quentin-tarantino-django-unchained-western-streaming-pluto-november-2026/
+
+Jamie Foxx and Quentin Tarantino teamed up in 2012 for the spaghetti Western pastiche Django Unchained, now streaming free on Pluto TV.
+---------
+
+# Forget 'Tombstone,' Kurt Russell's Most Intense Action Western 'Bone Tomahawk' Is a Start-to-Finish Masterpiece
+
+Movie Features, Bone Tomahawk, Horror, Kurt Russell, Tombstone
+
+Wed, 11 Nov 2026 05:14:12 GMT
+
+https://collider.com/kurt-russell-bone-tomahawk-tombstone-streaming-free-tubi-november-2026/
+
+Kurt Russell's most famous Western is 1993's Tombstone, but the 2015 Bone Tomahawk, now streaming on Tubi, is his most intense Western.
+---------
+
+# The 10 Greatest Fantasy Books Released Since 'The Lord of the Rings,' Ranked
+
+Books and Comics, Books, Fantasy, The Lord of the Rings, The Wheel of Time
+
+Wed, 11 Nov 2026 05:07:12 GMT
+
+https://collider.com/best-fantasy-books-since-lord-of-the-rings/
+
+From The Kingkiller Chronicle to The Wheel of Time, these are the best fantasy novels released in the years since The Lord of the Rings' 1954 debut.
+---------
+
+# The 10 Best Alternative Rock Songs of All Time, Ranked
+
+Music Features, Rock, Music, Radiohead, Nirvana
+
+Wed, 11 Nov 2026 04:48:12 GMT
+
+https://collider.com/best-alternative-rock-songs-all-time-ranked/
+
+The best alternative rock songs ever recorded include classics like "She Bangs the Drums," "Just Like Heaven," and "Smells Like Teen Spirit."
+---------
+
+# Rocky’s Best Line Is Still the Greatest Quote in Franchise History
+
+Movie Features, Rocky, Sylvester Stallone, Rocky Balboa, Creed
+
+Wed, 11 Nov 2026 04:19:12 GMT
+
+https://collider.com/rocky-best-quote-sylvester-stallone/
+
+This lesser-known speech from the original 1976 Rocky, spoken by Sylvester Stallone, is a knockout, and sums up the franchise perfectly.
+---------
+
+# The 5 Best Noah Wyle ‘ER’ Episodes of the '90s, Ranked
+
+TV, ER, NBC, Noah Wyle, Drama
+
+Wed, 11 Nov 2026 04:12:12 GMT
+
+https://collider.com/best-noah-wyle-er-episodes-90s-ranked/
+
+Noah Wyle's Dr. John Carter has proven to be a phenomenal doctor in ER, from heartbreaking moments in "Post Mortem" to leadership roles in "Exodus."
+---------
+
+# ‘VisionQuest’ Showrunner Breaks Down the Finale’s Massive ‘WandaVision’ Reunion Scene
+
+Interviews, VisionQuest, Terry Matalas, James Spader, Marvel TV
+
+Wed, 11 Nov 2026 03:10:12 GMT
+
+https://collider.com/visionquest-finale-wandavision-reunion-james-spader-showrunner-terry-matalas/
+
+James Spader and VisionQuest showrunner Terry Matalas break down the finale’s massive WandaVision reunion and reveal why Agatha isn’t in the series.
+---------
+
+# Geralt of Rivia Officially Returns in New Witcher Expansion
+
+Gaming News, The Witcher 3: Wild Hunt, The Witcher, Henry Cavill, CD Projekt Red
+
+Wed, 11 Nov 2026 03:00:22 GMT
+
+https://collider.com/the-witcher-3-expansion-nod-annals-of-the-duchy-blood-and-wine/
+
+A new expansion for The Witcher 3: Wild Hunt officially bring back Geralt of Rivia before the release of Songs of the Past.
+---------
+
+# Forget 'Tracker,' Disney+'s Forgotten 13-Episode Crime Series Is a Perfect Weekend Binge
+
+TV Features, Tracker, The Finder, Disney+, Crime
+
+Wed, 11 Nov 2026 02:42:12 GMT
+
+https://collider.com/tracker-replacement-series-disney-plus-the-finder/
+
+In 2012, Fox released The Finder, an entertaining crime series that started as a Bones spin-off.
+---------
+
+# 8 Movies To Watch if You Love Ken Russell's 'The Devils'
+
+Movie, The Devils, Salò, Or The 120 Days Of Sodom, Women in Love, Altered States
+
+Wed, 11 Nov 2026 02:12:12 GMT
+
+https://collider.com/movies-like-the-devils-ken-russell/
+
+Fans of Ken Russell's recently re-released cult masterpiece The Devils should check out movies like Altered States and The Holy Mountain.
+---------
+
+# Marvel's 'WandaVision' Sequel Actor Reacts To Finale's Emotional MCU Character Return
+
+Exclusives, VisionQuest, WandaVision, Todd Stashwick, Superhero, Action, Adventure, Sci-Fi, Drama
+
+Wed, 11 Nov 2026 02:46:16 GMT
+
+https://movieweb.com/visionquest-billy-maximoff-todd-stashwick/
+
+A major 'WandaVision' came back into action for the final chapter of the story, as one of the saga's stars shares the details of that comeback.
+---------
+
+# Netflix's "Nightcrawler Meets Trainspotting" Thriller Gets New Trailer After Glowing Reviews
+
+Movie News, Netflix, Thriller, Ink, Nightcrawler, Trainspotting
+
+Wed, 11 Nov 2026 02:31:28 GMT
+
+https://movieweb.com/ink-official-trailer-netflix/
+
+Director Danny Boyle is back with a twisty new Netflix thriller based on a true story, drawing rave early reviews.
+---------
+
+# Skydance's "Star Wars Meets Game of Thrones" Sci-Fi Epic Will Make Both Franchises Feel Small
+
+Exclusives, Red Rising, Star Wars, Game of Thrones, Sci-Fi, Drama
+
+Wed, 11 Nov 2026 01:12:36 GMT
+
+https://movieweb.com/skydance-red-rising-francis-lawrence/
+
+Themes seen in Star Wars and Game of Thrones will inspire the story and visuals from one of Skydance's next major sci-fi movies.
+---------
+
+# 'The Lord of the Rings' Returns With Long-Awaited Movie-Length Release
+
+Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Wed, 11 Nov 2026 00:48:09 GMT
+
+https://movieweb.com/rings-of-power-season-3-premiere-tease/
+
+The Lord of the Rings is back, and as usual, this is the fantasy event of the year.
+---------
+
 # Legendary Star Trek Writer Reveals The Hardest Next Generation Character To Write For: “We Didn’t Know What To Do With That”
 
 TV, Star Trek, Star Trek: The Next Generation
