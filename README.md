@@ -87,3 +87,5 @@ python parse_news.py
 - [trafilatura](https://trafilatura.readthedocs.io) — извлечение текста из статей
 - [Groq](https://console.groq.com) — Llama 4 Scout 17B для AI-пересказов
 - [GitHub Actions](https://github.com/features/actions) — автоматизация парсинга и отправки
+
+
