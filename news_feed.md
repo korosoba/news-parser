@@ -1,3 +1,399 @@
+# The Institute Season 2 Interview with Simone Miller, Arlen So & Fionn Laird
+
+TV, The Institute
+
+Thu, 12 Nov 2026 03:07:09 GMT
+
+https://screenrant.com/video/the-institute-season-2-simone-miller-arlen-so-fionn-laird-interview/
+
+The Institute season 2  stars Simone Miller, Arlen So, and Fionn Laird discuss season 2 of their hit Stephen King series, entering a new era beyond the book, and how their characters have changed.
+---------
+
+# ABC Flipped Abbott Elementary's Best Relationship On Its Head 4 Years Later
+
+TV, Abbott Elementary
+
+Thu, 12 Nov 2026 03:03:18 GMT
+
+https://screenrant.com/abbott-elementary-season-6-ava-janine-relationship-flip/
+
+A season 6 step competition forces grudges aside, revealing how Janine’s relentless optimism finally earns one iconic Abbott co-worker's respect.
+---------
+
+# Arrival Timeline Explained: Making Sense Of The Movie's Twist
+
+Movies, Arrival
+
+Thu, 12 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/arrival-movie-timeline-explained/
+
+Denis Villeneuve's Arrival has a huge twist that reframes the entire timeline of the story from a completely different perspective that changes all.
+---------
+
+# The Remarried Empress Interview with Shin Min-a, Ju Ji-hoon, Lee Jong-suk & Lee Se-young
+
+TV, The Remarried Empress
+
+Thu, 12 Nov 2026 02:55:10 GMT
+
+https://screenrant.com/video/remarried-empress-shin-minah-ju-jihoon-lee-jongsuk-lee-seyoung-interview/
+
+The Remarried Empress stars Shin Min-a, Ju Ji-hoon, Lee Jong-suk & Lee Se-young share the vulnerable sides of Navier and Sovieshu, the bird-like style of Heinrey, and the intentions of Rashtha. The actors also revealed their personal favorite sets and costumes while filming on location in places like the Czech Republic and Germany.
+---------
+
+# DC Show’s Season 2 Antihero Casting Rumors Clarified By Showrunner
+
+TV, DC, Creature Commandos
+
+Thu, 12 Nov 2026 02:50:50 GMT
+
+https://screenrant.com/creature-commandos-season-2-khalis-casting-rumor-dean-lorey-response/
+
+Creature Commandos' showrunner went on social media to clear up a season 2 casting rumor  that's been making the rounds for the DC TV series.
+---------
+
+# What Happens To Scarlet Witch’s Kids Billy And Tommy After VisionQuest
+
+Comics, Godzilla
+
+Thu, 12 Nov 2026 02:48:35 GMT
+
+https://screenrant.com/visionquest-finale-billy-tommy-mcu-future-childrens-crusade-mcu/
+
+The finale of Marvel Studios' VisionQuest sets up a very exciting future for both Tommy Maximoff/Thomas Shepherd and Billy Maximoff/William Kaplan.
+---------
+
+# Dungeon Crawler Carl Drops Official New Epilogue, Here's Where To Read It
+
+Comics, Dungeon Crawler Carl
+
+Thu, 12 Nov 2026 02:32:13 GMT
+
+https://screenrant.com/dungeon-crawler-carl-new-epilogue/
+
+Dungeon Crawler Carl has just released a new, exclusive extra chapter that serves as an epilogue. And fans of the series shouldn’t miss it.
+---------
+
+# DC's Most Demanded Costume Of All Time Officially Returns Today
+
+DC Comics
+
+Thu, 12 Nov 2026 02:31:15 GMT
+
+https://screenrant.com/red-hood-costume-return/
+
+A major DC superhero reclaims their most iconic costume twenty-one years after debuting the biggest redesign in their forty-three-year history.
+---------
+
+# Baldur’s Gate 3 Replacement Arrives January 2027 And Already Has 1 Million Steam Wishlists
+
+Gaming, Baldur's Gate 3, Warhammer 40,000: Dark Heresy, PC, RPG
+
+Thu, 12 Nov 2026 02:00:18 GMT
+
+https://screenrant.com/baldurs-gate-3-replacement-january-2027-million-steam-wishlists/
+
+This replacement for Baldur's Gate 3 should be on your radar as it has already managed to amass over one million Steam wishlists.
+---------
+
+# CBS Revives 1 of NCIS's Oldest Traditions in Season 24 With Timothy McGee
+
+TV, NCIS, CBS
+
+Thu, 12 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/ncis-season-24-episode-5-mcgee-son-mateo-garcia-join-navy/
+
+NCIS gives one of its oldest traditions a dark twist as the flagship seals the fate of Timothy McGee's son in Season 24, Episode 5, "Speechless."
+---------
+
+# 5 Fantasy Movies to Watch If You Love Dungeon Crawler Carl
+
+Movies, Fantasy, Dungeon Crawler Carl, Dungeons & Dragons: Honor Among Thieves
+
+Thu, 12 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/fantasy-movies-to-watch-for-dungeon-crawler-carl-fans-list/
+
+Waiting for more Dungeon Crawler Carl can be rough. These fantasy movies should help pass the time until it's time to head back into the dungeon.
+---------
+
+# Mike Myers Says Shrek 5 Is His Favorite Film of the Series: 'They've Really Outdone Themselves'
+
+Movies, Shrek 5
+
+Thu, 12 Nov 2026 02:50:05 GMT
+
+https://www.cbr.com/mike-myers-shrek-5-best-movie/
+
+Mike Myers comments on the upcoming Shrek sequel that brings the green ogre back to the big screen after 17 years.
+---------
+
+# 7 Near-Perfect 1980s Anime No One Remembers
+
+Anime, Yawara! A Fashionable Judo Girl, Sherlock Hound
+
+Thu, 12 Nov 2026 02:25:12 GMT
+
+https://www.cbr.com/near-perfect-1980s-anime-no-one-remembers/
+
+The 1980s was a groundbreaking decade for anime, but standout series like Yawara, and Kimagure Orange Road have unfortunately fallen into obscurity.
+---------
+
+# Rings of Power Changes a Key Piece of Tolkien's Lord of the Rings Lore the Movies Never Touched
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Thu, 12 Nov 2026 02:00:12 GMT
+
+https://www.cbr.com/lotr-rings-of-power-change-galadriel-celeborn-meeting/
+
+Prime Video's The Lord of the Rings: The Rings of Power rewrote an iconic romance from J. R. R. Tolkien's lore.
+---------
+
+# Metaphor: ReFantazio Switch 2 Review
+
+Games, Metaphor: ReFantazio
+
+Thu, 12 Nov 2026 01:45:12 GMT
+
+https://www.cbr.com/metaphor-refantazio-switch-2-review/
+
+Metaphor: ReFantazio is coming to the Switch 2 during a busy time, but this previous GOTY winner shouldn't be forgotten about.
+---------
+
+# Netflix Officially Bans AI From Blue Eye Samurai Production
+
+Anime, Blue Eye Samurai, Netflix, Artificial Intelligence
+
+Thu, 12 Nov 2026 01:25:12 GMT
+
+https://www.cbr.com/blue-eye-samurai-netflix-ai-ban/
+
+Fans of Netflix's French-produced samurai epic can breathe easy -- generative AI is not and never will be utilized by the series' production team.
+---------
+
+# Netflix's Answer to Heated Rivalry Recruits Star Trek: Strange New Worlds Star Paul Wesley
+
+TV, Icebreaker, Netflix, Star Trek: Strange New Worlds
+
+Thu, 12 Nov 2026 01:21:21 GMT
+
+https://www.cbr.com/paul-wesley-icebreaker-netflix/
+
+Paul Wesley picks up his next big role after wrapping up filming on the final season of Star Trek: Strange New Worlds.
+---------
+
+# 7 Greatest Gundam Battles of All Time, Ranked
+
+Anime, Gundam
+
+Thu, 12 Nov 2026 01:15:12 GMT
+
+https://www.cbr.com/gundam-greatest-battles-of-all-time-ranked/
+
+Gundam is mainly loved for its characters, politics, and designs, but it also has some outstanding battles.
+---------
+
+# Magic in the Water is Mark Harmon's Forgotten Fantasy Masterpiece
+
+Movies, Magic in the Water
+
+Thu, 12 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/magic-in-the-water-mark-harmon-forgotten-perfect-fantasy-movie/
+
+Mark Harmon may not be the most well-known for his fantasy films, but one such movie deserves to be remembered.
+---------
+
+# ‘Harry Potter’ and ‘Stranger Things’ Stars Officially Join ‘Hereditary’ Director’s New Nightmare
+
+Movie News, Maya Hawke, Harry Melling, Ari Aster, Drama
+
+Thu, 12 Nov 2026 03:00:22 GMT
+
+https://collider.com/maya-hawke-harry-melling-cast-ari-aster-the-confessions/
+
+Ari Aster's next movie has officially added icons from the worlds of Stranger Things and Harry Potter. Read on for more details.
+---------
+
+# The Biggest Sci-Fi Bomb of 2026 Officially Passes Final Box Office Milestone
+
+Movie News, Digger, Alejandro G. Inarritu, Tom Cruise, Box Office
+
+Thu, 12 Nov 2026 02:30:12 GMT
+
+https://collider.com/digger-box-office-milestone-removed-from-3000-theaters/
+
+Tom Cruise's monumental box-office misfire Digger has hit its final milestone after being removed from virtually all of its 3,300 theaters.
+---------
+
+# The Predator’s Newest Hunt Officially Begins Today
+
+Books and Comics News, Marvel Comics, Predator, Punisher
+
+Thu, 12 Nov 2026 02:00:12 GMT
+
+https://collider.com/predator-vs-punisher-1-marvel-comic-release-date-november-2026/
+
+Marvel’s Predator vs. Punisher #1 is out now. Frank Tieri and Jesús Saíz bring the Predator to New York for its first showdown with Frank Castle.
+---------
+
+# India’s New Lord of the Rings Rival Officially Replaces ‘Godzilla Minus One’ at the Box Office
+
+Movie News, Ramayana: Rise of a Legend, Box Office, Godzilla Minus Zero, Ranbir Kapoor
+
+Thu, 12 Nov 2026 01:45:12 GMT
+
+https://collider.com/ramayana-global-box-office-55-million/
+
+India's most expensive movie ever, Ramayana: Rise of a Legend, became the number-one hit at the global box office on Monday.
+---------
+
+# Denzel Washington and Robert Pattinson’s New Crime Thriller Officially Debuts in 2027
+
+Movie News, Netflix, The Take, Robert Pattinson, Denzel Washington
+
+Thu, 12 Nov 2026 01:31:12 GMT
+
+https://collider.com/the-take-denzel-washington-robert-pattinson-release-date-netflix-january-2027/
+
+Denzel Washington and Robert Pattinson star in The Take, a Netflix heist thriller releasing in January 2027. Read on for more.
+---------
+
+# Clint Eastwood’s Western Swan Song Officially Emerges as a Netflix Hit
+
+Movie News, Cry Macho, Clint Eastwood, Netflix, Western
+
+Thu, 12 Nov 2026 01:15:12 GMT
+
+https://collider.com/clint-eastwood-western-cry-macho-streaming-success-netflix-november-2026/
+
+The final Western of Clint Eastwood's iconic career, Cry Macho, is having a revival on Netflix five years after its release.
+---------
+
+# 5 Hard Sci-Fi Shows From the 2010s That Are Perfect From Start to Finish
+
+TV, Sci-Fi, Science Fiction, Black Mirror, The Expanse
+
+Thu, 12 Nov 2026 01:06:12 GMT
+
+https://collider.com/hard-sci-fi-shows-2010s-perfect-start-to-finish/
+
+From Netflix’s Black Mirror to SYFY’s 12 Monkeys, these sci-fi shows are among the greatest of the 2010s, maintaining excellence from start to finish.
+---------
+
+# The Lord of the Rings’ Aragorn Replacement Officially Confirms Major Production Milestone
+
+Movie News, The Lord of the Rings: The Hunt for Gollum, Jamie Dornan, The Lord of the Rings, Andy Serkis
+
+Thu, 12 Nov 2026 01:00:12 GMT
+
+https://collider.com/the-lord-of-the-rings-the-hunt-for-gollum-jamie-dornan-aragorn-comments/
+
+The Lord of the Rings: The Hunt for Gollum's new Aragorn actor talks taking on the role from Viggo Mortensen.
+---------
+
+# HBO's 4-Part Historical Series Has One of the Best Seasons in TV History
+
+TV Features, The Gilded Age, Series, HBO, Drama
+
+Thu, 12 Nov 2026 00:52:12 GMT
+
+https://collider.com/the-gilded-age-season-3-best-tv-seasons-hbo/
+
+Discover why HBO's The Gilded Age Season 3 is essential viewing, with stellar performances, lavish costumes, and explosive drama.
+---------
+
+# Harry Potter’s New Snape Officially Doubles Down on Opposing J.K. Rowling
+
+TV News, J.K. Rowling, Paapa Essiedu, Harry Potter
+
+Thu, 12 Nov 2026 00:45:12 GMT
+
+https://collider.com/hbo-harry-potter-reboot-paapa-esiedu-jk-rowling-comments/
+
+Harry Potter star Paapa Essiedu reiterates his support for trans rights while declining to discuss J.K. Rowling in a new interview.
+---------
+
+# 'Scrubs' Finally Delivers the JD Fantasy We've Wanted for 20 Years
+
+Features, Scrubs, Comedy, Zach Braff
+
+Thu, 12 Nov 2026 01:30:16 GMT
+
+https://movieweb.com/scrubs-revival-dr-acula/
+
+JD had a lot of chaotic daydreams in the original 'Scrubs' series, and the revival has finally revisited one of his best. Read on for more.
+---------
+
+# Netflix Developing New Russell Brand Series Following Major Conviction
+
+TV News, Russell Brand, Netflix, Documentary
+
+Thu, 12 Nov 2026 00:50:35 GMT
+
+https://movieweb.com/russell-brand-netflix-documentary/
+
+Netflix reportedly developing Russell Brand docuseries after conviction.
+---------
+
+# Daniel Craig's Final Bond Movie Faces Defeat From Near-Perfect 95-Minute Action Thriller at the Box Office
+
+Movie News, Resident Evil, Box Office Milestones, No Time to Die, Horror, Action, Thriller
+
+Thu, 12 Nov 2026 00:30:16 GMT
+
+https://movieweb.com/no-time-to-die-resident-evil-november-2026/
+
+Daniel Craig's 'James Bond' send-off is about to be outpaced at the box office by this year's breakout blockbuster.
+---------
+
+# Colin Farrell's 118-Minute Remake of a Cult Classic Sci-Fi Thriller Becomes a Streaming Sensation
+
+Movie News, Colin Farrell, Total Recall, Sci-Fi, Thriller, Hot on Streaming
+
+Wed, 11 Nov 2026 23:30:16 GMT
+
+https://movieweb.com/total-recall-colin-farrell-stream-prime-november-2026/
+
+Did this remake of the beloved sci-fi classic age well? Modern audiences seem to think so.
+---------
+
+# 10 Biggest Questions After 'VisionQuest' Season 1, Episode 8's Ending, Explained
+
+TV Lists, VisionQuest, Superhero, Marvel Cinematic Universe
+
+Wed, 11 Nov 2026 23:22:56 GMT
+
+https://movieweb.com/vision-quest-finale-biggest-questions/
+
+All the answers to your burning 'VisionQuest' questions after the MCU show's surprise character return teasing epic 'Doomsday' stakes.
+---------
+
+# Star Wars Still Hasn’t Fixed George Lucas' Biggest Problem With 'The Mandalorian'
+
+Features, The Mandalorian, Star Wars, Sci-Fi, Fantasy, George Lucas
+
+Wed, 11 Nov 2026 23:00:17 GMT
+
+https://movieweb.com/star-wars-george-lucas-grogu-problem/
+
+Grogu has been on an intriguing arc throughout Star Wars, but George Lucas has weighed in about the character's background. Read on for more.
+---------
+
+# 'Superman' Star Breaks Silence on James Gunn's DC Exit With Emotional Message
+
+Movie News, James Gunn, DCU, Frank Grillo, Superhero
+
+Wed, 11 Nov 2026 22:53:32 GMT
+
+https://movieweb.com/frank-grillo-james-gunn-dcu-exit/
+
+One of the biggest names from the DCU addressed James Gunn's exit from the franchise with an emotional message on social media.
+---------
+
 # 10 Dark Fantasies To Read If You’re Still Not Over Agatha All Along
 
 Books, Fantasy, Agatha All Along
