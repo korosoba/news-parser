@@ -1,3 +1,432 @@
+# Aaron Pierre Officially Starring In New Netflix Action Thriller
+
+Movies, Aaron Pierre, Fairytale in New York
+
+Fri, 13 Nov 2026 21:39:38 GMT
+
+https://screenrant.com/netflix-fairyale-in-new-york-aaron-pierre-confirmed/
+
+After starring alongside Kyle Chandler in HBO’s Lanterns, Aaron Pierre has lined up his next project, which is an action thriller for Netflix.
+---------
+
+# What 12 12 12's Title Really Means
+
+Streaming TV, 12 12 12
+
+Fri, 13 Nov 2026 21:31:19 GMT
+
+https://screenrant.com/12-12-12-apple-tv-series-title-explained/
+
+Apple TV's 12 12 12 is a new heist thriller starring Anthony Mackie and Jamie Dornan, and its title refers to important time periods in the show.
+---------
+
+# Major GTA 6 Update Confirmed Before Launch
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games
+
+Fri, 13 Nov 2026 21:20:32 GMT
+
+https://screenrant.com/major-gta-6-update-confirmed-before-launch/
+
+Grand Theft Auto 6 has almost crossed the finish line, but it looks like Rockstar isn't simply sitting back and letting it coast through release.
+---------
+
+# Classic Flash Villain Gets A Cronenberg Twist With New Family Lore
+
+Comics, The Flash
+
+Fri, 13 Nov 2026 21:15:18 GMT
+
+https://screenrant.com/absolute-flash-grodd-father-lore-villain-return/
+
+Jeff Lemire's latest take on the Flash has resulted in a surprising new ally, but one horrifying trauma may be used to corrupt this new friend.
+---------
+
+# Paramount+ Sets New Ted Lasso Rival Series With Kingsman Director
+
+TV, Paramount+ with Showtime, Matthew Vaughn, Ted Lasso
+
+Fri, 13 Nov 2026 21:06:10 GMT
+
+https://screenrant.com/day-1s-tv-show-paramount-plus-ted-lasso-rival-matthew-vaughn-damian-lewis/
+
+It's been announced that Kingsman's Matthew Vaughn will direct and executive produce a new Paramount+ series with a similar premise as Ted Lasso.
+---------
+
+# Disney's Next Movie Faces An Impossible Task In Keeping A Major Movie Streak Alive
+
+Movies, Hexed
+
+Fri, 13 Nov 2026 21:00:19 GMT
+
+https://screenrant.com/disney-hexed-movie-thanksgiving-release-billion-dollar-streak/
+
+Disney animation has another big release just in time for the Thanksgiving holiday, but it faces an uphill battle to live up to its predecessors.
+---------
+
+# 3 Best New Netflix Series To Binge-Watch This Weekend (November 13–15, 2026)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 13 Nov 2026 21:00:19 GMT
+
+https://screenrant.com/best-new-netflix-shows-to-binge-weekend-november-13-2026/
+
+The Body, Black Doves Season 2, and Power are the top 3 best new Netflix shows to binge-watch this weekend, November 13–15, 2026.
+---------
+
+# Netflix’s Best One-Season Thriller Is An Easy Weekend Binge-Watch
+
+Streaming TV, Netflix
+
+Fri, 13 Nov 2026 21:00:19 GMT
+
+https://screenrant.com/orb-best-1-season-thriller-netflix/
+
+One of Netflix's best thrillers is a one-season science-focused historical drama set in fifteenth-century Europe and starring multiple characters.
+---------
+
+# 12 12 12 Interview with Anthony Mackie & Jamie Dornan
+
+TV, 12 12 12, Anthony Mackie, Jamie Dornan
+
+Fri, 13 Nov 2026 20:50:53 GMT
+
+https://screenrant.com/video/12-12-12-anthony-mackie-jamie-dornan-interview/
+
+12 12 12 stars Anthony Mackie and Jamie Dornan relate the unique title of their new Apple TV thriller series to their careers, as well as explain how the show's The Falcon and Winter Soldier reunion came about.
+---------
+
+# 3 Best Movies To Watch On Disney+ This Weekend (November 14-15)
+
+Movies, Disney+, Recommendation
+
+Fri, 13 Nov 2026 20:50:07 GMT
+
+https://screenrant.com/best-disney-plus-movies-watch-weekend-november-14/
+
+The best movies on Disney+ this weekend are Alexandra Daddario's fantasy epic, Elizabeth Olsen's supernatural sci-fi hit, and a Christmas masterpiece.
+---------
+
+# Netflix's Dept. Q Crew Member Dies on Set After Season 2 Filming Wrap
+
+TV, Dept. Q, obituary
+
+Fri, 13 Nov 2026 21:42:13 GMT
+
+https://www.cbr.com/dept-q-season-2-crew-member-dead/
+
+A crew member has passed away following an incident on the set shortly after completing filming.
+---------
+
+# Studio Ghibli Officially Returns to Uniqlo for Unique Winter Designs Starring Totoro, Howl's Moving Castle & More
+
+Anime, Studio Ghibli, My Neighbor Totoro, Spirited Away, merchandise, Howl's Moving Castle, Clothing
+
+Fri, 13 Nov 2026 21:41:12 GMT
+
+https://www.cbr.com/studio-ghibli-uniqlo-new-winter-2026-collection/
+
+U.S. Studio Ghibli fans can show off their favorite anime movies and characters, courtesy of the latest line of official Uniqlo graphic tees.
+---------
+
+# Every Disney Lorcana Card Rarity, Explained
+
+Games, Disney Lorcana
+
+Fri, 13 Nov 2026 21:15:12 GMT
+
+https://www.cbr.com/disney-lorcana-card-rarity-explained/
+
+Disney Lorcana has several tiers when it comes to card rarity, but what do they actually mean?
+---------
+
+# Star Wars 50th Anniversary Celebration Plans Announced by Disney
+
+Movies, Star Wars, Star Wars: Episode IV - A New Hope, Sci-Fi
+
+Fri, 13 Nov 2026 21:10:56 GMT
+
+https://www.cbr.com/star-wars-50th-anniversary-movies-merch-events/
+
+It'll be a year-long Star Wars celebration.
+---------
+
+# Cyberpunk 2077 Finally Brings Back The Trauma Team For A New Comics Era
+
+Comics, Cyberpunk 2077
+
+Fri, 13 Nov 2026 21:01:12 GMT
+
+https://www.cbr.com/cyberpunk-2077-compact-edition-trauma-team-psycho-squad/
+
+Revisit Cyberpunk 2077 through another medium.
+---------
+
+# Netflix’s 16-Part ‘Unadaptable’ Epic Is Modern Fantasy at Its Absolute Best
+
+TV, One Hundred Years of Solitude, Netflix, Fantasy
+
+Fri, 13 Nov 2026 21:01:12 GMT
+
+https://www.cbr.com/netflix-one-hundred-years-of-solitude-fantasy-drama/
+
+Explore Netflix's adaptation of García Márquez's unfilmable classic, One Hundred Years of Solitude, which blends magic and history.
+---------
+
+# 8 Masterpiece Movies That Feel Like Lost Goosebumps Stories
+
+Movies, Goosebumps, Horror, Thriller
+
+Fri, 13 Nov 2026 21:01:12 GMT
+
+https://www.cbr.com/best-movies-like-goosebumps-stories-list/
+
+Goosebumps series has remained the gold standard for kids' horror for decades, and some masterpiece movies feel ripped from the mind of R.L. Stine.
+---------
+
+# MCU Star's New 8-Part Apple TV Heist Series Debuts as 1 of the Most-Streamed Shows in America
+
+TV, 12 12 12, Apple TV
+
+Fri, 13 Nov 2026 20:47:23 GMT
+
+https://www.cbr.com/12-12-12-heist-series-apple-tv-success-november-2026/
+
+Anthony Mackie's new Apple TV heist series has debuted in the Top 5 on the streaming platform just after its release.
+---------
+
+# Boruto Chapter 39 Preview Gives Kawaki a Rare Moment of Peace
+
+Anime, Naruto, Boruto: Two Blue Vortex, Boruto: Naruto Next Generations
+
+Fri, 13 Nov 2026 20:23:19 GMT
+
+https://www.cbr.com/boruto-chapter-39-kawaki-moment-of-peace/
+
+The official Boruto: Two Blue Vortex Chapter 39 preview reveals a surprisingly wholesome moment between Kawaki and Himawari.
+---------
+
+# Garfield Gets a Modern Makeover in First Look at Paramount+ Reboot Series
+
+TV, Garfield, Paramount+ with Showtime
+
+Fri, 13 Nov 2026 20:21:16 GMT
+
+https://www.cbr.com/garfield-paramount-plus-reboot-first-look/
+
+In his Paramount+ reboot, Garfield gets an updated look in line with modern animated shows.
+---------
+
+# DC Fans Officially Fight Back and Demand James Gunn’s Return
+
+Movie News, James Gunn, Peter Safran, DC Comics, Warner Bros.
+
+Fri, 13 Nov 2026 21:19:37 GMT
+
+https://collider.com/james-gunn-peter-safran-dc-return-petition-70000-signatures/
+
+A petition to reinstate James Gunn and Peter Safran as heads of DC Studios has passed over 70,000 signatures. Read on for more.
+---------
+
+# 5 Near-Perfect Fantasy Books, Recommended by Brandon Sanderson
+
+Books and Comics, Brandon Sanderson, Daniel Abraham, The Expanse, The Stormlight Archive
+
+Fri, 13 Nov 2026 21:08:12 GMT
+
+https://collider.com/brandon-sanderson-favorite-fantasy-books-recommended/
+
+Author Brandon Sanderson has shared some of his favorite fantasy book recommendations over the years, including works by Robin Hobb and Tad Williams.
+---------
+
+# ‘The Rings of Power’ Officially Confirms the Moment Fans Have Waited 3 Seasons to See
+
+Exclusives, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video, Fantasy
+
+Fri, 13 Nov 2026 21:00:12 GMT
+
+https://collider.com/the-rings-of-power-season-3-sauron-one-ring-forging/
+
+The Rings of Power showrunner Patrick McKay confirms Sauron will forge the One Ring in Season 3, changing Middle-earth forever.
+---------
+
+# 3 Best Sci-Fi Books To Read This Weekend (November 14-15)
+
+Books and Comics, Books, Frankenstein, Science Fiction, The Martian
+
+Fri, 13 Nov 2026 20:29:12 GMT
+
+https://collider.com/best-sci-fi-books-read-this-weekend-november-14/
+
+Subversive gems like Alasdair Gray's Poor Things or modern hits like Andy Weir's The Martian are among the best sci-fi books to read this weekend.
+---------
+
+# 6 Thriller Miniseries That Are 10/10, No Notes
+
+TV, Thriller, TV Miniseries, Chernobyl, Devs
+
+Fri, 13 Nov 2026 20:08:12 GMT
+
+https://collider.com/thriller-miniseries-perfect-no-notes/
+
+From universally beloved classics like Chernobyl to underrated gems like Devs, these miniseries are the pinnacle of small-screen thrills.
+---------
+
+# HBO’s Forgotten 12-Episode Sci-Fi Thriller Is One of Television’s Most Unsettling
+
+TV Features, Beforeigners, HBO, Sci-Fi, Thriller
+
+Fri, 13 Nov 2026 19:27:13 GMT
+
+https://collider.com/hbo-best-sci-fi-thriller-beforeigners/
+
+Beforeigners blends time travel, Nordic noir, and a gripping murder mystery as a detective and a Viking warrior investigate crimes in modern Oslo.
+---------
+
+# How to Rob a Bank: A Messy Crash Made Thieves Believable | Collider BTS
+
+Movie, How to Rob a Bank
+
+Fri, 13 Nov 2026 19:15:12 GMT
+
+https://collider.com/video/how-to-rob-a-bank-a-messy-crash-made-thieves-believable-collider-bts/
+
+How to Rob a Bank features elaborate heists and practical action, but director David Leitch and producer Kelly McCormick reveal why making the stunts look imperfect was sometimes the most important creative decision.
+---------
+
+# Netflix’s Long-Awaited ‘Magic: The Gathering’ Series Officially Gets a First Look and Release Window
+
+TV News, Netflix, Animation, Magic: The Gathering, Terry Matalas
+
+Fri, 13 Nov 2026 19:15:06 GMT
+
+https://collider.com/magic-the-gathering-planeswalker-netflix-first-look-2027/
+
+Netflix reveals the first look, official title, and 2027 premiere year for Planeswalker, its animated Magic: The Gathering adaptation.
+---------
+
+# ‘New Girl’ Star’s New Detective Series Officially Sets Release Date With First Look
+
+TV News, Jake Johnson, Keith David, Dan Goor, NBC
+
+Fri, 13 Nov 2026 19:05:56 GMT
+
+https://collider.com/jake-johnson-sunset-pi-release-date-february-2027/
+
+New Girl star Jake Johnson officially returns to network TV in February 2027. See the first-look images here!
+---------
+
+# Marvel’s New 8-Part Sci-Fi Thriller Is Officially Streaming From Start to Finish
+
+TV News, WandaVision, VisionQuest, Disney+, MCU
+
+Fri, 13 Nov 2026 18:45:12 GMT
+
+https://collider.com/visionquest-series-streaming-disney-plus-november-2026/
+
+All eight episodes of Marvel’s VisionQuest are now streaming on Disney+, with Paul Bettany and James Spader back as Vision and Ultron.
+---------
+
+# Netflix's Long-Awaited Fantasy Adaptation Finally Unveils First Look After 7 Years
+
+TV News, Magic: The Gathering, Netflix, Fantasy
+
+Fri, 13 Nov 2026 21:04:45 GMT
+
+https://movieweb.com/planeswalker-netflix-first-look-2027/
+
+Netflix has finally confirmed that its long-gestating Magic: The Gathering animated series is real and officially set to arrive in 2027.
+---------
+
+# Goodbye 'VisionQuest,' Marvel's Paladin Knows Where He Should Appear Next In The MCU
+
+Exclusives, VisionQuest, Todd Stashwick, Action, Adventure, Superhero, Drama, Comedy
+
+Fri, 13 Nov 2026 21:00:17 GMT
+
+https://movieweb.com/marvel-paladin-mcu-future/
+
+After 'VisionQuest,' the show's Paladin actor is already looking ahead to where his character could return in the MCU.
+---------
+
+# Forget 'Ebenezer,' Johnny Depp's Near-Perfect 105-Minute Gothic Fantasy Officially Sets Netflix Release
+
+Movie News, Edward Scissorhands, Johnny Depp, Coming/Leaving Streaming, Fantasy
+
+Fri, 13 Nov 2026 20:30:17 GMT
+
+https://movieweb.com/edward-scissorhands-streaming-netflix-november-2026/
+
+It won't be a "Bah, Humbug" Christmas for long thanks to Netflix, which is bringing one of Johnny Depp's best movies back to streaming.
+---------
+
+# 'Rebel Ridge' Star Aaron Pierre Returns to Netflix for New Action Thriller
+
+Movie News, Aaron Pierre, Rebel Ridge, Netflix, Action, Thriller
+
+Fri, 13 Nov 2026 20:03:58 GMT
+
+https://movieweb.com/fairytale-in-new-york-aaron-pierre-netflix/
+
+Following his work on 'Rebel Ridge' and 'Lanterns,' Aaron Pierre is set to work with Netflix again on a new movie.
+---------
+
+# Netflix’s New 8-Part Psychological Thriller Is a Perfect Weekend Binge
+
+Features, The Body, Netflix, Thriller
+
+Fri, 13 Nov 2026 20:00:17 GMT
+
+https://movieweb.com/the-body-streaming-recommendation/
+
+Netflix's new psychological thriller series has plenty of tense drama and religious horror to keep viewers engaged, and it's an ideal binge.
+---------
+
+# Netflix's New "Prison Break Meets Chernobyl" 6-Part Thriller Arrives Next Month With Gritty First Trailer
+
+TV News, Netflix, Prison Break, Chernobyl, History
+
+Fri, 13 Nov 2026 19:37:29 GMT
+
+https://movieweb.com/the-riot-netflix-release-date/
+
+The show taps into a real period of national upheaval to give the material a heavier dramatic weight.
+---------
+
+# Margot Robbie Lands New A24 Movie Following $240 Million Box Office Success
+
+Movie News, Margot Robbie, A24, Wuthering Heights, The Drama
+
+Fri, 13 Nov 2026 19:36:43 GMT
+
+https://movieweb.com/the-week-of-pain-margot-robbie/
+
+'The Wolf of Wall Street' actress will star in and produce a new film from the director of A24's hit film, 'The Drama.'
+---------
+
+# 22 Biggest ‘Lord of the Rings’ Easter Eggs & References In ‘The Rings of Power’ Season 3
+
+TV Lists, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Fri, 13 Nov 2026 19:17:33 GMT
+
+https://movieweb.com/rings-of-power-season-3-lord-of-the-rings-easter-eggs/
+
+Does this tease mean Saruman will appear soon? How about Thranduil and Legolas? 'The Rings of Power
+---------
+
+# 13 Years Later, Fox Is Reviving One of Its Biggest Reality TV Competitions
+
+TV News, Simon Cowell, The X Factor, Reality
+
+Fri, 13 Nov 2026 19:16:00 GMT
+
+https://movieweb.com/the-x-factor-reboot/
+
+The revived series comes with a new twist.
+---------
+
 # NBC Officially Seals Elliot Stabler’s Return Fate In Law & Order: SVU
 
 Network TV, Law & Order: Special Victims Unit
