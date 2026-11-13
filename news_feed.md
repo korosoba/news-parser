@@ -1,3 +1,443 @@
+# The Scarlet Witch’s Family & Ultron’s MCU Future Addressed By VisionQuest Creator Terry Matalas
+
+TV, VisionQuest, Marvel Cinematic Universe
+
+Fri, 13 Nov 2026 00:23:03 GMT
+
+https://screenrant.com/visionquest-finale-terry-matalas-interview-mcu-future/
+
+VisionQuest showrunner Terry Matalas breaks down the twists in the finale of the WandaVision spinoff series and what is next for the Maximoff family.
+---------
+
+# New Free Open-World Game Is A Full Recreation Of Toronto That's Bigger Than GTA 5
+
+Gaming, Grand Theft Auto, Grand Theft Auto 5, PC
+
+Fri, 13 Nov 2026 00:01:50 GMT
+
+https://screenrant.com/gta-5-open-world-free-game-toronto/
+
+This open-world game completely recreates Toronto as a playable space, is much bigger than Grand Theft Auto 5, and is free.
+---------
+
+# I Play Rocky Ending Explained: The Incredible True Story Behind the Making of Rocky
+
+Movies, I Play Rocky
+
+Fri, 13 Nov 2026 00:01:50 GMT
+
+https://screenrant.com/i-play-rocky-ending-explained-the-incredible-true-story-behind-the-making-of-rocky/
+
+Discover how Sylvester Stallone overcame rejection, money struggles and Hollywood drama to bring Rocky Balboa to life in this inspiring true story.
+---------
+
+# Recasting The Lord Of The Rings In 1986: Who Should Play All 9 Fellowship Members?
+
+Movies, The Lord of the Rings
+
+Fri, 13 Nov 2026 00:01:50 GMT
+
+https://screenrant.com/lord-of-the-rings-1986-recast-fellowship-nine-members/
+
+What if The Lord of the Rings had been made in 1986? These nine actors could have played Gandalf, Frodo, Aragorn, and the rest of the Fellowship.
+---------
+
+# Star Wars Is Bringing The Prequels, Clone Wars & Sequel Trilogy Together In One Story
+
+Streaming TV, Ahsoka, Star Wars
+
+Thu, 12 Nov 2026 23:31:44 GMT
+
+https://screenrant.com/ahsoka-season-2-prequels-clone-wars-sequel-trilogy/
+
+An upcoming Star Wars story is set to combine characters, tones, and ideas from the prequels, sequels, and The Clone Wars for the first time.
+---------
+
+# The Good Daughter: The Perfect New 6-Part Crime Thriller To Binge This Weekend
+
+Streaming TV, Masked Recs
+
+Thu, 12 Nov 2026 23:31:44 GMT
+
+https://screenrant.com/peacock-new-series-the-good-daughter-crime-thriller-binge-watch/
+
+The Good Daughter stars Rose Byrne & Meghann Fahy as sisters revisiting trauma after a new murder case. All 6 episodes land on Peacock on November 12.
+---------
+
+# Harry Potter Star's New Psychological Horror Earns Stellar Rotten Tomatoes Score
+
+Movies, Victorian Psycho, Horror
+
+Thu, 12 Nov 2026 23:23:27 GMT
+
+https://screenrant.com/jason-isaacs-victorian-psycho-rotten-tomatoes-score/
+
+A Harry Potter star's new psychological horror movie earns a stellar Rotten Tomatoes score ahead of its release on Friday, November 13.
+---------
+
+# One LEGO Harry Potter Set's Upcoming Retirement Comes With A Major Twist
+
+Movies, Harry Potter, LEGO, LEGO Harry Potter
+
+Thu, 12 Nov 2026 23:20:31 GMT
+
+https://screenrant.com/lego-harry-potter-set-retirement-twist/
+
+One of LEGO Harry Potter's most iconic sets is leaving the market soon, however, there is also a major twist regarding its retirement.
+---------
+
+# Naruto's 4 New Episodes: Everything We Know So Far
+
+Anime, Naruto, Naruto: Shippuden
+
+Thu, 12 Nov 2026 23:00:46 GMT
+
+https://screenrant.com/naruto-officially-returns-4-new-episodes/
+
+In a pleasant surprise to Naruto And Naruto Shippuden fans across the world, new episodes of the classic ninja anime are releasing soon.
+---------
+
+# Dragon Ball Super: Beerus Episode 6 Release Date & Time
+
+Anime, Dragon Ball Super: Beerus, Dragon Ball
+
+Thu, 12 Nov 2026 23:00:44 GMT
+
+https://screenrant.com/dragon-ball-super-beerus-episode-6-release-date-time/
+
+As Goku and Beerus finish their explosive Dragon Ball Super showdown, the series prepares to resurrect a legendary classic villain.
+---------
+
+# 7 Biggest Autobots From the G1 Era, Ranked By Size
+
+Anime, Transformers
+
+Fri, 13 Nov 2026 00:15:12 GMT
+
+https://www.cbr.com/transformers-biggest-autobots-g1-era-ranked-by-size/
+
+Some of the original Autobots are absolutely giant among the Transformers.
+---------
+
+# Avatar: Seven Havens Officially Confirms 2 New Seasons for 2027
+
+Anime, Avatar: The Last Airbender, Paramount Plus, Avatar: Seven Havens
+
+Fri, 13 Nov 2026 00:08:51 GMT
+
+https://www.cbr.com/avatar-seven-havens-season-2-3-2027/
+
+Paramount+ officially reveals the Season 2 premiere date for Avatar: Seven Havens with a surprise Season 3 announcement.
+---------
+
+# All 5 James Bond Replacement Actor Finalists, Ranked
+
+Movies, James Bond, Action, Innovation
+
+Fri, 13 Nov 2026 00:00:48 GMT
+
+https://www.cbr.com/james-bond-replacement-actor-finalists-ranked-list/
+
+The hunt for the next James Bond is down to just five names, but only one can be crowned the brand-new 007.
+---------
+
+# The 5-Season JJ Abrams Classic Hailed as '1 of the Best Sci-Fi Series Ever Broadcast'
+
+TV, CBS, Person of Interest, Sci-Fi
+
+Fri, 13 Nov 2026 00:00:48 GMT
+
+https://www.cbr.com/jj-abrams-person-of-interest-best-sci-fi-ai-series/
+
+It's rare for a network TV show to be considered among the best in sci-fi, but CBS's Person of Interest from JJ Abrams is exactly that.
+---------
+
+# The Penguin Season 2 Gets Hopeful Update from Colin Farrell Amid DC Studios Shakeup
+
+TV, The Penguin, colin farrell, The Batman
+
+Thu, 12 Nov 2026 23:56:55 GMT
+
+https://www.cbr.com/the-penguin-season-2-colin-farrell-dc-changes/
+
+The future of The Penguin gets an update following the big changes happening at DC Studios.
+---------
+
+# 10 Strongest Hidden Village Leaders in Naruto Ranked
+
+Anime, Naruto
+
+Thu, 12 Nov 2026 23:16:43 GMT
+
+https://www.cbr.com/naruto-strongest-hidden-village-leaders/
+
+The Kage who lead each of the Hidden Villages are naturally among the strongest characters in Naruto.
+---------
+
+# Iconic Halo Game Mode Returns This Winter
+
+Games, Halo, Halo: Combat Evolved
+
+Thu, 12 Nov 2026 23:11:29 GMT
+
+https://www.cbr.com/iconic-halo-game-mode-returns-this-winter/
+
+A classic Halo game mode initially missing from Campaign Evolved is making a comeback this winter, and there are chances to play it early.
+---------
+
+# Colleen Hoover's 114-Minute Drama Is Netflix's No. 1 Movie in America After Just 1 Day
+
+Movies, Reminders of Him, Netflix, It Ends With Us
+
+Thu, 12 Nov 2026 23:04:25 GMT
+
+https://www.cbr.com/reminders-of-him-drama-netflix-streaming-success-november-2026/
+
+The latest feature film adaptation of a fiery Colleen Hoover romance is taking over the Netflix charts just one day after its streaming debut.
+---------
+
+# Sydney Sweeney's $400M R-Rated Steamy Thriller Is Running Out of Gas on Streaming
+
+Movies, The Housemaid, HBO Max
+
+Thu, 12 Nov 2026 23:00:38 GMT
+
+https://www.cbr.com/the-housemaid-hbo-max-streaming-november-2026/
+
+Sydney Sweeney's erotic thriller was a massive hit, but may be losing some steam on streaming a year later.
+---------
+
+# 10 Popular Marvel Comics Characters Who Will Never Appear In The MCU
+
+Comics, MCU
+
+Thu, 12 Nov 2026 23:00:38 GMT
+
+https://www.cbr.com/marvel-comics-characters-who-will-never-appear-in-mcu/
+
+These comic characters might be beloved, but they will undoubtedly never get adapted to the MCU in its current form.
+---------
+
+# Colleen Hoover’s Divisive Dark Romance Officially Surges on Netflix
+
+Movie News, Reminders of Him, Colleen Hoover, Netflix, Streaming
+
+Fri, 13 Nov 2026 00:31:12 GMT
+
+https://collider.com/reminders-of-him-streaming-success-netflix-november-2026/
+
+Colleen Hoover's Reminders of Him, starring Gilmore Girls icon Lauren Graham, is a sudden streaming hit on Netflix.
+---------
+
+# The 10 Best Water-Type Pokemon, Ranked
+
+Gaming, Pokémon, Video Game, Pokemon GO, Nintendo
+
+Fri, 13 Nov 2026 00:21:13 GMT
+
+https://collider.com/best-water-type-pokemon-ranked/
+
+There have been many great Water-type Pokémon released over the years, from starter Pokémon like Greninja to powerful legendaries like Kyogre.
+---------
+
+# Angelina Jolie’s Near-Perfect Jason Bourne Replacement Officially Surges on Streaming
+
+Movie News, Angelina Jolie, Salt, Action, Bourne
+
+Fri, 13 Nov 2026 00:15:12 GMT
+
+https://collider.com/angelina-jolie-jason-bourne-replacement-salt-streaming-success-starz-november-2026/
+
+Angelina Jolie's espionage thriller Salt, which grossed nearly $300 million worldwide, has reawakened on streaming. Find out more.
+---------
+
+# 5 Streaming Shows Surging in Popularity Right Now (Nov. 12)
+
+TV, The Terminal List, Nobody Wants This, The Diplomat, Love Is Blind
+
+Fri, 13 Nov 2026 00:12:44 GMT
+
+https://collider.com/popular-shows-streaming-right-now-november-12-2026/
+
+Long-awaited returns and unexpected hits are driving streaming buzz, with The Terminal List and VisionQuest among the shows finding new audiences.
+---------
+
+# Forget Jason Bourne, Matt Damon’s Forgotten Sitcom Role Is One of His Best
+
+TV Features, Matt Damon, Will & Grace, Hulu, Jason Bourne
+
+Fri, 13 Nov 2026 00:02:48 GMT
+
+https://collider.com/best-matt-damon-role-will-and-grace-cameo/
+
+Known for his cameos, one of Matt Damon’s first was as Jack’s chorus rival on Will & Grace, flipping the script on getting outed narratives.
+---------
+
+# Quentin Tarantino Officially Confirms Which ‘Inglourious Basterds’ Star He Originally Fired
+
+Movie News, Quentin Tarantino, Mélanie Laurent, Inglourious Basterds, Isabelle Huppert
+
+Fri, 13 Nov 2026 00:00:48 GMT
+
+https://collider.com/quentin-tarantino-fired-melanie-laurent-inglourious-basterds/
+
+Quentin Tarantino revealed that he fired one of the main stars of Inglourious Basterds after they gave a poor table read. Find out more.
+---------
+
+# Prime Video’s Lord of the Rings Series Is Officially Correcting an Early Mistake
+
+TV News, Fantasy, Prime Video, The Lord of the Rings: The Rings of Power, The Lord of the Rings
+
+Thu, 12 Nov 2026 23:00:38 GMT
+
+https://collider.com/rings-of-power-season-3-too-many-storylines-patrick-mckay/
+
+Patrick McKay exclusively tells Collider why The Rings of Power Season 3 narrows its focus to Sauron forging the One Ring.
+---------
+
+# Marvel’s ‘WandaVision’ Trilogy Ended Without Its Original Creator Giving ‘VisionQuest’ a Single Note
+
+TV News, VisionQuest, WandaVision, Terry Matalas, Jac Schaeffer
+
+Thu, 12 Nov 2026 22:59:57 GMT
+
+https://collider.com/visionquest-terry-matalas-jac-schaeffer-wandavision-advice/
+
+VisionQuest showrunner Terry Matalas exclusively reveals to Collider WandaVision creator Jac Schaeffer's role in the show.
+---------
+
+# 8 Most Perfect Sitcoms of the Last 30 Years, Ranked
+
+TV, Sitcom, A Different World, The Office, Veep
+
+Thu, 12 Nov 2026 22:52:37 GMT
+
+https://collider.com/most-perfect-sitcoms-last-30-years-ranked/
+
+Netflix’s A Different World, NBC’s The Good Place, and HBO’s Veep are among the best sitcoms of the last 30 years, but which is the greatest?
+---------
+
+# Why John Lennon Is Responsible for Wings’ Biggest Hit
+
+Music Features, Paul McCartney, John Lennon, The Beatles
+
+Thu, 12 Nov 2026 22:46:39 GMT
+
+https://collider.com/silly-love-songs-wings-paul-mccartney-john-lennon/
+
+Paul McCartney and Wings took criticism from John Lennon and the press, but turned it into "Silly Love Songs," a chart-topping comeback.
+---------
+
+# New Adventure Movie Officially Takes Over No. 1 Spot From Critically Hailed Sci-Fi Action Blockbuster
+
+Movie News, The Cat in the Hat, Godzilla Minus Zero, Adventure, Box Office Milestones, Sci-Fi
+
+Fri, 13 Nov 2026 00:30:16 GMT
+
+https://movieweb.com/the-cat-in-the-hat-box-office/
+
+The Cat in the Hat has scored its first No. 1 day at the domestic box office.
+---------
+
+# 8 Biggest Marvel Reveals In Projects Nobody Watched
+
+TV Lists, Marvel Cinematic Universe, Superhero
+
+Fri, 13 Nov 2026 00:01:44 GMT
+
+https://movieweb.com/marvel-reveals-underseen-projects/
+
+From the first mutant sightings to the introduction of some major Marvel characters, these are the biggest MCU reveals in lesser-watched titles.
+---------
+
+# Arnold Schwarzenegger Confirms Return for Long-Awaited Sequel to His ’80s Sci-Fi Action Classic
+
+Movie News, Arnold Schwarzenegger, Predator, Conan the Barbarian, Sci-Fi, Fantasy
+
+Thu, 12 Nov 2026 23:35:43 GMT
+
+https://movieweb.com/predator-conan-arnold-schwarzenegger-update/
+
+The former Governor of California provides updates on future involvement in 'Conan the Barbarian,' 'Commando,' and 'Predator.'
+---------
+
+# 40 Years Later, Arnold Schwarzenegger's Cult Classic Action Thriller Officially Sets New Release
+
+Movie News, Raw Deal, Arnold Schwarzenegger, Action, Thriller, Blu-ray
+
+Thu, 12 Nov 2026 23:30:46 GMT
+
+https://movieweb.com/raw-deal-arnold-schwarzenegger-4k-blu-ray/
+
+Lionsgate Limited is celebrating the 40 anniversary of Arnold Schwarzenegger's action cult classic 'Raw Deal' with a new 4K Blu-ray steelbook.
+---------
+
+# 'Spider-Man: Brand New Day' Sets December Release for Extended Cut
+
+Movie News, Spider-Man: Brand New Day, Superhero, Action, Comedy, Drama
+
+Thu, 12 Nov 2026 22:55:53 GMT
+
+https://movieweb.com/spider-man-brand-new-day-extended-cut-release-date/
+
+Tom Holland's fourth Spider-Man movie is on its way back to theaters, hoping to add to its record-breaking box office totals.
+---------
+
+# Taylor Sheridan's New Action Thriller Star Confirms "Wild" Role in Upcoming Movie
+
+Movie News, Taylor Sheridan, Sam Claflin, F.A.S.T., Action, Thriller
+
+Thu, 12 Nov 2026 22:32:19 GMT
+
+https://movieweb.com/fast-sam-claflin-role/
+
+Sam Claflin is surprising fans with a never-before-seen role in Taylor Sheridan's new thriller.
+---------
+
+# 10 Years Later, Mel Gibson's Near-Perfect 139-Minute War Epic Is Officially a Streaming Hit
+
+Movie News, Mel Gibson, Hacksaw Ridge, War, Hot on Streaming
+
+Thu, 12 Nov 2026 22:30:35 GMT
+
+https://movieweb.com/hacksaw-ridge-mel-gibson-stream-november-2026/
+
+The film earned Gibson an Academy Award nomination for Best Director.
+---------
+
+# 21 Years Later, Wanda Maximoff's Most Epic Marvel Comics Quote Hits Even Harder
+
+Features, Avengers: Doomsday, VisionQuest, Superhero, Marvel Cinematic Universe, comics
+
+Thu, 12 Nov 2026 22:00:28 GMT
+
+https://movieweb.com/avengers-doomsday-scarlet-witch-quote/
+
+'VisionQuest's shocking reveals make one of the Scarlet Witch's classic comic book quotes hit even harder for the MCU and 'Avengers: Doomsday'.
+---------
+
+# In Just 1 Week, ‘Avengers: Doomsday’ and ‘Dune 3’ Face a $3 Billion Rival
+
+Movie News, Grand Theft Auto 6, Avengers: Doomsday, Dune: Part Three, Crime, Thriller
+
+Thu, 12 Nov 2026 21:15:53 GMT
+
+https://movieweb.com/gta-6-doomsday-dune-rival/
+
+A highly anticipated entertainment release poses a major challenge to Avengers: Doomsday and Dune: Part Three.
+---------
+
+# 'Godzilla' Star's Sister Takes Over Her Final Movie Role After Tragic Passing
+
+Movie News, Godzilla vs. Kong, Drama
+
+Thu, 12 Nov 2026 21:11:50 GMT
+
+https://movieweb.com/godzilla-kong-supernova-jasmine-hottle/
+
+After a major star from the 'Godzilla' franchise passed away, her sister will help continue her legacy in a new movie.
+---------
+
 # James Gunn’s HBO Max Superman Series Officially Returns With New Episode In 2 Weeks Despite DC Exit
 
 Streaming TV, Masked Recs
