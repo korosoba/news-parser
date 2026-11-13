@@ -1,3 +1,344 @@
+# All 12 Episodes Of Prime Video's Spy Thriller Series Are Perfect From Start To Finish
+
+Streaming TV, Masked Recs
+
+Fri, 13 Nov 2026 07:00:17 GMT
+
+https://screenrant.com/the-night-manager-prime-video-spy-thriller-perfect-start-to-finish/
+
+Prime Video's hit spy thriller series has released 12 episodes so far, and ahead of a new season, it is impressive how all of them are perfect.
+---------
+
+# Fallout: Maximus Officially Releasing December 2026
+
+Gaming, Fallout, PC
+
+Fri, 13 Nov 2026 07:00:17 GMT
+
+https://screenrant.com/fallout-maximus-december-2026-statue/
+
+A brand-new Fallout collection is launching, and one of the central components focuses on the legendary character Maximus.
+---------
+
+# 15-Part Prime Video Sci-Fi Series Officially Sets Up Henry Cavill's Next Franchise
+
+Streaming TV, Henry Cavill
+
+Fri, 13 Nov 2026 07:00:17 GMT
+
+https://screenrant.com/secret-level-sets-up-henry-cavill-warhammer-franchise/
+
+A 2024 series was already celebrated as a storytelling triumph, but now it has even greater significance as a foundation for a full cinematic universe
+---------
+
+# 151-Episode Detective Thriller Masterpiece Deserves Its 2026 Comeback
+
+Streaming TV, Masked Recs
+
+Fri, 13 Nov 2026 06:31:18 GMT
+
+https://screenrant.com/the-mentalist-resurgence-2026-deserved/
+
+The Mentalist is a 151-episode detective thriller that ran from 2008 to 2015, and it's having something of a resurgence thanks to streaming.
+---------
+
+# Dark Souls Officially Returns In New Collection
+
+Gaming, Dark Souls, PC
+
+Fri, 13 Nov 2026 06:31:18 GMT
+
+https://screenrant.com/dark-souls-official-return-new-collection/
+
+Dark Souls fans will want to check out this brand-new collection that brings together their favorite characters.
+---------
+
+# Terry Pratchett's 189-Minute Fantasy Adaptation Gets Discworld Right
+
+TV, Masked Recs, Discworld
+
+Fri, 13 Nov 2026 06:02:18 GMT
+
+https://screenrant.com/the-color-of-magic-terry-pratchett-get-discworld-right/
+
+A starry ensemble brings Pratchett’s absurd wit and darkness to life in a bold, surprisingly faithful adaptation that captures his fantasy style.
+---------
+
+# Assassin's Creed Officially Bringing Back Ezio Auditore For New Game
+
+Gaming, Assassin's Creed, PC
+
+Fri, 13 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/assassins-creed-animus-ezio-audiore-return/
+
+Fans of Assassin's Creed's most iconic protagonist, Ezio Auditore, should rejoice, as he is officially returning for a brand-new game.
+---------
+
+# Dungeon Crawler Carl Officially Replaces Carl Ahead Of Book 9
+
+Gaming, Dungeon Crawler Carl, PC
+
+Fri, 13 Nov 2026 05:30:18 GMT
+
+https://screenrant.com/dungeon-crawler-carl-replaced-mamas-night-off/
+
+Dungeon Crawler Carl just got a familiar new main character to take Carl's place while we wait for the release of Book 9.
+---------
+
+# 10 Best Richie Rich Visual Gags Of All Time
+
+Comics, Richie Rich
+
+Fri, 13 Nov 2026 05:00:18 GMT
+
+https://screenrant.com/best-richie-rich-jokes-comic-covers/
+
+Richie Rich is a beloved icon who's handily outlived his Harvey Comics origins, with plenty of classic visual gags that are still entertaining today.
+---------
+
+# Star Trek: Deep Space Nine Fan-Favorite Romance Officially Rekindled In Federation Fleet
+
+Gaming, Star Trek: Deep Space Nine, PC, Magic: The Gathering, Star Trek
+
+Fri, 13 Nov 2026 05:00:18 GMT
+
+https://screenrant.com/star-trek-deep-space-nine-mtg-rom-leeta-romance/
+
+Star Trek: Deep Space Nine's Rom and Leeta romance may have been a bit unconventional, but it worked, and they're together again in this new release.
+---------
+
+# MCU Star Calls for James Gunn's Return for Guardians of the Galaxy 4 After DCU Exit
+
+Movies, Guardians of the Galaxy, Chris Pratt
+
+Fri, 13 Nov 2026 05:22:31 GMT
+
+https://www.cbr.com/chris-pratt-james-gunn-guardians-of-the-galaxy-4/
+
+James Gunn could be coming back to the MCU much earlier than anyone expected.
+---------
+
+# 4 Weakest SMILE Devil Fruits in One Piece, Ranked
+
+Anime, One Piece
+
+Fri, 13 Nov 2026 04:45:11 GMT
+
+https://www.cbr.com/one-piece-weakest-smile-devil-fruits/
+
+One Piece's SMILE Devil Fruits are generally weaker than natural Zoans, but some are practically useless
+---------
+
+# Milly Alcock's Supergirl Expected to Be Removed from DCU After James Gunn Exit
+
+Movies, Supergirl, James Gunn, DCU
+
+Fri, 13 Nov 2026 04:37:36 GMT
+
+https://www.cbr.com/supergirl-milly-alcock-recast-james-gunn-dc-exit/
+
+A new report about the majored DC Studios shakeup coincides with recent rumors about Milly Alcock's Supergirl firing.
+---------
+
+# The Banned Star Trek Episode That Remains 1 of TNG's Best, 38 Years Later
+
+TV, Star Trek: The Next Generation, Sci-Fi, Paramount
+
+Fri, 13 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/star-trek-the-next-generation-banned-episode-conspiracy/
+
+One of the best episodes of Star Trek: The Next Generation was censored at its release and still stands out for its shocking use of body horror.
+---------
+
+# 15 Calvin & Hobbes Comics Perfect For The Holidays
+
+Comics, Calvin and Hobbes
+
+Fri, 13 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/calvin-hobbes-comics-perfect-for-the-holidays/
+
+Calvin and Hobbes comics present a comical look at the holidays. These strips in particular prove perfect for bringing joy during the season.
+---------
+
+# 10 Most Anticipated RPGs of 2027, Ranked
+
+Games, Final Fantasy, Pokemon, RPG, Kingdom Hearts
+
+Fri, 13 Nov 2026 04:15:11 GMT
+
+https://www.cbr.com/most-anticipated-rpgs-of-2027-ranked/
+
+With new Kingdom Hearts, Final Fantasy, and Pokémon games on the way, RPG fans have a lot of games to look forward to in 2027.
+---------
+
+# Transformers Brings Back 12 Classic G1-Era Designs in Massive New Release
+
+Anime, Transformers, merchandise, toys
+
+Fri, 13 Nov 2026 04:10:11 GMT
+
+https://www.cbr.com/transformers-blokees-wheels-spark-of-legacy-wave-5-reveal/
+
+A new Blokees Wheels wave reveals classic Generation 1 Transformers, including recognizable Autobots and some of the most obscure Decepticons ever.
+---------
+
+# Tracker Adds an Anti-Colter Shaw to Justin Hartley's Show in Season 4
+
+TV, Tracker, CBS
+
+Fri, 13 Nov 2026 04:08:24 GMT
+
+https://www.cbr.com/tracker-season-4-josh-holloway/
+
+Tracker is officially getting its very own anti-Colter Shaw in Season 4, and viewers have less than two weeks left to wait for their debut.
+---------
+
+# Johnny Depp's New Dark Fantasy Film Is Already Very Polarizing
+
+Movies, Ebenezer, Johnny Depp, Rotten Tomatoes
+
+Fri, 13 Nov 2026 04:05:55 GMT
+
+https://www.cbr.com/ebenezer-rotten-tomatoes-score/
+
+Filmgoers may need to see the dark fantasy film for themselves with the critics split down the middle.
+---------
+
+# 10 Strongest Pokémon Owned by Team Plasma, Ranked
+
+Anime, Pokemon, Innovation
+
+Fri, 13 Nov 2026 03:45:11 GMT
+
+https://www.cbr.com/strongest-team-plasma-pokemon-ranked/
+
+Team Plasma preaches that Pokémon deserve freedom from trainers, yet the group’s Pokémon fight as obedient weapons.
+---------
+
+# 7 Upcoming Thriller Movies, Ranked by Hype
+
+Movie, Thriller, A Quiet Place Part III, The Thomas Crown Affair, Possession
+
+Fri, 13 Nov 2026 05:51:12 GMT
+
+https://collider.com/upcoming-thriller-movies-ranked-by-hype/
+
+From A Place in Hell to The Beekeeper 2, these upcoming thrillers promise ruthless rivalries, daring heists, and nerve-shredding suspense.
+---------
+
+# Billy Bob Thornton’s Classic Thriller Is Still His Greatest Movie 28 Years Later
+
+Movie Features, Billy Bob Thornton, A Simple Plan, Sam Raimi, Landman
+
+Fri, 13 Nov 2026 05:28:12 GMT
+
+https://collider.com/billy-bob-thornton-a-simple-plan-streaming-free-tubi-november-2026/
+
+The 1998 thriller A Simple Plan, now streaming free on Tubi, showcased Billy Bob Thornton at his best, earning him an Oscar nod.
+---------
+
+# 10 Thriller Audiobooks You Can Finish in a Weekend
+
+Books and Comics, Thriller, Verity, Carrie, The Lincoln Lawyer
+
+Fri, 13 Nov 2026 05:07:12 GMT
+
+https://collider.com/thriller-audiobooks-listen-in-one-weekend/
+
+Sometimes it’s easier to listen to audiobooks, and thrillers like Colleen Hoover’s Verity and Stephen King’s Carrie are quick listens for the weekend.
+---------
+
+# 8 Actors With the Most Iconic Voices in Film History
+
+Movie, Morgan Freeman, James Earl Jones, Al Pacino, Vincent Price
+
+Fri, 13 Nov 2026 05:05:12 GMT
+
+https://collider.com/actors-most-iconic-voices-film-history/
+
+From Al Pacino to James Earl Jones, these eight actors have the most recognizable voices in movie history.
+---------
+
+# ‘Boston Blue’ Brings Back a ‘CSI’ Legend, but Its Biggest Problem Remains
+
+TV Features, Blue Bloods, Boston Blue, Marg Helgenberger
+
+Fri, 13 Nov 2026 04:04:12 GMT
+
+https://collider.com/boston-blue-bloods-spin-off-problems-csi-marg-helgenberger/
+
+Boston Blue is bringing in a CSI legend for Season 2, but the show's biggest problem still needs to be addressed.
+---------
+
+# Before 'Reacher,' Alan Ritchson Starred in the Greatest Sci-Fi Franchise of All Time
+
+Movie Features, Alan Ritchson, The Hunger Games: Catching Fire, Reacher, The Hunger Games
+
+Fri, 13 Nov 2026 04:03:12 GMT
+
+https://collider.com/alan-ritchson-the-hunger-games-catching-fire-appearance/
+
+Alan Ritchson appeared in The Hunger Games: Catching Fire as the Career, Gloss, who is reaped from the existing pool of tributes in the Quarter Quell.
+---------
+
+# Chris Pratt Officially Addresses Star-Lord Return Amid James Gunn's DC Departure
+
+Movie News, Guardians of the Galaxy Vol. 3, Chris Pratt, James Gunn, MCU
+
+Fri, 13 Nov 2026 02:30:12 GMT
+
+https://collider.com/chris-pratt-star-lord-return-james-gunn/
+
+Chris Pratt officially speaks on a potential Star-Lord return after news broke that James Gunn has left DC Studios as co-CEO.
+---------
+
+# Gerard Butler’s Action Streaming Hit Is Officially Being Removed From Netflix
+
+Movie News, Gerard Butler, Law Abiding Citizen, Jamie Foxx, Action
+
+Fri, 13 Nov 2026 02:00:12 GMT
+
+https://collider.com/law-abiding-citizen-gerard-butler-leaving-netflix-november-2026/
+
+Gerard Butler's action streaming hit Law Abiding Citizen is officially leaving Netflix this November. Read on for more.
+---------
+
+# ‘The Expanse’ Officially Set For Major New Release This December
+
+Books and Comics News, The Expanse, SyFy, Steven Strait, Shohreh Aghdashloo
+
+Fri, 13 Nov 2026 01:30:12 GMT
+
+https://collider.com/the-expanse-new-books-release-date-december-2026/
+
+The Expanse universe is officially expanding with several new releases in 2026. Read on for all the details.
+---------
+
+# 'The Mummy' Icon Officially Confirms Return in Brendan Fraser's Fourth Movie
+
+Movie News, Arnold Vosloo, Brendan Fraser, The Mummy 4, The Mummy
+
+Fri, 13 Nov 2026 01:15:12 GMT
+
+https://collider.com/the-mummy-4-book-of-the-dead-imhotep-return-arnold-vosloo-cast/
+
+Imhotep lives! Arnold Vosloo has officially confirmed his return as the franchise's villain in Brendan Fraser's The Mummy 4.
+---------
+
+# 9 Netflix Masterpiece Series With 15 Episodes or Less You Can Watch in One Weekend
+
+TV Lists, Netflix
+
+Fri, 13 Nov 2026 03:00:26 GMT
+
+https://movieweb.com/netflix-shows-15-episodes/
+
+Great television doesn't have to last forever, and these series are perfect for a quicker weekend viewing experience.
+---------
+
 # The Scarlet Witch’s Family & Ultron’s MCU Future Addressed By VisionQuest Creator Terry Matalas
 
 TV, VisionQuest, Marvel Cinematic Universe
