@@ -1,3 +1,432 @@
+# Tom Hardy's Ridley Scott Thriller Is The Ultimate Slow-Burn, And Season 2 Can't Come Soon Enough
+
+Streaming TV, Tom Hardy
+
+Sat, 14 Nov 2026 01:30:18 GMT
+
+https://screenrant.com/tom-hardy-taboo-thriller-series-slow-burn-season-2-in-development/
+
+Although there's been nearly a decade since its first season, Tom Hardy's slow-burning thriller will finally get a season 2.
+---------
+
+# 10 Best Sci-Fi Reads Better Than Black Mirror
+
+Books, Black Mirror, Sci-Fi
+
+Sat, 14 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/best-sci-fi-books-like-black-mirror/
+
+Are you looking for a book with Black Mirror vibes and an unsettling look at humanity? Look no further than these excellent 10 sci-fi novels.
+---------
+
+# Star Trek: Unassimilated Officially Features Jeri Ryan's Return As Seven Of Nine
+
+Gaming, Star Trek, Star Trek: Voyager, Star Trek: Picard, Magic: The Gathering, PC
+
+Sat, 14 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/jeri-ryan-star-trek-mtg-seven-of-nine-return-unassimilated/
+
+The legend herself, Jeri Ryan, is officially back, Borg implants and all, reprising her role as Seven of Nine in Star Trek: Unassimilated.
+---------
+
+# Netflix's 8-Part Female John Wick Series Is One Of Its Best Binges
+
+TV, Masked Recs
+
+Sat, 14 Nov 2026 00:59:18 GMT
+
+https://screenrant.com/my-name-netflix-john-wick-series-binge/
+
+Netflix's neon-soaked John Wick inspired thriller blends gliding action cinematography with undercover betrayal for nonstop revenge set pieces.
+---------
+
+# 3 Best Movies To Watch On Prime Video This Weekend (November 14-15)
+
+Movies, Prime Video, Recommendation
+
+Sat, 14 Nov 2026 00:53:24 GMT
+
+https://screenrant.com/best-prime-video-movies-watch-weekend-november-14/
+
+The best movies on Prime Video this weekend are a sci-fi cyberpunk masterpiece, Mark Wahlberg's time-bending action film, and a spy comedy.
+---------
+
+# James Gunn Addresses Man Of Tomorrow & DCU Reboot Rumors Following His DC Studios CEO Exit
+
+Movies, Man of Tomorrow, DC Universe, Superman, James Gunn
+
+Sat, 14 Nov 2026 00:42:40 GMT
+
+https://screenrant.com/james-gunn-dcu-reboot-man-of-tomorrow-rumors/
+
+Following reports about the DCU getting scrapped, along with Man of Tomorrow going through reshoots, James Gunn finally addresses the rumors.
+---------
+
+# Ebenezer Doesn’t Have A Post-Credits Scene, But There’s A Reason To Stay
+
+Movies, Ebenezer
+
+Sat, 14 Nov 2026 00:30:18 GMT
+
+https://screenrant.com/ebenezer-no-post-credits-scene-reason-to-stay/
+
+Johnny Depp's new adaptation of A Christmas Carol, Ebenezer, doesn't have any post-credits scenes, but theater-goers shouldn't rush out.
+---------
+
+# 10 Best Archie Love Interests Who Aren't Betty Or Veronica
+
+Comics, Archie Comics
+
+Sat, 14 Nov 2026 00:30:18 GMT
+
+https://screenrant.com/archie-best-love-interests-not-betty-veronica/
+
+Though Betty and Veronica get most of Archie’s attention, these captivating ladies offer a refreshing change of pace from his usual dynamic.
+---------
+
+# Dragon Ball Super’s Manga Return Gets Disastrous Update
+
+Anime, Dragon Ball Super, Dragon Ball
+
+Sat, 14 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/dragon-ball-super-manga-return-bad-update-gallery/
+
+A messy corporate dispute behind closed doors has thrown the highly anticipated return of Dragon Ball Super into serious jeopardy.
+---------
+
+# 10 Lost Toonami Anime You Can't Watch Legally Anymore
+
+Anime, toonami, The Big O, Innovation
+
+Sat, 14 Nov 2026 01:45:12 GMT
+
+https://www.cbr.com/lost-toonami-anime-not-legal-to-watch-anymore/
+
+Toonami helped popularize many anime that are now mainstream hits, but some of its titles are no longer available to watch anywhere.
+---------
+
+# 5 Greatest American Martial Arts Movies of All Time, Ranked
+
+Movies, The Matrix
+
+Sat, 14 Nov 2026 01:30:12 GMT
+
+https://www.cbr.com/best-american-martial-arts-movies-list/
+
+Some of the best martial arts movies ever made are American gems that might surprise moviegoers.
+---------
+
+# Every GTA Game, Ranked Worst to Best
+
+Games, Grand Theft Auto, Grand Theft Auto 5, Grand Theft Auto 6, Innovation
+
+Sat, 14 Nov 2026 01:30:12 GMT
+
+https://www.cbr.com/every-gta-game-ranked-worst-to-best/
+
+The world of Grand Theft Auto has expanded over several decades, producing some of the greatest video game experiences to ever hit console and PC.
+---------
+
+# My Hero Academia Finally Returns to Netflix With 25 Episodes After 5-Month Delay
+
+Anime, My Hero Academia, Netflix
+
+Sat, 14 Nov 2026 01:25:12 GMT
+
+https://www.cbr.com/my-hero-academia-season-6-netflix-delay-debut/
+
+My Hero Academia fans can finally look forward to streaming every single season of their favorite anime series on Netflix after an unexpected wait.
+---------
+
+# Jay and Silent Bob's Next Movie Finally Gets Major Update After Years in Development
+
+Movies, Jay and Silent Bob 3, kevin smith
+
+Sat, 14 Nov 2026 01:24:13 GMT
+
+https://www.cbr.com/jay-and-silent-bob-store-wars-update/
+
+Jason Mewes and Kevin Smith are coming back to the big screen as Jay and Silent Bob.
+---------
+
+# 6 Strongest Sternritter in Bleach, Ranked
+
+Anime, Bleach, shonen anime, Innovation
+
+Sat, 14 Nov 2026 01:15:12 GMT
+
+https://www.cbr.com/bleach-strongest-sternritter-ranked/
+
+Yhwach's Sternritter nearly destroyed Soul Society by themselves
+---------
+
+# 10 Hardest Zelda Bosses of All Time, Ranked
+
+Games, The Legend of Zelda, The Legend of Zelda: Majora's Mask, The Legend of Zelda: Ocarina of Time
+
+Sat, 14 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/hardest-legend-of-zelda-bosses-of-all-time-ranked/
+
+The Legend of Zelda boasts a legendary roster of difficult bosses, and these are by far the hardest to overcome in the entire series.
+---------
+
+# Every Major Iron Man Love Interest, Ranked By Chemistry With Tony Stark
+
+Comics, Marvel Comics, Iron Man
+
+Sat, 14 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/every-iron-man-love-interest-ranked-by-chemistry-with-tony-stark/
+
+Tony Stark has a damaged heart. We know this. But over the years, some love interests came close to healing it.
+---------
+
+# Jon Bernthal's WWII Movie Fury Is the Best Performance of His Career
+
+Movies, Fury
+
+Sat, 14 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/john-bernthal-wwii-movie-fury-best-performance-of-career/
+
+Jon Bernthal's recent filmography has been spectacular, but this piece from the archive might be his best.
+---------
+
+# 7 Anime Like Neon Genesis Evangelion to Watch in 2026
+
+Anime, Neon Genesis Evangelion, RahXephon, Gurren Lagann
+
+Sat, 14 Nov 2026 00:45:11 GMT
+
+https://www.cbr.com/anime-like-neon-genesis-evangelion-watch-in-2026/
+
+Neon Genesis Evangelion is a timeless mecha classic that changed the status quo, and anime like RahXephon and Gurren Lagann achieve similar success.
+---------
+
+# George R. R. Martin’s Newest ‘Game of Thrones’ Spin-Off Officially Brings Back the Targaryens
+
+Gaming News, House of the Dragon, Game Of Thrones, George R.R. Martin, A Knight Of The Seven Kingdoms
+
+Sat, 14 Nov 2026 01:45:12 GMT
+
+https://collider.com/game-of-thrones-dragonfire-new-release-ulf-the-white/
+
+House Targaryen officially returns in a new Game of Thrones release out now. Find out more information about the project here.
+---------
+
+# Apple TV’s 5-Season Sci-Fi Spectacle Delivers a Masterclass in Worldbuilding
+
+TV Features, For All Mankind, Apple TV, Science Fiction, Ronald D. Moore
+
+Sat, 14 Nov 2026 01:40:12 GMT
+
+https://collider.com/for-all-mankind-apple-tv-worldbuilding-masterclass/
+
+For All Mankind redefines worldbuilding in sci-fi through imaginative storytelling and twists in an alternate-history America.
+---------
+
+# ‘Dexter: Resurrection’ Officially Loses Its Streaming Crown to a 20-Year-Old Rival
+
+TV News, Dexter: Resurrection, Dexter, Paramount Plus, Michael C. Hall
+
+Sat, 14 Nov 2026 01:30:12 GMT
+
+https://collider.com/dexter-streaming-success-paramount-plus-november-2026/
+
+The new season of Dexter: Resurrection is losing ground on streaming to a show that premiered 20 years ago. Find out more details here.
+---------
+
+# Brad Pitt’s Near-Perfect Dad Movie Officially Removed From 2,500 Theaters
+
+Movie News, Heart of the Beast, Box Office, Brad Pitt, David Ayer
+
+Sat, 14 Nov 2026 01:16:12 GMT
+
+https://collider.com/brad-pitt-heart-of-the-beast-removed-from-2500-theaters/
+
+Brad Pitt's sleeper hit survival thriller, Heart of the Beast, has debuted digitally after being removed from 2,500 theaters. Find out more.
+---------
+
+# 7 Action Shows Better Than 'The Terminal List'
+
+TV, The Terminal List, Action, Reacher, Lioness
+
+Sat, 14 Nov 2026 01:02:12 GMT
+
+https://collider.com/action-shows-better-than-the-terminal-list/
+
+As great as Prime Video’s The Terminal List is as an action series, we think shows like Reacher, Lioness, and The Day of the Jackal are better.
+---------
+
+# Liam Neeson's New Action Thriller Officially Removed From Almost 1,000 Theaters After Just 1 Weekend
+
+Movie News, The Mongoose, Liam Neeson, Action, Marisa Tomei
+
+Sat, 14 Nov 2026 01:00:12 GMT
+
+https://collider.com/liam-neeson-the-mongoose-removed-from-1000-theaters/
+
+Liam Neeson's newest action thriller has officially been removed from about 1,000 theaters after a single weekend.
+---------
+
+# Netflix's 'The Diplomat' Already Has the Perfect Ending Hiding in Plain Sight
+
+TV Features, The Diplomat, Netflix, Keri Russell, Rufus Sewell
+
+Sat, 14 Nov 2026 00:48:12 GMT
+
+https://collider.com/the-diplomat-netflix-season-5-perfect-ending/
+
+On the heels of its shocking Season 4 finale, Netflix's political thriller The Diplomat already has the perfect way to end the series.
+---------
+
+# 'MobLand' Star's New Crime Thriller Officially Removed From Over 800 Theaters
+
+Movie News, MobLand, Helen Mirren, A Talent for Murder, Mystery
+
+Sat, 14 Nov 2026 00:45:12 GMT
+
+https://collider.com/helen-mirren-a-talent-for-murder-removed-from-842-theaters/
+
+Helen Mirren's A Talent for Murder loses 842 theaters as its domestic box office struggles to reach $1.2 million.
+---------
+
+# 3 Elite Prime Video Series to Binge This Weekend (Nov 14-15)
+
+TV, The Lord of the Rings: The Rings of Power, Off Campus, Cross, Prime Video
+
+Sat, 14 Nov 2026 00:44:12 GMT
+
+https://collider.com/prime-video-shows-binge-november-14-2026/
+
+The Lord of the Rings: The Rings of Power, Off Campus, and Cross make up our list of the best Prime Video shows to watch the weekend of November 14.
+---------
+
+# Matt Damon’s R-Rated Crime Thriller Officially Returns to Theaters After 20 Years
+
+Movie News, The Departed, Matt Damon, Martin Scorsese, Leonardo DiCaprio
+
+Sat, 14 Nov 2026 00:30:12 GMT
+
+https://collider.com/matt-damon-the-departed-theater-return-december-2026/
+
+Matt Damon's near-perfect crime thriller with Mark Wahlberg is officially returning to theaters soon after 20 years.
+---------
+
+# 'Marshals' & 'Tracker's Official Return Date After Being Pushed to Make Way For New Crime Series
+
+Features, Marshals, Trackers, Thriller, Action
+
+Sat, 14 Nov 2026 01:00:16 GMT
+
+https://movieweb.com/marshals-tracker-cbs-return/
+
+CBS's Sunday night lineup is back on track, with both Marshals and Tracker returning to their usual time slots.
+---------
+
+# Tom Holland's $2 Billion 2026 Hit Officially Targets Historic Oscar First
+
+Movie News, Spider-Man: Brand New Day, Tom Holland, Tom Rothman, Superhero, Action, Adventure, Drama, Comedy
+
+Sat, 14 Nov 2026 00:35:38 GMT
+
+https://movieweb.com/spider-man-brand-new-day-oscar-campaign/
+
+Tom Holland, known as one of the biggest stars on Earth, hopes to be part of a new kind of Oscar-winning project when the Academy Awards happen.
+---------
+
+# Johnny Depp Officially Returns to the Top as New Gothic Thriller Scores Big Against Record-Breaking Sci-Fi Action Epic
+
+Movie News, Johnny Depp, Ebenezer, Box Office Milestones, Fantasy
+
+Sat, 14 Nov 2026 00:30:16 GMT
+
+https://movieweb.com/ebenezer-box-office-november-2026/
+
+Johnny Depp’s latest film is off to a stronger start than many expected.
+---------
+
+# Jessica Chastain Explains What the 'Heartland' Ending Really Means
+
+Interviews, Heartland, Jessica Chastain, Netflix, Mystery, Thriller
+
+Sat, 14 Nov 2026 00:26:44 GMT
+
+https://movieweb.com/heartland-ending/
+
+Jessica Chastain exclusively reveals what the 'Heartland' ending really means.
+---------
+
+# Jon Hamm Leads New 'Mindhunter'-Esque Sci-Fi Thriller Set in a Dystopian Future
+
+Movie News, Jon Hamm, street fighter, Andrew Koji, Thriller
+
+Fri, 13 Nov 2026 23:24:15 GMT
+
+https://movieweb.com/bullfrog-jon-hamm-andrew-koji/
+
+Bullfrog pairs Hamm with Andrew Koji in a near-future Tokyo thriller that already sounds more intriguing than the average serial-killer procedural.
+---------
+
+# "Die Hard on a Train" Action Thriller Officially Sets New Release After 31 Years
+
+Movie News, Under Siege 2: Dark Territory, Under Siege 2, Steven Seagal, Action, Thriller, Blu-ray
+
+Fri, 13 Nov 2026 23:00:17 GMT
+
+https://movieweb.com/under-siege-2-dark-territory-4k-blu-ray/
+
+Arrow Video is releasing the 1995 Steven Seagal action sequel 'Under Siege 2: Dark Territory' on 4K Ultra HD Blu-ray early next year.
+---------
+
+# 'GTA VI's Most Obvious Cameo Would Bring Back a Franchise Favorite After 24 Years
+
+Features, Grand Theft Auto 6
+
+Fri, 13 Nov 2026 23:00:17 GMT
+
+https://movieweb.com/gta-vi-tommy-vercetti-cameo-theory/
+
+Vice City is rich with nostalgic possibilities, but it remains to be seen if GTA is willing to pull the trigger. Read on for more.
+---------
+
+# After 21 Years, Cult Classic Martial Arts Movie Officially Gets Major 4K Release
+
+Movie News, Blu-ray, Kung Fu Hustle, Criterion Collection, Comedy
+
+Fri, 13 Nov 2026 22:27:34 GMT
+
+https://movieweb.com/kung-fu-hustle-criterion-collection/
+
+The timeless classic is headed back for more.
+---------
+
+# ‘The Rings of Power’ Finally Explains Its Biggest Orc Change
+
+Features, The Lord of the Rings: The Rings of Power, Fantasy
+
+Fri, 13 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/rings-of-power-orc-change-explained/
+
+'The Rings of Power' finally explains why the Orcs depicted in the Prime Video show are so different from those in 'The Lord of the Rings.'
+---------
+
+# Matt Damon's Essential $782-Million Hard-Sci-Fi Action Adventure Epic Lands New Streaming Home
+
+Movie News, Matt Damon, Interstellar, Coming/Leaving Streaming, Sci-Fi, Action, Adventure
+
+Fri, 13 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/interstellar-matt-damon-apple-stream-november-2026/
+
+As Damon is about to enter the awards race after 'The Odyssey,' one of his best sci-fi movies has found a new streaming home.
+---------
+
 # Aaron Pierre Officially Starring In New Netflix Action Thriller
 
 Movies, Aaron Pierre, Fairytale in New York
