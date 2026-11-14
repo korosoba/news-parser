@@ -1,3 +1,344 @@
+# The Walking Dead Franchise Is Officially Reuniting Rick And Daryl After 8 Years
+
+Gaming, The Walking Dead, PC
+
+Sat, 14 Nov 2026 08:00:18 GMT
+
+https://screenrant.com/walking-dead-streets-of-survival-rick-daryl-reunion/
+
+The Walking Dead's Rick Grimes and Daryl Dixon are teaming up again for an official reunion thanks to a brand-new franchise release.
+---------
+
+# Lucifer Meets Santa Clarita Diet In The CW's 71-Episode Urban Fantasy Series
+
+Classic TV, Masked Recs
+
+Sat, 14 Nov 2026 08:00:18 GMT
+
+https://screenrant.com/izombie-cw-urban-fantasy-lucifer-meets-santa-clarita-diet/
+
+Lucifer's fun supernatural format meets Santa Clarita Diet's unique zombie lore in the CW's unique, five-season procedural series: iZombie.
+---------
+
+# Brandon Sanderon's Stormlight: Faith & Fury Officially Unveiled
+
+Gaming, Brandon Sanderson, The Stormlight Archive, PC, The Cosmere, Mistborn
+
+Sat, 14 Nov 2026 07:30:18 GMT
+
+https://screenrant.com/brandon-sanderson-stormlight-faith-and-fury-november-2027/
+
+Brandon Sanderson's Stormlight officially returns in 2027 with Faith & Fury thanks to the enormous success of the new War for Roshar campaign.
+---------
+
+# Syfy's 4-Season Masterpiece Is A Rare Example Of A TV Remake Beating The Movie
+
+Classic TV, Masked Recs
+
+Sat, 14 Nov 2026 07:30:18 GMT
+
+https://screenrant.com/12-monkeys-tv-series-beats-movie/
+
+Few remakes beat the original, but Syfy struck gold with 12 Monkeys, the mind-bending time travel series that needs time to truly be appreciated
+---------
+
+# All 16 Episodes Of 'Modern Peaky Blinders' Masterpiece Are Surprisingly Flawless
+
+TV, Masked Recs
+
+Sat, 14 Nov 2026 07:01:18 GMT
+
+https://screenrant.com/kin-every-episode-flawless/
+
+Grim realism meets meticulous family drama as a taut 18 episode thriller peels back loyalty and revenge in a bleak, deeply human gangster saga.
+---------
+
+# HBO's New Fantasy Series Officially Making TV History In 1 Month
+
+Streaming TV, Masked Recs
+
+Sat, 14 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/hbo-harry-potter-series-tv-history-movie-box-office-reboot/
+
+HBO Max's new fantasy series will make TV history in just one month by doing something that no other TV show has done before, and it is exciting.
+---------
+
+# Elden Ring: Path Of The Cardinal Sin Unveils Melina's Stunning Return
+
+Gaming, Elden Ring, Elden Ring: Shadow of the Erdtree, Elden Ring: Tarnished Edition, PC
+
+Sat, 14 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/elden-ring-path-of-the-cardinal-sin-art-reveal/
+
+Elden Ring: Path of the Cardinal Sin new reveal features Melina's official return alongside the Tree Sentinel, the Fire Giant, and a new Tarnished.
+---------
+
+# 12-Episode Prime Video Masterpiece Is A Rare Show Where Every Line Is Perfect
+
+Classic TV, Masked Recs
+
+Sat, 14 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/fleabag-prime-video-show-every-line-is-perfect/
+
+Phoebe Waller-Bridge's Fleabag is a rare TV show where there isn't a single bad episode from start to finish, and it ended at the perfect time.
+---------
+
+# The Expanse Shares New Look At Jim Holden's Official Replacement
+
+Gaming, The Expanse, PC, The Expanse: Osiris Reborn
+
+Sat, 14 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/expanse-jim-holden-captain-replaced-osiris-reborn/
+
+The Expanse is replacing Jim Holden and the Rocinante crew in the franchise's official return, revealing a new look at the new captain.
+---------
+
+# Disney's Record-Breaking 6-Part Fantasy Series Is Everything Bridgerton Should Have Been
+
+TV, Masked Recs
+
+Sat, 14 Nov 2026 05:58:18 GMT
+
+https://screenrant.com/the-remarried-empress-everything-bridgerton-should-have-been/
+
+A sumptuous court where political cunning and otherworldly romance collide in an imagined Eastern Empire, Disney's hit has what Bridgerton is missing.
+---------
+
+# Jason Momoa's 5-Part Star Trek Copycat Returns as a Streaming Smash 22 Years Later
+
+Movies, Streaming, Stargate: Atlantis, Jason Momoa
+
+Sat, 14 Nov 2026 04:57:06 GMT
+
+https://www.cbr.com/stargate-atlantis-fantasy-streaming-success-mgm-plus-november-2026/
+
+More than two decades after its debut, the sci-fi series is competing with new TV shows on the streaming charts.
+---------
+
+# 7 Hyped-Up Modern Anime Everyone Already Forgot About
+
+Anime, Sakamoto Days, Dandadan
+
+Sat, 14 Nov 2026 04:45:12 GMT
+
+https://www.cbr.com/hyped-up-modern-anime-everyone-already-forgot/
+
+Anime like Lazarus and Sakamoto Days had promise to make it big but didn't leave a lasting impression.
+---------
+
+# Law & Order: SVU Goes on Hiatus After 600th Episode's Major Reunion
+
+TV, Law & Order: Special Victims Unit, NBC
+
+Sat, 14 Nov 2026 04:30:18 GMT
+
+https://www.cbr.com/law-order-svu-hiatus-episode-600/
+
+On the heels of Bensler's reunion and the 600th episode, Law & Order: SVU is going on a brief hiatus for Thanksgiving and will return in December.
+---------
+
+# 15 Years Later, Ron Swanson's Best Parks & Rec Line Is Still the Funniest Quote in Sitcom History
+
+TV, Parks and Recreation, NBC, Comedy
+
+Sat, 14 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/ron-swanson-parks-and-rec-iconic-line/
+
+More than a decade later, Ron Swanson’s “Best friend I ever had” line from Parks and Recreation remains one of the funniest sitcom lines ever.
+---------
+
+# The 10 Best Calvin and Hobbes Comics at the Dinner Table, Ranked
+
+Comics, Calvin and Hobbes
+
+Sat, 14 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/best-calvin-and-hobbes-comics-at-the-dinner-table-ranked/
+
+Calvin and Hobbes is a comic about a little boy, so it's only natural to include comics about his struggles with healthy food at the dinner table.
+---------
+
+# Seth Rogen Addresses Major Casting for Scrooge McDuck in Darkwing Duck Reboot
+
+TV, Darkwing Duck
+
+Sat, 14 Nov 2026 04:18:56 GMT
+
+https://www.cbr.com/darkwing-duck-reboot-update-seth-rogen/
+
+After casting Mark Hamill in the titular role, the Darkwing Duck reboot has another big name cast as Scrooge McDuck.
+---------
+
+# 10 Best Arcade Games You Still Can't Play on Modern Consoles
+
+Games, Video Games, Star Wars, Jurassic Park, The Simpsons
+
+Sat, 14 Nov 2026 04:15:12 GMT
+
+https://www.cbr.com/best-arcade-games-cant-play-on-modern-consoles/
+
+These classic arcade games sadly can't be played on modern consoles.
+---------
+
+# Sailor Moon Officially Redesigns Its 4 Original Guardians for November 2026 Debut
+
+Anime, Sailor Moon, merchandise
+
+Sat, 14 Nov 2026 04:10:11 GMT
+
+https://www.cbr.com/sailor-moon-inner-guardians-bandai-figure-update/
+
+Sailor Moon's four beloved Sailor Guardians are getting a makeover, with Bandai unveiling its updated designs for Mercury, Mars, Jupiter and Venus.
+---------
+
+# 10 Most Unwatchable Sci-Fi Anime of All Time, Ranked
+
+Anime, Sci-Fi, Innovation
+
+Sat, 14 Nov 2026 03:45:12 GMT
+
+https://www.cbr.com/most-unwatchable-sci-fi-anime-all-time/
+
+Ambition can easily outrun execution once a sci-fi series starts juggling complex worlds and a difficult cast.
+---------
+
+# 8 Best Hashira in Demon Slayer, Ranked by Design
+
+Anime, Demon Slayer, Innovation
+
+Sat, 14 Nov 2026 03:30:11 GMT
+
+https://www.cbr.com/demon-slayer-best-hashira-designs-list/
+
+Many of the strongest Hashira in Demon Slayer stand out because of their amazing designs.
+---------
+
+# Russell Crowe’s Classic Thriller Is Still His Greatest Movie 27 Years Later
+
+Movie Features, Russell Crowe, Michael Mann, Al Pacino, The Insider
+
+Sat, 14 Nov 2026 05:22:12 GMT
+
+https://collider.com/russell-crowe-the-insider-thriller-streaming-november-2026/
+
+In the 1999 thriller The Insider, Russell Crowe earned an Oscar nomination for his role as a man fighting a corporate conspiracy.
+---------
+
+# This 106-Minute James Bond Thriller Is the Perfect Watch Before It’s Cut From Paramount+
+
+Movie Features, Quantum of Solace, Daniel Craig, James Bond, Paramount+ with Showtime
+
+Sat, 14 Nov 2026 05:09:12 GMT
+
+https://collider.com/james-bond-quantum-of-solace-cut-from-paramount-plus-november-2026/
+
+Daniel Craig's second outing as James Bond, Marc Forster's Quantum of Solace, is leaving Paramount+ on November 19, and it's better than remembered.
+---------
+
+# Peacock Officially Replaces 'Suits' With a Legal Drama That Can't Be Beat
+
+TV Features, The Rainmaker, USA Network, John Slattery, Suits
+
+Sat, 14 Nov 2026 04:42:12 GMT
+
+https://collider.com/the-rainmaker-suits-replacement-legal-drama/
+
+The Rainmaker is Peacock's exciting new legal drama that takes over the legal drama angle that Suits once held.
+---------
+
+# The Cosmere Explained: Everything To Know About Brandon Sanderson’s Shared Fantasy Universe
+
+Books and Comics, Brandon Sanderson, Books, Fantasy, The Cosmere
+
+Sat, 14 Nov 2026 04:09:12 GMT
+
+https://collider.com/brandon-sanderson-cosmere-fantasy-universe-explained/
+
+Brandon Sanderson's Cosmere is one of the most celebrated shared universes in fantasy literature, but what exactly is it? Learn more about it here.
+---------
+
+# Matt Damon’s WWII Masterpiece Is Still His Greatest Movie 28 Years Later
+
+Movie Features, Saving Private Ryan, Steven Spielberg, Matt Damon, War
+
+Sat, 14 Nov 2026 04:03:12 GMT
+
+https://collider.com/matt-damon-saving-private-ryan-ww2-streaming-free-pluto-november-2026/
+
+In 1998, Matt Damon became the centerpiece of Steven Spielberg's World War II classic Saving Private Ryan, now streaming free on Pluto TV.
+---------
+
+# DC’s R-Rated Batman Spin-Off Officially Removed From 1,000 Theaters
+
+Movie News, Clayface, James Gunn, Box Office, DCU
+
+Sat, 14 Nov 2026 03:00:22 GMT
+
+https://collider.com/clayface-removed-from-1000-theaters/
+
+DC Studios' Clayface lost another chunk of its theaters amid a high-profile reshuffle at the company. Find out more.
+---------
+
+# Prime Video's 2-Season Action Thriller Just Surged 307% To Become the No. 1 Streaming Original
+
+TV Features, The Terminal List, Chris Pratt, Prime Video
+
+Sat, 14 Nov 2026 02:55:12 GMT
+
+https://collider.com/terminal-list-prime-video-action-thriller-streaming/
+
+The Terminal List is Prime Video's No. 1 thriller right now with 1.3 billion minutes watched, making it a must-watch for action fans.
+---------
+
+# The Longest ‘Harry Potter’ Sequel Is Officially Casting a Spell On Prime Video
+
+Movie News, Harry Potter and the Chamber of Secrets, Prime Video, Streaming, Daniel Radcliffe
+
+Sat, 14 Nov 2026 02:45:12 GMT
+
+https://collider.com/harry-potter-and-the-chamber-of-secrets-streaming-hit-prime-video-november-2026/
+
+The longest Harry Potter sequel, The Chamber of Secrets, is Prime Video's latest hit ahead of the HBO series. Read on for more.
+---------
+
+# Marvel Boss Officially Confirms Robert Downey Jr.‘s Doctor Doom Isn’t an Iron Man Variant
+
+Movie News, Kevin Feige, Avengers: Doomsday, Robert Downey Jr, MCU
+
+Sat, 14 Nov 2026 02:30:12 GMT
+
+https://collider.com/avengers-doomsday-doctor-doom-not-a-tony-stark-variant-kevin-feige/
+
+Marvel Studios boss Kevin Feige addresses a major Doctor Doom theory involving Robert Downey Jr. ahead of Avengers: Doomsday.
+---------
+
+# Tom Hardy’s Crowd-Pleasing Sci-Fi Thriller Officially Hits 100-Day Milestone
+
+Movie News, Venom: The Last Dance, Tom Hardy, Disney Plus, Juno Temple
+
+Sat, 14 Nov 2026 02:15:12 GMT
+
+https://collider.com/tom-hardy-venom-the-last-dance-streaming-success-100-days-november-2026/
+
+Tom Hardy's fan-favorite sci-fi blockbuster has officially been in the streaming top 10 for over 100 days now.
+---------
+
+# James Gunn Officially Sets Record Straight on 'Superman' Sequel Amid DC Exit
+
+Movie News, Man of Tomorrow, DCU, Superman, James Gunn
+
+Sat, 14 Nov 2026 02:14:04 GMT
+
+https://movieweb.com/man-of-tomorrow-james-gunn-rumors/
+
+James Gunn returns to social media to address rumors about 'Man of Tomorrow' and the direction of the DCU movie.
+---------
+
 # Tom Hardy's Ridley Scott Thriller Is The Ultimate Slow-Burn, And Season 2 Can't Come Soon Enough
 
 Streaming TV, Tom Hardy
