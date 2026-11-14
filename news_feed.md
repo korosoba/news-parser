@@ -1,3 +1,410 @@
+# All 3 NCIS Shows Pulled From CBS Schedule For Another Week
+
+TV, NCIS
+
+Sat, 14 Nov 2026 23:38:14 GMT
+
+https://screenrant.com/ncis-3-shows-pulled-from-nbc-schedule/
+
+CBS is pulling all three shows from one of its most popular franchises from its normal programming for yet another week this month.
+---------
+
+# Pokémon Officially Unveils Its New Hero, Replacing Ash Ketchum
+
+Anime, Pokemon
+
+Sat, 14 Nov 2026 23:30:18 GMT
+
+https://screenrant.com/pokemon-new-hero-wild-card-anime-ash/
+
+Meet the anti-Ash Ketchum.
+---------
+
+# Jonathan Nolan’s 103-Episode Masterpiece Delivers Peak Sci-Fi Realism
+
+Classic TV, Masked Recs
+
+Sat, 14 Nov 2026 23:30:18 GMT
+
+https://screenrant.com/jonathan-nolan-person-of-interest-peak-sci-fi-realism/
+
+15 years ago, Jonathan Nolan created a 103-episode sci-fi masterpiece that still stands the test of time because of how realistic it feels even today.
+---------
+
+# Star Trek's 1960s Uhura Replacement Lasted Just 2 Episodes
+
+Classic TV, Star Trek, Star Trek: The Original Series
+
+Sat, 14 Nov 2026 23:30:18 GMT
+
+https://screenrant.com/star-trek-palmer-replace-uhura/
+
+Instead of Lt. Uhura, a different Communications Officer opened hailing frequencies, and then vanished from Star Trek after just two appearances.
+---------
+
+# Pokémon Fans Split Over Our First New Eeveelution In 13 Years
+
+Gaming, Pokemon, Triple-A Games
+
+Sat, 14 Nov 2026 23:30:18 GMT
+
+https://screenrant.com/pokemon-winds-waves-new-eevee-evolution-gamers-react/
+
+Although Pokémon fans have loved Eevee since the very first Pokémon game, it hasn't gotten a ton of new evolutions in recent years.
+---------
+
+# 23 Years Ago, Russell Crowe Starred In An Epic War Masterpiece That Should've Had 5+ Sequels
+
+Movies, Masked Recs, Master and Commander: The Far Side of the World
+
+Sat, 14 Nov 2026 23:28:25 GMT
+
+https://screenrant.com/russell-crowe-master-and-commander-masterpiece-sequels/
+
+Russell Crowe's 2003 epic historical masterpiece had enough material for an entire franchise, but Hollywood never gave it even a single sequel.
+---------
+
+# Say Goodbye To Buck & Eddie’s Romance In 9-1-1
+
+Network TV, 9-1-1
+
+Sat, 14 Nov 2026 23:15:19 GMT
+
+https://screenrant.com/911-season-10-buck-eddie-romance-dead/
+
+Buck and Eddie are one of the most highly anticipated ships in modern TV history, but 9-1-1 season 10 is massively squandering their potential.
+---------
+
+# Netflix’s Trending 8-Part Psychological Drama Is Unlike Anything Released This Year
+
+Streaming TV, Masked Recs
+
+Sat, 14 Nov 2026 23:00:18 GMT
+
+https://screenrant.com/netflix-the-body-psychological-drama-streaming-recommendation/
+
+Netflix has been the home for highly bingeable TV shows that bring something new to their genre, but the psychological thriller The Body is unique.
+---------
+
+# Netflix’s R-Rated Sci-Fi Masterpiece Pushes The Genre To Its Absolute Limits
+
+Streaming TV, Masked Recs
+
+Sat, 14 Nov 2026 23:00:18 GMT
+
+https://screenrant.com/love-death-robots-pushes-sci-fi-limits/
+
+One of Netflix’s most ambitious shows is an R-rated masterpiece that does not hold itself back from pushing the sci-fi genre to its absolute limits.
+---------
+
+# Mass Effect: Sovereign Collection Officially Releases March 2027
+
+Gaming, Mass Effect, PC
+
+Sat, 14 Nov 2026 23:00:18 GMT
+
+https://screenrant.com/mass-effect-sovereign-march-2027-replica/
+
+A brand-new Mass Effect collection is finally on its way, offering fans a whole new experience within its wonderful universe.
+---------
+
+# Terrifier Star Addresses Art the Clown's Future Amid Reports Part 4 Will End the Franchise
+
+Movies, Horror, Terrifier, Terrifier 2, Terrifier 3, Terrifier 4
+
+Sat, 14 Nov 2026 23:42:47 GMT
+
+https://www.cbr.com/terrifier-star-addresses-future-of-franchise-art-the-clown/
+
+This is exactly what Art the Clown fans have been waiting to hear.
+---------
+
+# 10 Underrated '80s Movies That Are 10/10 Masterpieces
+
+Movies, Drama, Action, Innovation
+
+Sat, 14 Nov 2026 23:30:12 GMT
+
+https://www.cbr.com/best-underrated-80s-movie-masterpieces-list/
+
+These forgotten '80s masterpieces deserve so much more love and attention from movie fans today.
+---------
+
+# 10 Greatest Single-Player PS2 Games of All Time, Ranked
+
+Games, PlayStation 2, Video Games
+
+Sat, 14 Nov 2026 23:15:12 GMT
+
+https://www.cbr.com/greatest-single-player-ps2-games-of-all-time/
+
+Silent Hill 2 and Resident Evil 4 prove that players only need one controller to experience the PS2's greatest hits.
+---------
+
+# VisionQuest Officially Closes Out WandaVision Trilogy With Impressive MCU Record on Disney+
+
+TV, VisionQuest, Marvel Cinematic Universe, WandaVision
+
+Sat, 14 Nov 2026 23:14:45 GMT
+
+https://www.cbr.com/visionquest-finale-viewership-disney-plus/
+
+The final entry in Marvel Studios' WandaVision trilogy just set a new record for recent Marvel Cinematic Universe titles that won't be easy to beat.
+---------
+
+# Friday the 13th Reboot Officially Scraps Jason's New Mask After Online Backlash
+
+Movies, Friday The 13th, Horror
+
+Sat, 14 Nov 2026 23:00:47 GMT
+
+https://www.cbr.com/friday-the-13th-reboot-mask-design/
+
+Jason Voorhees is getting another new hockey mask for his upcoming reboot after the "Jason Universe" redesign was heavily criticized.
+---------
+
+# Johnny Depp's New Christmas Horror Movie Is Already Bigger Than Avengers: Doomsday & Dune 3
+
+Movies, Ebenezer, Avengers: Doomsday, Dune: Part Three
+
+Sat, 14 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/johnny-depp-ebenezer-more-popular-avengers-doomsday-dune-3/
+
+Johnny Depp's new take on a Christmas classic is beating out both Avengers: Doomsday and Dune: Part Three more than a month before they arrive.
+---------
+
+# LEGO Keeps Spirited Away 25th Anniversary Set Alive for 6 More Months
+
+Anime, Spirited Away, Studio Ghibli, LEGO
+
+Sat, 14 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/spirited-away-25th-anniversary-lego-set-1k-update/
+
+A LEGO replica of Spirited Away's bathhouse achieves one of several key milestones on the path to becoming an official build.
+---------
+
+# The 61-Episode Cult Sci-Fi Classic Made Just for Star Trek Fans
+
+TV, Sci-Fi, Lexx, Star Trek
+
+Sat, 14 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/lexx-cult-classic-perfect-for-star-trek-sci-fi-fans/
+
+Lexx took space exploration in some truly strange directions, and its certainly worth a look for Star Trek fans with a taste for weird sci-fi.
+---------
+
+# Adam Driver Gets Called 'My Favorite Kind of Actor' By Top Gun: Maverick Superstar
+
+Comics
+
+Sat, 14 Nov 2026 22:21:59 GMT
+
+https://www.cbr.com/top-gun-maverick-superstar-calls-adam-driver-favorite-actor/
+
+This is unreal praise coming from someone who starred in a film with Tom Cruise.
+---------
+
+# Daniel Craig's 158-Minute Crime Thriller Is Being Cut From Netflix Ahead of Reboot
+
+Movies, The Girl With the Dragon Tattoo, daniel craig, Netflix
+
+Sat, 14 Nov 2026 22:15:43 GMT
+
+https://www.cbr.com/girl-with-the-dragon-tattoo-leaving-netflix-november-2026/
+
+Fans have just a single day left to revisit one of Daniel Craig's most critically acclaimed crime thrillers before it leaves Netflix.
+---------
+
+# The ‘Insidious’ Franchise Officially Makes a Massive Comeback
+
+Movie News, Insidious: Out of the Further, Horror, Amazon, Streaming
+
+Sat, 14 Nov 2026 23:30:12 GMT
+
+https://collider.com/insidious-out-of-the-further-streaming-hit-amazon-november-2026/
+
+The recent horror hit Insidious: Out of the Further is now a streaming favorite globally. Read on for more.
+---------
+
+# ‘Narnia’ Fans Officially Have Limited Time to Watch the Franchise’s Final Movie
+
+Movie News, The Chronicles of Narnia, The Chronicles of Narnia: The Voyage of the Dawn Treader, Fantasy, Peacock
+
+Sat, 14 Nov 2026 23:15:12 GMT
+
+https://collider.com/chronicles-of-narnia-voyage-of-the-dawn-treader-leaving-peacock-december-2026/
+
+Ahead of Greta Gerwig's reboot, The Chronicles of Narnia: The Voyage of the Dawn Treader is about to be removed from Peacock.
+---------
+
+# 'Percy Jackson and the Olympians' Season 3 Needs To Include These 5 'Titan's Curse' Scenes
+
+TV, Percy Jackson & the Olympians, Percy Jackson & The Olympians, Fantasy, Books
+
+Sat, 14 Nov 2026 23:08:12 GMT
+
+https://collider.com/percy-jackson-and-the-olympians-season-3-titans-curse-scenes/
+
+Percy Jackson and the Olympians Season 3 marks the first time The Titan’s Curse is being adapted, which means we hope these book scenes are included.
+---------
+
+# ‘Clueless’ Star Officially Confirms Return for Paramount+ Sequel Series
+
+TV News, Clueless, Breckin Meyer, Alicia Silverstone, Paramount Plus
+
+Sat, 14 Nov 2026 23:00:12 GMT
+
+https://collider.com/clueless-paramount-plus-sequel-breckin-meyer-travis-return/
+
+Another Clueless star confirms official return in the Paramount+ sequel series alongside Alicia Silverstone; he’ll also serve as a writer.
+---------
+
+# This Beloved Classic Fantasy Miniseries Quietly Resurfaces on Streaming 12 Years Later
+
+TV Features, Over the Garden Wall, Elijah Wood, Cartoon Network, Fantasy
+
+Sat, 14 Nov 2026 22:47:12 GMT
+
+https://collider.com/over-the-garden-wall-classic-fantasy-miniseries-streaming-resurgence/
+
+Over the Garden Wall remains a beloved dark fantasy classic, with a streaming resurgence 12 years after its release.
+---------
+
+# If You Love ‘The Twilight Zone,’ ABC’s Forgotten Sci-Fi Is Its Much Darker Replacement
+
+TV Features, The Twilight Zone, The Outer Limits, Sci-Fi, Science Fiction
+
+Sat, 14 Nov 2026 22:47:12 GMT
+
+https://collider.com/best-sci-fi-show-like-the-twilight-zone-outer-limits-series/
+
+Before modern sci-fi thrillers, The Outer Limits rivaled The Twilight Zone with terrifying stories, unsettling twists, and groundbreaking television.
+---------
+
+# The 10 Greatest Thriller Books of the 20th Century
+
+Books and Comics, Books, Thriller, Jurassic Park, The Silence of the Lambs
+
+Sat, 14 Nov 2026 22:31:12 GMT
+
+https://collider.com/best-thriller-books-20th-century/
+
+From Jurassic Park to The Silence of the Lambs, these great thriller books turn ambition, deception, and human weaknesses into unforgettable suspense.
+---------
+
+# Jason Statham’s 116-Minute ‘John Wick’ Replacement Officially Wins Over Fans on Prime Video
+
+Movie News, A Working Man, Jason Statham, David Ayer, Prime Video
+
+Sat, 14 Nov 2026 22:31:12 GMT
+
+https://collider.com/jason-statham-a-working-man-prime-video-streaming-success-november-2026/
+
+Jason Statham's answer to John Wick is officially winning over fans on Prime Video. Find out more details here.
+---------
+
+# Quentin Tarantino’s Western Mystery Officially Removed From Streaming
+
+Movie News, Quentin Tarantino, The Hateful Eight, Western, Tubi
+
+Sat, 14 Nov 2026 22:15:12 GMT
+
+https://collider.com/quentin-tarantino-western-hateful-eight-leaving-tubi-december-2026/
+
+Quentin Tarantino's epic spaghetti Western chamber piece, The Hateful Eight, is about to be removed from its streaming home.
+---------
+
+# Forget ‘Yellowstone,’ Taylor Sheridan’s Historical Western Is a Masterpiece
+
+TV Features, Yellowstone, 1883, Tim McGraw, Taylor Sheridan
+
+Sat, 14 Nov 2026 22:10:12 GMT
+
+https://collider.com/1883-yellowstone-taylor-sheridan-historical-western-masterpiece/
+
+Yellowstone may be Taylor Sheridan's most famous show, but the prequel 1883 is the one that has become a true masterpiece on Paramount+.
+---------
+
+# New 135-Minute Sci-Fi Masterpiece Officially Clears a Major Marvel Milestone at the Box Office
+
+Movie News, Box Office Milestones, Avengers: Endgame Encore, Sci-Fi, Superhero, Godzilla Minus Zero
+
+Sat, 14 Nov 2026 23:00:16 GMT
+
+https://movieweb.com/godzilla-minus-zero-marvel-box-office/
+
+A Japanese blockbuster has now passed one of Marvel’s biggest 2026 theatrical plays at the domestic box office.
+---------
+
+# Robert De Niro's Long-Awaited Crime Thriller Sequel Sets Filming Date Despite Major Legal Battle
+
+Movie News, Heat 2, Leonardo DiCaprio, Crime, Thriller
+
+Sat, 14 Nov 2026 22:31:01 GMT
+
+https://movieweb.com/heat-2-filming-date-confirmed/
+
+The sequel's A-list cast includes Leonardo DiCaprio, Christian Bale, Adam Driver, and Stephen Graham.
+---------
+
+# Prime Video’s 8-Part Historical Fantasy Series Was So Good, Even George R.R. Martin Wanted More Episodes
+
+Features, My Lady Jane, Fantasy, George R.R. Martin, Prime Video
+
+Sat, 14 Nov 2026 22:00:16 GMT
+
+https://movieweb.com/my-lady-jane-recommendation/
+
+One of Prime Video's most underrated fantasy series is a historical reimagining infused with magic and romance — one that deserves another season.
+---------
+
+# Netflix's Near-Perfect 5-Part "Ridley Scott Meets Vikings" Action Epic Is Being Cut From Streaming
+
+TV News, The Last Kingdom, Netflix, Coming/Leaving Streaming, Ridley Scott, Vikings, Action
+
+Sat, 14 Nov 2026 22:00:16 GMT
+
+https://movieweb.com/the-last-kingdom-leaving-netflix-stream-december-2026/
+
+Netflix is removing yet another hit action series. This is your last call to watch it before it's too late.
+---------
+
+# ‘The Lord of the Rings’ Officially Replaces Gollum
+
+Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Sat, 14 Nov 2026 21:00:16 GMT
+
+https://movieweb.com/rings-of-power-marnukh-gollum-comparison/
+
+'The Rings of Power' Season 3 introduces a character whose journey mirrors Gollum's in 'The Lord of the Rings.'
+---------
+
+# David Tennant's Near-Perfect 3-Part Crime Thriller Is Officially Being Cut From Streaming
+
+TV News, Broadchurch, Roku, Coming/Leaving Streaming, David Tennant, Crime, Thriller
+
+Sat, 14 Nov 2026 20:00:16 GMT
+
+https://movieweb.com/broadchurch-leaving-streaming-roku-november-2026/
+
+David Tennant's Near-Perfect 3-Part Crime Thriller Is Officially Being Cut From Streaming
+---------
+
+# Jonathan Nolan's 103-Episode Cyberpunk Series Feels Like a Documentary & It's Ripe For a Reboot
+
+Features, Person of Interest, Sci-Fi, Crime
+
+Sat, 14 Nov 2026 20:00:16 GMT
+
+https://movieweb.com/person-of-interest-deserves-reboot/
+
+As the concerns around AI grow, this J.J. Abrams series is perfectly timed for a reboot. Here's how that could work.
+---------
+
 # BBC's Hit 3-Season Crime Thriller Officially Ending In 2027
 
 TV, Sherwood, BBC
