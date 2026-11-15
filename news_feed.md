@@ -1,3 +1,421 @@
+# Dungeon Crawler Carl's New $12,350 Release Officially Unveiled
+
+Gaming, Dungeon Crawler Carl
+
+Sun, 15 Nov 2026 04:00:18 GMT
+
+https://screenrant.com/dungeon-crawler-carl-premium-pinball-machine-officially-announced/
+
+Discover the $12,350 Dungeon Crawler Carl pinball machine!
+---------
+
+# 50 Years Later, DC Is Giving A Beloved Justice League Hero Their Own Series
+
+Comics, Justice League, DC Comics
+
+Sun, 15 Nov 2026 04:00:18 GMT
+
+https://screenrant.com/black-lightning-new-series-justice-league-dc-comics/
+
+DC Comics is celebrating Black Lightning's 50th anniversary, and this is an opportunity for Jefferson Pierce to become a major player in comics.
+---------
+
+# Megatron’s Brutal New Form Makes Optimus Prime Look Like A Wimp
+
+Comics, Transformers
+
+Sun, 15 Nov 2026 03:58:54 GMT
+
+https://screenrant.com/megatron-new-form-optimus-wimp-megatronus-rex/
+
+The Energon Universe's Megatron has just received his darkest and most powerful form of all time, and the timing couldn't be worse for Optimus.
+---------
+
+# Forget Black Mirror & Severance, This 16-Episode Masterpiece Nails Existential Sci-Fi
+
+Classic TV, Masked Recs
+
+Sun, 15 Nov 2026 03:30:18 GMT
+
+https://screenrant.com/forget-black-mirror-severance-pantheon-existential-sci-fi/
+
+Black Mirror and Severance are great shows, but they come nowhere close to portraying existential sci-fi like one obscure 16-episode masterpiece.
+---------
+
+# X-Men Writer Has The Perfect Response To Fans Who Want A Classic Couple Broken Up
+
+Comics, X-Men
+
+Sun, 15 Nov 2026 03:30:18 GMT
+
+https://screenrant.com/x-men-rogue-gambit-break-up-answer/
+
+Gail Simone made sure that Uncanny X-Men fans knew Rogue and Gambit’s relationship was safe, in a funny and direct way.
+---------
+
+# Vision's Design For Future MCU Projects Clarified By Paul Bettany
+
+Superheroes, VisionQuest, Marvel Cinematic Universe
+
+Sun, 15 Nov 2026 03:27:02 GMT
+
+https://screenrant.com/visionquest-vision-design-future-mcu-paul-bettany/
+
+Paul Bettany reflects on Vision’s post-VisionQuest redesign and how it represents healing old wounds and forging a future alongside his sons.
+---------
+
+# Naruto’s New Series Is The Perfect Chance To Finally Solve A Decade-Old Mystery
+
+Anime, Naruto
+
+Sun, 15 Nov 2026 03:01:22 GMT
+
+https://screenrant.com/naruto-sequel-shadow-rising-rock-lee-mystery/
+
+One particular mystery has taunted fans of the manga and anime for over a decade, with Naruto's upcoming sequel having a chance to answer it.
+---------
+
+# 10 Best Cowboys & Cowgirls In The Yellowstone Franchise
+
+Streaming TV, Yellowstone
+
+Sun, 15 Nov 2026 03:01:22 GMT
+
+https://screenrant.com/yellowstone-best-cowboy-cowgirls/
+
+The Yellowstone franchise features some extremely skilled cowboys and cowgirls because many of the actors in the show have previous experience.
+---------
+
+# Resident Evil 10 Officially Confirmed By Capcom
+
+Gaming, Resident Evil, Resident Evil 9
+
+Sun, 15 Nov 2026 03:01:22 GMT
+
+https://screenrant.com/resident-evil-10-officially-confirmed-by-capcom/
+
+Resident Evil is very much back at the top of the tree right now, and Capcom's plans for the future have been laid out.
+---------
+
+# HBO's Harry Potter Season 1 Clip Shows Harry’s First Night Dining At Hogwarts
+
+TV, Harry Potter
+
+Sun, 15 Nov 2026 02:45:46 GMT
+
+https://screenrant.com/harry-potter-season-1-hbo-clip-harry-first-night-hogwarts/
+
+HBO's highly anticipated TV reboot of Harry Potter has dropped another preview of the first season of the franchise's upcoming adaptation.
+---------
+
+# Dandadan Officially Loses No. 1 Spot to the Biggest Returning Series of 2027
+
+Anime, Dandadan, Spy X Family
+
+Sun, 15 Nov 2026 04:00:12 GMT
+
+https://www.cbr.com/dandadan-spy-x-family-manga-sales-2026/
+
+New Japanese manga rankings showcase how rapidly the Dandadan series is losing ground to another popular Shonen Jump action IP.
+---------
+
+# 10 Most Valuable Mega Evolution Pokémon Cards, Ranked by Price
+
+Games, Pokemon, Pokemon TCG, Pokemon Trading Card Game
+
+Sun, 15 Nov 2026 03:45:11 GMT
+
+https://www.cbr.com/most-valuable-mega-evolution-pokemon-cards-ranked-by-price/
+
+So far, Pokémon TCG's Mega Evolution era has nine sets, and these are the most valuable cards from it, so far.
+---------
+
+# 10 Hard Sci-Fi Movies Better Than Project Hail Mary
+
+Movies, Project Hail Mary, Sci-Fi, Innovation
+
+Sun, 15 Nov 2026 03:30:12 GMT
+
+https://www.cbr.com/masterpiece-hard-sci-fi-movies-better-than-project-hail-mary-list/
+
+Project Hail Mary took the sci-fi world by storm, but these 10 hard sci-fi masterpieces are even better.
+---------
+
+# HBO's 2-Season Sleeper Remains the Scariest Horror Show in TV History, 8 Years Later
+
+TV, Folklore, Horror, hbo
+
+Sun, 15 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/hbo-folklore-scariest-horror-anthology/
+
+Bringing several terrifying myths to life, HBO's Folklore is among the strongest and scariest horror series of the past decade.
+---------
+
+# 10 Most Unplayable RPGs From the '90s, Ranked
+
+Games, Role Playing Game, Video Games
+
+Sun, 15 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/most-unplayable-rpgs-from-the-90s/
+
+'90s RPGs like The 7th Saga and Quest 64 are just dreadful to play today.
+---------
+
+# 10 Strongest Monsters in Anime History, Ranked
+
+Anime, Innovation
+
+Sun, 15 Nov 2026 02:45:12 GMT
+
+https://www.cbr.com/strongest-monsters-in-anime-history-ranked-list/
+
+Anime like Attack on Titan and Re:Zero are home to some of the most powerful anime monsters ever.
+---------
+
+# 10 Most Unwatchable Movie Sequels of All Time
+
+Movies
+
+Sun, 15 Nov 2026 02:30:12 GMT
+
+https://www.cbr.com/most-unwatchable-movie-sequels/
+
+Franchises destroyers like Jaws: The Revenge and Batman and Robin top this list of the most unwatchable movie sequels of all time.
+---------
+
+# 10 Most Unplayable Single-Player Games of All Time, Ranked
+
+Games, Video Games, The Lord of the Rings, Sonic the Hedgehog
+
+Sun, 15 Nov 2026 02:25:11 GMT
+
+https://www.cbr.com/most-unplayable-single-player-games-of-all-time/
+
+Titles like Sonic Boom and Big Rigs stand among some of the worst single-player games ever made.
+---------
+
+# HBO's New Harry Potter Sneak Peak Shows How the New Adaptation Expands the Lore
+
+TV, Harry Potter
+
+Sun, 15 Nov 2026 02:17:19 GMT
+
+https://www.cbr.com/hbo-harry-potter-season-1-sneak-peek/
+
+HBO's Harry Potter will get a chance to expand the lore with more runtime, and a new sneak peek from Season 1 shows how.
+---------
+
+# 7 Near-Perfect Prime Video Miniseries You Can Binge in One Sitting
+
+TV, Prime Video, TV Miniseries, Fleabag, Dead Ringers
+
+Sun, 15 Nov 2026 02:33:12 GMT
+
+https://collider.com/prime-video-near-perfect-miniseries-binge/
+
+The Girlfriend, Dead Ringers, I'm a Virgo, Swarm, and more make up our list of near-perfect Prime Video miniseries you can binge in one sitting.
+---------
+
+# Tom Hanks’ $760M Mystery Thriller Is Officially Making an HBO Max Comeback
+
+Movie News, The Da Vinci Code, HBO Max, Streaming, Thriller
+
+Sun, 15 Nov 2026 02:15:12 GMT
+
+https://collider.com/the-da-vinci-code-streaming-hit-hbo-max-november-2026/
+
+The hugely controversial box office hit The Da Vinci Code is a smash hit on HBO Max. Read on for more.
+---------
+
+# 8 Survival Thrillers That Are 10/10 Masterpieces, Ranked
+
+Movie, Thriller, The Martian, Send Help, Cast Away
+
+Sun, 15 Nov 2026 02:10:12 GMT
+
+https://collider.com/survival-thrillers-perfect-masterpieces/
+
+From Cast Away to The Martian, these survival thrillers are simply the best.
+---------
+
+# CBS’ New ‘Lincoln Lawyer’ Replacement Just Proved Network TV Isn’t Dead
+
+TV Features, Cupertino, Mike Colter, Robert King, Michelle King, CBS
+
+Sun, 15 Nov 2026 02:01:12 GMT
+
+https://collider.com/cupertino-lincoln-lawyer-replacement-network-tv-success/
+
+CBS' latest new series, Cupertino, proves that network TV is still just as good as streaming with its quality storytelling and strong cast.
+---------
+
+# Netflix Officially Loses Its Best Historical Epic Next Month
+
+TV News, Netflix, The Last Kingdom, The Last Kingdom: Seven Kings Must Die, History
+
+Sun, 15 Nov 2026 02:00:12 GMT
+
+https://collider.com/the-last-kingdom-leaving-netflix-december-2026/
+
+The Last Kingdom is leaving Netflix in the U.S. next month. All five seasons will be removed, but Seven Kings Must Die remains.
+---------
+
+# Gerard Butler’s R-Rated Action Blockbuster Officially Loses Its Streaming Home
+
+Movie News, 300, Zack Snyder, Gerard Butler, Paramount Plus
+
+Sun, 15 Nov 2026 01:45:12 GMT
+
+https://collider.com/zack-snyder-300-leaving-paramount-plus-december-2026/
+
+Zack Snyder's action-fantasy blockbuster, 300, is about to be removed from Paramount+. Find out when.
+---------
+
+# Cillian Murphy’s Ambitious Sci-Fi Gem Has Officially Taken Over Apple TV
+
+Movie News, Cillian Murphy, Sunshine, Sci-Fi, Apple TV
+
+Sun, 15 Nov 2026 01:30:12 GMT
+
+https://collider.com/sunshine-streaming-hit-apple-tv-november-2026/
+
+Cillian Murphy's ambitious sci-fi team-up with the duo behind 28 Days Later is taking over Apple TV. Read on for more.
+---------
+
+# ‘John Wick’ Meets ‘Slow Horses’ in the 115-Minute Hit Being Removed From HBO Max
+
+Movie News, Atomic Blonde, Charlize Theron, James McAvoy, HBO Max
+
+Sun, 15 Nov 2026 01:15:12 GMT
+
+https://collider.com/charlize-theron-atomic-blonde-leaving-hbo-max-december-2026/
+
+Charlize Theron and James McAvoy star in the John Wick-style espionage action movie Atomic Blonde, which is about to be removed from HBO Max.
+---------
+
+# 7 Best Romance Books That Started As Fanfiction
+
+Books and Comics, Romance, Fifty Shades of Grey, The Love Hypothesis, Star Wars
+
+Sun, 15 Nov 2026 01:04:12 GMT
+
+https://collider.com/romance-books-started-as-fanfiction/
+
+Inspiration can spark from anywhere, and some romance books, including Fifty Shades of Grey and The Love Hypothesis, originated from fanfiction.
+---------
+
+# ‘Landman’ Season 3 Officially Enters ‘Yellowstone’ Territory
+
+TV News, Landman, Taylor Sheridan, Yellowstone, Billy Bob Thornton
+
+Sun, 15 Nov 2026 01:00:12 GMT
+
+https://collider.com/landman-season-3-filming-yellowstone-taylor-sheridan-ranch/
+
+Landman Season 3 is filming at Taylor Sheridan’s famous Bosque Ranch and Four Sixes Ranch, two locations Yellowstone fans will recognize.
+---------
+
+# Chris Pratt Officially Addresses James Gunn Returning for 'Guardians of the Galaxy' Sequel After DC Exit
+
+Movie News, DCU, Guardians of the Galaxy, James Gunn, Chris Pratt, Action, Adventure, Drama, Comedy, Superhero
+
+Sun, 15 Nov 2026 03:53:43 GMT
+
+https://movieweb.com/chris-pratt-james-gunn-mcu-return/
+
+After James Gunn's shocking exit from DC Studios, some are wondering if this could lead to a reunion with Marvel for another 'Guardians' movie.
+---------
+
+# What It Really Means When 'Street Fighter' Dropped Thousands of Theaters
+
+Features, Street Fighter, Box Office, Action
+
+Sun, 15 Nov 2026 03:30:16 GMT
+
+https://movieweb.com/street-fighter-theater-drop-explained/
+
+'Street Fighter' losing over a thousand screens is on par with a movie of its size and box office performance.
+---------
+
+# 19 Years Later, HBO's Ambitious 22-Episode Historical Epic War Series Is Ripe for a Reboot
+
+Features, Rome, History, HBO Max
+
+Sun, 15 Nov 2026 03:00:26 GMT
+
+https://movieweb.com/rome-hbo-deserves-reboot/
+
+One of HBO's most prestigious dramas ended prematurely, and nearly two decades later the timing is right to consider rebooting it in a new form.
+---------
+
+# ‘The Rings of Power’ Rewrites 72 Years of ‘Lord of the Rings’ Lore With Its Nazgul Replacement
+
+Features, The Lord of the Rings: The Rings of Power, Fantasy, The Lord of the Rings
+
+Sun, 15 Nov 2026 02:00:16 GMT
+
+https://movieweb.com/rings-of-power-nazgul-change/
+
+The Prime Video show expands on the villains from J.R.R. Tolkien's canon, adding a step between them being Men and Ringwraiths.
+---------
+
+# 'Harry Potter' Reboot Officially Releases First Full Footage of Hogwarts Magic
+
+TV News, Harry Potter, Fantasy, Adventure, Mystery, Drama
+
+Sun, 15 Nov 2026 01:48:02 GMT
+
+https://movieweb.com/harry-potter-hbo-first-clip/
+
+Dominic McLaughlin and John Lithgow take the spotlight in the first full clip from the new 'Harry Potter' series.
+---------
+
+# Petition to Bring Back James Gunn Officially Crosses 200,000 Signatures After His Shock DC Exit
+
+Movie News, James Gunn, DCU, David Ellison, Warner Bros. 75th Anniversary: No Guts, No Glory
+
+Sun, 15 Nov 2026 01:21:03 GMT
+
+https://movieweb.com/james-gunn-dc-petition/
+
+Petition to bring beloved James Gunn back to DC crosses 200,000.
+---------
+
+# 10 Best 'Peanuts' Comic Strips About Thanksgiving
+
+Movie Lists, Peanuts, comics, A Charlie Brown Thanksgiving
+
+Sun, 15 Nov 2026 01:00:16 GMT
+
+https://movieweb.com/peanuts-best-thanksgiving-comic-strips/
+
+Like every holiday, Charles Schulz balanced humor and heart, making Peanuts relatable through Snoopy, Charlie Brown, Spike, and the rest of the gang.
+---------
+
+# Anne Hathaway's 99-Minute Sci-Fi Adventure Smash Hit Officially Takes Over Streaming Days After Arriving
+
+Movie News, Anne Hathaway, Sci-Fi, Adventure, Hot on Streaming, HBO Max
+
+Sun, 15 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/the-end-of-oak-street-november-2026/
+
+One of the summer’s better-reviewed sci-fi movies appears to be getting a much stronger reception now that it has hit streaming.
+---------
+
+# Hugh Jackman Officially Confirms Key Role Weeks Before Avengers: Doomsday Release
+
+Movie News, Avengers: Doomsday, Hugh Jackman, Action, Adventure, Superhero, Drama
+
+Sat, 14 Nov 2026 23:59:26 GMT
+
+https://movieweb.com/avengers-doomsday-hugh-jackman-role/
+
+26 years after starting his run as Wolverine, Hugh Jackman will add a different kind of expertise to 'Avengers: Doomsday.'
+---------
+
 # All 3 NCIS Shows Pulled From CBS Schedule For Another Week
 
 TV, NCIS
