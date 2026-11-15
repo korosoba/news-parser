@@ -1,3 +1,443 @@
+# John Wick Director’s New Heist Thriller Filmed 2 Completely Different Endings
+
+Movies, How to Rob a Bank
+
+Sun, 15 Nov 2026 18:41:36 GMT
+
+https://screenrant.com/how-to-rob-a-bank-two-endings-filmed-nicholas-hoult-explained/
+
+A new heist thriller movie helmed by John Wick director David Leitch filmed two completely different endings for Nicholas Hoult's character.
+---------
+
+# 6-Part Sci-Fi Miniseries On HBO Is A Rare Show Where Every Episode Is Great
+
+Classic TV, HBO
+
+Sun, 15 Nov 2026 18:30:18 GMT
+
+https://screenrant.com/years-and-years-sci-fi-show-every-episode-great/
+
+HBO's underrated sci-fi miniseries Years and Years not only consists of six note-perfect episodes, but it also has a Doctor Who connection.
+---------
+
+# Fire Country's Biggest Weakness Is Becoming Sheriff Country's Greatest Strength
+
+Network TV, Fire Country, Sheriff Country
+
+Sun, 15 Nov 2026 18:16:18 GMT
+
+https://screenrant.com/sheriff-country-strength-fire-country-weakness/
+
+Sheriff Country's character-driven approach outshines Fire Country's plot focus, making it the better CBS series.
+---------
+
+# 47 Years Later, The Far Side's First Comic Is Even Funnier Than It Was In 1979
+
+Comics
+
+Sun, 15 Nov 2026 18:13:35 GMT
+
+https://screenrant.com/far-side-first-comic-1979-funny/
+
+With The Far Side approaching its 47th anniversary, it's time to revisit the iconic strip that started it all, which has only gotten funnier with age.
+---------
+
+# Robert Downey Jr.'s Latest MCU Cameo Makes Avengers History
+
+Superheroes, Marvel Cinematic Universe
+
+Sun, 15 Nov 2026 18:03:18 GMT
+
+https://screenrant.com/robert-downey-jr-visionquest-cameo-doom-thanos-record/
+
+Despite one big criticism being aimed at Robert Downey Jr.'s Doctor Doom, the character just tied an important record for the Avengers franchise.
+---------
+
+# 8 Of The Greatest Comic Villains Created In The 2010s
+
+Comics
+
+Sun, 15 Nov 2026 18:00:19 GMT
+
+https://screenrant.com/greatest-comic-villains-past-20-years/
+
+Although most of the greatest comic book villains are decades-old, the 2010s boast many respectable entries.
+---------
+
+# New Skyrim Replacement Will Keep You Busy Until The Elder Scrolls 6
+
+Gaming, The Elder Scrolls 6: Sentinel, RPG, Indie Games
+
+Sun, 15 Nov 2026 18:00:19 GMT
+
+https://screenrant.com/skyrim-elder-scrolls-6-replacement-wayward-realms/
+
+A brand-new open-world fantasy RPG is in the making, and it’s going to be a perfect replacement for Skyrim as you wait for The Elder Scrolls 6.
+---------
+
+# All 7 Guy Ritchie Crime Movies, Ranked Worst To Best
+
+Movies, Guy Ritchie
+
+Sun, 15 Nov 2026 17:55:18 GMT
+
+https://screenrant.com/guy-ritchie-crime-movies-ranked/
+
+After The Gentlemen's success, Guy Ritchie might well be the king of British crime movies and shows, but which of his underworld stories is the best?
+---------
+
+# Recasting Doctor Who's 2005 Relaunch If It Happened Today: All 7 Main Characters
+
+Classic TV, Doctor Who
+
+Sun, 15 Nov 2026 17:45:18 GMT
+
+https://screenrant.com/doctor-who-2005-relaunch-casting/
+
+The Ninth Doctor helped relaunch Doctor Who, and here's who could play the main and recurring characters in his era if it were made today.
+---------
+
+# Whether Avatar: The Last Airbender's New Spinoff Retconned Korra's Most Divisive Moment Revealed By Creators
+
+TV, Avatar: Seven Havens, The Legend of Korra, Avatar: The Last Airbender
+
+Sun, 15 Nov 2026 17:42:08 GMT
+
+https://screenrant.com/avatar-seven-havens-korra-avatar-cycle-restored/
+
+Avatar: Seven Havens creators addresses how Pavi's growth as the Avatar could have lasting effects, including undoing an infamous Korra mistep.
+---------
+
+# The 7-Part Netflix Drama Stephen King Called 'the Best of the Best'
+
+TV, Stephen King, The Queen's Gambit, Netflix, Innovation
+
+Sun, 15 Nov 2026 18:30:12 GMT
+
+https://www.cbr.com/netflix-the-queens-gambit-stephen-king-approved/
+
+The Queen's Gambit traded spectacle for quiet psychological stakes and earned sweeping Emmy recognition, along with a few famous fans.
+---------
+
+# 15 Most Highly-Anticipated Games Of 2027
+
+Games, Final Fantasy, Resident Evil, Kingdom Hearts
+
+Sun, 15 Nov 2026 18:15:12 GMT
+
+https://www.cbr.com/most-highly-anticipated-games-of-2027/
+
+2027 is a year that's already packed with amazing releases, with Resident Evil, Final Fantasy, and Kingdom Hearts all bringing their A-game.
+---------
+
+# Doctor Doom’s Latest MCU Appearance Has Fans Speculating About a Forgotten Secret Wars Comics Villain
+
+Comics, Doctor Doom, MCU, Marvel Comics, Secret Wars
+
+Sun, 15 Nov 2026 18:00:12 GMT
+
+https://www.cbr.com/doctor-dooms-latest-mcu-appearance-has-fans-speculating-about-a-forgotten-secret-wars-comics-villain/
+
+As the premiere of Avengers: Doomsday approaches, fans speculate that another villain may be lurking in the shadows, leading into the Secret Wars.
+---------
+
+# Taylor Sheridan Is Finally Giving Tulsa King's Worst Character a Long-Overdue Upgrade
+
+TV, Tulsa King, Paramount Plus, Innovation
+
+Sun, 15 Nov 2026 17:30:12 GMT
+
+https://www.cbr.com/tulsa-king-season-4-vince-antonacci-character-arc/
+
+Tulsa King Season 4 just turned one of the show's most annoying characters, Vince Antonacci, into a welcome, likable mainstay.
+---------
+
+# 10 Most Perfect Anime to Cosplay In 2026
+
+Anime, cosplay, Witch Hat Atelier, Innovation
+
+Sun, 15 Nov 2026 17:16:11 GMT
+
+https://www.cbr.com/perfect-anime-cosplay-2026/
+
+Anime series like Witch Hat Atelier and Gachiakuta feature excellent character designs cosplayers must replicate in real life.
+---------
+
+# Danny DeVito's 30-Year-Old Fantasy Classic Returns as 1 of HBO Max's Most-Streamed Movies
+
+Movies, Matilda, Fantasy, HBO Max
+
+Sun, 15 Nov 2026 17:01:12 GMT
+
+https://www.cbr.com/danny-devito-matilda-fantasy-comedy-hbo-max-success-november-2026/
+
+Danny DeVito's beloved fantasy comedy Matilda is a global streaming hit.
+---------
+
+# Gundam Gives 1 of Its Most Colorful Mecha an Exclusive Glittering Redesign
+
+Anime, Mobile Suit Gundam, Gundam Build Metaverse, merchandise, toys, bandai
+
+Sun, 15 Nov 2026 17:01:12 GMT
+
+https://www.cbr.com/gundam-build-strike-exceed-galaxy-plavsky-particle-clear-model-kit/
+
+GUNDAM BASE will soon have a new exclusive entry grade model kit, with this clear collectible based on one of the more experimental Gundam anime.
+---------
+
+# Forgotten Marvel Villain Finally Getting First Solo Story From Surprising Writer
+
+Comics, Marvel Comics
+
+Sun, 15 Nov 2026 17:01:12 GMT
+
+https://www.cbr.com/marvel-winter-break-special-2026-1-stilt-man-david-harper/
+
+A Marvel foe receives a boost from an unexpected source.
+---------
+
+# 10 Masterpiece Movies Recommended by Stephen King
+
+Movies, Stephen King
+
+Sun, 15 Nov 2026 17:01:12 GMT
+
+https://www.cbr.com/best-movies-stephen-king-recommendation-list/
+
+Over the years, legendary horror author Stephen King has put his stamp of approval on many great movies, but these 10 stand out as some of the best.
+---------
+
+# JJ Abrams' New 99-Minute Jurassic World Copycat Instantly Becomes the King of HBO Max
+
+Movies, Sci-Fi, Jurassic Park, The End of Oak Street, HBO Max
+
+Sun, 15 Nov 2026 16:59:44 GMT
+
+https://www.cbr.com/jj-abrams-jurassic-world-copycat-dominates-hbo-max-streaming/
+
+It took only one day for the Cloverfield creator's latest film to take over the streaming world.
+---------
+
+# Disney's 'Agatha All Along' Replacement Has Already Solved 1 Major Problem
+
+TV Features, Coven Academy, Disney, Drama, Fantasy
+
+Sun, 15 Nov 2026 18:59:12 GMT
+
+https://collider.com/coven-academy-season-1-problem-disney-agatha-all-along-replacement/
+
+Disney's Coven Academy is a new series perfect for fans of witchy adventures — and it doubles as an answer to Agatha All Along's biggest problem.
+---------
+
+# The Quentin Tarantino Western He Once Called “Traumatizing” Is Officially Free to Stream
+
+Movie News, Django Unchained, Quentin Tarantino, Pluto TV, Christoph Waltz
+
+Sun, 15 Nov 2026 18:30:12 GMT
+
+https://collider.com/quentin-tarantino-django-unchained-streaming-free-pluto-tv-november-2026/
+
+Quentin Tarantino's near-three-hour Western epic he featured would traumatize audiences is officially available to stream for free.
+---------
+
+# 6 Superhero Movies From the 2010s That Are 10/10 Masterpieces
+
+Movie, Superhero, Marvel, Spider-Man Into the Spider-Verse, Guardians of the Galaxy
+
+Sun, 15 Nov 2026 18:04:12 GMT
+
+https://collider.com/superhero-movies-2010s-perfect-masterpieces/
+
+Spider-Man: Into the Spider-Verse, Guardians of the Galaxy, and Kick-Ass are among the best superhero movie masterpieces of the 2010s decade.
+---------
+
+# ‘Peaky Blinders’ Creator’s Sci-Fi Series Officially Extends Its Impressive Streaming Run
+
+TV News, Apple TV, See, Sci-Fi, Drama
+
+Sun, 15 Nov 2026 17:31:12 GMT
+
+https://collider.com/see-apple-tv-sci-fi-streaming-success-november-2026/
+
+Apple TV's underrated sci-fi thriller has found new life on streaming four years after it ended. Get more details here.
+---------
+
+# The 6 Best Books Released Since 2020, According to Goodreads
+
+Books and Comics, The Hunger Games, Books, Andy Weir, Brandon Sanderson
+
+Sun, 15 Nov 2026 17:06:13 GMT
+
+https://collider.com/best-books-since-2020-goodreads/
+
+Sunrise on the Reaping by Suzanne Collins and Project Hail Mary by Andy Weir are among the best books released since 2000, according to Goodreads.
+---------
+
+# Johnny Depp’s ‘Ebenezer’ Officially Exceeds Box Office Expectations
+
+Movie News, Ebenezer, Johnny Depp, Box Office, Ti West
+
+Sun, 15 Nov 2026 17:00:12 GMT
+
+https://collider.com/johnny-depp-ebenezer-box-office-opening-weekend-43-million/
+
+Johnny Depp’s Ebenezer officially beats box office expectations as the Pirates of the Caribbean star returns to theaters after 8 years.
+---------
+
+# Taylor Sheridan’s New Western Hit Beat ‘Yellowstone’ at Its Own Game
+
+TV Features, Yellowstone, Marshals, Dutton Ranch, Taylor Sheridan
+
+Sun, 15 Nov 2026 16:54:12 GMT
+
+https://collider.com/taylor-sheridan-marshals-western-yellowstone-franchise/
+
+The Yellowstone spin-off, Marshals, is a smash hit and it proves the greatest asset of the Yellowstone universe isn't just John Dutton.
+---------
+
+# Nicholas Hoult’s New Heist Movie Officially Faces a Hold-Up at the Box Office
+
+Movie News, Nicholas Hoult, How to Rob a Bank, David Leitch, Box Office
+
+Sun, 15 Nov 2026 16:30:12 GMT
+
+https://collider.com/how-to-rob-a-bank-box-office-opening-4-million/
+
+How to Rob a Bank, starring Superman actor Nicholas Hoult, faces an uphill battle at the global box office following poor reviews.
+---------
+
+# ‘MobLand’ Star’s New Thriller Officially Removed From Nearly 1K Theaters Ahead of Digital Release
+
+Movie News, A Talent for Murder, Helen Mirren, Olivia Cooke, Box Office
+
+Sun, 15 Nov 2026 16:00:12 GMT
+
+https://collider.com/a-talent-for-murder-helen-mirren-digital-release-november-2026/
+
+Helen Mirren’s crime thriller A Talent for Murder officially arrives on digital this week after being removed from over 800 theaters.
+---------
+
+# The 10 Best Grass-Type Pokemon, Ranked
+
+Gaming, Pokémon, Pokemon GO, Fantasy, Video Game
+
+Sun, 15 Nov 2026 15:33:12 GMT
+
+https://collider.com/best-grass-type-pokemon-ranked/
+
+There have been many standout Grass-type Pokemon over the years, from timeless starters like Venusaur to Mythical Pokemon like Shaymin.
+---------
+
+# It's Officially the End of an Era for Apple TV's Near-Perfect Spy Thriller Series
+
+TV News, Slow Horses, Thriller, Apple TV
+
+Sun, 15 Nov 2026 18:58:09 GMT
+
+https://movieweb.com/slow-horses-fate-confirmed/
+
+After years of defying the usual streaming slowdown, Slow Horses may finally be nearing the finish line.
+---------
+
+# James Gunn Is Already Being Eyed as Dream Director for New Action Movie After DC Exit
+
+Movie News, James Gunn, Mahershala Ali
+
+Sun, 15 Nov 2026 18:40:46 GMT
+
+https://movieweb.com/james-gunn-mahershala-ali-action/
+
+This would be a dream project between two people who have both been burned by the superhero-industrial complex.
+---------
+
+# ‘GTA 6’ Officially Justifies Its 13-Year Wait With Stunning New Features Days Before Launch
+
+Movie News, Grand Theft Auto 6, Grand Theft Auto
+
+Sun, 15 Nov 2026 18:36:52 GMT
+
+https://movieweb.com/grand-theft-auto-6-justifies-its-13-year-wait/
+
+'GTA VI' centers on a young couple whose bond the player must nurture while a hyperreal world hums with detail.
+---------
+
+# 'John Wick' Director's New Action Heist Thriller Beats 'GTA 6' at Its Own Game 1 Week Ahead of Release
+
+Features, John Wick, How to Rob a Bank, David Leitch, Action, Thriller, Crime, Grand Theft Auto 6, video games
+
+Sun, 15 Nov 2026 18:00:17 GMT
+
+https://movieweb.com/how-to-rob-a-bank-gta-6-comparison/
+
+'John Wick' director's latest heist thriller oozes style and is the closest thing we've gotten to an official 'GTA' movie.
+---------
+
+# The 8 Best Spaghetti Western Movies Not Directed By Sergio Leone, Ranked
+
+Movie Lists, Western, Sergio Leone
+
+Sun, 15 Nov 2026 18:00:17 GMT
+
+https://movieweb.com/spaghetti-westerns-not-sergio-leone/
+
+A ranked list of the best Spaghetti Western movies made by directors other than Sergio Leone.
+---------
+
+# Ridley Scott's Sci-Fi Classic Officially Eyes a Major Expansion Ahead of Sequel Series
+
+TV News, Blade Runner 2099, Ridley Scott, Sci-Fi
+
+Sun, 15 Nov 2026 17:51:14 GMT
+
+https://movieweb.com/blade-runner-aaa-video-game/
+
+With Blade Runner 2099 about to debut, the franchise’s owners are signaling that a big-budget gaming push is at least on the table.
+---------
+
+# 29 Years Later, Ian Holm’s 112-Minute Masterpiece Officially Sets New Release
+
+Movie News, The Sweet Hereafter, Ian Holm, Criterion Collection, Drama
+
+Sun, 15 Nov 2026 17:28:49 GMT
+
+https://movieweb.com/the-sweet-hereafter-criterion-release/
+
+The Criterion Collection is rereleasing this Oscar-nominated classic.
+---------
+
+# 16 Years Later, Ridley Scott's 8-Part Historical Epic Miniseries Still Has One of the Best Casts in TV History
+
+Features, Ridley Scott, The Pillars of the Earth, TV Miniseries, Drama
+
+Sun, 15 Nov 2026 17:00:18 GMT
+
+https://movieweb.com/pillars-of-the-earth-streaming-recommendation/
+
+Set in 12th-century England, this eight-part series made by Ridley Scott has a cast that deserves another look, especially after many went on to fame.
+---------
+
+# Netflix's 2004-Set Thriller Creator Predicts Young People Will Spend More Time Offline
+
+Exclusives, Netflix, The Body, Drama
+
+Sun, 15 Nov 2026 16:54:35 GMT
+
+https://movieweb.com/the-body-creator-offline/
+
+Quinn Shephard, the creator of one of Netflix's most exciting new dramas, tells us what's coming next.
+---------
+
+# Audiences Officially Defend Johnny Depp's New 116-Minute Gothic Fantasy Epic From Divided Critics
+
+Movie News, Ebenezer, Fantasy, Johnny Depp
+
+Sun, 15 Nov 2026 16:40:01 GMT
+
+https://movieweb.com/ebenezer-johnny-depp-audience-reaction/
+
+This darker take on A Christmas Carol appears to be dividing critics and audiences for largely the same reasons.
+---------
+
 # Hogwarts Legacy: Godric’s Hollow Announced
 
 Gaming, Hogwarts Legacy
