@@ -1,3 +1,443 @@
+# Cristiano Ronaldo's Ted Lasso-Like TV Series Has Already Made Its First Mistake
+
+Streaming TV, Masked Recs
+
+Sun, 15 Nov 2026 23:16:18 GMT
+
+https://screenrant.com/day-1s-ted-lasso-series-mistake/
+
+Cristiano Ronaldo and Matthew Vaughn’s Ted-Lasso-like Paramount TV series, Days 1s, has made a foundational decision that will make or break the show.
+---------
+
+# Canceled Star Wars Movie Is Back In The Spotlight After Actor Reignites Controversy
+
+Movies, Star Wars
+
+Sun, 15 Nov 2026 23:01:22 GMT
+
+https://screenrant.com/star-wars-canceled-hunt-for-ben-solo-adam-drive-new-comments/
+
+One of Star Wars most controversial cancelations has stepped back into the spotlight after one of the franchise's actors speaks up once again.
+---------
+
+# Netflix Might As Well Have 2026's 'Sitcom Of The Year' Award Now
+
+Streaming TV, Netflix
+
+Sun, 15 Nov 2026 23:00:18 GMT
+
+https://screenrant.com/north-of-north-netflix-best-sitcom-2026/
+
+Netflix has introduced some fantastic sitcoms, but the second season of North of North has beaten the hidden gem's already-impressive RT score
+---------
+
+# The One Series Solo Leveling Can't Beat Is Officially Returning In 2 Weeks
+
+Anime, Manhwa, Masked Recs
+
+Sun, 15 Nov 2026 23:00:18 GMT
+
+https://screenrant.com/solo-leveling-rival-omniscient-reader-viewpoint/
+
+As Solo Leveling revels in the renewed hype surrounding Solo Leveling: Ragnarok, its biggest rival just locked down its return.
+---------
+
+# The Last Of Us Part 3 Gets Official Update From Naughty Dog
+
+Gaming, The Last of Us, The Last of Us 3, The Last of Us Part 2
+
+Sun, 15 Nov 2026 23:00:18 GMT
+
+https://screenrant.com/last-of-us-part-3-teased-official-update/
+
+The Last of Us Part II could easily have been the final release in the series, but it seems as though that might not be the case.
+---------
+
+# Kevin Feige Teases The X-Men & Avengers Finally Teaming Up In The MCU For Doomsday
+
+Movies, Avengers: Doomsday, Marvel Cinematic Universe, X-Men
+
+Sun, 15 Nov 2026 22:43:08 GMT
+
+https://screenrant.com/avengers-doomsday-xmen-crossover-celebration-25-years-kevin-feige/
+
+Avengers: Doomsday is a celebration of icons from the last 25 years of superhero cinema, according to Marvel boss Kevin Feige.
+---------
+
+# 10 Must-Read Gilded Age Dramas for Season 4 Fans
+
+Books, The Gilded Age - Season 4, The Gilded Age, History, Mystery
+
+Sun, 15 Nov 2026 22:39:18 GMT
+
+https://screenrant.com/best-gilded-age-books-season-4/
+
+Explore the top 10 Gilded Age dramas to enhance your experience during Season 4 of the show, featuring must-read classics and new releases.
+---------
+
+# Netflix’s 10/10 School Drama Is The Exact Opposite Of Euphoria
+
+Streaming TV, Netflix
+
+Sun, 15 Nov 2026 22:37:20 GMT
+
+https://screenrant.com/fragrant-flower-blooms-dignity-euphoria-exact-opposite/
+
+Netflix's best school drama is a gentle escape from intense series like Euphoria and 13 Reasons Why, with a gripping yet wholesome story and cast.
+---------
+
+# How Oz Became The Most Controversial Magazine Of All Time
+
+Comics
+
+Sun, 15 Nov 2026 22:30:18 GMT
+
+https://screenrant.com/how-oz-became-the-most-controversial-magazine-of-all-time/
+
+Oz was a 1960s psychedelic provocateur that proved that there was a market for anti-establishment satire.
+---------
+
+# 8 Best Survival Drama Series Of All Time
+
+Classic TV
+
+Sun, 15 Nov 2026 22:30:18 GMT
+
+https://screenrant.com/best-survival-drama-tv-shows/
+
+These eight incredible survival dramas demonstrate the lengths people will go to when trying to survive in the face of overwhelming odds.
+---------
+
+# The Legend of Zelda: Ocarina of Time Remake Review
+
+Games, The Legend of Zelda, The Legend of Zelda: Ocarina of Time, Video Games, Reviews, Innovation
+
+Sun, 15 Nov 2026 23:15:11 GMT
+
+https://www.cbr.com/the-legend-of-zelda-ocarina-of-time-remake-review/
+
+Nintendo did the impossible and improved upon a masterpiece with The Legend of Zelda: Ocarina of Time Remake.
+---------
+
+# Robert Downey Jr.'s $2.9 Billion Sci-Fi Epic Returns as Disney+'s No. 1 Movie With New Scenes
+
+Movies, Avengers: Endgame, MCU, Avengers: Doomsday
+
+Sun, 15 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/avengers-endgame-encore-streaming-success-disney-plus-november-2026/
+
+The biggest movie of all time just took over the streaming charts once again ahead of its upcoming sequel.
+---------
+
+# Studio Ghibli Debuts Its Updated Princess Mononoke Military-Style Jacket
+
+Anime, Princess Mononoke, Studio Ghibli, merchandise, Clothing
+
+Sun, 15 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/studio-ghibli-princess-mononoke-jacket-updated-return/
+
+Studio Ghibli fans just got an updated version of one of the most comfortable collectibles of all time, and it is officially better than ever.
+---------
+
+# Before The White Lotus, Mike White Perfected His Formula in This HBO Hidden Gem
+
+TV, Enlightened, The White Lotus, hbo, Innovation
+
+Sun, 15 Nov 2026 23:00:11 GMT
+
+https://www.cbr.com/enlightened-white-lotus-mike-white-formula-hbo-hidden-gem/
+
+A decade before The White Lotus premiered on HBO, Mike White co-created the comedy-drama Enlightened, which is one of HBO's biggest hidden gems.
+---------
+
+# David Tennant Addresses Doctor Who's Uncertain Future: 'It Deserves to Run Forever'
+
+TV, Doctor Who, david tennant
+
+Sun, 15 Nov 2026 22:22:00 GMT
+
+https://www.cbr.com/david-tennant-doctor-who-future-update/
+
+Doctor Who fan favorite David Tennant speaks about the future of the legendary sci-fi franchise.
+---------
+
+# 5 Most Legendary Anime That Aired On Toonami, Ranked
+
+Anime, toonami, Innovation
+
+Sun, 15 Nov 2026 22:15:12 GMT
+
+https://www.cbr.com/most-legendary-toonami-anime/
+
+Toonami aired some of the most genre-defining anime, a handful of which are still legendary, ranked from best to perfect.
+---------
+
+# Mark Wahlberg and Jason Statham's Italian Job is Better Than the Original
+
+Movies, The Italian Job
+
+Sun, 15 Nov 2026 22:00:11 GMT
+
+https://www.cbr.com/mark-wahlberg-jason-statham-italian-job-reboot-better-than-original/
+
+The heist genre is loved by fans everywhere, and one remake of a classic heist film is far better than the original.
+---------
+
+# 10 Netflix Movies That Are 10/10 Masterpieces
+
+Movies, Netflix
+
+Sun, 15 Nov 2026 21:30:11 GMT
+
+https://www.cbr.com/best-netflix-original-movies-that-are-masterpieces-list/
+
+These Netflix masterpieces show just how good the streaming service's original films can be.
+---------
+
+# NES Gets Brand-New Physical Christmas Release Available Now
+
+Games, Nintendo
+
+Sun, 15 Nov 2026 21:25:12 GMT
+
+https://www.cbr.com/nes-new-physical-release-christmas-available-now/
+
+Christmas 8-Bit Series 2026 promises a Holly Jolly Holidays to NES owners
+---------
+
+# 10 Strongest Pokémon Owned by Ash's Friends, Ranked
+
+Anime, Pokemon, Pokémon, Pokémon Origins, Innovation
+
+Sun, 15 Nov 2026 21:15:11 GMT
+
+https://www.cbr.com/ash-friends-strongest-pokemon-ranked/
+
+Ash Ketchum's roster of Pokémon has proven to be elite over the years, but his friends and companions boast some proven warriors of their own.
+---------
+
+# Tom Hanks Forgotten Sci-Fi Thriller Is Officially a 300-Day Streaming Superhit
+
+Movie News, Finch, Tom Hanks, Apple TV, Miguel Sapochnik
+
+Sun, 15 Nov 2026 23:15:12 GMT
+
+https://collider.com/tom-hanks-finch-apple-tv-streaming-success-300-days-november-2026/
+
+Tom Hanks forgotten sci-fi thriller from the early 2020s is the streaming super hit no one saw coming.
+---------
+
+# The 6 Best Fantasy Books Released Since 2020, According to Goodreads
+
+Books and Comics, Fantasy, Books, Brandon Sanderson
+
+Sun, 15 Nov 2026 23:09:12 GMT
+
+https://collider.com/best-fantasy-books-since-2020-goodreads/
+
+Goodreads users say The Trouble With Peace by Joe Abercrombie and Rhythm of War by Brandon Sanderson are among the 2020s' best fantasy books.
+---------
+
+# 6 Sci-Fi Movies We Actually Want a Remake Of
+
+Movie, In Time, Sci-Fi, The Island, Logan’s Run
+
+Sun, 15 Nov 2026 23:03:12 GMT
+
+https://collider.com/sci-fi-movies-want-remake/
+
+Some sci-fi concepts age better than their effects. In Time, The Island, and Forbidden Planet are just a few films that deserve a spectacular remake.
+---------
+
+# Harrison Ford’s Apple TV Series Officially Expands Season 4 Cast
+
+TV News, Harrison Ford, Shrinking, Apple TV, Jillian Bell
+
+Sun, 15 Nov 2026 23:00:12 GMT
+
+https://collider.com/shrinking-season-4-cast-harrison-ford-jillian-bell-dyllon-burnside/
+
+Apple TV’s Shrinking expands its Season 4 cast with three new stars joining Harrison Ford and Jason Segel.
+---------
+
+# Netflix’s 8-Part Thriller Miniseries Is a Near-Perfect Binge
+
+TV Features, Ripley, Andrew Scott, Netflix, Thriller
+
+Sun, 15 Nov 2026 22:15:12 GMT
+
+https://collider.com/netflix-ripley-thriller-miniseries-binge/
+
+Andrew Scott shines in Netflix's Ripley, a moody, atmospheric noir that reimagines Patricia Highsmith's iconic character for a new generation.
+---------
+
+# Anya Taylor-Joy’s $1.3B Fantasy Blockbuster Is Officially a 2026 Streaming Smash
+
+Movie News, The Super Mario Bros Film, The Super Mario Galaxy Movie, Anya Taylor-Joy, Chris Pratt
+
+Sun, 15 Nov 2026 22:15:12 GMT
+
+https://collider.com/anya-taylor-joy-the-super-mario-bros-movie-streaming-success-prime-video-apple-tv-november-2026/
+
+Anya Taylor-Joy's short sci-fi blockbuster has quietly become one of the most-watched movies of 2026 on streaming.
+---------
+
+# Nicholas Hoult’s New Heist Thriller Almost Had a Much Darker Ending
+
+Movie, How to Rob a Bank, David Leitch, Nicholas Hoult, Kelly McCormick
+
+Sun, 15 Nov 2026 22:04:32 GMT
+
+https://collider.com/how-to-rob-a-bank-ending-explained-david-leitch-kelly-mccormick-interview/
+
+Director David Leitch and producer Kelly McCormick give an exclusive behind-the-scenes look at Nicholas Hoult's How to Rob a Bank.
+---------
+
+# Nicholas Hoult’s First TV Series Since ‘The Great’ Officially Reveals Full Cast
+
+TV News, Nicholas Hoult, Daisy Edgar-Jones, Tony McNamara, Hulu
+
+Sun, 15 Nov 2026 22:00:12 GMT
+
+https://collider.com/mosquito-nicholas-hoult-daisy-edgar-jones-cast-filming/
+
+Mosquito, starring Nicholas Hoult and Daisy Edgar-Jones, begins filming with nine new cast members joining the Tony McNamara comedy-drama.
+---------
+
+# FX’s Best Breakout Series Is Officially Changing Its Formula in Season 3
+
+TV Features, FX, Adults, Hulu, Comedy
+
+Sun, 15 Nov 2026 21:50:12 GMT
+
+https://collider.com/fx-comedy-series-adults-season-3-formula-change/
+
+The third season of FX’s Adults is confirmed, and it’s new episode count could change the game.
+---------
+
+# Taylor Sheridan’s Hit Western Series Officially Dominates Streaming Worldwide
+
+TV News, Taylor Sheridan, Yellowstone, Paramount Plus, Streaming
+
+Sun, 15 Nov 2026 21:45:12 GMT
+
+https://collider.com/yellowstone-streaming-hit-paramount-plus-november-2026/
+
+The most important series in Taylor Sheridan's pantheon of shows, Yellowstone, has returned once again to the streaming top ten. Read on for more.
+---------
+
+# LEGO 'Star Wars' Unveils Never-Before-Made Figures Based On Lucas' Original Vision
+
+Movie News, Star Wars, Star Wars: Episode IV - A New Hope, LEGO, Science Fiction, Adventure, Fantasy
+
+Sun, 15 Nov 2026 22:04:42 GMT
+
+https://movieweb.com/lego-star-wars-ralph-mcquarrie-art/
+
+LEGO is kicking off 'Star Wars' 50th anniversary in a big way this January.
+---------
+
+# Apple TV's New "Heat Meets Christopher Nolan" 8-Part Thriller Series Officially Takes Over the World
+
+TV News, 12 12 12, Hot on Streaming, Apple TV, Crime, Thriller
+
+Sun, 15 Nov 2026 22:00:16 GMT
+
+https://movieweb.com/12-12-12-apple-tv-november-2026/
+
+The latest thriller has wasted little time turning early curiosity into real chart momentum.
+---------
+
+# Matt Reeves' Long-Awaited Batman Sequel Officially Gets Disappointing Filming Update
+
+Movie News, The Batman Part II, DCU, Matt Reeves, Steven Soderbergh, Crime, Superhero
+
+Sun, 15 Nov 2026 21:51:16 GMT
+
+https://movieweb.com/the-batman-part-2-filming-update/
+
+Andy Serkis, who plays Alfred Pennyworth in 'The Batman', confirmed that filming on the sequel will continue after Christmas and into 2027.
+---------
+
+# Matt Damon Officially Hails James Bond Frontrunner’s “Avalanche” Performance as Casting Heats Up
+
+Movie News, Action, Matt Damon, The Odyssey, James Bond, Robert Pattinson
+
+Sun, 15 Nov 2026 21:19:59 GMT
+
+https://movieweb.com/matt-damon-robert-pattinson-james-bond-odyssey/
+
+Matt Damon walked away from 'The Odyssey' just as impressed with Robert Pattinson as everyone else.
+---------
+
+# Alexander Skarsgård & Margot Robbie 110-Minute Action-Adventure Flop Officially Finds Redemption on HBO Max
+
+Movie News, The Legend of Tarzan, Action, Adventure, HBO Max, Hot on Streaming
+
+Sun, 15 Nov 2026 21:00:17 GMT
+
+https://movieweb.com/the-legend-of-tarzan-november-2026/
+
+A decade after disappointing in theaters, The Legend of Tarzan is pulling in viewers again on streaming.
+---------
+
+# All 6 'Lord of the Rings' Wizards, Ranked by Power
+
+Features, The Lord of the Rings, Fantasy
+
+Sun, 15 Nov 2026 21:00:17 GMT
+
+https://movieweb.com/lord-of-the-rings-wizards-ranked/
+
+J.R.R. Tolkien's 'Lord of the Rings' series contains several Istari, or wizards, who influence the events of Middle-earth's history over centuries.
+---------
+
+# "Taylor Sheridan Meets Taken" Netflix Thriller Star & Director Want a Sequel Trilogy
+
+Exclusives, Heartland, Drama, Jessica Chastain, Netflix
+
+Sun, 15 Nov 2026 20:43:20 GMT
+
+https://movieweb.com/heartland-sequel-trilogy/
+
+The star and director of this new Netflix hit are already looking forward to what's next.
+---------
+
+# Prime Video's (Very) R-Rated Sensation Is Officially a 6-Month Global Streaming Hit
+
+TV News, Off Campus, Prime Video, Hot on Streaming
+
+Sun, 15 Nov 2026 20:00:17 GMT
+
+https://movieweb.com/off-campus-stream-prime-november-2026/
+
+'Reacher,' 'Neagley,' and 'Rings of Power' have come and gone, but Prime Video's R-rated hit remains.
+---------
+
+# All 6 Episodes of Apple TV's True Crime Thriller Miniseries Are Perfect From Start To Finish
+
+Features, Crime, Thriller, Black Bird, Action
+
+Sun, 15 Nov 2026 20:00:17 GMT
+
+https://movieweb.com/black-bird-streaming-recommendation/
+
+In just six episodes, the gripping series from novelist Dennis Lehane earns its near-perfect reviews with its refreshing authenticity.
+---------
+
+# Marvel Hero Officially Eyes New Solo Action Sequels Ahead of Avengers: Doomsday Release
+
+Movie News, Avengers: Doomsday, Anthony Mackie, Marvel Cinematic Universe, Action, Superhero, Captain America: Brave New World
+
+Sun, 15 Nov 2026 19:59:34 GMT
+
+https://movieweb.com/captain-america-mcu-future-anthony-mackie/
+
+Anthony Mackie teases leading the Avengers in the MCU.
+---------
+
 # John Wick Director’s New Heist Thriller Filmed 2 Completely Different Endings
 
 Movies, How to Rob a Bank
