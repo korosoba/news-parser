@@ -1,3 +1,366 @@
+# 10 Killer Women Horror Movies To Watch After Victorian Psycho
+
+Movies, Victorian Psycho, Influencer
+
+Mon, 16 Nov 2026 02:45:18 GMT
+
+https://screenrant.com/female-killer-horror-movies-to-watch-after-victorian-psycho/
+
+After you've seen Victorian Psycho, there are many more killer women horror movies to peruse, including Influencer and I Blame Society.
+---------
+
+# Deathstroke Accidentally Becomes The Green Lantern Corps’ Newest Villain
+
+Comics, DC, Deathstroke, Green Lantern
+
+Mon, 16 Nov 2026 02:30:18 GMT
+
+https://screenrant.com/deathstroke-green-lantern-villain/
+
+Deathstroke regularly fights superheroes like Batman, Green Arrow, and the Teen Titans, but now he's been set up as a Green Lantern Corps adversary.
+---------
+
+# Paramount's Ambitious 17-Part Space Opera Deserves A Critical Reevaluation
+
+Classic TV, Masked Recs
+
+Mon, 16 Nov 2026 02:30:18 GMT
+
+https://screenrant.com/halo-paramount-tv-series-deserves-reappraisal/
+
+Paramount's ambitious space-opera video game adaptation was undeniably divisive when it first aired, but it may not be as bad as people say.
+---------
+
+# Grace Penn, The Vice President In The Diplomat, Completely Explained
+
+Streaming TV, The Diplomat
+
+Mon, 16 Nov 2026 02:00:19 GMT
+
+https://screenrant.com/grace-penn-vice-president-the-diplomat-explained/
+
+Vice President Grace Penn is a crucial new character in The Diplomat season 2 who plays a big role in the series despite appearing in only 2 episodes.
+---------
+
+# Despicable Me & Minions Viewing Order (Release & Chronological)
+
+Movies, Despicable Me
+
+Mon, 16 Nov 2026 02:00:19 GMT
+
+https://screenrant.com/despicable-me-minions-movies-in-order/
+
+The best order to watch each of Universal Pictures' animated Despicable Me and Minions movies, in both release order and chronological order.
+---------
+
+# CBS Officially Delivers On Marshals’ Main Romance
+
+Network TV, Marshals, Yellowstone
+
+Mon, 16 Nov 2026 02:00:18 GMT
+
+https://screenrant.com/cbs-officially-delivers-on-marshals-main-romance/
+
+Cal and Belle's slow burning relationship heats up in Marshals season 2, episode 6 as the pair head out of town together.
+---------
+
+# 34 Years Later, This Sega Genesis Classic Is Finally Coming To The US
+
+Gaming, Sega Genesis, Triple-A Games
+
+Mon, 16 Nov 2026 02:00:18 GMT
+
+https://screenrant.com/sega-genesis-twinkle-tale-limited-run-games-release/
+
+The Sega Genesis has a library that is still talked about to this day, and after over three decades, another classic emerges for a US release.
+---------
+
+# 5 Best New Prime Video Series To Binge-Watch This Week (November 16–20, 2026)
+
+Streaming TV, Prime Video, What to Watch on Prime Video
+
+Mon, 16 Nov 2026 01:45:18 GMT
+
+https://screenrant.com/best-new-prime-video-shows-to-watch-week-november-16-2026/
+
+The 5 best new Prime Video shows this week, November 16–20, 2026: The Rings of Power, The Chosen, The Greatest, Campus Drivers, & the Frasier revival.
+---------
+
+# 10 Brilliant Cartoon Network Anime That Had Amazing Animation
+
+Anime, Cartoon Network
+
+Mon, 16 Nov 2026 01:30:18 GMT
+
+https://screenrant.com/brilliant-cartoon-network-anime-best-animation/
+
+While Cartoon Network aired countless unforgettable shows, these particular anime series featured some truly jaw-dropping animation.
+---------
+
+# It: Welcome To Derry Quietly Completes 1 Stephen King Trilogy
+
+Streaming TV, It: Welcome to Derry
+
+Mon, 16 Nov 2026 01:30:18 GMT
+
+https://screenrant.com/it-welcome-to-derry-dick-hallorann-stephen-king-trilogy/
+
+It: Welcome to Derry serves more as prequel to the IT movies, but, at the same time, it also quietly completes another Stephen King on-screen trilogy.
+---------
+
+# 10 Greatest Magic Schools in Anime, Ranked
+
+Anime, Mashle: Magic and Muscles, The Irregular at Magic High School
+
+Mon, 16 Nov 2026 02:45:11 GMT
+
+https://www.cbr.com/greatest-anime-magic-schools-ranked-list/
+
+Anime magic schools make ordinary school life look painfully boring, especially when lessons involve dangerous spells and rivalries.
+---------
+
+# Sydney Sweeney’s Gundam Is Already the Biggest Movie in Streaming
+
+Movies, Gundam, Sci-Fi
+
+Mon, 16 Nov 2026 02:30:11 GMT
+
+https://www.cbr.com/sydney-sweeney-gundam-biggest-movie-streaming-history/
+
+Sydney Sweeney's Gundam movie on Netflix hasn't even been released yet, but it is already the biggest streaming event ever.
+---------
+
+# PlayStation Store Will Officially Shut Down on PS3 and Vita July 2027
+
+Games, PlayStation (Original), Innovation
+
+Mon, 16 Nov 2026 02:25:12 GMT
+
+https://www.cbr.com/playstation-official-shut-down-july-2027/
+
+The PlayStation Store will be officially leaving two platforms next year.
+---------
+
+# 10 Most Universally Loved Anime Movies of All Time, Ranked
+
+Anime, Akira, Grave of the Fireflies
+
+Mon, 16 Nov 2026 02:25:12 GMT
+
+https://www.cbr.com/most-universally-loved-anime-movies-ever-ranked-list/
+
+Timeless anime movies like Grave of the Fireflies and Akira are celebrated for their unforgettable storylines and breathtaking animation.
+---------
+
+# Friday the 13th Reboot Report Reveals New Cast and Plot Details
+
+Movies, Friday The 13th, Horror
+
+Mon, 16 Nov 2026 02:12:32 GMT
+
+https://www.cbr.com/friday-the-13th-reboot-cast-plot-details/
+
+New details have been revealed about the Friday the 13th movie coming to theaters in 2027.
+---------
+
+# 10 Open World Games Everyone Needs to Play Once in Their Lives (#1 Is the Best Ever)
+
+Games, open world, Innovation
+
+Mon, 16 Nov 2026 01:45:11 GMT
+
+https://www.cbr.com/must-play-open-world-games-best-all-time-list/
+
+Open-world games like Marvel's Spider-Man and Ghost of Tsushima are the best of the genre.
+---------
+
+# 7 Gundam OVAs That Are 10/10 Masterpieces
+
+Anime, Mobile Suit Gundam, Mobile Suit Gundam 0080: War In The Pocket, Mobile Suit Gundam: The Origin
+
+Mon, 16 Nov 2026 01:30:12 GMT
+
+https://www.cbr.com/flawless-gundam-ova-masterpieces-list/
+
+Mobile Suit Gundam is a totemic mecha franchise that's responsible for some unforgettable OVA series, like War in the Pocket and Unicorn.
+---------
+
+# Pokémon's Free Spewpa Is Worth Grabbing Before November 19
+
+Games, Pokemon, Pokemon Legends   Arceus, Video Games
+
+Mon, 16 Nov 2026 01:15:11 GMT
+
+https://www.cbr.com/pokemon-free-november-19-poke-ball-vivillon/
+
+Pokémon Legends: Z-A is giving away a free Vivillon to all players, but it's also worth grabbing for people who enjoy the Pokémon spin-off titles.
+---------
+
+# Two and a Half Men Starts Streaming for Free for First Time Ever
+
+TV, Two and a Half Men
+
+Mon, 16 Nov 2026 01:05:44 GMT
+
+https://www.cbr.com/two-and-a-half-men-free-streaming-november-2026/
+
+The hit sitcom Two and a Half Men can be streamed for free in its entirety for the very first time.
+---------
+
+# Dragon Ball Z Brings Back Gohan's Legendary Super Saiyan 2 Battle in 2027
+
+Anime, Dragon Ball, Dragon Ball Z, merchandise
+
+Mon, 16 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/dbz-gohan-ssj2-cell-juniors-match-makers-release/
+
+The new Dragon Ball release captures Gohan raging and ready to throw a serious punch at his annoying little opponents.
+---------
+
+# HBO's 'Harry Potter' Has the Perfect Opportunity to Fix the Movies' Biggest Mistake
+
+TV Features, Harry Potter, HBO, Harry Potter and the Sorcerer's Stone
+
+Mon, 16 Nov 2026 02:44:12 GMT
+
+https://collider.com/harry-potter-tv-series-fix-movies-biggest-mistake-hogwarts/
+
+HBO's Harry Potter has the opportunity to correct the movies' biggest oversight by exploring Hogwarts beyond Harry's adventures.
+---------
+
+# Forget 'Game of Thrones,' These 10 Fantasy Shows Have Perfect Final Seasons
+
+TV, Game Of Thrones, Star Wars, Avatar: The Last Airbender, Arcane
+
+Mon, 16 Nov 2026 02:23:12 GMT
+
+https://collider.com/fantasy-shows-perfect-final-seasons/
+
+Unlike Game of Thrones, these fantasy shows ended with satisfyingly perfect final seasons, seen in series like Arcane and What We Do in the Shadows.
+---------
+
+# One Chicago Officially Breaks Tradition With Its Fall Schedule
+
+TV News, One Chicago, Chicago Med, Chicago Fire, Chicago P.D.
+
+Mon, 16 Nov 2026 02:00:12 GMT
+
+https://collider.com/one-chicago-2026-fall-finale-schedule-december/
+
+Chicago Fire, Chicago Med, and Chicago P.D. are officially breaking tradition with their fall 2026 schedule. Here’s what you need to know.
+---------
+
+# HBO Max’s 3-Part Harry Potter Spin-Off Is Officially One of the Most-Watched Shows in the World
+
+TV News, Harry Potter: Wizards of Baking, HBO Max, Harry Potter, Streaming
+
+Mon, 16 Nov 2026 01:45:12 GMT
+
+https://collider.com/harry-potter-wizards-of-baking-streaming-hit-hbo-max-november-2026/
+
+The Harry Potter spin-off, Wizards of Baking, is back among the top ten on the HBO Max charts. Read on for more.
+---------
+
+# 10 Great Fantasy Movies That Come Close to Perfection
+
+Movie, Fantasy, Barbie, Harry Potter and the Prisoner of Azkaban, Pirates of the Caribbean: Dead Man's Chest
+
+Mon, 16 Nov 2026 01:39:12 GMT
+
+https://collider.com/best-fantasy-movies-close-to-perfect/
+
+Not every fantasy movie can be a true masterpiece, but the likes of Ponyo, Stardust, and Barbie come incredibly close to achieving genuine perfection.
+---------
+
+# CBS’ New Sci-Fi Thriller Is Officially Becoming a Streaming Sensation
+
+TV News, Cupertino, CBS, Drama, Sci-Fi
+
+Mon, 16 Nov 2026 01:30:12 GMT
+
+https://collider.com/cbs-cupertino-paramount-streaming-success-november-2026/
+
+CBS's new smash-hit series is seeing major gains on streaming as it tackles relevant tech topics. Get more details here.
+---------
+
+# Netflix's 3-Season Drama Just Surged 1,735% With Nearly 1 Billion Minutes Watched
+
+TV Features, Nobody Wants This, Netflix, Adam Brody, Kristen Bell
+
+Mon, 16 Nov 2026 01:27:12 GMT
+
+https://collider.com/nobody-wants-this-season-3-netflix-viewership-numbers-surge/
+
+Netflix's Nobody Wants This gained massive viewership numbers after the release of its third season, guaranteeing a Season 4 renewal.
+---------
+
+# ‘Logan’ Director’s Agatha Christie-Style Thriller Officially Removed From Streaming
+
+Movie News, Identity, James Mangold, Tubi, Agatha Christie
+
+Mon, 16 Nov 2026 01:15:12 GMT
+
+https://collider.com/identity-agatha-christie-adaptation-leaving-tubi-december-2026/
+
+Logan director James Mangold's forgotten Agatha Christie adaptation is about to be removed from its free streaming home. Find out more.
+---------
+
+# 10 Classic '90s TV Shows That Are Better Than Their Reboots
+
+TV, 1990s, That '70s Show, Full House (US), Beavis and Butt-Head
+
+Mon, 16 Nov 2026 01:02:12 GMT
+
+https://collider.com/best-90s-shows-better-than-reboots/
+
+The reboots of these classic '90s shows didn't capture the same magic as the originals, from That '70s Show to Full House.
+---------
+
+# Dune Star Officially Leads Extraordinary True-Story Gorilla Movie
+
+Movie News, Emily Watson, Dominic Cooke, Drama, History
+
+Mon, 16 Nov 2026 01:00:12 GMT
+
+https://collider.com/john-daniel-emily-watson-true-story-gorilla-movie/
+
+Emily Watson leads John Daniel, a new historical film inspired by the true story of a woman who befriends a baby gorilla after World War I.
+---------
+
+# 76 Years Later, John Wayne's 3-Part Western Cavalry Saga Still Beats Any Spaghetti Western Ever Made
+
+Features, John Wayne, Rio Grande, Western
+
+Mon, 16 Nov 2026 02:00:16 GMT
+
+https://movieweb.com/john-wayne-cavalry-trilogy-beats-spaghetti-westerns/
+
+The trio of movies known as "The Cavalry Trilogy" forged the partnership between John Ford and John Wayne while also redefining the American Western.
+---------
+
+# Sam Rockwell's Near-Perfect Spy Thriller Officially Adds 1,000+ Theaters After Scoring Big With Audiences
+
+Movie News, Sam Rockwell, Thriller, Box Office Milestones, Wild Horse Nine
+
+Mon, 16 Nov 2026 00:30:16 GMT
+
+https://movieweb.com/wild-horse-nine-box-office-update/
+
+The audience response is hard to ignore.
+---------
+
+# 5 Best Bruce Lee Martial Arts Movies, Ranked
+
+Movie Lists, Bruce Lee, Martial Arts, Action
+
+Mon, 16 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/bruce-lee-martial-arts-movies-ranked/
+
+Can 'Enter the Dragon' best 'The Big Boss' with a 'Fist of Fury' in a 'Game of Death' while we learn 'The Way of the Dragon'?
+---------
+
 # Cristiano Ronaldo's Ted Lasso-Like TV Series Has Already Made Its First Mistake
 
 Streaming TV, Masked Recs
