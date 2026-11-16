@@ -1,3 +1,333 @@
+# Legend Of Zelda: Ocarina Of Time Remake DLC Officially Coming In 2027
+
+Gaming, The Legend of Zelda: Ocarina of Time, The Legend of Zelda
+
+Mon, 16 Nov 2026 10:26:19 GMT
+
+https://screenrant.com/legend-of-zelda-ocarina-of-time-remake-dlc-2027-release-plans/
+
+Discover the upcoming DLC and amiibo for Zelda Ocarina of Time Remake set for 2027, plus fan reactions and insights.
+---------
+
+# 5 Best New Paramount+ Series To Binge-Watch This Week (November 16–20, 2026)
+
+Streaming TV, Paramount Plus, What to Watch on Paramount+
+
+Mon, 16 Nov 2026 09:30:18 GMT
+
+https://screenrant.com/best-new-paramount-plus-shows-to-watch-week-november-16-2026/
+
+Paramount+ new shows this week, Nov. 16–20, 2026: Yellowjackets, MobLand, Dexter: Resurrection, Tulsa King, He Said, She Said: Till Death Do Us Part.
+---------
+
+# Star Trek: Deep Space Nine Finally Gets A New Sequel This Week
+
+Books, Star Trek: Deep Space Nine, Star Trek
+
+Mon, 16 Nov 2026 09:00:18 GMT
+
+https://screenrant.com/star-trek-deep-space-nine-peacemakers-release-november-17/
+
+Star Trek: Deep Space Nine's long-awaited sequel is officially here, bringing back Jake Sisko to uncover his father's secrets.
+---------
+
+# Pokémon Resonant Crystal Announced
+
+Gaming, Pokemon, Triple-A Games
+
+Mon, 16 Nov 2026 08:00:18 GMT
+
+https://screenrant.com/pokemon-resonant-crystal-new-fan-johto-remake/
+
+The Pokémon series has enamored fans just about every generation, but Pokémon Resonant Crystal is a chance for Gen 2 fans to really kick back.
+---------
+
+# Magic: The Gathering Officially Breaks A 34-Year Tradition In 2027
+
+Gaming, Magic: The Gathering, PC
+
+Mon, 16 Nov 2026 07:30:18 GMT
+
+https://screenrant.com/magic-the-gathering-nauctis-no-fly-mechanic-2027/
+
+Magic: The Gathering's upcoming Nauctis release in 2027 is officially breaking a 34-year-old tradition and ditching an iconic mechanic.
+---------
+
+# 10/10 RPG Drops On Steam, & You Can Try It Free Now
+
+Gaming, Steam, PC, Indie
+
+Mon, 16 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/annihilated-steam-rpg-free-demo-reviews/
+
+Discover a new hidden gem on Steam that's already getting excellent reviews for its great story, gameplay, and visuals, and is free to try.
+---------
+
+# Syfy’s 5-Season Zombie Series Breaks All The Storytelling Rules
+
+Classic TV, Masked Recs
+
+Mon, 16 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/z-nation-syfy-zombie-series-breaks-storytelling-rules/
+
+Most zombie stories follow a familiar "searching for safety and shelter" loop, but this Syfy show decided to take the genre in wild new directions.
+---------
+
+# Metal Gear Solid 2027 Return Officially Confirmed
+
+Gaming, Metal Gear, Metal Gear Solid, PC, Metal Gear Solid Delta: Snake Eater
+
+Mon, 16 Nov 2026 06:30:18 GMT
+
+https://screenrant.com/metal-gear-solid-2027-return-new-collection/
+
+Metal Gear Solid is officially back in 2027 with a brand-new release that brings back the epic showdown between The Boss and Naked Snake.
+---------
+
+# Legend Of Zelda: Oracle Of Ages & Seasons Officially Returning In New Collection
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Oracle of Ages
+
+Mon, 16 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/legend-of-zelda-master-collection-oracle-ages-seasons-revived/
+
+Legend Of Zelda: Oracle Of Ages is one of the more underrated games in the series, and they're about to form part of a new collection.
+---------
+
+# Forget True Detective, Netflix's 2-Part Thriller Masterpiece Is The Most Realistic Detective Series
+
+Classic TV, Masked Recs
+
+Mon, 16 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/mindhunter-thriller-more-realistic-than-true-detective/
+
+True Detective may perfectly walk the line between realism and style, but there's a Netflix crime thriller that does the same but much more dextrously
+---------
+
+# Walton Goggins' New Fantasy Movie Is Already Taking Over Streaming Before Hitting Theaters
+
+Movies, Hexed
+
+Mon, 16 Nov 2026 04:57:15 GMT
+
+https://www.cbr.com/hexed-a-special-look-disney-streaming-success-november-2026/
+
+The new fantasy film makes a splash on streaming before it even arrives in movie theaters.
+---------
+
+# Every Gogeta Form in Dragon Ball, Ranked From Weakest to Strongest
+
+Anime, Dragon Ball, Akira Toriyama
+
+Mon, 16 Nov 2026 04:45:11 GMT
+
+https://www.cbr.com/dragon-ball-every-gogeta-form-ranked-list/
+
+Gogeta, the prolific fusion between Goku and Vegeta, has experienced a wide range of intimidating transformations since his debut.
+---------
+
+# Kamen Rider Revives Its Original 1971 Design for 55th Anniversary Swiss Watch Release
+
+Anime, Kamen Rider, merchandise
+
+Mon, 16 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/kamen-rider-1971-design-55th-anniversary-swiss-watch/
+
+The original Kamen Rider remains a landmark within Japanese Pop culture, and FULTON is releasing limited branded watches to celebrate 55 years.
+---------
+
+# The 8-Episode Netflix Sci-Fi Series That Deserves to Be Called TV's Smartest Time-Travel Show
+
+TV, Bodies, Sci-Fi, Netflix
+
+Mon, 16 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/netflix-bodies-smartest-time-travel-series/
+
+Netflix's underrated sci-fi gem Bodies tells one of television's most ambitious time-travel stories, yet remains surprisingly easy to follow.
+---------
+
+# 10 Hilarious Calvin and Hobbes Comics About Doing Homework
+
+Comics, Calvin and Hobbes
+
+Mon, 16 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/best-calvin-and-hobbes-comics-about-homework/
+
+Calvin from Calvin and Hobbes has one of the most creative minds around, but that sometimes means he'll struggle with homework and focusing.
+---------
+
+# Longlegs Star Confirms Major Character Won't Return in Nicolas Cage Horror Sequel
+
+Movies, Longlegs, Nicolas Cage
+
+Mon, 16 Nov 2026 04:21:50 GMT
+
+https://www.cbr.com/longlegs-2-maika-monroe-update/
+
+The star of Osgood Perkins' Longlegs confirms that their fan-favorite character won't be back for the sequel, even if they aren't done with the series
+---------
+
+# 5 RPGs With Job Systems That Are 10/10 Masterpieces
+
+Games, Role Playing Game, Innovation
+
+Mon, 16 Nov 2026 04:15:12 GMT
+
+https://www.cbr.com/rpgs-with-flawless-job-systems-list/
+
+RPGs like Final Fantasy Tactics are better because of their job systems.
+---------
+
+# 5 Lord of the Rings Weapons Stronger Than the One Ring, Ranked
+
+Movies, The Lord of the Rings, Fantasy, Innovation
+
+Mon, 16 Nov 2026 04:15:12 GMT
+
+https://www.cbr.com/lotr-weapons-more-powerful-than-the-one-ring-ranked-list/
+
+The One Ring was the most dangerous artifact of the Third Age, but some weapons from earlier in Middle-earth's lore were even more powerful.
+---------
+
+# Pokémon Brings Back Its Original Gen 1 Ghost Trio in New $645 Release
+
+Games, Pokemon
+
+Mon, 16 Nov 2026 04:10:11 GMT
+
+https://www.cbr.com/pokemon-gen-1-ghost-trio-return-new-645-release/
+
+Gengar and the rest of Pokémon's Gen 1 Ghost trio are officially returning with a new premium release.
+---------
+
+# 10 Masterpiece RPGs Like Final Fantasy X, But Better
+
+Games, Video Games, Final Fantasy, RPG
+
+Mon, 16 Nov 2026 03:45:12 GMT
+
+https://www.cbr.com/masterpiece-rpgs-like-final-fantasy-x-but-better/
+
+Final Fantasy X is one of the greatest RPGs ever made, but these masterpieces are even better.
+---------
+
+# 10 Animated Movies Better Than 'Shrek'
+
+Movie, Shrek, The Lion King, Beauty and the Beast, Spider-Man: Into The Spider-Verse
+
+Mon, 16 Nov 2026 10:09:12 GMT
+
+https://collider.com/animated-movies-better-than-shrek/
+
+Shrek is a cinematic masterpiece, but other animated movie gems, including Kung Fu Panda and Beauty and the Beast, arguably surpass it in every way.
+---------
+
+# Marvel Officially Adds New ‘Avengers: Doomsday’ Footage to Disney+
+
+Movie News, Avengers: Endgame Encore, Avengers: Endgame, Russo Brothers, Robert Downey Jr
+
+Mon, 16 Nov 2026 10:00:12 GMT
+
+https://collider.com/disney-avengers-endgame-encore-doomsday-footage-november-2026/
+
+Avengers: Endgame: Encore, which bridges the gap to Doomsday with extra footage, is now available on Disney+.
+---------
+
+# 25 Years Ago, The Lord of the Rings Became a Horror Movie for One Perfect Scene
+
+Movie Features, The Lord of the Rings: The Fellowship of the Ring, The Lord of the Rings, Peter Jackson, Horror
+
+Mon, 16 Nov 2026 05:14:12 GMT
+
+https://collider.com/lord-of-the-rings-fellowship-of-the-ring-moria-balrog-horror-scene/
+
+Peter Jackson turns the Mines of Moria into a horror movie in The Fellowship of the Ring, from the drums at Balin’s tomb to the Balrog’s fiery arrival
+---------
+
+# Forget 'Peaky Blinders,' Titus Welliver's 8-Episode Crime Thriller Is Perfect From Start to Finish
+
+TV Features, The Westies, MGM TV, Titus Welliver, J.K. Simmons
+
+Mon, 16 Nov 2026 05:00:12 GMT
+
+https://collider.com/titus-welliver-crime-thriller-the-westies-mgm-plus-perfect-binge/
+
+If you're a fan of shows like Peaky Blinders, you're going to want to check out Titus Welliver's slick crime thriller The Westies.
+---------
+
+# The 10 Best American Shows in TV History, Ranked
+
+TV, The Wire, The Sopranos, Breaking Bad, Better Call Saul
+
+Mon, 16 Nov 2026 04:51:12 GMT
+
+https://collider.com/best-american-tv-shows/
+
+These American shows turned everyday flaws into television history, with Better Call Saul and The Twilight Zone among the finest.
+---------
+
+# 7 Most Politically Subversive Movies of All Time, Ranked
+
+Movie, The Great Dictator, Salò, Or The 120 Days Of Sodom, Paths of Glory, The Battle of Algiers
+
+Mon, 16 Nov 2026 04:48:12 GMT
+
+https://collider.com/most-politically-subversive-movies-all-time-ranked/
+
+The Great Dictator and Salt of the Earth are among the best, most daring movies that disrupt and aggressively question dominant political ideologies.
+---------
+
+# 5 Fantasy LitRPG Books Better Than 'Dungeon Crawler Carl'
+
+Books and Comics, Dungeon Crawler Carl, Fantasy, Books
+
+Mon, 16 Nov 2026 04:22:12 GMT
+
+https://collider.com/fantasy-litrpg-book-series-better-than-dungeon-crawler-carl/
+
+As good as Dungeon Crawler Carl is, we’d argue that fantasy LitRPG series like The Wandering Inn and He Who Fights with Monsters are better.
+---------
+
+# 'Game of Thrones' Meets Jack Reacher in Alexander Skarsgård's Near-Perfect Action Epic
+
+Movie Features, Game Of Thrones, Reacher, The Northman, Alexander Skarsgard
+
+Mon, 16 Nov 2026 04:19:12 GMT
+
+https://collider.com/game-of-thrones-meets-jack-reacher-netflix-near-perfect-action-epic-the-northman/
+
+Alexander Skarsgård's The Northman, now on Netflix, combines Game of Thrones' medieval brutality with Reacher's relentless action in an epic thriller.
+---------
+
+# 'Tracker' Is Finally Giving Colter What He Needs After 2 Seasons | Review
+
+TV Reviews, Tracker, Justin Hartley, Action, CBS
+
+Mon, 16 Nov 2026 03:01:13 GMT
+
+https://collider.com/tracker-season-4-episode-6-recap-colter-shaw-team-up/
+
+Colter Shaw reunites with the full Tracker cast in Denver in Season 4's "Blind Spot."
+---------
+
+# Paramount’s 61-Episode High Fantasy Series Is So Good, It Got a Rare Perfect Score for Every Season
+
+Features, Avatar: The Last Airbender, Fantasy, Paramount Plus
+
+Mon, 16 Nov 2026 03:00:26 GMT
+
+https://movieweb.com/avatar-last-airbender-perfect-score/
+
+The Nickelodeon show landed perfect scores for all three seasons, highlighting its solid momentum and timeless themes.
+---------
+
 # 10 Killer Women Horror Movies To Watch After Victorian Psycho
 
 Movies, Victorian Psycho, Influencer
