@@ -1,3 +1,443 @@
+# Amazon's New Action Thriller Series Will Make Jack Ryan Look Small
+
+Streaming TV, Prime Video
+
+Tue, 17 Nov 2026 21:00:18 GMT
+
+https://screenrant.com/tomb-raider-amazon-show-jack-ryan-comparison/
+
+Jack Ryan is one of the biggest action thriller shows on Prime Video, but the streamer has another major show on the horizon that should be huge.
+---------
+
+# Theo James Compares The Gentlemen Season 3 Story To Robert De Niro's Classic 31-Year-Old Crime Thriller
+
+TV, The Gentlemen
+
+Tue, 17 Nov 2026 20:53:41 GMT
+
+https://screenrant.com/the-gentlemen-season-3-casino-movie-comparison-theo-james/
+
+During an FYC event for the series' sophomore outing, The Gentlemen star Theo James compares season 3's story to a classic Robert De Niro crime movie.
+---------
+
+# Prime Video’s 16-Part Action Thriller Is So Good, It Officially Launched 2 Spinoffs
+
+Streaming TV, Masked Recs
+
+Tue, 17 Nov 2026 20:45:19 GMT
+
+https://screenrant.com/prime-video-the-terminal-list-action-thriller-second-spinoff-cry-havoc/
+
+Prime Video's The Terminal List is expanding with Cry Havoc, its second spinoff after Dark Wolf, extending Chris Pratt's action-thriller franchise.
+---------
+
+# Yellowstone Star’s New Sci-Fi Thriller Officially Sets 2027 Release Date
+
+Movies, Yellowstone, Josh Holloway
+
+Tue, 17 Nov 2026 20:32:09 GMT
+
+https://screenrant.com/josh-holloway-one-second-after-movie-release-date/
+
+Yellowstone star Josh Holloway's upcoming sci-fi thriller receives an exciting update as the highly anticipated adaptation moves forward.
+---------
+
+# Ghosts Unveils The Most Dangerous Threat To Sam & Jay's Marriage
+
+TV, Ghosts
+
+Tue, 17 Nov 2026 20:30:19 GMT
+
+https://screenrant.com/ghosts-season-6-kyle-jay-sam-marriage-biggest-threat/
+
+In Ghosts season 6, a well meaning translator for the spirits could expose years of quiet deceptions and shift the balance at Woodstone Manor.
+---------
+
+# Rebecca Yarros' New Adventure Romance 'Peculiar Stars' Releases Today
+
+Books, Romance, Adventure
+
+Tue, 17 Nov 2026 20:24:12 GMT
+
+https://screenrant.com/rebecca-yarros-slow-burn-romance-releases-today/
+
+Discover Rebecca Yarros' latest book, 'Peculiar Stars,' a slow-burn romance with adventure and unexpected twists.
+---------
+
+# Stranger Things: Could 1955 Explain Vecna’s Powers?
+
+Movies, Originals, Stranger Things
+
+Tue, 17 Nov 2026 20:00:20 GMT
+
+https://screenrant.com/video/stranger-things-could-1955-explain-vecna-s-powers/
+
+Netflix's Other Worlds teaser takes us to Marion, Nevada, on April 19, 1955, and that seemingly simple detail could connect some of the biggest mysteries in Stranger Things history.Why 1955? And what happened in Nevada before Henry Creel arrived in Hawkins?In this Screen Rant breakdown, we're connecting the Stranger Things: Other Worlds teaser to the events of Stranger Things: The First Shadow, the mysterious Project Rainbow experiment, and the unanswered questions surrounding Vecna's origins.
+---------
+
+# Legend Of Zelda: Tears Of The Kingdom Sequel Gets Official Update From Nintendo
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Tears of the Kingdom, Nintendo
+
+Tue, 17 Nov 2026 20:00:20 GMT
+
+https://screenrant.com/legend-of-zelda-totk-sequel-nintendo-update/
+
+Nintendo has given an official update on the mainline sequel fans can expect to see after The Legend of Zelda: Tears of the Kingdom.
+---------
+
+# Downton Abbey’s 3 Butlers & How Long They Served The Crawleys
+
+TV, Downton Abbey
+
+Tue, 17 Nov 2026 20:00:20 GMT
+
+https://screenrant.com/downton-abbey-3-butlers-explained/
+
+Where would Downton Abbey be without its faithful butlers? Three gentlemen served the Crawley family in Downton's 6 seasons and 3 feature films.
+---------
+
+# Dinosaur Western Mash-Up Series Confirms Filming & Cast For Alternate Universe Action Thriller
+
+TV
+
+Tue, 17 Nov 2026 19:53:40 GMT
+
+https://screenrant.com/dinosaurs-of-the-wild-west-movie-filming-cast-update/
+
+EXCLUSIVE: The team behind Primitive War is back with Dinosaurs of the Wild West, an ambitious new series that has officially started filming.
+---------
+
+# Star Wars Star Giancarlo Esposito's New Comic Is The Venetian
+
+Comics, Star Wars, Giancarlo Esposito, The Mandalorian, Taken, liam neeson
+
+Tue, 17 Nov 2026 21:00:12 GMT
+
+https://www.cbr.com/star-wars-giancarlo-esposito-the-venetian/
+
+Star Wars' Giancarlo Esposito Debuts Graphic Novel, The Venetian
+---------
+
+# Apple TV’s 100% Fresh Supernatural Fantasy Is the Perfect Binge Before Season 2
+
+TV, Small Prophets, Apple TV, Fantasy
+
+Tue, 17 Nov 2026 21:00:12 GMT
+
+https://www.cbr.com/apple-tv-small-prophets-supernatural-fantasy/
+
+With a 100% Rotten Tomatoes score and Season 2 on the way, Mackenzie Crook's Small Prophets is a supernatural comedy worth watching on Apple TV.
+---------
+
+# 10 Weakest Jedi in Star Wars History, Ranked
+
+Movies, Star Wars
+
+Tue, 17 Nov 2026 20:30:12 GMT
+
+https://www.cbr.com/star-wars-weakest-jedi-list/
+
+Most Jedi in the Star Wars universe are known to be strong both physically and with the Force, but some Jedi are weaker than one would think.
+---------
+
+# Initial D Brings Back Its Original '90s Racing Era in Major New Update
+
+Anime, Initial D
+
+Tue, 17 Nov 2026 20:21:43 GMT
+
+https://www.cbr.com/initial-d-test-drive-unlimited-solar-crown-dlc/
+
+A new PS5 DLC lets fans experience 'Deja Vu' through content based on the legendary Initial D anime and manga.
+---------
+
+# New Hunger Games Prequel Justifies Its Existence Strong Rotten Tomatoes Score
+
+Movies, Rotten Tomatoes, The Hunger Games, The Hunger Games: Sunrise on the Reaping
+
+Tue, 17 Nov 2026 20:15:38 GMT
+
+https://www.cbr.com/hunger-games-sunrise-on-the-reaping-rotten-tomatoes-score/
+
+Three years after the franchise's first prequel, The Hunger Games returns with a strong Rotten Tomatoes score.
+---------
+
+# Tom Hanks' You've Got Mail Is Still His Best Movie of the 1990s
+
+Movies, You've Got Mail, Tom Hanks, warner bros
+
+Tue, 17 Nov 2026 20:00:12 GMT
+
+https://www.cbr.com/tom-hanks-youve-got-mail-best-movie-1990s/
+
+One of the greatest movies in Tom Hanks' remarkable filmography is on its way to receiving a modern remake, though much is still kept under wraps.
+---------
+
+# Netflix's 5-Part Charlie Cox Spy Thriller Is a 10/10 Jack Ryan Replacement
+
+TV, Treason, charlie cox, Jack Ryan
+
+Tue, 17 Nov 2026 20:00:12 GMT
+
+https://www.cbr.com/netflix-charlie-cox-treason-jack-ryan-replacement/
+
+Charlie Cox portrays a careful MI6 leader pushed into impossible choices as old loyalties resurface under a ticking clock in Netflix's Treason.
+---------
+
+# Solo Leveling's New Cha Haein Confirms She 'Leveled Up' for the Netflix Series
+
+Anime, Solo Leveling
+
+Tue, 17 Nov 2026 19:15:25 GMT
+
+https://www.cbr.com/solo-leveling-cha-haein-netflix-live-action-han-sohee-interview/
+
+In a new interview, Han Sohee talks about what she learned in her role as Cha Haein in the upcoming Solo Leveling live action Netflix series.
+---------
+
+# 10 Greatest Modern Anime Arcs, Ranked
+
+Anime, Bleach: Thousand-Year Blood War
+
+Tue, 17 Nov 2026 19:15:25 GMT
+
+https://www.cbr.com/greatest-modern-anime-arcs-ranked-list/
+
+Anime arcs like JJK's Shibuya Incident or Bleach's Thousand-Year Blood War prove how good new-gen anime can be.
+---------
+
+# Legendary Spider-Man Stories Have Been Chosen to Launch a Brand New Marvel Book Series
+
+Comics, Spider-Man
+
+Tue, 17 Nov 2026 19:01:14 GMT
+
+https://www.cbr.com/legendary-spider-man-marvel-comic-book-series/
+
+This new Marvel Comics release compiles Spider-Man's best moments over the past few decades into one massive paperback edition.
+---------
+
+# The Mandalorian Officially Returns With a New Release This Week
+
+Books and Comics News, The Mandalorian, LEGO Star Wars: The Mandalorian, The Mandalorian and Grogu
+
+Tue, 17 Nov 2026 21:07:37 GMT
+
+https://collider.com/the-mandalorian-adventures-with-grogu-pop-up-book-november-2026/
+
+The Mandalorian: Adventures with Grogu arrives this week, featuring Din Djarin, Grogu and scenes from the Disney+ show and 2026 movie.
+---------
+
+# Netflix Officially Brings C.S. Lewis’ First Narnia Story to Life in 2027
+
+Movie News, Narnia: The Magician's Nephew, Greta Gerwig, Netflix, Fantasy
+
+Tue, 17 Nov 2026 20:50:31 GMT
+
+https://collider.com/netflix-narnia-the-magicians-nephew-april-2027-release-date/
+
+Netflix’s Narnia: The Magician’s Nephew arrives April 2, 2027, following a February theatrical release for Greta Gerwig’s fantasy epic.
+---------
+
+# 7 Mystery Shows That Are 10/10 Masterpieces
+
+TV, Mystery, Sherlock, Only Murders in the Building, Poirot
+
+Tue, 17 Nov 2026 20:44:12 GMT
+
+https://collider.com/mystery-shows-perfect-masterpieces/
+
+Sherlock, Dark, Broadchurch, Severance, The White Lotus, and more make up our list of mystery shows that are perfect masterpieces.
+---------
+
+# Stephen King’s Secret Pseudonym Novel Officially Arrives in 2027
+
+Books and Comics News, Stephen King, The Running Man, The Stand, The Long Walk
+
+Tue, 17 Nov 2026 20:39:31 GMT
+
+https://collider.com/stephen-king-pseudonym-the-end-times-2027-book-release/
+
+Stephen King’s post-apocalyptic collaboration The End Times arrives in a collected hardcover in 2027, with a Richard Bachman connection.
+---------
+
+# Florence Pugh’s Netflix Hit Sends a 74-Year-Old Classic Back to No. 1
+
+Books and Comics, East of Eden, Florence Pugh, Christopher Abbott, Mike Faist
+
+Tue, 17 Nov 2026 20:37:48 GMT
+
+https://collider.com/florence-pugh-netflix-east-of-eden-john-steinbeck-number-one/
+
+Netflix’s East of Eden’ starring Florence Pugh, pushes John Steinbeck’s 74-year-old novel to No. 1 on Amazon’s bestseller list.
+---------
+
+# ’Yellowstone’s Biggest Star Is Officially Adapting a Bestselling FBI Memoir
+
+TV News, Dutton Ranch, Yellowstone, Cole Hauser, Kevin Costner
+
+Tue, 17 Nov 2026 20:34:59 GMT
+
+https://collider.com/yellowstone-cole-hauser-pale-horse-fbi-thriller-movie/
+
+Cole Hauser is developing Pale Horse, an FBI action thriller based on Scott Payne’s memoir, with the Yellowstone star potentially leading.
+---------
+
+# 6 Greatest Classic Books To Read in the Winter
+
+Books and Comics, Books, Wuthering Heights, Murder on the Orient Express, Little Women
+
+Tue, 17 Nov 2026 20:23:12 GMT
+
+https://collider.com/best-classic-books-read-2026-holidays/
+
+Gothic stories like Wuthering Heights and snowy whodunits like Murder on the Orient Express — these classic books are an ideal read over the holidays.
+---------
+
+# 40 Years Later, Stephen King’s ‘IT’ Officially Returns With a Massive Anniversary Release
+
+Books and Comics News, Stephen King, It, Horror
+
+Tue, 17 Nov 2026 20:23:04 GMT
+
+https://collider.com/stephen-king-it-40th-anniversary-edition/
+
+Stephen King’s IT gets 40th anniversary editions, including a 1,168-page hardcover and a limited release featuring the Duffer Brothers.
+---------
+
+# HBO’s Most Controversial Ending Is Still Better Than ‘Game of Thrones’
+
+TV Features, The Sopranos, James Gandolfini, David Chase, Game Of Thrones, HBO
+
+Tue, 17 Nov 2026 20:21:12 GMT
+
+https://collider.com/hbo-sopranos-most-controversial-ending-game-of-thrones/
+
+Game of Thrones and The Sopranos had controversial endings, but only one keeps its legacy as being part of one of the best HBO shows of all time.
+---------
+
+# Jimmy: Max Casella Told KJ Apa to Stop Copying Stewart | Set Stories
+
+Movie, Jimmy
+
+Tue, 17 Nov 2026 19:15:25 GMT
+
+https://collider.com/video/jimmy-max-casella-told-kj-apa-to-stop-copying-stewart-set-stories/
+
+KJ Apa reveals how he transformed into Hollywood legend James Stewart for Jimmy, from mastering the actor's unmistakable voice to navigating the emotional demands of portraying one of cinema's most beloved stars.In this Collider interview, director Aaron Burns, executive producer Kelly Stewart, KJ Apa, and Max Casella discuss the making of the 2026 biographical drama Jimmy, which follows James Stewart from his Hollywood success through his World War II service and his return to acting in It's a Wonderful Life.
+---------
+
+# 'Yellowstone' Star Josh Holloway's New Post-Apocalyptic Action Thriller Officially Confirms Release
+
+Movie News, Action, Thriller, Josh Holloway, Yellowstone
+
+Tue, 17 Nov 2026 21:07:21 GMT
+
+https://movieweb.com/one-second-after-us-release/
+
+'Yellowstone' and 'Lost' star Josh Holloway's new thriller just got an official theatrical release date.
+---------
+
+# Brad Pitt's Near-Perfect 101-Minute Action Thriller Officially Sets New Release
+
+Movie News, Heart of the Beast, Brad Pitt, Action, Thriller, Blu-ray
+
+Tue, 17 Nov 2026 21:00:16 GMT
+
+https://movieweb.com/heart-of-the-beast-4k-blu-ray-release/
+
+Paramount Home Media Distribution is preparing a 4K Blu-ray release of David Ayer and Brad Pitt's survival action thriller 'Heart of the Beast.'
+---------
+
+# 18 Years Later, Ridley Scott & Frank Darabont's 'Jurassic Park' Meets 'Contagion' Sci-Fi Miniseries Is a Perfect One-Night Binge
+
+Features, Ridley Scott, Frank Darabont, Sci-Fi, The Andromeda Strain, Jurassic Park, Contagion, Streaming Recommendations
+
+Tue, 17 Nov 2026 21:00:16 GMT
+
+https://movieweb.com/andromeda-strain-streaming-recommendation/
+
+Ridley Scott's intense sci-fi thriller is packed with haunting imagery that has grown even more chilling over the years.
+---------
+
+# Macaulay Culkin Officially Returns to 'Home Alone' Franchise After 34 Years
+
+Movie News, Home Alone, Macaulay Culkin, Comedy
+
+Tue, 17 Nov 2026 20:49:49 GMT
+
+https://movieweb.com/home-alone-macaulay-culkin-mcdonalds/
+
+Macaulay Culkin reprises his role as the mischievous Kevin McCallister.
+---------
+
+# 'X-Files' Star David Duchovny Officially Addresses Return in Ryan Coogler's New Series
+
+TV News, The X-Files, David Duchovny, Ryan Coogler, Sci-Fi
+
+Tue, 17 Nov 2026 20:46:44 GMT
+
+https://movieweb.com/x-files-david-duchovny-return/
+
+Could Mulder make an appearance?
+---------
+
+# Alan Ritchson's New Non-Stop 98-Minute Action Thriller Officially Hits Streaming Next Week
+
+Movie News, Alan Ritchson, Runner, Action, Thriller, Coming/Leaving Streaming
+
+Tue, 17 Nov 2026 19:30:28 GMT
+
+https://movieweb.com/runner-alan-ritchson-stream-hulu-november-2026/
+
+Forget 'Reacher,' this is the Alan Ritchson we wanted.
+---------
+
+# 'Tracker' Season 4 Officially Gets Major Schedule Update for CBS' Hit Action Thriller
+
+Movie News, Tracker, Action, Justin Hartley
+
+Tue, 17 Nov 2026 19:19:59 GMT
+
+https://movieweb.com/tracker-season-4-schedule-update/
+
+The hit series isn't wasting any time with this newest season.
+---------
+
+# 'The Social Reckoning' Digital Streaming Release Date Officially Confirmed
+
+Movie News, The Social Reckoning, The Social Network, Mark Zuckerberg, Blu-ray
+
+Tue, 17 Nov 2026 19:15:57 GMT
+
+https://movieweb.com/the-social-reckoning-digital-release/
+
+The 'Social Network' follow-up is a must-watch.
+---------
+
+# Harlan Coben’s 8-Part Netflix Thriller Is So Good, He Pitched It Before Completing the Book
+
+Features, I Will Find You, Harlan Coben, Netflix, Thriller
+
+Tue, 17 Nov 2026 19:00:23 GMT
+
+https://movieweb.com/i-will-find-you-adaptation/
+
+Harlan Coben's best-selling thriller novels have been adapted into many popular Netflix TV shows, and one had a cool journey to the small screen.
+---------
+
+# 'GTA 6' Fans Divided After It Officially Becomes Best Game of the Year Contender
+
+Movie News, Grand Theft Auto 6, video games, Action
+
+Tue, 17 Nov 2026 18:54:12 GMT
+
+https://movieweb.com/gta-6-the-game-awards-nominations/
+
+'GTA 6' is already impressing with a variety of award nominations before the game's reviews have even been revealed.
+---------
+
 # Jon Snow Officially Returns To Game Of Thrones November 18 In Crow Of The Free Folk
 
 Gaming, Game of Thrones, Game of Thrones: Legends
