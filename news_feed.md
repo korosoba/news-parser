@@ -1,3 +1,443 @@
+# 3 Generations Of Hunger Games Cast Unite For The First Time Ahead Of Sunrise On The Reaping Release
+
+Movies, The Hunger Games, The Hunger Games: Sunrise on the Reaping
+
+Tue, 17 Nov 2026 03:12:32 GMT
+
+https://screenrant.com/3-generations-of-hunger-games-cast-unite-for-the-first-time-ahead-of-sunrise-on-the-reaping-release/
+
+Three generations of Hunger Games cast members united for the first time ahead of Sunrise on the Reaping, bringing familiar faces together.
+---------
+
+# The Odyssey's Digital Release Proves Nolan's Commitment To Theaters
+
+Movies, The Odyssey, Christopher Nolan
+
+Tue, 17 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/the-odyssey-digital-release-christopher-nolan-theatrical-window/
+
+Christopher Nolan made audiences wait four months to watch The Odyssey at home, and there's a reason he wasn't in a hurry to release it digitally.
+---------
+
+# One Piece Officially Has Serious Competition, But Luffy Still Comes Out On Top
+
+Streaming TV, One Piece
+
+Tue, 17 Nov 2026 02:00:18 GMT
+
+https://screenrant.com/one-piece-naruto-live-action-competition-advantage/
+
+Netflix’s live-action take on One Piece now has some serious competition from an upcoming anime adaptation, but Luffy still seemingly comes out on top
+---------
+
+# 7 Best Movies To Watch While Waiting For Brandon Sanderson's Mistborn Adaptation
+
+Movies, Mistborn, Brandon Sanderson
+
+Tue, 17 Nov 2026 02:00:18 GMT
+
+https://screenrant.com/best-movies-watch-waiting-brandon-sanderson-mistborn/
+
+While Brandon Sanderson's Mistborn adaptation takes shape, these seven movies capture its unique blend of magic, rebellion, and elaborate heists.
+---------
+
+# Star Trek: Return To Duty Officially Announced
+
+Gaming, Star Trek, Star Trek Online, PC
+
+Tue, 17 Nov 2026 02:00:18 GMT
+
+https://screenrant.com/star-trek-online-return-to-duty-november-2026/
+
+Star Trek's 60th anniversary has had its ups and downs so far this year, but fans will be excited for the announcement of Star Trek: Return To Duty.
+---------
+
+# NCIS: New York Makes A Massive Breakthrough As Series Reaches Major Milestone
+
+TV, NCIS: New York
+
+Tue, 17 Nov 2026 01:04:26 GMT
+
+https://screenrant.com/ncis-new-york-global-breakthrough-milestone/
+
+NCIS: New York hits a major milestone for the iconic crime drama franchise, taking the series to new heights before the first season even ended.
+---------
+
+# 54 Years Ago, Peanuts Went From Meh To Masterpiece With Just One Comic
+
+Comics, Peanuts
+
+Tue, 17 Nov 2026 01:02:18 GMT
+
+https://screenrant.com/peanuts-snoopy-interior-monologue-breakthrough-1952/
+
+The strip where Peanuts' missing piece fell into place.
+---------
+
+# Apple TV’s Masterpiece Spy Thriller Series Is So Good, It’s Renewed For 4 More Seasons
+
+Streaming TV, Masked Recs
+
+Tue, 17 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/apple-tv-slow-horses-spy-thriller-series-renewed-more-seasons/
+
+Apple TV's spy thriller series is one of the biggest hits on TV, and the show is so good that it has already been renewed for a whopping four seasons.
+---------
+
+# 8 War Movie Masterpieces Praised By Real-Life Veterans
+
+Movies, War
+
+Tue, 17 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/war-movie-masterpieces-praised-veterans/
+
+Andrew Garfield, Tom Hanks, Matt Damon, and Will Poulter are some of the actors who have led war films that have been praised by veterans.
+---------
+
+# Best Isekai Books Like Dungeon Crawler Carl
+
+Books, Dungeon Crawler Carl
+
+Tue, 17 Nov 2026 00:55:49 GMT
+
+https://screenrant.com/best-isekai-books-like-dungeon-crawler-carl/
+
+Looking for a read like Dungeon Crawler Carl? Find it in one of these isekai novels, where characters must fight to survive in another world.
+---------
+
+# Marvel's Avengers: Doomsday Prequel Has a $120M Budget for Just 8 Episodes
+
+TV, VisionQuest, Disney+, Marvel Cinematic Universe
+
+Tue, 17 Nov 2026 03:11:12 GMT
+
+https://www.cbr.com/visionquest-budget-120-million-8-episodes/
+
+The budget for VisionQuest, the latest MCU series that sets up Avengers: Doomsday, has been revealed.
+---------
+
+# Kevin Feige Reveals Avengers: The Kang Dynasty's Big Villain Twist Before Doomsday Pivot
+
+Movies, Avengers: Doomsday, Kevin Feige, Jonathan Majors
+
+Tue, 17 Nov 2026 03:04:11 GMT
+
+https://www.cbr.com/avengers-the-kang-dynasty-plans-doomsday-pivot/
+
+Avengers: The Kang Dynasty and Avengers: Doomsday had the same final destination.
+---------
+
+# 20 Isekai Anime With the Best Romances
+
+Anime, Isekai, Romance
+
+Tue, 17 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/isekai-anime-greatest-romances/
+
+Some of the best isekai anime romances, like Bed and Breakfast for Spirits and My Next Life As A Villainess, focus more on love than on action.
+---------
+
+# Kevin Feige Confirms Major Genre Shift for Avengers in 2027
+
+Movies, Avengers: Secret Wars, Avengers, Marvel Cinematic Universe
+
+Tue, 17 Nov 2026 02:53:00 GMT
+
+https://www.cbr.com/kevin-feige-avengers-secret-wars-different-genre/
+
+Kevin Feige and Joe Russo tease that Avengers: Secret Wars will be a very different kind of Avengers movie.
+---------
+
+# 10 Greatest Single-Player PS3 Games of All Time, Ranked
+
+Games, Red Dead Redemption, Grand Theft Auto V, PlayStation (Original), Video Games
+
+Tue, 17 Nov 2026 02:45:11 GMT
+
+https://www.cbr.com/best-single-player-ps3-games-ranked/
+
+From Skyrim to The Last of Us, PS3 had some of the greatest single-player games of the modern era.
+---------
+
+# Joel Kinnaman's 96-Minute Action Thriller Becomes a Global Streaming Hit 1 Year Later
+
+Movies, Icefall, Thriller, Paramount Plus
+
+Tue, 17 Nov 2026 02:30:11 GMT
+
+https://www.cbr.com/icefall-joel-kinnaman-streaming-success-paramount-plus-november-2026/
+
+A little-known action-thriller starring Joel Kinnaman is picking up traction on the global streaming charts.
+---------
+
+# 10 Anime to Watch If You Love Solo Leveling
+
+Anime, Solo Leveling
+
+Tue, 17 Nov 2026 02:25:11 GMT
+
+https://www.cbr.com/anime-to-watch-if-you-love-solo-leveling-list/
+
+Solo Leveling has some of the greatest anime fights of all time, but these series are the perfect Solo Leveling replacements.
+---------
+
+# Doctor Who Episode Missing for 20 Years Officially Released on YouTube
+
+TV, Doctor Who, Sci-Fi
+
+Tue, 17 Nov 2026 02:20:04 GMT
+
+https://www.cbr.com/doctor-who-satan-pit-prequel/
+
+The forgotten prequel to Doctor Who: The Satan Pit has been released for free ahead of the theatrical event.
+---------
+
+# 5 LitRPG Series Like Dungeon Crawler Carl to Read Next in 2026
+
+Books, Dungeon Crawler Carl
+
+Tue, 17 Nov 2026 02:00:11 GMT
+
+https://www.cbr.com/litrpg-books-like-dungeon-crawler-carl-list/
+
+Layered worldbuilding and manic pacing deliver immersive mechanics and grimly funny stakes for fans craving fresh peril.
+---------
+
+# Buffy Summers’ Greatest Line About Survival Still Hits Hard 25 Years Later
+
+TV, Buffy The Vampire Slayer, Fantasy
+
+Tue, 17 Nov 2026 02:00:11 GMT
+
+https://www.cbr.com/buffy-the-vampire-slayer-quote-the-gift/
+
+Buffy the Vampire Slayer changed the game for fantasy TV, and one quote from Season 5's "The Gift" remains the gold standard for its serious side.
+---------
+
+# CBS’ ‘Lincoln Lawyer’ Replacement Is Officially Making a Major Change
+
+TV Features, Cupertino, Mike Colter, Series, CBS
+
+Tue, 17 Nov 2026 02:47:12 GMT
+
+https://collider.com/cbs-cupertino-sunday-night-time-slot-change-explained/
+
+CBS moves Mike Colter's Cupertino to Sundays in January, giving its acclaimed legal drama a new time slot.
+---------
+
+# 3 Elite Prime Video Series to Binge This Week (Nov 16-20)
+
+TV, Prime Video, Frasier, iZombie, The Wheel of Time
+
+Tue, 17 Nov 2026 02:11:12 GMT
+
+https://collider.com/prime-video-shows-binge-week-november-16-2026/
+
+The Wheel of Time, Frasier, and iZombie make up our list of the best Prime Video shows to binge the week of November 16.
+---------
+
+# 7 Forgotten Netflix Miniseries That Are Perfect From Start to Finish
+
+TV, Netflix, TV Miniseries, Unbelievable, Maniac
+
+Tue, 17 Nov 2026 00:14:12 GMT
+
+https://collider.com/forgotten-netflix-miniseries-perfect-start-to-finish/
+
+From the crime drama Unbelievable to the anime gem Pluto, these Netflix miniseries are truly exceptional despite not being remembered by audiences.
+---------
+
+# ‘Rivals’ Season 2 Boss Reveals the Meaning Behind That Rupert and Taggie Scene in Episode 9 [Exclusive]
+
+TV Features, Rivals, Disney+, Hulu, Romance
+
+Mon, 16 Nov 2026 23:55:12 GMT
+
+https://collider.com/rivals-season-2-episode-9-alex-lamb-rupert-taggie-scene-meaning/
+
+Alex Lamb explains the meaning behind the crucial Rupert and Taggie scenes in Rivals Season 2, Episode 9, shaping their evolving relationship.
+---------
+
+# Sam Rockwell’s New Spy Movie Nearly Doubles Its Theater Count
+
+Movie News, Wild Horse Nine, Sam Rockwell, Crime, Box Office
+
+Mon, 16 Nov 2026 23:45:12 GMT
+
+https://collider.com/wild-horse-nine-box-office-28-million/
+
+Wild Horse Nine adds 1,075 theaters as John Malkovich’s Oscar contender reaches $28 million worldwide after a strong box office hold.
+---------
+
+# ‘The Rings of Power’ Just Dropped a Direct Callback to Peter Jackson’s Trilogy in 3 Minutes
+
+TV Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Fellowship of the Ring, Prime Video, Peter Jackson
+
+Mon, 16 Nov 2026 23:41:12 GMT
+
+https://collider.com/the-rings-of-power-season-3-peter-jackson-movies-easter-egg/
+
+The Rings of Power Season 3 quietly dropped a callback to Peter Jackson's Lord of the Rings trilogy in one fateful 3-minute scene.
+---------
+
+# ‘Spider-Man: Brand New Day’ Officially Returns to Theaters With New Footage
+
+Movie News, Spider-Man: Brand New Day, Tom Holland, Rosario Dawson, Marvel
+
+Mon, 16 Nov 2026 23:40:04 GMT
+
+https://collider.com/spider-man-brand-new-day-extended-cut-theatrical-release-date/
+
+Spider-Man: Brand New Day officially returns to theaters with an extended cut, including new Rosario Dawson scenes, ahead of Avengers: Doomsday.
+---------
+
+# 3 Best Movies on Prime Video This Week (Nov 16-20)
+
+Movie, Prime Video, The Love Hypothesis, Rocky III, The Addams Family
+
+Mon, 16 Nov 2026 23:34:12 GMT
+
+https://collider.com/best-movies-prime-video-week-november-16-2026/
+
+The Love Hypothesis, Rocky III, and The Addams Family make up our list of the best movies to watch on Prime Video the week of November 16.
+---------
+
+# Outraged Audiences Start Petition to Cancel Netflix’s 8-Part Smash Hit
+
+TV News, Netflix, The Body, Horror, Religious
+
+Mon, 16 Nov 2026 23:15:12 GMT
+
+https://collider.com/the-body-netflix-cancellation-petition/
+
+A section of the audience has started a petition to cancel Netflix’s sleeper-hit horror series The Body. Find out more.
+---------
+
+# ‘Doctor Who’ Is Officially Returning, But There’s a Catch
+
+TV News, Doctor Who, Sci-Fi, David Tennant, BBC
+
+Mon, 16 Nov 2026 22:45:12 GMT
+
+https://collider.com/doctor-who-the-satan-pit-extended-cut-specially-shot-sequence/
+
+The timey-wimey series is getting the big screen treatment.
+---------
+
+# Johnny Depp Officially Scores Big Against Near-Perfect Sci-Fi Masterpiece at the Box Office
+
+Movie News, Johnny Depp, Ebenezer, Godzilla Minus One, Sci-Fi, Fantasy, Box Office Milestones
+
+Tue, 17 Nov 2026 01:29:43 GMT
+
+https://movieweb.com/ebenezer-box-office-godzilla-minus-one/
+
+A modestly budgeted holiday gamble may have turned into the right kind of box office win.
+---------
+
+# 8 Actors Who Should Replace Robert Pattinson as Batman Now That He’s James Bond
+
+Movie Lists, Batman, DCU, Robert Pattinson, Superhero
+
+Tue, 17 Nov 2026 01:00:16 GMT
+
+https://movieweb.com/robert-pattinson-batman-replacement/
+
+Robert Pattinson has been cast as James Bond, making it likely that DC and Warner Bros. will need to find a new Batman.
+---------
+
+# Bill Skarsgård Officially Rules Out Major Reboot Role After 'IT' Success
+
+Movie News, Bill Skarsgard, A Nightmare on Elm Street, Nightmare on Elm Street, It, Horror
+
+Tue, 17 Nov 2026 00:05:37 GMT
+
+https://movieweb.com/bill-skarsgard-freddy-krueger-reboot/
+
+The 'Nosferatu' actor seems to be moving on from playing villains, ruling himself out of playing this famous movie monster.
+---------
+
+# Marvel Officially Confirms 'Spider-Man: Brand New Day' Theatrical Return Details
+
+Movie News, Spider-Man: Brand New Day, Superhero, Action, Adventure, Comedy, Drama
+
+Mon, 16 Nov 2026 23:25:52 GMT
+
+https://movieweb.com/spider-man-brand-new-day-extended-cut-poster/
+
+Tom Holland's biggest Spider-Man movie is on its way back to theaters, as new details share what to expect in its re-release.
+---------
+
+# Marvel Reveals Original 'Avengers: Doomsday' Plan That Would Have Changed the MCU
+
+Movie News, Avengers: Doomsday, Marvel Cinematic Universe, Superhero, Doctor Doom
+
+Mon, 16 Nov 2026 23:02:03 GMT
+
+https://movieweb.com/avengers-doomsday-doctor-doom-kang/
+
+Before abandoning plans for 'Avengers: The Kang Dynasty', Kevin Feige revealed that Doctor Doom played a shocking role in the planned movie.
+---------
+
+# Adam Sandler's Star-Studded Netflix Original Sets Rare New Release
+
+Movie News, Jay Kelly, Noah Baumbach, George Clooney, Adam Sandler, Comedy, Drama, Blu-ray
+
+Mon, 16 Nov 2026 23:00:18 GMT
+
+https://movieweb.com/jay-kelly-4k-blu-ray-release/
+
+The Criterion Collection is preparing a 4K Blu-ray release of Adam Sandler and George Clooney's Netflix comedy drama 'Jay Kelly.'
+---------
+
+# Scarlett Johansson's New 119-Minute Netflix Sci-Fi Action Movie Will Rewrite the Rules of Netflix
+
+Features, Scarlett Johansson, Ray Gunn, Sci-Fi, Action, Thriller
+
+Mon, 16 Nov 2026 23:00:18 GMT
+
+https://movieweb.com/ray-gunn-upcoming-tease/
+
+The ambitious genre mash-up promises to be something audiences have never seen before, especially on the streaming service.
+---------
+
+# Prime Video's Most Expensive Series Returns To Become the Biggest Streaming Hit in the World
+
+TV News, The Lord of the Rings: The Rings of Power, Hot on Streaming, Fantasy, Prime Video
+
+Mon, 16 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/the-rings-of-power-lotr-streaming-hit-prime-video-november-2026/
+
+It didn't take long for the billion-dollar series to storm the charts following its return to Prime Video on Nov. 11, 2026.
+---------
+
+# 'Garfield' Returns in New Trailer for Upcoming Streaming Series
+
+TV News, Garfield, Paramount Plus, Comedy
+
+Mon, 16 Nov 2026 21:18:13 GMT
+
+https://movieweb.com/garfield-trailer-paramount-plus/
+
+Thank goodness it doesn't drop on a Monday.
+---------
+
+# Chris Pratt's Hit Prime Video Action Thriller Franchise Sets Sights on New Series
+
+TV News, Chris Pratt, The Terminal List, Action, Thriller, Drama
+
+Mon, 16 Nov 2026 21:05:54 GMT
+
+https://movieweb.com/cry-havoc-the-terminal-list-prequel-series/
+
+One of Chris Pratt's most successful thriller projects is now pushing forward into a new story on Prime Video.
+---------
+
 # Chris Pratt’s The Terminal List Confirms New Prequel Series After Season 3
 
 TV, The Terminal List
