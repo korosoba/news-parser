@@ -1,3 +1,410 @@
+# The Matrix Franchise Rights Reportedly In Dispute Amid Sequel Development
+
+Movies, The Matrix
+
+Wed, 18 Nov 2026 02:55:04 GMT
+
+https://screenrant.com/the-matrix-franchise-rights-wachowskis-skydance-dispute/
+
+After the merger of Warner Bros. and Paramount, the rights to The Matrix franchise are reportedly in dispute, despite a sequel being in development.
+---------
+
+# It's Official: Clair Obscur Will Never Be The Same
+
+Gaming, Clair Obscur: Expedition 33, PC
+
+Wed, 18 Nov 2026 02:33:21 GMT
+
+https://screenrant.com/clair-obscur-expedition-33-sandfall-writer-update/
+
+It's the end of an era for the Clair Obscur franchise, with a major departure at Sandfall Interactive leaving its future uncertain.
+---------
+
+# Grimm Fairy Tales’ Adults-Only Series Is The Perfect 225-Part Dark Fantasy Binge
+
+Comics, Masked Recs
+
+Wed, 18 Nov 2026 02:16:18 GMT
+
+https://screenrant.com/grimm-fairy-tales-adult-series/
+
+If you love classic fairy tales but want something more R-rated, one surprisingly massive adult-oriented fantasy experience deserves your attention.
+---------
+
+# Tom Hardy & Guy Ritchie’s Mob Thriller Officially Peaks 3 Days Before Finale
+
+Streaming TV, Masked Recs
+
+Wed, 18 Nov 2026 02:00:17 GMT
+
+https://screenrant.com/mobland-season-2-tom-hardy-guy-ritchie-mob-thriller-peaks-before-finale/
+
+MobLand season 2 Episode 9 hits the show's highest IMDb rating of 8.7, ahead of the November 20 finale of Tom Hardy and Guy Ritchie's crime thriller.
+---------
+
+# How New Hunger Games Prequel Changes The Original Movies
+
+Movies, The Hunger Games: Sunrise on the Reaping, The Hunger Games
+
+Wed, 18 Nov 2026 02:00:17 GMT
+
+https://screenrant.com/hunger-games-prequel-sunrise-on-the-reaping-changes-original-movies/
+
+Sunrise on the Reaping explores Haymitch’s past, giving his bond with Katniss and the rebellion in the original Hunger Games movies new meaning.
+---------
+
+# NCIS Season 24’s Most Dangerous Story Is Paying Off
+
+Network TV, NCIS
+
+Wed, 18 Nov 2026 02:00:17 GMT
+
+https://screenrant.com/ncis-season-24-nick-torres-story-payoff/
+
+Torres' dangerous undercover work in NCIS season 24 is becoming a bigger part of his story, and its impact on the MCRT team dynamics is taking a toll.
+---------
+
+# Why Home Alone Recast Marv Addressed By Director 36 Years Later
+
+Movies, Home Alone
+
+Wed, 18 Nov 2026 01:02:28 GMT
+
+https://screenrant.com/home-alone-marv-daniel-stern-recast-chris-columbus-explained/
+
+36 years after the original Home Alone movie was released, director Chris Columbus addresses why the role of Marv was recast with Daniel Stern.
+---------
+
+# These 5 Fantasy Epics Make LotR Feel Small
+
+Books, The Lord of the Rings
+
+Wed, 18 Nov 2026 01:00:17 GMT
+
+https://screenrant.com/fantasy-epics-make-lotr-feel-small/
+
+The Lord of the Rings series and world by J.R.R. Tolkien seems small compared to these five epic fantasy book series worth checking out.
+---------
+
+# Jeff Bezos' Role In Robert Pattinson James Bond Casting Revealed
+
+Movies, Bond 26, James Bond
+
+Wed, 18 Nov 2026 00:42:02 GMT
+
+https://screenrant.com/robert-pattinson-james-bond-casting-jeff-bezos-role-response/
+
+Amazon CEO Jeff Bezos reveals what role he had in casting Robert Pattinson as James Bond, and why they were initially biased against him.
+---------
+
+# 4 Years After The Series' End, Disney's Amphibia Returns With Strange Voyage
+
+Comics, Amphibia, Disney
+
+Wed, 18 Nov 2026 00:00:17 GMT
+
+https://screenrant.com/disney-amphibia-return-new-graphic-novel-strange-voyage/
+
+Disney's Amphibia is officially coming back with a brand-new series that is set to start in 2027. Here is everything you need to know about it.
+---------
+
+# Every Pokémon Starter Trio, Ranked Worst to Best
+
+Games, Pokemon, Nintendo
+
+Wed, 18 Nov 2026 02:45:12 GMT
+
+https://www.cbr.com/pokemon-starter-trios-ranked-worst-to-best-list/
+
+Ever since Squirtle, Bulbasaur, and Charmander were introduced, fans have loved Pokémon's starter trios, but some starters rank above the competition.
+---------
+
+# The Greatest Sci-Fi Action of the 21st Century Returns as a Global Streaming Hit
+
+Movies, Mad Max: Fury Road, Mad Max, Sci-Fi
+
+Wed, 18 Nov 2026 02:30:12 GMT
+
+https://www.cbr.com/mad-max-fury-road-sci-fi-action-pvod-apple-tv-store-success-november-2026/
+
+Mad Max: Fury Road is a global streaming hit 11 years after its theatrical debut.
+---------
+
+# 6 Weakest Saiyans in Dragon Ball History, Ranked
+
+Anime, Dragon Ball
+
+Wed, 18 Nov 2026 02:25:12 GMT
+
+https://www.cbr.com/dragon-ball-weakest-saiyans-ranked-list/
+
+Goku and Vegeta are some of Dragon Ball's most powerful characters, but many of its Saiyans are much weaker than you'd expect.
+---------
+
+# Ron Howard Confirms Jim Carrey's Grinch 2 With Major Update on the Dr. Seuss Sequel
+
+Movies
+
+Wed, 18 Nov 2026 02:16:43 GMT
+
+https://www.cbr.com/jim-carrey-the-grinch-2-ron-howard-update/
+
+Ron Howard and Jim Carrey are developing a sequel to How the Grinch Stole Christmas.
+---------
+
+# 5 TTRPGs for Anyone Who Wants to Pilot a Mecha
+
+Games, Role Playing Game, Tabletop
+
+Wed, 18 Nov 2026 01:45:11 GMT
+
+https://www.cbr.com/best-ttrpgs-play-as-mecha-pilots-list/
+
+These five TTRPGS are some of the best options to live out the dream of being a mech pilot.
+---------
+
+# 10 Greatest Military Sci-Fi Books of All Time, Ranked
+
+Books, Sci-Fi
+
+Wed, 18 Nov 2026 01:30:11 GMT
+
+https://www.cbr.com/best-military-sci-fi-books-ranked-list/
+
+Exploring combat, futuristic tech, psychological warfare, & the cost of conflict, these mind-blowing military sci-fi books are absolute masterpieces
+---------
+
+# Jujutsu Kaisen Officially Rewrites the Shibuya Incident With New Alternate Story
+
+Anime, Jujutsu Kaisen
+
+Wed, 18 Nov 2026 01:25:11 GMT
+
+https://www.cbr.com/jujutsu-kaisen-phantom-parade-shibuya-incident-alternate-story/
+
+One of Jujutsu Kaisen's most exciting arcs gets a major overhaul as part of a third anniversary update.
+---------
+
+# 5 Best 1990s Fantasy Anime You Can Finish in One Weekend
+
+Anime, Slayers, Record Of Lodoss War, Fantasy
+
+Wed, 18 Nov 2026 01:15:11 GMT
+
+https://www.cbr.com/best-1990s-fantasy-anime-weekend-binge-list/
+
+The 1990s were filled with creative fantasy anime, and these shorter series are perfect for a weekend binge.
+---------
+
+# 25 Years Later, Steven Spielberg's 10-Part War Masterpiece Is Making an Epic Comeback
+
+TV, Band of Brothers, steven spielberg, Television
+
+Wed, 18 Nov 2026 01:00:11 GMT
+
+https://www.cbr.com/steven-spielberg-band-of-brothers-amazon-success-november-2026/
+
+One of Steven Spielberg's greatest projects ever, the war masterpiece Band of Brothers, is making a huge comeback on streaming.
+---------
+
+# ‘NCIS: Origins’ Officially Sets Season 3 Finale Date Just 10 Episodes In
+
+TV News, NCIS: Origins, Mark Harmon, CBS, Austin Stowell
+
+Wed, 18 Nov 2026 02:54:12 GMT
+
+https://collider.com/ncis-origins-season-3-finale-date-10-episodes/
+
+NCIS: Origins Season 3 sets finale date after just 10 episodes. The shortened CBS season concludes before NCIS: Sydney returns.
+---------
+
+# Robert Pattinson’s James Bond Is Officially Breaking a 70+ Year Tradition
+
+Movie News, James Bond, Robert Pattinson, Denis Villeneuve, Bond 26
+
+Wed, 18 Nov 2026 02:30:12 GMT
+
+https://collider.com/robert-pattinson-james-bond-king-charles/
+
+Robert Pattinson's James Bond will become the first 007 to serve under a King rather than a Queen, breaking a tradition dating back to 1962.
+---------
+
+# 5 Must-See Cheesy Christmas Movies Coming Out in 2026
+
+Movie, Christmas, Disney+, Netflix, Hallmark
+
+Wed, 18 Nov 2026 02:12:12 GMT
+
+https://collider.com/cheesy-christmas-movies-2026/
+
+Not sure if you should start with the Hallmark Channel or Netflix when it comes to 2026 Christmas movies? These five should be topping your list.
+---------
+
+# Taylor Sheridan and Guy Ritchie Officially Battle for No. 1 Spot on Streaming
+
+TV News, Taylor Sheridan, Tulsa King, Paramount Plus, MobLand
+
+Wed, 18 Nov 2026 02:00:12 GMT
+
+https://collider.com/taylor-sheridan-tulsa-king-overtakes-guy-ritchie-mobland-streaming-success-paramount-plus-november-2026/
+
+Taylor Sheridan's Tulsa King overtakes Guy Ritchie's MobLand to reach No. 1 on Paramount+'s streaming charts.
+---------
+
+# 7 Upcoming Prime Video Movies, Ranked by Hype
+
+Movie, Prime Video, Madden, The Man with the Bag, Perfect Liars
+
+Wed, 18 Nov 2026 01:55:12 GMT
+
+https://collider.com/upcoming-prime-video-movies-ranked-hype/
+
+Storm, The Man With the Bag, Madden, Red, White & Royal Wedding, and more make up our list of the most anticipated Prime Video movies.
+---------
+
+# 10 Classic Thriller Books Worth Reading Again and Again
+
+Books and Comics, Misery, The Talented Mr. Ripley, And Then There Were None, The Running Man
+
+Wed, 18 Nov 2026 01:51:12 GMT
+
+https://collider.com/classic-thriller-books-worth-reading-again-and-again/
+
+Classic thriller books like And Then There Were None, Misery, and The Talented Mr. Ripley are all very much worth reading again and again.
+---------
+
+# 7 Greatest Action Movies That Are Also Biopics, Ranked
+
+Movie, Braveheart, The Revenant, Napoleon, Hacksaw Ridge
+
+Wed, 18 Nov 2026 01:32:12 GMT
+
+https://collider.com/best-action-movies-also-biopics-ranked/
+
+Great action movies like The Revenant, Braveheart, and Hacksaw Ridge, are also outstanding biopics.
+---------
+
+# The First Original Movie of the Decade To Make $500 Million Is Officially on Netflix
+
+Movie News, Obsession, Horror, Netflix, Curry Barker
+
+Wed, 18 Nov 2026 01:30:12 GMT
+
+https://collider.com/obession-streaming-netflix-november-2026/
+
+Curry Barker’s Obsession is now on Netflix in the U.S. after becoming Hollywood’s first original movie of the 2020s to gross $500 million worldwide.
+---------
+
+# 10 Classic Fantasy Books To Read Before Kicking the Bucket
+
+Books and Comics, Fantasy, The Lord of the Rings, Harry Potter, The Chronicles of Narnia: The Lion, the Witch and the Wardrobe
+
+Wed, 18 Nov 2026 01:11:12 GMT
+
+https://collider.com/classic-fantasy-books-to-read-bucket-list/
+
+J.R.R. Tolkien's The Lord of the Rings and C.S. Lewis' The Lion, the Witch and the Wardrobe are some of the classic fantasy books you should read.
+---------
+
+# J.J. Abrams’ ‘Jurassic Park’ Replacement Officially Crowned the New King of HBO Max
+
+Movie News, The End of Oak Street, J.J. Abrams, Ewan McGregor, Anne Hathaway
+
+Wed, 18 Nov 2026 01:00:12 GMT
+
+https://collider.com/jj-abrams-the-end-of-oak-street-streaming-success-hbo-max-november-2026/
+
+J.J. Abrams' Jurassic Park replacement, The End of Oak Street, is officially a prehistoric streaming hit. Read on for more.
+---------
+
+# Brad Pitt's Long-Awaited Action Thriller Sequel Officially Moves Forward After 13 Years
+
+Movie News, Brad Pitt, World War Z 2, Horror, World War Z
+
+Wed, 18 Nov 2026 02:19:42 GMT
+
+https://movieweb.com/world-war-z-sequel-brad-pitt-confirmation/
+
+Pitt and company have "some good ideas I'm pretty excited about."
+---------
+
+# New ‘Dungeon Crawler Carl’ Release Is a Reminder to Read One of the Biggest Fantasy Series Ever
+
+Features, Dungeon Crawler Carl, Sci-Fi
+
+Wed, 18 Nov 2026 01:00:15 GMT
+
+https://movieweb.com/dungeon-crawler-carl-deluxe-edition-release/
+
+The new release features a special Q&amp;A conducted by the characters themselves, offering an incentive to read it for the first time or to revisit it.
+---------
+
+# Robert Pattinson's James Bond Casting Almost Fell Apart Over One Major Concern
+
+Movie News, James Bond, james bond, James Bond 26, Robert Pattinson, Jeff BEzos, Action, Adventure, Thriller, Drama
+
+Tue, 17 Nov 2026 23:35:04 GMT
+
+https://movieweb.com/james-bond-jeff-bezos-robert-pattinson/
+
+While it took years for Amazon to cast Robert Pattinson as James Bond, there was one concern that almost kept him from getting the part.
+---------
+
+# New Sylvester Stallone Movie Hailed by Audiences Officially Lands in 4x as Many Theaters
+
+Movie News, I Play Rocky, Rocky, Box Office Milestones, Biography, Drama
+
+Tue, 17 Nov 2026 23:00:16 GMT
+
+https://movieweb.com/i-play-rocky-box-office-november-2026/
+
+The underdog drama's box office prospects look bright ahead of its wide theatrical release.
+---------
+
+# 9 HBO Masterpiece Series With 15 Episodes or Less You Can Watch In a Weekend
+
+TV Lists, HBO Max
+
+Tue, 17 Nov 2026 23:00:16 GMT
+
+https://movieweb.com/hbo-shows-15-episodes-less/
+
+HBO has plenty of long-running hits, but these shows prove that some of its best stories are much shorter.
+---------
+
+# New "Tombstone Meets House of the Dragon" Sci-Fi Western Officially Reaches Major Milestone
+
+TV News, Sci-Fi, Western, Dinosaurs of the Wild West, Tombstone, House of the Dragon
+
+Tue, 17 Nov 2026 22:17:19 GMT
+
+https://movieweb.com/dinosaurs-of-the-wild-west-cast-production-start/
+
+The director of 'Primitive War' is bringing his action-packed dinosaur thrills to an exciting new alternate history series.
+---------
+
+# Taylor Sheridan's 3-Part Action Thriller Sensation Is Officially a 100-Day Global Streaming Hit
+
+TV News, Lioness, Paramount Plus, Hot on Streaming, Taylor Sheridan, Action, Thriller
+
+Tue, 17 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/lioness-taylor-sheridan-stream-paramount-november-2026/
+
+'Tulsa King' might be in the middle of its new season, but it's Taylor Sheridan's military action thriller that's breaking streaming milestones.
+---------
+
+# 8 Gritty Crime Thriller Series Better Than ‘True Detective’
+
+TV Lists, True Detective, Crime, Thriller
+
+Tue, 17 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/crime-thriller-shows-better-true-detective/
+
+These riveting crime series keep tension and suspense going from start to finish, even surpassing 'True Detective' at times.
+---------
+
 # Amazon's New Action Thriller Series Will Make Jack Ryan Look Small
 
 Streaming TV, Prime Video
