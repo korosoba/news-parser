@@ -1,3 +1,333 @@
+# The Altruists: Julia Garner Stars In Netflix's New 8-Part True Crime Masterpiece
+
+Streaming TV, Masked Recs
+
+Thu, 19 Nov 2026 08:15:18 GMT
+
+https://screenrant.com/netflix-new-series-the-altruists-true-crime-binge-watch/
+
+The Altruists stars Julia Garner as Caroline Ellison in Netflix's 8-part true-crime drama about Sam Bankman-Fried and the $8 billion FTX scandal.
+---------
+
+# 52-Episode 'War Of The Worlds Meets The Walking Dead' Delivers Sci-Fi At Its Finest
+
+TV, Masked Recs
+
+Thu, 19 Nov 2026 08:01:19 GMT
+
+https://screenrant.com/falling-skies-peak-sci-fi-war-of-the-worlds-meets-the-walking-dead/
+
+A gritty post-invasion survival saga where human bonds outshine alien terror, this underrated 5-season saga deserves another look 15 years later.
+---------
+
+# GTA 6: How To Get Halifax To Call You Back
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Thu, 19 Nov 2026 08:01:19 GMT
+
+https://screenrant.com/gta-6-how-to-get-halifax-to-call-you-back/
+
+In any given GTA game it's tough to get people to call you back, but for Halifax, it might take a really long time unless you do these steps.
+---------
+
+# The Altruists: Julia Garner's Sensational Tragic Romance Gets A True Crime Disguise | Review
+
+Streaming TV, The Altruists
+
+Thu, 19 Nov 2026 08:01:19 GMT
+
+https://screenrant.com/the-altruists-netflix-review/
+
+The Altruists presents itself as a true crime drama, which evolves into a tragic romance as the core characters continue to pull each other down.
+---------
+
+# HBO's 28-Episode Sci-Fi Masterpiece Pushes Mystery Box Storytelling To Its Absolute Limits
+
+Classic TV, Masked Recs
+
+Thu, 19 Nov 2026 07:30:19 GMT
+
+https://screenrant.com/the-leftovers-mystery-box-storytelling/
+
+An HBO sci-fi masterpiece takes a no-holds-barred approach towards mystery box storytelling and pushes it to its absolute limits in its 28 episodes.
+---------
+
+# Murder in Galicia Is Netflix's Best New 3-Part Crime Thriller To Binge This Week
+
+Streaming TV, Masked Recs
+
+Thu, 19 Nov 2026 07:15:18 GMT
+
+https://screenrant.com/netflix-new-series-murder-in-galicia-crime-thriller-binge-watch/
+
+Netflix's Murder in Galicia is a 3-part crime thriller starring Tristán Ulloa, following a Civil Guard sergeant investigating an attack in Spain.
+---------
+
+# All 13 Episodes Of This Masterpiece Detective Series Are Perfect From Start To Finish
+
+TV, Masked Recs
+
+Thu, 19 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/sherlock-bbc-detective-series-perfect-start-to-finish/
+
+One of the best detective series of all time has released 13 episodes, and they are perfect from start to finish, though with some surprising choices.
+---------
+
+# Wheel Of Time: The Last Battle Officially Releasing June 2027
+
+Gaming, The Wheel of Time, PC
+
+Thu, 19 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/wheel-of-time-last-battle-reward-june-2027/
+
+The Wheel of Time returns to The Last Battle in an epic new release arriving in June 2027, bringing back a proper adaptation of Jordan's work.
+---------
+
+# Stephen King's 8-Episode Sci-Fi Masterpiece Delivers A 10/10 Time Travel Story
+
+Classic TV, Masked Recs
+
+Thu, 19 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/11-22-63-stephen-king-perfect-time-travel-story/
+
+Stephen King's eight episode sci-fi journey blends historical detail, emotional stakes, and clear time machine logic that never overwhelms viewers.
+---------
+
+# All 8 Episodes Of HBO's 'Modern Sopranos' Masterpiece Are Perfect From Start To Finish
+
+Streaming TV, HBO Max
+
+Thu, 19 Nov 2026 06:45:18 GMT
+
+https://screenrant.com/the-penguin-hbo-modern-sopranos/
+
+The Sopranos may be one of HBO's earliest masterpieces, but another similar to it ran for only eight episodes in 2024, all of which were excellent.
+---------
+
+# Yellowjackets Stars Say Season 4 Felt Like a Completely Different Series: ‘It Wasn’t the Essence of Our Show’
+
+TV, Yellowjackets, Paramount Plus, Showtime
+
+Thu, 19 Nov 2026 05:05:19 GMT
+
+https://www.cbr.com/yellowjackets-season-4-cast-post-rescue-storyline/
+
+Yellowjackets Season 4 stars Sophie Thatcher and Sophie Nélisse discuss filming the post-rescue storyline and why they missed the wilderness.
+---------
+
+# 5 Turn-Based RPGs With Virtually Perfect Party Systems
+
+Games, Role Playing Game, video game
+
+Thu, 19 Nov 2026 04:45:12 GMT
+
+https://www.cbr.com/turn-based-rpgs-perfect-party-systems/
+
+These 5 Turn-Based RPGS feature some of the most perfect party systems that makes you really think who you bring into combat.
+---------
+
+# Netflix’s Genius Sci-Fi Epic Could Be the Next Dune (If It Sticks the Landing)
+
+TV, 3 Body Problem, Sci-Fi, Netflix
+
+Thu, 19 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/netflix-3-body-problem-the-next-dune/
+
+Netflix's latest sci-fi adaptation could become the next major genre epic if the upcoming seasons focus on a few key aspects.
+---------
+
+# 10 Calvin and Hobbes Strips That Adults Can Relate To
+
+Comics, Calvin and Hobbes
+
+Thu, 19 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/best-calvin-and-hobbes-strips-that-adults-can-relate-to/
+
+Bill Watterson's Calvin and Hobbes has produced a treasure trove of comic strips over the years, including some of the most relatable comics around.
+---------
+
+# Jordan Peele May Have Just Teased His Involvement in A Nightmare on Elm Street Reboot
+
+Movies, A Nightmare on Elm Street, Jordan Peele
+
+Thu, 19 Nov 2026 04:10:42 GMT
+
+https://www.cbr.com/a-nightmare-on-elm-street-reboot-jordan-peele/
+
+Is the Oscar-winning horror filmmaker boarding Paramount's A Nightmare on Elm Street reboot?
+---------
+
+# Solo Leveling Confirms 4-Month Return Starting December 18
+
+Anime, Solo Leveling
+
+Thu, 19 Nov 2026 04:10:11 GMT
+
+https://www.cbr.com/solo-leveling-exhibition-comeback-osaka-japan/
+
+Sung Jinwoo and Cha Haein are back, and they're closer to real life than ever thanks to the return of Japan's Solo Leveling Exhibition next month.
+---------
+
+# GTA 6 Players Cry Foul as Rockstar Removes Controversial Franchise Feature After 25 Years
+
+Games, Grand Theft Auto 6
+
+Thu, 19 Nov 2026 03:47:29 GMT
+
+https://www.cbr.com/grand-theft-auto-gta-6-nixed-feature/
+
+A longtime staple of the franchise has been scrapped from Grand Theft Auto 6.
+---------
+
+# 10 Most Powerful Transformers From the Anime Ranked
+
+Anime, Transformers, Innovation
+
+Thu, 19 Nov 2026 03:45:12 GMT
+
+https://www.cbr.com/most-powerful-transformers-anime-ranked/
+
+The Transformers universe has never been short of powerful robots, but some warriors operate on a completely different level.
+---------
+
+# Keanu Reeves' 27-Year-Old Cyberpunk Classic Resurfaces as a Free Streaming Hit
+
+Movies, The Matrix, Pluto TV
+
+Thu, 19 Nov 2026 03:30:12 GMT
+
+https://www.cbr.com/the-matrix-sci-fi-pluto-tv-success-november-2026/
+
+The Matrix is streaming for free and rising on the Pluto TV chart.
+---------
+
+# 10 Hardest RPGs of All Time, Ranked
+
+Games, RPG, Demon's Souls
+
+Thu, 19 Nov 2026 03:30:12 GMT
+
+https://www.cbr.com/hardest-rpgs-all-time-list-demon-souls/
+
+RPGs like Demon's Souls show that the genre can be brutally difficult.
+---------
+
+# Netflix's Newest Miniseries 'The Altruists' Tricks You Into Thinking It's Good | Review
+
+TV Reviews, The Altruists, Netflix, Julia Garner, Anthony Boyle
+
+Thu, 19 Nov 2026 08:01:13 GMT
+
+https://collider.com/the-altruists-netflix-review-julia-garner-anthony-boyle/
+
+Netflix's The Altruists wants you to care more about the love story behind FTX's downfall than the crime itself.
+---------
+
+# 5 Years Later, Clint Eastwood’s Final Movie Is Officially a Netflix Hit
+
+Movie Features, Clint Eastwood, Cry Macho, Unforgiven, Million Dollar Baby
+
+Thu, 19 Nov 2026 05:34:12 GMT
+
+https://collider.com/clint-eastwood-cry-macho-streaming-netflix-hit-november-2026/
+
+Clint Eastwood's 2021 Cry Macho, a Western now among Netflix's most-streamed titles, may be the final movie the 96-year-old ever stars in.
+---------
+
+# 'GTA 6' Just Exposed Gaming’s Biggest Awards Problem
+
+Gaming, Grand Theft Auto 6, Grand Theft Auto 5, Rockstar Games, Video Game
+
+Thu, 19 Nov 2026 05:07:12 GMT
+
+https://collider.com/gta-6-game-awards-2026-nomination-eligibility-problem/
+
+GTA 6 earned a Game of the Year nomination before its release, exposing a frustrating problem with The Game Awards’ eligibility rules.
+---------
+
+# Marvel’s Post-Credit Scenes Have to Go
+
+Movie Features, MCU, Marvel, VisionQuest, Avengers: Doomsday
+
+Thu, 19 Nov 2026 04:19:12 GMT
+
+https://collider.com/marvel-post-credit-scenes-must-stop/
+
+VisionQuest's finale showed that Marvel's teasing of future projects with post-credit scenes has gotten out of hand and needs to be reeled in.
+---------
+
+# Paramount+ Just Made Its Biggest Mistake With Its Surging 99-Minute Fantasy Movie
+
+TV Features, Avatar Aang: The Last Airbender, Avatar: The Last Airbender, Series, Paramount Plus
+
+Thu, 19 Nov 2026 04:14:12 GMT
+
+https://collider.com/avatar-aang-the-last-airbender-should-have-been-tv-series/
+
+Avatar Aang: The Last Airbender should have been a TV series. Its novelization and Avatar: Seven Havens reveal why the movie needed more time.
+---------
+
+# 5 Essential Harlan Coben TV Shows for Beginners
+
+TV, Harlan Coben, Fool Me Once, The Stranger, Run Away
+
+Thu, 19 Nov 2026 04:01:12 GMT
+
+https://collider.com/essential-harlan-coben-shows-beginners/
+
+For TV fans looking to explore Harlan Coben stories for the first time, shows like The Stranger and Fool Me Once are the perfect place to start.
+---------
+
+# 6 Books From the Year 2024 That Are 10/10 Masterpieces
+
+Books and Comics, Books, Kristin Hannah, Sally Rooney, Drama
+
+Thu, 19 Nov 2026 02:03:12 GMT
+
+https://collider.com/best-books-2024/
+
+These standout books of 2024 span grief, reinvention and buried history, with Intermezzo and James among the year's finest reads.
+---------
+
+# The 8 Best-Performed Audiobooks of All Time, Ranked
+
+Books and Comics, Books, Dungeon Crawler Carl, The Lord of the Rings, Harry Potter
+
+Thu, 19 Nov 2026 01:31:12 GMT
+
+https://collider.com/best-performed-audiobooks-all-time-ranked/
+
+Icons like Jeff Hays and Andy Serkis deliver evocative voice work that greatly elevates bangers like Dungeon Crawler Carl and The Lord of the Rings.
+---------
+
+# Taylor Sheridan’s 4th Brand-New Series of 2026 Officially Releases in One Month
+
+Features, Frisco King, Taylor Sheridan, Crime, Thriller
+
+Thu, 19 Nov 2026 02:00:16 GMT
+
+https://movieweb.com/taylor-sheridan-frisco-king-upcoming-release/
+
+2026 has accommodated several new and returning Taylor Sheridan shows. And there is more on the way.
+---------
+
+# Alan Ritchson's Non-Stop 103-Minute Action Thriller Officially Sets New Release
+
+Movie News, Motor City, Alan Ritchson, Action, Thriller, Blu-ray
+
+Thu, 19 Nov 2026 01:30:16 GMT
+
+https://movieweb.com/motor-city-alan-ritchson-blu-ray-release/
+
+IFC Films is preparing a Blu-ray release of Potsy Ponciroli and Alan Ritchson's new action thriller 'Motor City.'
+---------
+
 # Avengers: Doomsday's New Runtime Report Is Disappointing For 1 Key Reason
 
 Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
