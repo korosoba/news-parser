@@ -1,3 +1,443 @@
+# Avengers: Doomsday's New Runtime Report Is Disappointing For 1 Key Reason
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Thu, 19 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/avengers-doomsday-runtime-short-mcu-disappointment/
+
+Avengers: Doomsday's runtime has been revealed in a new Marvel Cinematic Universe report, and it is disappointing for one major reason.
+---------
+
+# 20 Most Universally Loved TV Couples
+
+Classic TV
+
+Thu, 19 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/most-universally-loved-tv-couples/
+
+TV couples are often met with polarized reactions from viewers, but these 20 relationships have their show audiences collectively swooning.
+---------
+
+# Michael Dorn Reveals Paramount’s Plan For Worf To Replace Sisko On Star Trek: Deep Space Nine
+
+TV, Star Trek, Star Trek: Deep Space Nine
+
+Thu, 19 Nov 2026 00:38:59 GMT
+
+https://screenrant.com/star-trek-ds9-worf-replace-sisko-michael-dorn/
+
+Worf joined Star Trek: Deep Space Nine in season 4, but there was an idea making the rounds about Michael Dorn replacing Avery Brooks as series lead.
+---------
+
+# The Body’s 9 Main Characters, Ranked
+
+Streaming TV, The Body
+
+Thu, 19 Nov 2026 00:30:19 GMT
+
+https://screenrant.com/the-body-main-characters-ranked/
+
+Netflix's smash-hit psychological drama The Body is full of complex characters, but some of the biggest players are more sympathetic than others.
+---------
+
+# All 9 Confirmed Survivors In Yellowjackets Explained
+
+Streaming TV, Yellowjackets
+
+Thu, 19 Nov 2026 00:30:19 GMT
+
+https://screenrant.com/yellowjackets-survivors-present-timeline-explained/
+
+When Flight 2525 crashed into the Ontario wilderness in 1996, only nine of the WHS Yellowjackets team are known to have survived to the present day.
+---------
+
+# Chris Pratt Sets New Sci-Fi Movie Based On Time Travel Novel
+
+Movies, Chris Pratt
+
+Thu, 19 Nov 2026 00:26:15 GMT
+
+https://screenrant.com/chris-pratt-the-traveler-movie-cast-paramount-producing-deal/
+
+As the wait for Chris Pratt to come back to the Marvel Cinematic Universe continues, he has now set a new science-fiction based on a novel.
+---------
+
+# Why Scarlett Johansson Replaced DC Star In New Crime Thriller Explained By Director
+
+Movies, Paper Tiger, Scarlett Johansson, Anne Hathaway
+
+Thu, 19 Nov 2026 00:14:38 GMT
+
+https://screenrant.com/paper-tiger-scarlett-johansson-replace-anne-hathaway-james-gray-explained/
+
+Before Scarlett Johansson was cast, a DC star originally had the lead role in a new crime thriller movie featuring Adam Driver and Miles Teller.
+---------
+
+# After 85 Years, Wonder Woman Officially Quits Being A Hero
+
+DC Comics, Wonder Woman
+
+Thu, 19 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/wonder-woman-quit-retired/
+
+Wonder Woman decides to retire from her superhero duties as the end of an era of DC Comics arrives, but a hopeful twist changes everything.
+---------
+
+# Steam’s First Major Free Game For December 2026 Is For Red Dead Redemption Fans
+
+Gaming, Red Dead Redemption, Red Dead Redemption 2, Western, Steam
+
+Thu, 19 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/steam-free-game-like-red-dead-redemption-december-2026/
+
+A swaggering Wild West shooter returns this December with unreliable storytelling, frantic duels and bounty hunts for thrills. Free on Steam soon!
+---------
+
+# After Netflix's 95% RT Time Travel Series, You'll Never Watch Another Sci-Fi Show The Same
+
+Classic TV, Masked Recs
+
+Thu, 19 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/dark-netflix-sci-fi-never-watch-the-same/
+
+Intricate clockwork time travel binds sorrow and science, inviting obsessive rewatches in a Netflix sci-fi masterpiece that redefined the genre.
+---------
+
+# 10 Sleeper Hit Isekai Anime With Better Worldbuilding Than Mushoku Tensei
+
+Anime, Mushoku Tensei: Jobless Reincarnation, Innovation
+
+Thu, 19 Nov 2026 01:15:12 GMT
+
+https://www.cbr.com/sleeper-hit-isekai-anime-better-worldbuilding-than-mushoku-tensei/
+
+Isekai anime surpass Mushoku Tensei by going further than just a hero story and building societies and worlds that keep running without heroes.
+---------
+
+# Sydney Sweeney's 10% RT Box Office Bomb Suddenly Turns Into Streaming Hit
+
+Movies, Madame Web, superheroes
+
+Thu, 19 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/sydney-sweeney-madame-web-superhero-hbo-max-success-november-2026/
+
+Not long after its HBO Max release, Sydney Sweeney's panned superhero film turned into a streaming hit.
+---------
+
+# Paramount's Star Trek Reboot Confirms Franchise Massive Shift
+
+Movies, Star Trek
+
+Thu, 19 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/paramount-end-of-star-trek-tv-shows/
+
+It's a new era for Star Trek as it heads to the big screen once more, but that raises serious questions about its TV slate.
+---------
+
+# 6 Anime With Better Worldbuilding Than Mushoku Tensei
+
+Anime, Mushoku Tensei
+
+Thu, 19 Nov 2026 00:30:12 GMT
+
+https://www.cbr.com/anime-better-worldbuilding-than-mushoku-tensei-list/
+
+Mushoku Tensei is known for its spectacular worldbuilding, but the best anime craft even richer worlds.
+---------
+
+# The Flash Family's Forgotten Character Was Once a Major Hit
+
+Comics, DC Comics, The Flash, kid flash
+
+Thu, 19 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/the-flash-impulse-forgotten-characterdc-comics/
+
+This character was a major hit for the Flash franchise, but has slowly become very less prominent.
+---------
+
+# New Gilmore Girls Documentary Explodes on Streaming 1 Week Before Netflix Pulls the Revival
+
+TV, Gilmore Girls, Gilmore Girls: A Year in the Life
+
+Thu, 19 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/gilmore-girls-documentary-drink-coffee-talk-fast-apple-tv-success-november-2026/
+
+The new Gilmore Girls unauthorized documentary premiered shortly before Netflix loses the revival.
+---------
+
+# 60 Years Later, This Star Trek: TOS Episode Remains the Scariest Hour in Sci-Fi TV History
+
+TV, Star Trek, Sci-Fi, Paramount
+
+Thu, 19 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/star-trek-tos-dagger-of-the-mind-scariest-hour-sci-fi-tv/
+
+“Dagger of the Mind” remains one of the Star Trek franchise's scariest episodes because of its focus on mental health and its asylum setting.
+---------
+
+# Hello Kitty Party Land Review: Almost Perfect for Young Gamers
+
+Games, Hello Kitty, sanrio, Nintendo, Nintendo Switch
+
+Thu, 19 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/hello-kitty-party-land-switch-2-review/
+
+Sanrio Games' Hello Kitty Party Land is more than just another party title or cozy game, and its hurdles might be too much for its youngest players.
+---------
+
+# Hunter Schafer Wants to Be Robert Pattinson's Bond Girl in New 007 Movie
+
+Movies, James Bond
+
+Wed, 18 Nov 2026 23:54:58 GMT
+
+https://www.cbr.com/hunter-schafer-james-bond-girl/
+
+Hunter Schafer addresses becoming the next Bond girl in the the upcoming 007 reboot.
+---------
+
+# Star Wars Director Says Lucasfilm Got Angry After Promising Creative Freedom on New 8-Episode Series
+
+Anime, Star Wars: Visions Presents - The Ninth Jedi, Star Wars: Visions, Star Wars
+
+Wed, 18 Nov 2026 23:35:12 GMT
+
+https://www.cbr.com/star-wars-ninth-jedi-lucasfilm-angry-creative-freedom-promise/
+
+A critically acclaimed director opens up about coming under fire from Lucasfilm during production of a major Star Wars series.
+---------
+
+# 5 Great LitRPG Novels That Are Nothing Like ‘Dungeon Crawler Carl’
+
+Books and Comics, Dungeon Crawler Carl, Books, Sci-Fi, LitRPG
+
+Thu, 19 Nov 2026 01:13:12 GMT
+
+https://collider.com/best-litrpg-books-different-from-dungeon-crawler-carl/
+
+Dungeon Crawler Carl is amazing from start to finish, but it is just the tip of the iceberg for what the LitRPG genre can be.
+---------
+
+# Michael Keaton and Son Sean Douglas Talk Grief, Directing, and Their First-Ever Film Collaboration
+
+Exclusives, Michael Keaton, Kyra Sedgwick, Short
+
+Thu, 19 Nov 2026 00:21:12 GMT
+
+https://collider.com/michael-keaton-sweetwater-sean-douglas-interview/
+
+Michael Keaton and son Sean Douglas talk about their first time on collaborating on Sweetwater, a short film about grief, family relationships and AI.
+---------
+
+# The 8 Greatest Cold War Books of All Time, Ranked
+
+Books and Comics, Books, The Spy Who Came In From The Cold, War
+
+Wed, 18 Nov 2026 23:22:12 GMT
+
+https://collider.com/best-cold-war-books-all-time-ranked/
+
+Timeless gems like The Manchurian Candidate and The Spy Who Came in from the Cold are among the best books exploring the intricacies of the Cold War.
+---------
+
+# 5 Greatest Thanksgiving Episodes of '80s Sitcoms, Ranked
+
+TV, Sitcom, 80s, Full House, Cheers
+
+Wed, 18 Nov 2026 23:03:12 GMT
+
+https://collider.com/best-thanksgiving-episodes-80s-sitcoms-ranked/
+
+From Full House to Cheers, the Thanksgiving episodes from these 1980s sitcoms have come to define the holiday in this decade, but which is the best?
+---------
+
+# 10 Classic Rock Songs That Are Perfect for Thanksgiving, Ranked
+
+Music Features, Music, Lists, Thanksgiving, Rock
+
+Wed, 18 Nov 2026 22:45:12 GMT
+
+https://collider.com/classic-rock-songs-perfect-for-thanksgiving-ranked/
+
+Thanksgiving is all about bringing people together, and these classic rock songs from Aerosmith, KISS, and Sly & the Family Stone do just that.
+---------
+
+# 20 Years Later, Guillermo del Toro’s Dark Fantasy Classic Gets a Stunning 4K Release
+
+Movie News, Pan's Labyrinth, Guillermo del Toro, Cate Blanchett, Jessica Chastain
+
+Wed, 18 Nov 2026 22:26:31 GMT
+
+https://collider.com/pans-labyrinth-20th-anniversary-cate-blanchett-jessica-chastain-clip/
+
+Cate Blanchett, Jessica Chastain, and Jacob Elordi discuss Guillermo del Toro’s female characters in Collider’s exclusive Pan’s Labyrinth clip.
+---------
+
+# 5 Perfect Sci-Fi Books Under 100 Pages
+
+Books and Comics, Sci-Fi, Books, The Time Machine, Binti
+
+Wed, 18 Nov 2026 21:28:12 GMT
+
+https://collider.com/perfect-sci-fi-books-under-100-pages/
+
+From The Time Machine to Forest of Memory, these sci-fi stories explore class, belonging, and the limits of human certainty in under 100 pages.
+---------
+
+# CBS’s Forgotten ‘NCIS’ Action Series Replacement Doesn’t Have a Single Bad Episode 17 Years Later
+
+TV Features, NCIS, The Unit, CBS, Hulu
+
+Wed, 18 Nov 2026 20:29:12 GMT
+
+https://collider.com/cbs-ncis-replacement-the-unit-perfect-action-series/
+
+CBS capitalized on NCIS’s success by releasing The Unit, a gritty action series centered on a top-secret military group.
+---------
+
+# 6 Superhero Movies From the 2020s That Are 10/10 Masterpieces
+
+Movie, Spider-Man: Brand New Day, Superhero, Blue Beetle, The Batman
+
+Wed, 18 Nov 2026 20:19:12 GMT
+
+https://collider.com/superhero-movies-2020s-that-are-1010-masterpieces/
+
+The Suicide Squad, The Batman, and Spider-Man: Brand New Day are among the best superhero movie masterpieces of the 2020s so far.
+---------
+
+# ’Pride and Prejudice’s 10-Part Spin-Off Is the Perfect Binge Before Its Christmas Special
+
+TV Features, The Other Bennet Sister, Pride and Prejudice, Britbox, Jane Austen
+
+Wed, 18 Nov 2026 19:41:34 GMT
+
+https://collider.com/britbox-pride-and-prejudice-replacement-the-other-bennet-sister-christmas-special/
+
+Mary from Pride and Prejudice finds love in BritBox’s The Other Bennet Sister, returning soon for a three-episode Christmas special.
+---------
+
+# 8 Near-Perfect Prime Video Miniseries That Hook You In the First 10 Minutes
+
+TV Lists, Prime Video
+
+Thu, 19 Nov 2026 00:00:17 GMT
+
+https://movieweb.com/prime-video-miniseries-10-minute-hook/
+
+Prime Video has all kinds of shows, including those with slow builds. But these options kick the ball forward much more quickly.
+---------
+
+# Netflix's New 6-Part Crime Thriller Hit Is One of the Biggest Shows in the World After 1 Week
+
+TV News, Power, Netflix, Hot on Streaming, Crime
+
+Thu, 19 Nov 2026 00:00:17 GMT
+
+https://movieweb.com/power-stream-netflix-tudum-november-2026/
+
+Netflix has "stolen" one of the best crime series from another streaming platform.
+---------
+
+# A24's New 174-Minute Masterpiece Sets Digital Streaming Release Date
+
+Movie News, You Can See Everything, Documentary, Crime, A24
+
+Wed, 18 Nov 2026 23:25:06 GMT
+
+https://movieweb.com/you-can-see-everything-digital-release/
+
+One of 2026's biggest new movies, produced by A24, is set to move from theaters to digital before the year comes to an end.
+---------
+
+# 'John Wick' Director's New Action Thriller Officially Stumbles at Box Office Against Near-Perfect Spy Hit
+
+Movie News, How to Rob a Bank, Wild Horse Nine, Box Office Milestones, Action, Thriller, Comedy
+
+Wed, 18 Nov 2026 23:01:17 GMT
+
+https://movieweb.com/how-to-rob-a-bank-wild-horse-nine-november-2026/
+
+A low-budget dark comedy is pulling off a surprise box office upset against a pricey heist thriller.
+---------
+
+# 29 Years Later, ’Peanuts’s Best Quote About Growing Up Is Still Absolutely Brilliant
+
+Features, Peanuts, comics
+
+Wed, 18 Nov 2026 23:01:17 GMT
+
+https://movieweb.com/peanuts-best-quote-growing-up/
+
+Charles Schulz turned one of Sally’s funniest observations into a surprisingly profound lesson about what it truly means to grow up.
+---------
+
+# Olivia Wilde's (Very) R-Rated Thriller Officially Gets Streaming Release Date
+
+Movie News, I Want Your Sex, Olivia Wilde, HBO Max, Comedy, Thriller
+
+Wed, 18 Nov 2026 22:14:20 GMT
+
+https://movieweb.com/i-want-your-sex-hbo-max-streaming-date/
+
+'The Invite' starred opposite Cooper Hoffman in this critically acclaimed comedic thriller.
+---------
+
+# Mel Gibson & Mark Wahlberg's 91-Minute Action Thriller Is Being Pulled From Streaming Next Week
+
+Movie News, Flight Risk, Coming/Leaving Streaming, Mark Wahlberg, Mel Gibson, Action, Thriller
+
+Wed, 18 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/flight-risk-wahlberg-gibson-streaming-hbo-max-november-2026/
+
+You better act fast if you want to see Mark Wahlberg play one of his most unhinged characters to date.
+---------
+
+# Jason Statham Brings the Firepower in Explosive New Look at Action Thriller Sequel
+
+Movie News, The Beekeeper, The Beekeeper 2, Jason Statham, Action
+
+Wed, 18 Nov 2026 21:49:03 GMT
+
+https://movieweb.com/beekeeper-2-jason-statham-poster/
+
+Jason Statham is back as Adam Clay in an exclusive first look at the 'Beekeeper 2' poster.
+---------
+
+# Idris Elba Dives Into Non-Stop Action in First Clip From New Sci-Fi Blockbuster
+
+Movie News, Above the Below, Idris Elba, Sci-Fi, Thriller
+
+Wed, 18 Nov 2026 21:24:13 GMT
+
+https://movieweb.com/above-the-below-idris-elba-first-clip/
+
+Idris Elba's latest sci-fi thriller unveils its first clip ahead of its theatrical release next month.
+---------
+
+# Forgotten Original 'NCIS' Character Officially Returns in New Series
+
+TV News, NCIS, NCIS: Origins, Crime
+
+Wed, 18 Nov 2026 21:09:36 GMT
+
+https://movieweb.com/ncis-origins-tobias-fornell/
+
+Old favorites have been coming back to the 'NCIS' universe all season, and there's more to come.
+---------
+
 # GTA 6 Guides - Locations, Progression, Relationships, & More
 
 Gaming, Grand Theft Auto 6, Grand Theft Auto, Triple-A Games
