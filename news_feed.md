@@ -1,3 +1,443 @@
+# Jared Padalecki’s New Netflix Movie Based On Best-Selling Book Is An Instant #1 Streaming Hit
+
+Movies, Jared Padalecki, Netflix
+
+Fri, 20 Nov 2026 00:23:33 GMT
+
+https://screenrant.com/jared-padalecki-guarding-stars-movie-stream-success-netflix/
+
+With Jared Padalecki taking on his first major movie in almost 20 years, the Supernatural star's Netflix film has become a #1 streaming success.
+---------
+
+# Marvel Announces Vision's New Codename After Historic Transformation
+
+Comics, Vision
+
+Fri, 20 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/vision-new-name-design-infernal-hulk-war/
+
+Vision has a new codename, as Marvel announces an upcoming transformation.
+---------
+
+# 3 Best New HBO Max Series To Binge-Watch This Weekend (November 20–22, 2026)
+
+Streaming TV, HBO Max, What to Watch on Max
+
+Thu, 19 Nov 2026 23:45:18 GMT
+
+https://screenrant.com/best-new-hbo-max-shows-to-binge-weekend-november-20-2026/
+
+The Gilded Age season 4, War, & Crown of Deceit: Inside the Miss Universe Scandal are the best HBO Max series to watch this weekend, Nov 20–22, 2026.
+---------
+
+# The Altruists True Story: 5 Biggest Questions After The Netflix Show’s Ending
+
+Streaming TV, The Altruists
+
+Thu, 19 Nov 2026 23:45:18 GMT
+
+https://screenrant.com/the-altruists-ending-explained-true-story/
+
+The Altruists takes a look at the true story surrounding Sam Bankman-Fried and Caroline Ellison and their attachments to FTX and Alameda Research.
+---------
+
+# Marvel Shares First Image of Jessica Jones 'Jungle Costume' For New Appearance
+
+Comics, Jessica Jones
+
+Thu, 19 Nov 2026 23:31:18 GMT
+
+https://screenrant.com/jessica-jones-new-series-costume-reveal/
+
+A new series will send Jessica Jones on a tour of the Marvel Universe.
+---------
+
+# Netflix's Answer To Blade Runner Is A Rare Example Of A TV Adaptation Beating Its Own Book
+
+Classic TV, Masked Recs
+
+Thu, 19 Nov 2026 23:00:18 GMT
+
+https://screenrant.com/netflix-altered-carbon-better-than-cyberpunk-source-material/
+
+Netflix's two-season cyberpunk masterpiece is better than the book it was based on, introducing characters that are some of the best in sci-fi
+---------
+
+# First Look At New Batman Series Confirms It's Going To Be A Modern Classic
+
+Comics, Batman
+
+Thu, 19 Nov 2026 23:00:18 GMT
+
+https://screenrant.com/batman-shadow-bat-absolute-martian-manhunter-team/
+
+Deniz Camp and Javier Rodriguez bring an even bleaker look at Gotham City as they give readers a soon-to-be classic Batman series.
+---------
+
+# GTA 6: Does Jason Have To Participate In The Safe Word Mission
+
+Gaming, Grand Theft Auto 6, Triple-A Games
+
+Thu, 19 Nov 2026 23:00:18 GMT
+
+https://screenrant.com/gta-6-jason-participate-safe-word-mission/
+
+Later on in GTA 6, you'll need to make a decision with Jason that could impact his relationship with Lucia - here's what you need to do.
+---------
+
+# Guillermo Del Toro Officially Addresses Star Wars & Marvel Rumors
+
+Movies, Guillermo del Toro, Star Wars, Marvel, Marvel Cinematic Universe
+
+Thu, 19 Nov 2026 22:57:22 GMT
+
+https://screenrant.com/guillermo-del-toro-star-wars-marvel-rumors-response/
+
+After years of rumors about Guillermo del Toro being involved in Star Wars and Marvel projects, the filmmaker has provided an official update.
+---------
+
+# Hugh Laurie's New 10-Part Bestselling Series Debuts To Stellar Rotten Tomatoes Score
+
+TV, Dig
+
+Thu, 19 Nov 2026 22:52:45 GMT
+
+https://screenrant.com/hugh-laurie-dig-show-rotten-tomatoes-score-debut/
+
+Hugh Laurie stars alongside Amy Poehler in Dig, and the new Peacock original comedy series is already off to an impressive start on Rotten Tomatoes.
+---------
+
+# 8 Cult Classic '80s Anime That Never Went Mainstream
+
+Anime, Retro Anime
+
+Fri, 20 Nov 2026 00:15:12 GMT
+
+https://www.cbr.com/best-80s-anime-cult-classics-list/
+
+'80s anime like The Guyver never really hit the mainstream, but they still built a dedicated fanbase.
+---------
+
+# Tom Cruise's 113-Minute Time-Loop Thriller Beats Christopher Nolan's Time-Bending Epic on Streaming
+
+Movies, Edge of Tomorrow, tom cruise, Christopher Nolan, Paramount Plus
+
+Fri, 20 Nov 2026 00:00:11 GMT
+
+https://www.cbr.com/tom-cruise-edge-of-tomorrow-defeats-tenet-apple-tv-store-november-2026/
+
+Cruise's underrated sci-fi action movie is currently rising up the charts.
+---------
+
+# Batman and Predator's 1990s Crossover Is Special for More Than the Matchup
+
+Comics, DC Comics, Batman, Predator
+
+Fri, 20 Nov 2026 00:00:11 GMT
+
+https://www.cbr.com/predator-batman-1990s-crossover-is-special/
+
+This Predator-Batman crossover is a great comic for a very simple and straightforward reason.
+---------
+
+# Gary Oldman Called This 97% RT Spy Series a Career Highlight (& It Just Got Renewed Through Season 10)
+
+TV, Slow Horses, Drama, Apple TV
+
+Fri, 20 Nov 2026 00:00:11 GMT
+
+https://www.cbr.com/gary-oldman-slow-horses-renewal-career-highlight/
+
+Gary Oldman has had an exceptional career, making him one of the best actors of all time, but Slow Horses stands out as a career highlight.
+---------
+
+# Sailor Moon's 2 New Exclusive Glass Cups Give Starbucks a Run for Its Money
+
+Anime, Sailor Moon, merchandise
+
+Thu, 19 Nov 2026 23:35:11 GMT
+
+https://www.cbr.com/sailor-moons-glass-cup-designs-boxlunch-release/
+
+The Sailor Moon franchise attempts to steal Starbucks' crown in the glassware department with two exclusive new cup releases.
+---------
+
+# 7 Lost 2000s Anime You Can't Watch Legally Anymore
+
+Anime, Darker Than Black, Eureka Seven
+
+Thu, 19 Nov 2026 23:15:11 GMT
+
+https://www.cbr.com/lost-2000s-anime-not-legal-to-watch-anymore/
+
+Thousands of anime can easily be streamed, but several 2000s classics, like Darker Than Black and The Big O, are no longer legally available to watch.
+---------
+
+# Netflix's 3-Season Comedy Drama Officially Passes Major Milestone
+
+TV, Nobody Wants This, Netflix
+
+Thu, 19 Nov 2026 23:00:12 GMT
+
+https://www.cbr.com/nobody-wants-this-netflix-milestone-november-2026/
+
+Less than a month after the premiere of Season 3, Netflix's hit dramedy Nobody Wants This officially passed the hundred-day mark on the U.S. Top 10.
+---------
+
+# Mel Gibson's Hunting Season is Taken Meets Yellowstone
+
+Movies, Hunting Season, Prime Video, mel gibson
+
+Thu, 19 Nov 2026 23:00:12 GMT
+
+https://www.cbr.com/mel-gibson-hunting-season-taken-meets-yellowstone/
+
+Mel Gibson's 2025 action film titled Hunting Season, which is a combination of Taken and Yellowstone, found the success it deserves on Prime Video.
+---------
+
+# David Boreanaz's Rockford Files Reboot Recasts Another Original Series Character
+
+TV, The Rockford Files, Crime, NBC
+
+Thu, 19 Nov 2026 22:55:29 GMT
+
+https://www.cbr.com/the-rockford-files-reboot-angel-brandon-t-jackson/
+
+Brandon T. Jackson joins The Rockford Files cast.
+---------
+
+# Tracker Star Justin Hartley Sets NBC Medical Drama That's Grey's Anatomy Meets Stephen King
+
+TV, NBC, Drama
+
+Thu, 19 Nov 2026 22:54:43 GMT
+
+https://www.cbr.com/justin-hartley-nbc-medical-drama-dr-lucia/
+
+Justin Hartley's next big television project has been revealed.
+---------
+
+# 6 Shows To Watch if You Love 'Sunrise on the Reaping'
+
+TV, The Hunger Games: Sunrise on the Reaping, The 100, Squid Game, We Were Liars
+
+Fri, 20 Nov 2026 00:39:12 GMT
+
+https://collider.com/shows-like-sunrise-on-the-reaping/
+
+From the sci-fi series The 100 to the psychological thriller We Were Liars, these shows are perfect to watch if you love Sunrise on the Reaping.
+---------
+
+# Netflix’s 2-Part ‘Slow Horses’ Replacement Is Officially Taking Over Streaming
+
+TV News, Slow Horses, Netflix, Black Doves, Keira Knightley
+
+Fri, 20 Nov 2026 00:31:12 GMT
+
+https://collider.com/netflix-black-doves-season-2-streaming-success-november-2026/
+
+Netflix's critically acclaimed spy series, Black Doves, has hit 10 million views after returning with Season 2. Find out more.
+---------
+
+# 8 Thriller Books That Are 10/10 Masterpieces, Ranked
+
+TV, Thriller, Books, The Silence of the Lambs, Gone Girl
+
+Fri, 20 Nov 2026 00:12:12 GMT
+
+https://collider.com/best-thriller-books-masterpieces-ranked/
+
+Gone Girl, The Silence of the Lambs, and The Talented Mr. Ripley stand among thriller fiction’s finest in this ranking of all-time masterpieces.
+---------
+
+# 22 Years Later, the Greatest Quote in TV Western History Is Still Untouchable
+
+TV, Deadwood, Timothy Olyphant, Ian McShane, Western
+
+Fri, 20 Nov 2026 00:04:12 GMT
+
+https://collider.com/best-western-quote-all-time-deadwood-tv-series-sheriff-seth-bullock/
+
+HBO’s Deadwood has the best quote in Western history in a Seth Bullock line that defines the entire series.
+---------
+
+# Netflix’s New ‘Yellowstone’ Replacement Is Officially a No. 1 Streaming Hit
+
+Movie News, Yellowstone, Heartland, Jessica Chastain, Netflix
+
+Fri, 20 Nov 2026 00:00:12 GMT
+
+https://collider.com/netflix-thriller-heartland-streaming-success-november-2026/
+
+Netflix's new thriller, Heartland, had a soft debut after receiving middling reviews from critics and audiences. Find out more.
+---------
+
+# 'Percy Jackson' Season 2 Recap: What To Remember Before Disney+'s Fantasy Series Returns
+
+TV Features, Percy Jackson & the Olympians, Disney+, Walker Scobell, Percy Jackson & The Olympians
+
+Thu, 19 Nov 2026 23:58:12 GMT
+
+https://collider.com/percy-jackson-and-the-olympians-season-2-recap-disney-plus/
+
+Revisit the biggest moments from Percy Jackson Season 2 before Season 3 premieres on Disney+.
+---------
+
+# The 10 Best Songs on the 'GTA 6' Soundtrack, Ranked
+
+Gaming, Grand Theft Auto 6, Music, Video Game, PS5
+
+Thu, 19 Nov 2026 23:54:12 GMT
+
+https://collider.com/best-gta-6-songs-soundtrack-ranked/
+
+There are countless great songs on the GTA 6 soundtrack, including classics like "Just Like Heaven," "If You Leave," and "Master of Puppets."
+---------
+
+# Anne Hathaway’s 'Jurassic Park' Replacement Officially Dominates Streaming
+
+Movie News, Anne Hathaway, The End of Oak Street, Ewan McGregor, Jurassic Park
+
+Thu, 19 Nov 2026 23:30:12 GMT
+
+https://collider.com/anne-hathaway-the-end-of-oak-street-streaming-success-hbo-max-november-2026/
+
+Anne Hathaway's standout role in The End of Oak Street is now trending on HBO Max, with thrilling visuals and strong performances.
+---------
+
+# Robert Pattinson Officially Gets His Biggest Endorsement as the New James Bond
+
+Movie News, Robert Pattinson, James Bond, Amazon, 007
+
+Thu, 19 Nov 2026 23:00:12 GMT
+
+https://collider.com/robert-pattinson-james-bond-royal-family-reaction/
+
+The British Royal Family has officially shared their reaction to the casting of Robert Pattinson as the next James Bond.
+---------
+
+# 6 Spy Shows Better Than 'Black Doves'
+
+TV, Black Doves, Slow Horses, The Americans, The Night Manager
+
+Thu, 19 Nov 2026 22:52:12 GMT
+
+https://collider.com/spy-shows-better-than-black-doves-netflix/
+
+As great as Netflix’s Black Doves is as a spy series, shows like Apple TV’s Slow Horses and Prime Video’s The Night Manager are arguably better.
+---------
+
+# Amazon Officially Remaking a '60s Sci-Fi Cult Classic in New Series
+
+TV News, The Prisoner, Amazon, Sci-Fi
+
+Fri, 20 Nov 2026 00:27:59 GMT
+
+https://movieweb.com/the-prisoner-remake-amazon/
+
+The acclaimed 17-episode British series will be reimagined in a contemporary setting.
+---------
+
+# 'GTA 6' Cast & Cameos: Who Plays the Main Cast, Celebrity Voices, & More
+
+Features, Grand Theft Auto 6
+
+Fri, 20 Nov 2026 00:12:20 GMT
+
+https://movieweb.com/gta-6-cast-guide/
+
+There are celebrities all over GTA 6.
+---------
+
+# Amazon's New R-Rated 6-Part Series Is Officially the Biggest Streaming Hit in the World
+
+TV News, Campus Drivers, Hot on Streaming, Romance, Prime Video
+
+Fri, 20 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/campus-drivers-streaming-prime-video-november-2026/
+
+Prime Video has landed the perfect 'Off Campus' replacement with a new six-episode smash hit.
+---------
+
+# What Happens to Númenor by the Time of 'Lord of the Rings'
+
+Features, The Lord of the Rings: The Rings of Power, Fantasy, Prime Video
+
+Fri, 20 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/lord-of-the-rings-numenor-lore/
+
+Númenor isn't a major faction in 'The Lord of the Rings,' but its influence still exists throughout the trilogy.
+---------
+
+# 'The Rookie' Season 9 Trailer Teases Fate of Tim & Lucy After Major Cliffhanger
+
+TV News, The Rookie, Crime, Nathan Fillion
+
+Thu, 19 Nov 2026 22:15:41 GMT
+
+https://movieweb.com/the-rookie-season-9-teaser/
+
+All is not lost for "Chenford" after all.
+---------
+
+# Gerard Butler's (Very) Intense 109-Minute Action Thriller Is Being Cut From Streaming
+
+Movie News, Law Abiding Citizen, Netflix, Coming/Leaving Streaming, Gerard Butler, Action, Thriller
+
+Thu, 19 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/law-abiding-citizen-leaving-streaming-netflix-december-2026/
+
+You only have a few days left until Gerard Butler's most underrated and brutal action thriller is removed from streaming.
+---------
+
+# Disney+ Crime Fantasy Adaptation Officially Moves Forward 16 Years Later
+
+TV News, Disney+, We Were Liars, Fantasy
+
+Thu, 19 Nov 2026 21:45:23 GMT
+
+https://movieweb.com/the-curse-workers-disney-plus-adaptation/
+
+The mind behind 'We Were Liars' is taking on a new fantasy book adaptation.
+---------
+
+# 'Breaking Bad' Icon Aaron Paul Officially Reunites With Netflix for Smash Hit Thriller Series
+
+TV News, Aaron Paul, Netflix, Thriller, The Beast in Me
+
+Thu, 19 Nov 2026 21:23:50 GMT
+
+https://movieweb.com/the-beast-in-me-season-2-update/
+
+Netflix is clearly not treating this follow-up like an afterthought.
+---------
+
+# Matt Damon Responds to Christopher Nolan Calling His Odysseus the Performance of a Lifetime
+
+Exclusives, The Odyssey, Matt Damon, Christopher Nolan, Action, Adventure, Fantasy, Drama, Romance, War, Thriller, Mystery, Horror
+
+Thu, 19 Nov 2026 21:12:29 GMT
+
+https://movieweb.com/matt-damon-christopher-nolan-odyssey-performance/
+
+After 'The Odyssey' broke countless records in theaters, its star received the highest praise for his work in the movie.
+---------
+
+# HBO's Greatest Historical Miniseries Has 95% on Rotten Tomatoes & You Can Binge It in Under 6 Hours
+
+Features, Chernobyl, HBO Max, Streaming Recommendations, Thriller, Drama
+
+Thu, 19 Nov 2026 21:00:17 GMT
+
+https://movieweb.com/chernobyl-streaming-recommendation/
+
+The series grabs you from the opening scene, giving you an inside look at harrowing history that you won't be able to stop watching.
+---------
+
 # Happy’s Place Season 3 Clip Sees Isabella Plan A Surprise Party For Bobbie
 
 Exclusive, Happy's Place, Happy's Place - Season 3
