@@ -1,3 +1,443 @@
+# Star Wars' TV Spinoff Connected To Andor Characters Encouraged By Show Creator
+
+TV, Star Wars, Andor
+
+Sat, 21 Nov 2026 23:31:48 GMT
+
+https://screenrant.com/star-wars-andor-spinoff-series-continuation-tony-gilroy/
+
+Andor creator Tony Gilroy shared his desire that the Star Wars franchise make a spinoff that's connected to his Rogue One prequel TV show.
+---------
+
+# Recasting Sex And The City For 2026: All 8 Main Characters
+
+Classic TV, Sex and the City
+
+Sat, 21 Nov 2026 23:30:18 GMT
+
+https://screenrant.com/recasting-sex-and-the-city-2026/
+
+Sex and the City was a TV icon, but while the show was groundbreaking at the time, it has aged badly and could be rebooted with a modern cast
+---------
+
+# Spider-Man's Most Brutal Fight In 64 Years Redefines His Strength Level
+
+Comics, Spider-Man
+
+Sat, 21 Nov 2026 23:30:18 GMT
+
+https://screenrant.com/spider-man-full-strength-midnight/
+
+Marvel settles exactly what Spidey can do when he stops holding back.
+---------
+
+# Resident Evil Meets Dave The Diver In Grimy New Horror Game
+
+Gaming, Resident Evil, Dave the Diver, PC
+
+Sat, 21 Nov 2026 23:30:18 GMT
+
+https://screenrant.com/resident-evil-dave-diver-dreadmoor-horror-game-steam/
+
+What if Dave the Diver had more monstrous enemies like Resident Evil? One new Steam game explores the murky depths of a post-apocalyptic waterscape.
+---------
+
+# John Wayne Almost Played Clint Eastwood's Dirty Harry
+
+Movies, Dirty Harry
+
+Sat, 21 Nov 2026 23:26:18 GMT
+
+https://screenrant.com/john-wayne-almost-played-clint-eastwood-dirty-harry/
+
+Before Eastwood inhabited the role of Harry Callahan, Hollywood stars including Frank Sinatra and John Wayne were in talks to portray the rogue cop.
+---------
+
+# 24-Episode Disney+ Sci-Fi Masterpiece Delivers Some Of The Best Writing In Modern TV
+
+Classic TV, Masked Recs
+
+Sat, 21 Nov 2026 23:15:18 GMT
+
+https://screenrant.com/andor-best-writing-modern-tv/
+
+The quality of writing for a show can make or break a series, but Andor's writing is so far beyond the standard that it delivered a masterpiece.
+---------
+
+# 8 Superhero Replacements Who Were Better Than The Original
+
+Comics
+
+Sat, 21 Nov 2026 23:00:18 GMT
+
+https://screenrant.com/superhero-replacements-better-original/
+
+Discover 8 superheroes who took on their predecessors' mantles and became iconic in their own right.
+---------
+
+# HBO's 3-Season '30 Rock Meets Network' Drama Series Has One Of Its Best Casts
+
+Classic TV, Masked Recs
+
+Sat, 21 Nov 2026 23:00:18 GMT
+
+https://screenrant.com/the-newsroom-hbo-best-cast/
+
+Every actor in Hollywood wants to speak the words of Aaron Sorkin, so HBO was able to attract a stacked ensemble cast for The Newsroom.
+---------
+
+# Ahsoka Season 2 Confirms Sabine’s New Look That Honors Her Most Important Rebels Arc
+
+Streaming TV, Ahsoka, Star Wars
+
+Sat, 21 Nov 2026 22:15:18 GMT
+
+https://screenrant.com/sabine-wren-ahsoka-season-2-hair-color-star-wars-rebels-parallel/
+
+Sabine Wren's new hairstyle honors her most important Star Wars Rebels story and hints at her upcoming arc on Peridea in Ahsoka season 2.
+---------
+
+# 66 Years Later, Charles M. Sculz's Favorite Peanuts Strip Is Undefeated
+
+Comics, Peanuts
+
+Sat, 21 Nov 2026 22:00:18 GMT
+
+https://screenrant.com/peanuts-creator-schulz-favorite-strip-clouds/
+
+An iconic scene that's been recreated multiple times, Schulz really nailed this simple exchange between the primary Peanuts kids.
+---------
+
+# Fallout Drops $169.99 Premium New Release Available June 2027
+
+Games, Fallout
+
+Sat, 21 Nov 2026 23:35:11 GMT
+
+https://www.cbr.com/fallout-official-new-release-june-2027/
+
+A new premium Fallout release is set to arrive next year and is available to preorder right now.
+---------
+
+# 6-Part Crime Thriller Based on a True Story Is One of the Most-Watched Shows on Streaming
+
+TV, HBO Max, Crime, Thriller
+
+Sat, 21 Nov 2026 23:30:12 GMT
+
+https://www.cbr.com/silent-night-crime-thriller-hbo-max-success-november-2026/
+
+HBO Max's latest crime miniseries based on a shocking real-life case, Silent Night, is a global streaming hit.
+---------
+
+# 6 Greatest Pinball Machines Based on Video Games, Ranked
+
+Games, Video Games, Pinball, Arcade Games
+
+Sat, 21 Nov 2026 23:15:11 GMT
+
+https://www.cbr.com/best-video-game-pinball-machines-ranked/
+
+Super Mario Bros and Street Fighter show how classic video games can take on a whole new life when they jump from the screen to the pinball playfield.
+---------
+
+# HBO's 4-Season Hit Is the No. 1 Show on Streaming After Renewal News
+
+TV, The Gilded Age, Drama, HBO Max
+
+Sat, 21 Nov 2026 23:00:12 GMT
+
+https://www.cbr.com/the-gilded-age-period-drama-hbo-success-november-2026/
+
+HBO's popular 4-season drama, The Gilded Age, is the most-watched show on streaming after exciting news.
+---------
+
+# One Piece Officially Reveals New Black Friday Collection Featuring Luffy, Zoro and More
+
+Anime, One Piece, Crunchyroll, Shonen Jump
+
+Sat, 21 Nov 2026 23:00:12 GMT
+
+https://www.cbr.com/one-piece-black-friday-clothing-collection-youngla/
+
+One Piece officially reveals its new Black Friday clothing collection featuring Luffy, Zoro, Nami and more, launching November 24.
+---------
+
+# Tom Hardy's 10/10 Crime Show Is 1 Step Away From Becoming Peaky Blinders for the 2020s
+
+TV, MobLand, Peaky Blinders, Crime
+
+Sat, 21 Nov 2026 23:00:12 GMT
+
+https://www.cbr.com/tom-hardy-mobland-becoming-peaky-blinders/
+
+Set in a modern-day London, Tom Hardy's hit crime show MobLand is just one step away from becoming the next Peaky Blinders.
+---------
+
+# Alan Ritchson's War Machine Is the Streaming Event of the Decade
+
+Movies, War Machine, Sci-Fi, Action
+
+Sat, 21 Nov 2026 23:00:12 GMT
+
+https://www.cbr.com/alan-ritchson-war-machine-streaming-event-of-decade/
+
+Audiences have been awaiting more from Netflix's War Machine since its release, and the sequel could be the action streaming hit of the 2020s.
+---------
+
+# Disney+'s 3-Season Fantasy Masterpiece Takes Over Streaming After New Perfect Score
+
+TV, Percy Jackson & the Olympians, Percy Jackson & The Olympians, Fantasy
+
+Sat, 21 Nov 2026 22:30:11 GMT
+
+https://www.cbr.com/percy-jackson-and-the-olympians-fantasy-disney-success-november-2026/
+
+Disney's acclaimed fantasy series, Percy Jackson and the Olympians, is an instant streaming hit after new episodes.
+---------
+
+# HBO Max Is Pulling Mark Wahlberg's 91-Minute Action Thriller This Month
+
+Movies, Flight Risk
+
+Sat, 21 Nov 2026 22:16:46 GMT
+
+https://www.cbr.com/mark-wahlberg-flight-risk-leaving-hbo-max-november/
+
+Mel Gibson's latest directorial outing is flying off of the streamer after November.
+---------
+
+# 7 Biggest Anime Robots That Aren't Gundam, Ranked by Size
+
+Anime, Gundam, mecha, Innovation
+
+Sat, 21 Nov 2026 22:15:12 GMT
+
+https://www.cbr.com/biggest-non-gundam-anime-robots-ranked/
+
+The original RX-78-2 Gundam is 18 meters tall, yet many other anime robots make it look like a miniature model.
+---------
+
+# ‘Harry Potter’ Meets ‘The Fugitive’ in the Fantasy Classic Officially Dominating Streaming
+
+Movie News, Harry Potter and the Prisoner of Azkaban, Prime Video, Fantasy, Streaming
+
+Sat, 21 Nov 2026 23:31:12 GMT
+
+https://collider.com/harry-potter-and-the-prisoner-of-azkaban-streaming-hit-prime-video-november-2026/
+
+Harry Potter and the Prisoner of Azkaban, considered the best in the franchise, is back among the streaming best. Read on for more.
+---------
+
+# Quentin Tarantino’s Definitive Masterpiece Officially Returns as a Streaming Hit Ahead of Sequel
+
+Movie News, Once Upon a Time in Hollywood, The Further Mis-Adventures of Cliff Booth, Quentin Tarantino, Prime Video
+
+Sat, 21 Nov 2026 23:16:12 GMT
+
+https://collider.com/quentin-tarantino-once-upon-a-time-in-hollywood-streaming-success-prime-video-november-2026/
+
+The movie that inspired Quentin Tarantino's The Further Mis-Adventures of Cliff Booth is officially blowing up on streaming.
+---------
+
+# 7 Classic Fantasy Books That Are Even Bigger Today
+
+Books and Comics, Fantasy, Game Of Thrones, Brandon Sanderson, Wicked
+
+Sat, 21 Nov 2026 23:06:12 GMT
+
+https://collider.com/classic-fantasy-books-bigger-today/
+
+Expansive works like Discworld and grimdark classics like A Song of Ice and Fire are among the fantasy books that took years to find their audience.
+---------
+
+# Prime Video's 'The Rings of Power' Is Making a Truly Unprecedented Move With Season 3
+
+TV Features, The Lord of the Rings: The Rings of Power, Prime Video, Charlie Vickers, The Lord of the Rings
+
+Sat, 21 Nov 2026 22:47:12 GMT
+
+https://collider.com/rings-of-power-season-3-finale-early-premiere-theatrical-release/
+
+The Rings of Power Season 3 is making an unprecedented shift, with Prime Video confirming both a theatrical release and an early premiere.
+---------
+
+# 10 Fantasy Shows That Are Perfect Replacements for 'Game of Thrones'
+
+TV, Game Of Thrones, House of the Dragon, A Knight Of The Seven Kingdoms, The Lord of the Rings: The Rings of Power
+
+Sat, 21 Nov 2026 22:41:12 GMT
+
+https://collider.com/fantasy-shows-to-replace-game-of-thrones/
+
+These fantasy shows offer epic storytelling and political intrigue similar to Game of Thrones, from The Wheel of Time to House of the Dragon.
+---------
+
+# 10 Artists Who Should Perform The Next James Bond
+
+Music Features, Harry Styles, James Bond, Music, Soundtracks
+
+Sat, 21 Nov 2026 22:30:12 GMT
+
+https://collider.com/10-artists-who-should-perform-the-next-james-bond/
+
+From RAYE to Oasis and Olivia Dean to Harry Styles, 10 artists who should perform the next James Bond theme.
+---------
+
+# James Bond’s Most Divisive Movie Is Officially Finding New Streaming Success
+
+Movie News, No Time to Die, James Bond, Daniel Craig, Robert Pattinson
+
+Sat, 21 Nov 2026 22:30:12 GMT
+
+https://collider.com/james-bond-no-time-to-die-streaming-success-prime-video-november-2026/
+
+James Bond fans can't stop watching the franchise's most controversial movie after Robert Pattinson was cast as 007.
+---------
+
+# ‘The Expanse’ Meets ‘True Detective’ in New Sci-Fi Thriller Officially Out Now
+
+Books and Comics News, Sci-Fi, Science Fiction, Thriller, Books
+
+Sat, 21 Nov 2026 22:15:12 GMT
+
+https://collider.com/line-of-descent-adam-oyebanji-sci-fi-murder-mystery/
+
+Adam Oyebanji’s Line of Descent is out now. A reported kidnapping aboard a generation ship draws a security officer into a murder investigation.
+---------
+
+# 10 Films From 1996 That Are Now Considered Classics
+
+Movie, Trainspotting, 1990s, Scream, Fargo
+
+Sat, 21 Nov 2026 22:15:12 GMT
+
+https://collider.com/1996-movies-now-considered-classics/
+
+There were many iconic films released in 1996 that are now considered classics 30 years later, including Happy Gilmore, Jerry Maguire, and Scream.
+---------
+
+# Netflix’s ‘Heated Rivalry’ Replacement Is Breaking the Hockey Romance Formula
+
+TV Features, Icebreaker, Netflix, Heated Rivalry, Off Campus
+
+Sat, 21 Nov 2026 22:10:12 GMT
+
+https://collider.com/netflix-icebreaker-heated-rivalry-replacement-hockey-romance/
+
+Netflix's Icebreaker series blends hockey and figure skating in a captivating romance that breaks the familiar Heated Rivalry and Off Campus formula.
+---------
+
+# Jake Gyllenhaal's 124-Minute Sci-Fi Action Thriller Is Officially the #1 Movie on Netflix
+
+Movies, The Day After Tomorrow, Thriller, Jake Gyllenhaal, Netflix
+
+Sat, 21 Nov 2026 22:47:06 GMT
+
+https://movieweb.com/netflix-day-after-tomorrow-ratings/
+
+'Stargate' and 'Independence Day' director Roland Emmerich helmed the mid-2000s climate change disaster pic.
+---------
+
+# 'Sunrise on the Reaping' Star Explains New 'Hunger Games' Franchise Viewing Order
+
+Exclusives, The Hunger Games: Sunrise on the Reaping, Action, Adventure, Drama, Sci-Fi
+
+Sat, 21 Nov 2026 22:38:15 GMT
+
+https://movieweb.com/hunger-games-franchise-viewing-order/
+
+One of the newest 'Hunger Games' stars explains how the newest movie in the series adds to the story already told over the last 14 years.
+---------
+
+# New Taylor Sheridan-Esque 10-Part Crime Thriller Is the #1 Show on Streaming
+
+TV News, Anna Pigeon, Hot on Streaming, Taylor Sheridan, Crime, Thriller
+
+Sat, 21 Nov 2026 22:30:16 GMT
+
+https://movieweb.com/anna-pigeon-stream-vudu-november-2026/
+
+Who needs 'Yellowstone' when this tormented Park Ranger is on the case?
+---------
+
+# NBC's 6-Part Fantasy With 89% on Rotten Tomatoes Delivers a Masterclass in World-Building
+
+Features, Fantasy, Grimm
+
+Sat, 21 Nov 2026 22:30:16 GMT
+
+https://movieweb.com/grimm-world-building/
+
+An NBC fantasy that lasted for six seasons and has an 89% Rotten Tomatoes score created a rich, deep world.
+---------
+
+# Prime Video's Near-Perfect Series With 1 Billion Views Remains One of Streaming's Biggest Shows
+
+TV News, The Chosen, Drama, Hot on Streaming, Prime Video
+
+Sat, 21 Nov 2026 22:04:18 GMT
+
+https://movieweb.com/the-chosen-november-2026/
+
+While bigger franchises grab the headlines, this long-running drama is still quietly holding its ground on Prime Video.
+---------
+
+# 25 Years Later, ‘The Rings of Power’ Repeats Gandalf’s Biggest ‘Lord of the Rings’ Mistake
+
+Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Sat, 21 Nov 2026 21:45:16 GMT
+
+https://movieweb.com/rings-of-power-gandalf-fight/
+
+For all his wisdom, Gandalf made one massive mistake in the 'Lord of the Rings' movies, and as 'Rings of Power' showed, it wasn't the first time.
+---------
+
+# Original 'Hunger Games' Actor Returns Addressed By 'Sunrise on the Reaping' Producer
+
+Exclusives, The Hunger Games: Sunrise on the Reaping, The Hunger Games, Action, Thriller, Drama
+
+Sat, 21 Nov 2026 21:14:51 GMT
+
+https://movieweb.com/hunger-games-actor-returns/
+
+The 'Hunger Games' prequel brings the franchise full circle with a cathartic reunion.
+---------
+
+# The "Greatest Movie of All Time" Is Coming to Free Streaming in Just 10 Days
+
+Movie News, The Shawshank Redemption, Coming/Leaving Streaming
+
+Sat, 21 Nov 2026 21:00:16 GMT
+
+https://movieweb.com/the-shawshank-redemption-stream-december-2026/
+
+Despite receiving seven Academy Award nominations, it failed to win in any category.
+---------
+
+# 10 Things I Wish I Knew Before Starting 'Grand Theft Auto 6'
+
+Movie Lists, Grand Theft Auto 6, video games, Action
+
+Sat, 21 Nov 2026 21:00:16 GMT
+
+https://movieweb.com/gta-6-helpful-tips/
+
+'GTA 6' doesn't tell you everything, allowing curiosity to fuel your exploration and discovery in the massive open world.
+---------
+
+# Taylor Sheridan's 33-Episode Crime Thriller Hit Scores Half a Billion Views on Streaming in Just 1 Week
+
+TV News, Tulsa King, Taylor Sheridan, Crime
+
+Sat, 21 Nov 2026 20:38:44 GMT
+
+https://movieweb.com/tulsa-king-nielsen-ratings/
+
+Taylor Sheridan’s hit continues to prove it can compete well above its platform’s weight class.
+---------
+
 # Every The Hunger Games Movie, Ranked From Worst To Best (Including Sunrise On The Reaping)
 
 Movies, The Hunger Games, The Hunger Games: Catching Fire, The Hunger Games: Mockingjay - Part 1, The Hunger Games: Mockingjay - Part 2, The Hunger Games: Sunrise on the Reaping, The Hunger Games: The Ballad of Songbirds and Snakes
