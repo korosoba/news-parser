@@ -1,3 +1,410 @@
+# All 52 Deaths In The Hunger Games: Sunrise On The Reaping & Who Kills Each Character Explained
+
+Movies, The Hunger Games: Sunrise on the Reaping
+
+Sat, 21 Nov 2026 03:30:18 GMT
+
+https://screenrant.com/the-hunger-games-sunrise-on-the-reaping-movie-every-death-explained/
+
+With the Second Quarter Quell requiring twice the number of tributes, Sunrise on the Reaping has more deaths than ever. Here's everyone who dies.
+---------
+
+# 10 Questions The Body Season 2 Still Needs To Answer
+
+Streaming TV, The Body
+
+Sat, 21 Nov 2026 03:30:18 GMT
+
+https://screenrant.com/the-body-season-1-unanswered-questions/
+
+The Body may be Netflix's most talked about show of 2026, but the hit psychological drama left plenty of loose ends for season 2 to tie up.
+---------
+
+# 10 Most Iconic Archie Comics Stories of All Time
+
+Comics, Archie Comics
+
+Sat, 21 Nov 2026 03:30:18 GMT
+
+https://screenrant.com/most-iconic-archie-stories/
+
+These are the most poignant and influential of the Archie Comics franchise.
+---------
+
+# Sunrise On The Reaping's 10 Biggest Changes To The Hunger Games Book
+
+Movies, The Hunger Games: Sunrise on the Reaping
+
+Sat, 21 Nov 2026 02:30:18 GMT
+
+https://screenrant.com/hunger-games-sunrise-on-the-reaping-movie-book-changes-differences/
+
+Although The Hunger Games: Sunrise on the Reaping remains loyal to the book in many ways, some major changes were made to the original story.
+---------
+
+# X-Men Debuts Terrifying New Villain With Unique Superpower
+
+Marvel Comics, X-Men
+
+Sat, 21 Nov 2026 02:30:18 GMT
+
+https://screenrant.com/x-men-xorcists-villain-demon-explained/
+
+Marvel confirms which villain will be its new X-Men's first antagonist, and it's a terrifying supernatural foe who can possess multiple victims.
+---------
+
+# Elden Ring Meets Minecraft In Huge New Free RPG
+
+Gaming, Elden Ring, Minecraft, PC
+
+Sat, 21 Nov 2026 02:00:18 GMT
+
+https://screenrant.com/elden-ring-meets-minecraft-free-open-world-rpg-dark-craft/
+
+Check out a brand-new free MMORPG that claims to be an Elder Rings-style Soulslike with Minecraft aesthetics and mechanics for fans of both.
+---------
+
+# 20 Years Later, DC Admits Sexism In Batman Franchise
+
+Comics, Batman
+
+Sat, 21 Nov 2026 02:00:18 GMT
+
+https://screenrant.com/dc-sexism-spoiler-batgirl-robin/
+
+Batgirl rightfully calls out Nightwing and the Bat Family in "New Titans" for the way she’s been treated, and it could be a character-defining moment.
+---------
+
+# Over 30 Biggest Easter Eggs, References, & Book Changes In Percy Jackson Season 3 Episodes 1-2
+
+Streaming TV, Percy Jackson & the Olympians
+
+Sat, 21 Nov 2026 01:17:51 GMT
+
+https://screenrant.com/percy-jackson-season-3-easter-eggs-references-book-changes-episode-1-2-titans-curse/
+
+The first two episodes of Percy Jackson season 3 have premiered, featuring an exciting collection of Easter eggs, references, and key book changes.
+---------
+
+# 25 Criminal Minds Episodes Based On Real Cases
+
+Classic TV, Criminal Minds
+
+Sat, 21 Nov 2026 01:15:18 GMT
+
+https://screenrant.com/criminal-minds-episodes-based-real-cases/
+
+There are Criminal Minds episodes based on real cases, as well as Criminal Minds episodes using true stories as a blueprint for its horrors.
+---------
+
+# Shameless: How Old The Characters Are At The Beginning And End Of The Show
+
+Classic TV, Shameless
+
+Sat, 21 Nov 2026 01:00:19 GMT
+
+https://screenrant.com/shameless-characters-age-beginning-end-how-old/
+
+Shameless aired on Showtime for 11 seasons between 2011 and 2021, but how old were the Gallagher kids at the start and end of the show?
+---------
+
+# The Absolute Justice Launches Its First Crossover in DC's Official February 2027 Solicitations
+
+Comics, solicitations, DC Comics
+
+Sat, 21 Nov 2026 03:27:21 GMT
+
+https://www.cbr.com/dc-comics-february-2027-solicitations-absolute-justice/
+
+The Absolute Universe's first crossover launches, plus a brand-new Batman series by Deniz Camp and Javier Rodriguez in DC's February 2027 solicits!
+---------
+
+# 5 Perfect Atari 2600 Games No One Remembers Today
+
+Games, atari, Video Games
+
+Sat, 21 Nov 2026 03:15:11 GMT
+
+https://www.cbr.com/perfect-atari-2600-games-no-one-remembers-today/
+
+Good luck finding even the most diehard Atari fans that know about H.E.R.O. and Dragonfire.
+---------
+
+# Disney's 119-Minute Sci-Fi Thriller That Revived a Franchise Sets HBO Max in Just 1 Month
+
+Movies
+
+Sat, 21 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/alien-romulus-coming-to-hbo-max-december-2026/
+
+A Disney franchise will come to HBO Max in December.
+---------
+
+# Masterpiece Anime Where Every Episode Is Perfect
+
+Anime, Death Parade, Odd Taxi, Innovation
+
+Sat, 21 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/masterpiece-anime-where-every-episode-is-perfect/
+
+Filler and disappointing episodes can weaken even the best anime, but these five series never miss a beat.
+---------
+
+# Avengers: Endgame Is the Best Time Travel Movies
+
+Movies, Avengers: Endgame, Marvel Cinematic Universe, Disney+
+
+Sat, 21 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/disney-avengers-endgame-best-sci-fi-time-travel-movie/
+
+Time travel has always been a fun source of adventure in sci-fi movies, but one Disney spectacular has done it better than any other.
+---------
+
+# 6 Forgotten '80s Sci-Fi Anime That Have Aged Like Fine Wine
+
+Anime, mecha, Sci-Fi, Innovation
+
+Sat, 21 Nov 2026 02:45:12 GMT
+
+https://www.cbr.com/forgotten-80s-sci-fi-anime-aged-like-fine-wine/
+
+Just because the fandom has forgotten these incredible sci-fi anime series doesn't mean they aren't great.
+---------
+
+# 10 A24 Movies That Are 10/10 Masterpieces
+
+Movies, A24, Everything Everywhere All at Once, Ex Machina
+
+Sat, 21 Nov 2026 02:30:12 GMT
+
+https://www.cbr.com/best-a24-movies-list/
+
+For over a decade, A24 has produced some of the most stylistically impressive, structurally unique, and emotionally powerful movies in cinema history.
+---------
+
+# 10 Best Atari Arcade Games of All Time, Ranked
+
+Games, atari, Star Wars, Gaming
+
+Sat, 21 Nov 2026 02:25:12 GMT
+
+https://www.cbr.com/best-atari-arcade-games-of-all-time-ranked-list/
+
+The Atari may be a relic of the past in today's world, but back in the 70s and 80s, these ten games were notoriously played in every household.
+---------
+
+# Yellowstone Quietly Confirms Kayce & Monica's Replacements in Marshals
+
+TV, Yellowstone, Marshals, CBS
+
+Sat, 21 Nov 2026 02:00:12 GMT
+
+https://www.cbr.com/yellowstone-replace-kayce-and-monica-romance-marshals-season-2/
+
+Yellowstone history is repeating itself in Kayce Dutton's CBS spinoff, as Marshals Season 2, Episode 6, "Roughstock," launches a new romance for Tate.
+---------
+
+# Anya Taylor-Joy’s 127-Minute Gritty Sci-Fi Thriller Returns as a Global Sensation
+
+Movies, The Gorge, Sci-Fi, Apple TV
+
+Sat, 21 Nov 2026 02:00:12 GMT
+
+https://www.cbr.com/anya-taylor-joy-the-gorge-global-success-november-2026/
+
+The sci-fi film has never stayed away from the Top 10 for too long.
+---------
+
+# Pokémon Officially Recruits Tommy Lee Jones for New Ad
+
+Gaming News, Pokémon, Tommy Lee Jones, Anime, Japan
+
+Sat, 21 Nov 2026 03:00:22 GMT
+
+https://collider.com/tommy-lee-jones-pokemon-ad/
+
+Pokémon's 30th anniversary brings an unexpected crossover featuring Men in Black star Tommy Lee Jones and a Japanese brand.
+---------
+
+# Guy Ritchie’s Latest Crime Thriller Officially Loses No. 1 Streaming Spot
+
+Movie News, Guy Ritchie, In the Grey, Eiza Gonzalez, Jake Gyllenhaal
+
+Sat, 21 Nov 2026 02:45:12 GMT
+
+https://collider.com/guy-ritchie-in-the-grey-streaming-drop-starz-november-2026/
+
+Guy Ritchie's latest box-office underperformer was on a redemption arc on streaming, but it has now been overtaken after a two-month streak.
+---------
+
+# Apple TV's 10/10 Spy Thriller Just Made a Totally Ambitious Move
+
+TV Features, Slow Horses, Apple TV, Gary Oldman, Jack Lowden
+
+Sat, 21 Nov 2026 02:44:12 GMT
+
+https://collider.com/slow-horses-apple-tv-renewed-season-9-10/
+
+Slow Horses has earned a renewal for Seasons 9 & 10, a historic decision for Apple TV's best spy thriller.
+---------
+
+# 3 Ways Robert Pattinson Makes Sense as James Bond and 1 Way He Doesn't
+
+Movie, James Bond, Robert Pattinson, Daniel Craig, Thriller
+
+Sat, 21 Nov 2026 02:42:12 GMT
+
+https://collider.com/robert-pattinson-new-james-bond-spy-thriller/
+
+Robert Pattinson's casting as James Bond has been polarizing, but the actor could prove to be a great addition to the iconic franchise.
+---------
+
+# Taylor Sheridan’s 10/10 Crime Thriller Officially Surges Ahead of New Spin-Off
+
+TV News, Tulsa King, Taylor Sheridan, Paramount Plus, Sylvester Stallone
+
+Sat, 21 Nov 2026 02:30:12 GMT
+
+https://collider.com/taylor-sheridan-tulsa-king-season-4-streaming-success-paramount-plus-november-2026/
+
+Taylor Sheridan's Tulsa King is on an incredible streak on Paramount+, ahead of its spin-off series Frisco King.
+---------
+
+# Netflix Officially Finds Its Next No. 1 Series in New Psychological Thriller
+
+TV News, The Body, Netflix, The Lord of the Rings: The Rings of Power, Horror
+
+Sat, 21 Nov 2026 02:16:12 GMT
+
+https://collider.com/the-body-streaming-success-netflix-november-2026/
+
+Prime Video's The Lord of the Rings: The Rings of Power has been outshined in popularity by Netflix's latest sensation.
+---------
+
+# Every Hunger Games Book, Ranked
+
+Books and Comics, The Hunger Games, The Hunger Games: The Ballad of Songbirds and Snakes, The Hunger Games: Sunrise on the Reaping, The Hunger Games: Catching Fire
+
+Sat, 21 Nov 2026 02:14:12 GMT
+
+https://collider.com/hunger-games-book-series-ranked/
+
+The Hunger Games books, from the original novel to the prequel Sunrise on the Reaping, are the peak of dystopian fiction, but which is the best?
+---------
+
+# A Legendary Pokémon Is Officially Returning for Only 3 Hours
+
+Gaming News, Pokémon, Pokemon GO, Video Game, iPhone
+
+Sat, 21 Nov 2026 02:00:12 GMT
+
+https://collider.com/pokemon-go-eternamax-eternatus-max-battles-november-2026/
+
+Eternamax Eternatus returns to Pokémon GO on November 21 for three hours of Max Battles. Here’s how to catch Eternatus through the free GO Pass.
+---------
+
+# 'The Bear’s 6-Season Replacement Officially Finds a Home on Netflix
+
+TV Features, 2 Broke Girls, The Bear, Netflix, CBS
+
+Sat, 21 Nov 2026 01:46:23 GMT
+
+https://collider.com/the-bear-replacement-cbs-2-broke-girls-netflix/
+
+CBS’s 2 Broke Girls has finally found a streaming home on Netflix. The comedy about struggling waitresses is a laugh-out-loud alternative to The Bear.
+---------
+
+# Netflix Officially Revives ‘Game of Thrones’ Star’s Heartbreaking Romance
+
+Movie News, Emilia Clarke, Game Of Thrones, Me Before You, Terminator: Genisys
+
+Sat, 21 Nov 2026 01:45:12 GMT
+
+https://collider.com/emilia-clarke-me-before-you-streaming-success-netflix-november-2026/
+
+Emilia Clarke's heartfelt film Me Before You, also starring Sam Claflin, is officially a streaming hit on Netflix.
+---------
+
+# ‘The Rings of Power’ Debunks Its Biggest Witch-king Theory
+
+Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Sat, 21 Nov 2026 02:00:16 GMT
+
+https://movieweb.com/rings-of-power-theo-witch-king-theory/
+
+It's difficult to imagine who else could become the iconic 'Lord of the Rings' villain, but 'The Rings of Power' takes one option off the table.
+---------
+
+# 'Grand Theft Auto VI' Officially Makes Hollywood's Biggest Movie Look Small in Only 24 Hours
+
+Movie News, Grand Theft Auto 6, Box Office Milestones, Avengers: Endgame, Superhero
+
+Sat, 21 Nov 2026 01:00:16 GMT
+
+https://movieweb.com/gta-6-day-one-record/
+
+It rewrote the entertainment record book in a single day.
+---------
+
+# 7 'Grand Theft Auto VI' Changes That Make the Game Harder Than Any Previous GTA
+
+Movie Lists, Grand Theft Auto 6, Action
+
+Sat, 21 Nov 2026 01:00:16 GMT
+
+https://movieweb.com/grand-theft-auto-6-changes-harder/
+
+Creating chaos is still an option in 'Grand Theft Auto VI,' but it's more of a challenge than in previous games.
+---------
+
+# Brad Pitt's Tarantino Sequel Hailed in First Reactions Now Faces Backlash Over Alleged AI Use
+
+Movie News, The Further Mis-Adventures of Cliff Booth, Brad Pitt, David Fincher, Comedy
+
+Sat, 21 Nov 2026 00:01:12 GMT
+
+https://movieweb.com/brad-pitt-cliff-booth-alleged-ai-use/
+
+AI allegations overshadow early praise for the anticipated sequel.
+---------
+
+# ‘The Rings of Power’ Officially Repeats Season 1's Biggest Sauron Problem
+
+Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Sat, 21 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/rings-of-power-season-3-sauron-problem/
+
+One of the most questionable character decisions from season 1 rears its ugly head again in season 3 of 'The Lord of the Rings: The Rings of Power'.
+---------
+
+# HBO Max's New 2-Part Modern 'Peaky Blinders' Remake Is Taking Over Streaming
+
+TV News, This City Is Ours, HBO Max, Hot on Streaming, Crime, Thriller
+
+Sat, 21 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/this-city-is-ours-stream-hbo-november-2026/
+
+The Peaky Blinders just got a modern makeover.
+---------
+
+# Netflix's 8-Part Sci-Fi Thriller Beats 'Black Mirror' at Its Own Game
+
+Features, Living with Yourself, Netflix, Sci-Fi
+
+Fri, 20 Nov 2026 23:01:17 GMT
+
+https://movieweb.com/living-with-yourself-black-mirror-comparison/
+
+If you've ever wanted a full season of the same 'Black Mirror' story, Netflix has just the thing for you.
+---------
+
 # 3 Best Movies To Watch On Netflix This Weekend (November 21-22)
 
 Movies, Netflix, Recommendation
