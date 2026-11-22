@@ -1,3 +1,377 @@
+# BBC Officially Unveils New Sci-Fi Thriller Starring MCU & Game Of Thrones Alumni
+
+TV, Marvel Cinematic Universe, Game Of Thrones, Gugu Mbatha-Raw, Michael McElhatton
+
+Sun, 22 Nov 2026 04:24:56 GMT
+
+https://screenrant.com/bbc-sutherland-sci-fi-show-first-look-gugu-mbatha-raw/
+
+The BBC has unveiled new details about the upcoming sci-fi thriller featuring alumni of the MCU and Game of Thrones ahead of its 2027 debut.
+---------
+
+# Percy Jackson’s Hunters Of Artemis: Who They Are & What They Want In Season 3
+
+Streaming TV, Percy Jackson & the Olympians, Percy Jackson & The Olympians
+
+Sun, 22 Nov 2026 04:15:18 GMT
+
+https://screenrant.com/percy-jackson-hunters-of-artemis-explained/
+
+The Hunters of Artemis will be central to Percy Jackson & the Olympians season 3, and here's everything you need to know about the group.
+---------
+
+# Game Of Thrones Is Officially Giving Us The Jon Snow Vs Night King Showdown We’ve Waited 7 Years For
+
+Gaming, Game of Thrones, PC, Game Of Thrones, Game of Thrones: War for Westeros
+
+Sun, 22 Nov 2026 04:00:18 GMT
+
+https://screenrant.com/game-of-thrones-jon-snow-night-king-war-for-westeros-showdown/
+
+There may have been no more disappointing moment in Game of Thrones than the faceoff between the Night King and Jon Snow, but that's about to change.
+---------
+
+# Cyclops Vs Storm Just Redefined X-Men Lore, Here's How
+
+Comics, X-Men
+
+Sun, 22 Nov 2026 04:00:18 GMT
+
+https://screenrant.com/x-men-midnight-storm-vs-cyclops/
+
+Cyclops and Storm have been more like siblings than teammates, but Marvel Comics will be changing the X-Men's relationship in an upcoming series.
+---------
+
+# Netflix Experiments New Streaming Era With 15-Minute Per Episode Series In 2027
+
+TV, Minimum Wage
+
+Sun, 22 Nov 2026 03:50:28 GMT
+
+https://screenrant.com/netflix-minimum-wage-2027-release-window-return-short-episodes-era/
+
+Netflix's hit sitcom is returning in the spring of 2027 with 14 more episodes as the streamer experiments with a shorter comedy format.
+---------
+
+# 12 Greatest Dystopian Movies Of All Time, Ranked
+
+Movies, The Hunger Games, Terminator, Mad Max, A Clockwork Orange, The Matrix, Blade Runner
+
+Sun, 22 Nov 2026 03:30:18 GMT
+
+https://screenrant.com/best-dystopian-movies-all-time-ranked/
+
+Following the release of the new Hunger Games prequel, let's take a look and rank some of the greatest dystopian movies/franchises of all time.
+---------
+
+# 10 Best Far Side Strips That Turned 40 In 2026
+
+Comics, The Far Side
+
+Sun, 22 Nov 2026 03:16:17 GMT
+
+https://screenrant.com/best-far-side-comics-40-years-2026/
+
+It's a very special year for these installments of Gary Larson's The Far Side comic strip, with 1986's best earning a special place in fans' hearts.
+---------
+
+# GTA 6: Should You Help Mario & Frankie In "Afternoon Delight"
+
+Gaming, Grand Theft Auto 6, PC
+
+Sun, 22 Nov 2026 03:08:40 GMT
+
+https://screenrant.com/gta-6-help-mario-frankie-afternoon-delight/
+
+Once Jason and Lucia decide to team up with Vicki in GTA 6's Afternoon Delight mission, Jason will have the chance to show off his stage skills.
+---------
+
+# Netflix's Highly Anticipated Video Game Adaptation Gets Mixed Update From Director
+
+Movies, BioShock, Netflix
+
+Sun, 22 Nov 2026 03:02:51 GMT
+
+https://screenrant.com/bioshock-netflix-adpatation-mixed-update-francis-lawrence/
+
+Netflix's highly anticipated film adaptation of a hit video game franchise gets a mixed update from its director after four years of development.
+---------
+
+# Fallout 5 Step Aside, The Original Fallout Is Getting A Remaster
+
+Gaming, Fallout, Fallout 5, PC
+
+Sun, 22 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/fallout-original-game-remaster-fan-project/
+
+Fallout 5 may be the talk of the town, but this original Fallout remaster should be on everyone's radar first.
+---------
+
+# 7 Classic Resident Evil Games That Are Unplayable in 2026
+
+Games, Resident Evil, Horror, horror games, Video Games
+
+Sun, 22 Nov 2026 04:15:11 GMT
+
+https://www.cbr.com/unplayable-classic-resident-evil-games/
+
+Resident Evil is one of the most influential horror video game series ever made, but even the best of the best have mishaps.
+---------
+
+# 5 SNES Games Better Than A Link to the Past
+
+Games, Video Games, The Legend of Zelda, Street Fighter
+
+Sun, 22 Nov 2026 03:45:12 GMT
+
+https://www.cbr.com/snes-games-better-than-zelda-link-to-the-past-link/
+
+Hit video games like Donkey Kong Country 2 and Street Fighter II have both surpassed The Legend of Zelda: A Link to the Past.
+---------
+
+# Escape from New York Reboot Loses Zack Snyder as John Carpenter Reveals Backup Director
+
+Movies, Escape From New York, John Carpenter, zack snyder
+
+Sun, 22 Nov 2026 03:41:58 GMT
+
+https://www.cbr.com/escape-from-new-york-john-carpenter-remake-update/
+
+John Carpenter shares a major update on the Escape from New York remake.
+---------
+
+# 7 Crunchyroll Sports Anime That Are 10/10 Masterpieces
+
+Anime, Crunchyroll, Ashita no Joe, Haikyu!!
+
+Sun, 22 Nov 2026 03:30:12 GMT
+
+https://www.cbr.com/flawless-crunchyroll-sports-anime-masterpieces-list/
+
+Between Tomorrow's Joe, Blue Lock, and Ping Pong the Animation, Crunchyroll is the premier destination for standout sports anime!
+---------
+
+# Marvel's New Space Opera Is Already the Sci-Fi Event of the Decade
+
+Movies, MCU, Nova, Marvel
+
+Sun, 22 Nov 2026 03:30:12 GMT
+
+https://www.cbr.com/mcu-nova-space-opera-sci-fi-movie-of-the-2020s/
+
+The announcement of a brand-new cosmic Marvel Studios movie has already given sci-fi fans something huge to look forward to.
+---------
+
+# Amanda Seyfried's Fantasy Horror Reimagining of Iconic Fairy Tale Returns on Free Streaming
+
+Movies, Red Riding Hood, Tubi, Streaming
+
+Sun, 22 Nov 2026 03:03:38 GMT
+
+https://www.cbr.com/red-riding-hood-horror-fantasy-tubi-december-2026/
+
+Amanda Seyfried and Gary Oldman's 15-year-old fantasy horror film gets a new streaming home.
+---------
+
+# 10 Unplayable PS2 Games That Were Once Considered Masterpieces
+
+Games, PlayStation 2, Kingdom Hearts, God of War
+
+Sun, 22 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/unplayable-ps2-games-former-masterpieces-list/
+
+Some PlayStation 2 games like Kingdom Hearts and Killzone might have once been classics, but they just don't play the same anymore.
+---------
+
+# Fullmetal Alchemist Director Says Generative AI Is Failing to Deliver on Its Biggest Promise
+
+Anime, Artificial Intelligence
+
+Sun, 22 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/fullmetal-alchemist-director-seiji-mizushima-ai-failure/
+
+Fullmetal Alchemist director Seiji Mizushima has big dreams for AI, and ultimately wants it to produce things 'beyond' the realm of human conception.
+---------
+
+# The 8-Part Netflix Horror Show With 100% on RT That Stephen King Called a 5-Star Masterpiece
+
+TV, Marianne, Netflix, Stephen King
+
+Sun, 22 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/netflix-horror-marianne-stephen-king-masterpiece/
+
+Any horror series recommended by legendary horror author Stephen King must be worth a watch, and this Netflix masterpiece is no exception.
+---------
+
+# 5 Weakest Super Saiyan Forms in Dragon Ball, Ranked
+
+Anime, Dragon Ball, Super saiyan
+
+Sun, 22 Nov 2026 02:45:11 GMT
+
+https://www.cbr.com/dragon-ball-weakest-super-saiyan-forms-ranked-list/
+
+The numerous Super Saiyan forms in Dragon Ball will always be popular, but some of them are already obsolete in terms of power.
+---------
+
+# 6 Intense War Films of the 2010s, Ranked by Rotten Tomatoes Score
+
+Movie, Dunkirk, 1917, Zero Dark Thirty, Fury
+
+Sun, 22 Nov 2026 04:21:12 GMT
+
+https://collider.com/intense-war-movies-2010s-ranked-rotten-tomatoes/
+
+From Dunkirk to Zero Dark Thirty, ranking five of the most intense war films of the 2010s by their Rotten Tomatoes scores.
+---------
+
+# Anya Taylor-Joy’s Sci-Fi Thriller Is Still Her Greatest Movie 2 Years Later
+
+Movie Features, Furiosa: A Mad Max Saga, Mad Max: Fury Road, Anya Taylor-Joy, Charlize Theron
+
+Sun, 22 Nov 2026 04:03:12 GMT
+
+https://collider.com/anya-taylor-joy-furiosa-streaming-hbo-max-november-2026/
+
+Furiosa, the prequel to the 2015 action classic Mad Max: Fury Road, would inspire Anya Taylor-Joy's best performance.
+---------
+
+# 5 Essential Classic Books for Beginners
+
+Books and Comics, Books, Pride and Prejudice, Passing, Around the World in 80 Days
+
+Sun, 22 Nov 2026 02:03:12 GMT
+
+https://collider.com/essential-classic-books-beginners/
+
+For readers exploring classic books for the first time, novels like Pride and Prejudice and The Metamorphosis are an excellent place to start.
+---------
+
+# Tom Hardy's 142-Minute Near-Perfect Miniseries Still Has Not Been Beaten
+
+TV Features, Wuthering Heights, Tom Hardy, ITV, Romance
+
+Sun, 22 Nov 2026 02:02:12 GMT
+
+https://collider.com/tom-hardy-wuthering-heights-miniseries/
+
+Tom Hardy's acclaimed portrayal of Heathcliff is unforgettable in the 2009 miniseries adaptation of Wuthering Heights.
+---------
+
+# Tom Hanks’ Holiday Fantasy Officially Refuses to Leave Streaming Charts
+
+Movie News, Tom Hanks, The Polar Express, HBO Max, Streaming
+
+Sun, 22 Nov 2026 02:00:12 GMT
+
+https://collider.com/tom-hanks-the-polar-express-streaming-hit-100-days-hbo-max-november-2026/
+
+Tom Hanks’ festive favorite, The Polar Express, has lasted 100 days on the HBO Max top ten. Read on for more.
+---------
+
+# Jon Bernthal’s Taylor Sheridan Thriller Is Officially Leaving Netflix in 2 Weeks
+
+Movie News, Taylor Sheridan, Angelina Jolie, Jon Bernthal, Those Who Wish Me Dead
+
+Sun, 22 Nov 2026 01:46:12 GMT
+
+https://collider.com/taylor-sheridan-jon-bernthal-those-who-wish-me-dead-leaving-netflix-december-2026/
+
+Taylor Sheridan's neo-Western thriller featuring Jon Bernthal is about to be removed from Netflix. Find out more.
+---------
+
+# 8 Books Like Harry Potter, but Better
+
+Books and Comics, Harry Potter, Fantasy, The Magicians, His Dark Materials
+
+Sun, 22 Nov 2026 01:41:12 GMT
+
+https://collider.com/books-like-harry-potter-but-better/
+
+A Wizard of Earthsea, Percy Jackson and the Olympians, Inkheart, His Dark Materials, and more make up our list of books like Harry Potter, but better.
+---------
+
+# Michael Bay’s Explosive Crime Thriller Is Officially Being Removed From Netflix
+
+Movie News, Netflix, Ambulance, Michael Bay, Jake Gyllenhaal
+
+Sun, 22 Nov 2026 01:16:12 GMT
+
+https://collider.com/michael-bay-ambulance-leaving-netflix-december-2026/
+
+Michael Bay's underrated action flop starring Jake Gyllenhaal and Eiza González is about to be removed from Netflix. Find out more.
+---------
+
+# 5 MCU Shows That Are Perfect From Start to Finish
+
+TV, MCU, VisionQuest, Loki, WandaVision
+
+Sun, 22 Nov 2026 01:02:12 GMT
+
+https://collider.com/mcu-shows-perfect-start-to-finish/
+
+From the crime sci-fi series Loki to the supernatural miniseries Agatha All Along, these MCU shows are genuinely exceptional from beginning to end.
+---------
+
+# Disney’s $1.2 Billion Fantasy Masterpiece Is Officially Dominating Global Streaming Charts
+
+Movie News, Disney, Frozen, Disney+, Streaming
+
+Sun, 22 Nov 2026 01:00:12 GMT
+
+https://collider.com/frozen-streaming-hit-disney-plus-november-2026/
+
+Disney's $1.2 billion pop culture phenomenon, Frozen, is back in the Disney+ streaming top ten. Read on for more.
+---------
+
+# All 8 'Lord of the Rings' Ring-Bearers, Ranked by Their Strength To Resist It
+
+Features, The Lord of the Rings, Fantasy
+
+Sun, 22 Nov 2026 03:00:27 GMT
+
+https://movieweb.com/lord-of-the-rings-ring-bearers-ranked/
+
+A number of characters have borne or worn Sauron's One Ring, and some are far more capable than others when it comes to resisting its evil.
+---------
+
+# Fate of Christian Bale’s Long-Awaited Cult Classic Remake Officially Addressed
+
+Movie News, American Psycho, Horror, Christian Bale
+
+Sun, 22 Nov 2026 01:19:45 GMT
+
+https://movieweb.com/american-psycho-remake-cancellation-update/
+
+After two years of development, the corporate-America slasher remake receives a disappointing update.
+---------
+
+# 'John Wick' Studio Lands Secret Action Thriller From the Makers of an R-Rated No. 1 Hit
+
+Movie News, Novocaine, Movie, Action
+
+Sun, 22 Nov 2026 00:27:25 GMT
+
+https://movieweb.com/lionsgate-new-thriller/
+
+The new thriller is set to be made by the duo behind the hit action movie, 'Novocaine'.
+---------
+
+# Warner Bros.' $90 Million Flop Officially Cut From 700 Theaters After Losing to R-Rated Sci-Fi Epic
+
+Movie News, The Cat in the Hat, Fantasy, Box Office Milestones
+
+Sat, 21 Nov 2026 23:44:01 GMT
+
+https://movieweb.com/the-cat-in-the-hat-november-2026/
+
+Its theatrical footprint is already shrinking at the worst possible time.
+---------
+
 # Star Wars' TV Spinoff Connected To Andor Characters Encouraged By Show Creator
 
 TV, Star Wars, Andor
