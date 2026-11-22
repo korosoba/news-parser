@@ -1,3 +1,443 @@
+# Hulk's Dark New Avengers Team Is Here, All Members and Codenames Confirmed
+
+Comics, Hulk, The Avengers
+
+Sun, 22 Nov 2026 20:00:18 GMT
+
+https://screenrant.com/infernal-hulk-dark-avengers/
+
+A dark team
+---------
+
+# Game Of Thrones Officially Returning With $4,399.00 New Release
+
+Gaming, Game of Thrones
+
+Sun, 22 Nov 2026 20:00:18 GMT
+
+https://screenrant.com/game-of-thrones-2027-daenerys-scale-statue/
+
+A familiar face from Westeros is making a comeback, and this time, fans might need more than just their love for the series to bring it home.
+---------
+
+# The First 8 Episodes Of This Detective Masterpiece Are Murder Mystery Perfection
+
+Classic TV, Masked Recs
+
+Sun, 22 Nov 2026 20:00:18 GMT
+
+https://screenrant.com/broadchurch-first-season-perfect/
+
+Broadchurch is one of the best detective series of all time — at least, its first season is, as the David Tennant-Olivia Colman show suffers later.
+---------
+
+# 6 Iconic Movie Roles Nicholas Hoult Auditioned For But Didn't Get, Including James Bond
+
+Movies, Bond 26
+
+Sun, 22 Nov 2026 19:55:18 GMT
+
+https://screenrant.com/nicholas-hoult-iconic-movie-roles-auditioned-for-didnt-get/
+
+Before missing out on the role of James Bond to Robert Pattinson, Nicholas Hoult was almost cast as other iconic characters of film and television.
+---------
+
+# Mckenna Grace's New Dystopian Thriller Sparks 70k Petition Demand For 4-Hour Cut
+
+Movies, The Hunger Games: Sunrise on the Reaping
+
+Sun, 22 Nov 2026 19:48:31 GMT
+
+https://screenrant.com/the-hunger-games-sunrise-on-the-reaping-4-hour-cut-petition/
+
+Fans are demanding more from Mckenna Grace's new dystopian thriller, as nearly 70,000 fans have signed a petition for the four-hour cut.
+---------
+
+# The Odyssey Director’s Cut Chances Get Definitive Update From Christopher Nolan
+
+Movies, The Odyssey
+
+Sun, 22 Nov 2026 19:39:37 GMT
+
+https://screenrant.com/the-odyssey-christopher-nolan-directors-cut-definitive-update/
+
+The Odyssey's director's cut gets an official update from Christopher Nolan after a record-breaking box office performance, and new digital release.
+---------
+
+# 10 Fantasy Movie Villains Who Had A Point Ranked, Including the Wicked Witch Of The West
+
+Movies, Fantasy
+
+Sun, 22 Nov 2026 19:31:18 GMT
+
+https://screenrant.com/fantasy-movie-villains-who-had-a-point-ranked/
+
+The stakes are typically pretty high in fantasy, and these ten tremendous villains certainly had a point. It's just a shame about their methods.
+---------
+
+# Netflix's 10/10 True Crime Show Is So Good, It Got 30 Episodes And A Spinoff
+
+Classic TV, Masked Recs
+
+Sun, 22 Nov 2026 19:31:18 GMT
+
+https://screenrant.com/narcos-netflix-true-crime-franchise-success/
+
+Netflix's true crime show, Narcos, is a 30-episode masterpiece, and it's so good, it led to a sequel series, Narcos: Mexico, which is nearly as great.
+---------
+
+# 10 Adventure Movies Much Darker Than You Remember Ranked, Including The Goonies
+
+Movies, Adventure, Ranking, The Goonies, Indiana Jones and the Temple of Doom, Pirates of the Caribbean: Dead Man's Chest, The Mummy, The Dark Crystal
+
+Sun, 22 Nov 2026 19:27:18 GMT
+
+https://screenrant.com/adventure-movies-darker-than-you-remember-ranked/
+
+10 adventure movies darker than you remember, ranked. From The Goonies to Return to Oz, revisit the disturbing scenes that nostalgia forgot.
+---------
+
+# Gilmore Girls' "Worst" Season Officially Addressed By OG Stars
+
+Classic TV, Gilmore Girls
+
+Sun, 22 Nov 2026 19:17:50 GMT
+
+https://screenrant.com/gilmore-girls-season-7-amy-sherman-palladino-exit-addressed/
+
+Gilmore Girls' final season suffered after the creator's exit in a new documentary featuring the original cast and crew behind the show.
+---------
+
+# ABC's 124-Episode Thriller That Changed TV Rules Confirms New Streaming Home
+
+TV, Scandal, Thriller, Paramount Plus
+
+Sun, 22 Nov 2026 20:00:12 GMT
+
+https://www.cbr.com/scandal-abc-political-thriller-streaming-paramount-december-2026/
+
+One of ABC's most influential thrillers, Scandal, finds a new streaming home in December.
+---------
+
+# DC Comics Introduced a Wave of New Characters in the '90s, and 10 of Them Worked
+
+Comics, DC Comics
+
+Sun, 22 Nov 2026 20:00:12 GMT
+
+https://www.cbr.com/10-new-90s-dc-comics-characters-who-actually-worked/
+
+The '90s were a difficult time for comics, but DC still managed to deliver some truly amazing characters.
+---------
+
+# James Cameron & Jensen Ackles' 2-Part Sci-Fi Show Is Still the Perfect Anti-Terminator
+
+TV, Dark Angel, Jensen Ackles, The Terminator, Sci-Fi
+
+Sun, 22 Nov 2026 20:00:12 GMT
+
+https://www.cbr.com/dark-angel-perfect-anti-terminator-story/
+
+James Cameron's cult classic Dark Angel redefines the hero's journey in a dystopian world, flipping the Terminator narrative.
+---------
+
+# Say Goodbye to a Major Streaming Service as Disney Quietly Confirms Phaseout
+
+TV, Disney+, Hulu
+
+Sun, 22 Nov 2026 19:32:45 GMT
+
+https://www.cbr.com/disney-confirms-hulu-phaseout-december-2026/
+
+Disney's acquisition of Hulu was finalized in June 2025, and the same year it announced plans to phase out the app.
+---------
+
+# Disney's Lilo & Scratch Confirms a Major Style Shift for Animated Movies
+
+Movies, Disney, Lilo & Stitch, Sci-Fi, Innovation
+
+Sun, 22 Nov 2026 19:30:11 GMT
+
+https://www.cbr.com/disney-lilo-and-scratch-hybrid-animation/
+
+A short film playing before Disney's Hexed will explore a new yet nostalgic style of animation.
+---------
+
+# 10 Legendary Anime You Didn't Know Had Light Novels
+
+Anime, light novels, Innovation, Sword Art Online
+
+Sun, 22 Nov 2026 19:15:11 GMT
+
+https://www.cbr.com/legendary-anime-with-light-novels/
+
+Many well-known series began as light novels, but viewers only know of their anime adaptations.
+---------
+
+# Rilakkuma Makes Time to Unwind With New Limited-Edition Seiko Watch
+
+Anime, Rilakkuma and Kaoru, Hello Kitty
+
+Sun, 22 Nov 2026 19:00:11 GMT
+
+https://www.cbr.com/rilakkuma-seiko-limited-edition-watch-2027/
+
+Rilakkuma is making an unexpected comeback with a brand-new Seiko watch that is sure to be fans' next must-have limited-edition collectible.
+---------
+
+# 14 Years Later, Bob’s Burgers Has Quietly Abandoned Its Best Tradition
+
+TV, Bob's Burgers
+
+Sun, 22 Nov 2026 18:30:11 GMT
+
+https://www.cbr.com/bobs-burgers-abandoned-thanksgiving-specials/
+
+Bring back Bob's Burgers Thanksgiving episodes!
+---------
+
+# 10 Easiest Ways to Improve Jason & Lucia's Relationship In GTA 6
+
+Games, Grand Theft Auto 6, Grand Theft Auto, Video Games
+
+Sun, 22 Nov 2026 18:15:12 GMT
+
+https://www.cbr.com/how-to-improve-jason-lucias-relationship-gta-6/
+
+Building up Jason and Lucia's relationship can be challenging, but using these methods bring the duo together quickly and efficiently.
+---------
+
+# The 154-Episode Detective Show That's Smarter Than Sherlock in Every Way
+
+TV, Elementary, Sherlock Holmes, Mystery
+
+Sun, 22 Nov 2026 17:30:11 GMT
+
+https://www.cbr.com/elementary-smartest-sherlock-holmes-adaptation/
+
+Sherlock is a beloved British crime drama, but another detective show, Elementary, stands out for its smart approach and character exploration.
+---------
+
+# Tom Hardy's Crime Thriller Hits 321 Million Minutes Watched on Streaming
+
+TV Features, MobLand, Paramount Plus, Tom Hardy, Guy Ritchie
+
+Sun, 22 Nov 2026 20:01:12 GMT
+
+https://collider.com/tom-hardy-crime-thriller-mobland-season-2-minutes-watched-streaming/
+
+Tom Hardy's MobLand has become one of streaming's most-watched shows with its return for Season 2 this year.
+---------
+
+# 'House of the Dragon's Final Season Is Officially 2 Years Away
+
+TV News, House of the Dragon, HBO, Game Of Thrones, George R.R. Martin
+
+Sun, 22 Nov 2026 20:00:12 GMT
+
+https://collider.com/house-of-the-dragon-season-4-final-season-2028-release/
+
+House of the Dragon Season 4 won’t arrive until 2028. HBO confirms the Game of Thrones prequel will conclude with its fourth installment.
+---------
+
+# 10 Greatest Film Noir Movies of the '80s, Ranked
+
+Movie, Noir, 1980s, Blood Simple, Blue Velvet
+
+Sun, 22 Nov 2026 19:49:12 GMT
+
+https://collider.com/greatest-film-noir-masterpieces-1980s-ranked/
+
+Streets of Fire, Witness, Blood Simple, Manhunter, Body Heat, and more make up our list of the greatest film noir of the 1980s.
+---------
+
+# 9 Most Overlooked Thanksgiving TV Episodes, Ranked
+
+TV, Thanksgiving, New Girl, Modern Family, Bob's Burgers
+
+Sun, 22 Nov 2026 19:33:12 GMT
+
+https://collider.com/thanksgiving-episodes-most-overlooked-ranked/
+
+Thanksgiving episodes are a seasonal staple of TV, but holiday-themed episodes from shows like Succession and Modern Family are often overlooked.
+---------
+
+# Alexander Skarsgård’s $10M Fantasy Romance Officially Nears 4x Its Budget
+
+Movie News, Alexander Skarsgard, Olivia Colman, Wicker, Box Office
+
+Sun, 22 Nov 2026 19:30:12 GMT
+
+https://collider.com/alexander-skarsgrad-olivia-colman-wicker-removed-from-1500-theaters-box-office/
+
+Olivia Colman and Alexander Skarsgård's acclaimed romance fantasy has been removed from 1,500 theaters after exceeding box-office expectations.
+---------
+
+# How to Rob a Bank: iPhone Footage Complicated the Edit | Collider BTS
+
+Movie, How to Rob a Bank
+
+Sun, 22 Nov 2026 19:15:12 GMT
+
+https://collider.com/video/how-to-rob-a-bank-iphone-footage-complicated-the-edit-collider-bts/
+
+How to Rob a Bank editor Elísabet Ronaldsdóttir reveals why creating the movie's YouTube sequences was technically more demanding than editing the film itself.In this exclusive Collider interview, Ronaldsdóttir breaks down the editing process behind David Leitch's 2026 movie How to Rob a Bank, including the challenge of combining traditional film photography with social media footage captured on iPhones, drones, GoPros, and 360-degree cameras.
+---------
+
+# The 10 Best Documentaries in Cinema History, Ranked
+
+Movie, Grizzly Man, Documentary, You Can See Everything, Koyaanisqatsi
+
+Sun, 22 Nov 2026 19:11:12 GMT
+
+https://collider.com/best-documentaries-cinema-history-ranked/
+
+The greatest documentary movies in cinema history include classics like Tokyo Olympiad, Hoop Dreams, and the more recent You Can See Everything.
+---------
+
+# Netflix’s Near-Perfect Sci-Fi Masterpiece Officially Confirms Reduced Episode Count
+
+TV News, 3 Body Problem, Sci-Fi, Netflix, Science Fiction
+
+Sun, 22 Nov 2026 19:00:12 GMT
+
+https://collider.com/3-body-problem-season-2-official-episode-count-netflix/
+
+3 Body Problem Season 2 arrives January 14 on Netflix with a shorter run for the sci-fi adaptation. Here’s how many episodes are dropping.
+---------
+
+# Jensen Ackles' #1 Prime Video Action Thriller Is a Masterclass in Pure Adrenaline
+
+TV Features, Countdown, Jensen Ackles, Eric Dane, Prime Video
+
+Sun, 22 Nov 2026 18:58:12 GMT
+
+https://collider.com/jensen-ackles-prime-video-action-thriller-countdown/
+
+Jensen Ackles' thrilling Prime Video series Countdown ended on a cliffhanger despite a gripping narrative and terrific cast.
+---------
+
+# 10 Greatest Mystery Shows With Detectives, Ranked
+
+TV, Mystery, Law & Order: Special Victims Unit, Ludwig, True Detective
+
+Sun, 22 Nov 2026 18:40:12 GMT
+
+https://collider.com/best-mystery-shows-detectives-ranked/
+
+NBC's Law & Order: SVU, ABC's Castle, and BBC's Ludwig are all among the best mystery shows that feature detectives, but which series is the greatest?
+---------
+
+# All 9 'Sunrise on the Reaping' Legacy Performances, Ranked by Comparison to the Original
+
+Movie Lists, The Hunger Games: Sunrise on the Reaping, The Hunger Games, Sci-Fi
+
+Sun, 22 Nov 2026 20:00:16 GMT
+
+https://movieweb.com/sunrise-on-the-reaping-legacy-performances/
+
+The new 'Hunger Games' movie features a cast including an Oscar winner and multiple nominees. Here's how they hold up to the original actors.
+---------
+
+# 'Percy Jackson' Icon Officially Confirms Season 4 Fate After Months of Uncertainty
+
+TV News, Percy Jackson & the Olympians, Walker Scobell, Adventure, Action, Drama, Fantasy, Disney+
+
+Sun, 22 Nov 2026 19:31:42 GMT
+
+https://movieweb.com/percy-jackson-season-4-confirmed-walker-scobell/
+
+The live-action adaptation of Rick Riordan's 'Percy Jackson' books looks to push its story forward past its current Season 3.
+---------
+
+# 50 Years Later, Luke Skywalker & Han Solo Officially Reunite as 'Star Wars' Prepares for Major Milestone
+
+Movie News, Star Wars: Episode IV - A New Hope, Mark Hamill, Harrison Ford, Action, Drama, Comedy, Fantasy
+
+Sun, 22 Nov 2026 19:13:02 GMT
+
+https://movieweb.com/star-wars-mark-hamill-harrison-ford/
+
+Two of the biggest names in 'Star Wars' history shared an emotional reunion as their first movie celebrates its golden anniversary.
+---------
+
+# ‘The Rings of Power’ Finally Gives Season 1’s Abandoned Story a Proper Ending
+
+Features, The Lord of the Rings: The Rings of Power, Fantasy
+
+Sun, 22 Nov 2026 19:00:16 GMT
+
+https://movieweb.com/rings-of-power-bronwyn-ending/
+
+'The Rings of Power' Season 3 is cutting the ties to one abandoned storyline, but it may give this subplot one last bit of closure before it does.
+---------
+
+# "John Wick Meets Taken" Action Thriller Dethroned on Streaming by New 94% RT-Rated Favorite
+
+Movie News, Streamer Comparisons, One Mile: Chapter One, PAW Patrol 3, Action, Thriller
+
+Sun, 22 Nov 2026 19:00:16 GMT
+
+https://movieweb.com/paw-patrol-dino-beats-one-mile-stream-november-2026/
+
+The indie action darling has found its strongest competitor in a family adventure starring everyone's favorite puppies.
+---------
+
+# Netflix's Steamy R-Rated Smash Officially Crosses Half a Billion Views on Streaming in 1 Week
+
+TV News, Netflix, Nobody Wants This, Drama
+
+Sun, 22 Nov 2026 18:32:39 GMT
+
+https://movieweb.com/nobody-wants-this-nielsen-ratings/
+
+The Netflix hit is proving it still has plenty of staying power.
+---------
+
+# 25 Years Later, Sequel to Brad Pitt's 116-Minute Thriller Is Officially Still Happening
+
+Movie News, Ocean's 14, Ocean's Eleven, Crime, Comedy, Thriller, Ocean's Twelve, Ocean's Thirteen, Matt Damon
+
+Sun, 22 Nov 2026 18:01:37 GMT
+
+https://movieweb.com/oceans-14-matt-damon-filming-update/
+
+The long-overdue sequel is happening despite a major production setback.
+---------
+
+# All 10 'Lord of the Rings' Movies, Ranked
+
+Movie Lists, The Lord of the Rings, Fantasy
+
+Sun, 22 Nov 2026 18:01:17 GMT
+
+https://movieweb.com/lord-of-the-rings-movies-ranked/
+
+Dragons, wizards, Hobbits, and legendary battles make up some of the strongest 'Lord of the Rings' movies to ever grace the screen.
+---------
+
+# The Biggest Entertainment Launch Ever, 'GTA 6' Hides a Secret Tom Cruise Thriller Mission
+
+Movies, Grand Theft Auto 6, Tom Cruise, Collateral, Thriller, Crime
+
+Sun, 22 Nov 2026 17:35:13 GMT
+
+https://movieweb.com/tom-cruise-gta-6-easter-egg/
+
+Grand Theft Auto 6 is a game filled with movie homages, but this red-light-running side mission is one of its clearest nods.
+---------
+
+# 36 Years Later, Iconic ’90s Classic Shoots Back Up Streaming Charts Ahead of Long-Awaited Sequel
+
+Movie News, Home Alone, Christmas, Macaulay Culkin, Comedy
+
+Sun, 22 Nov 2026 17:31:22 GMT
+
+https://movieweb.com/home-alone-disney-plus-nielsen-ratings/
+
+'Home Alone' is climbing streaming charts ahead of Macaulay Culkin's rumored return.
+---------
+
 # What Happens Between Sunrise On The Reaping & Katniss' Hunger Games: Everything We Know
 
 Movies, The Hunger Games, The Hunger Games: Sunrise on the Reaping
