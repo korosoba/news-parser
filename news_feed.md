@@ -1,3 +1,443 @@
+# Blair Waldorf's Return Hopes In Gossip Girl Franchise Officially Addressed By Leighton Meester
+
+TV, Gossip Girl, Leighton Meester
+
+Mon, 23 Nov 2026 00:40:26 GMT
+
+https://screenrant.com/gossip-girl-blair-waldorf-return-hopes-leighton-meester/
+
+Nearly 20 years after Gossip Girl, Leighton Meester plays coy about a potential revival amid the release of a Blair-centric follow up novel.
+---------
+
+# Batman Vs. Absolute Batman: Which DC Dark Knight Would Win In A Fight
+
+Comics, Batman
+
+Mon, 23 Nov 2026 00:30:18 GMT
+
+https://screenrant.com/batman-vs-absolute-which-win-fight-dc-comics/
+
+If Batman and Absolute Batman fought, which of the Dark Knights would come out on top, and what advantage would be the deciding factor?
+---------
+
+# All 16 Episodes Of Netflix's Ambitious Adventure Series Are Perfect From Start To Finish
+
+Streaming TV, Masked Recs
+
+Mon, 23 Nov 2026 00:30:18 GMT
+
+https://screenrant.com/one-piece-perfect-start-to-finish-netflix-series/
+
+One of Netflix's biggest and most ambitious action-adventure TV shows has achieved a rare feat ahead of its highly anticipated return in 2027.
+---------
+
+# Jonathan Frakes Looks Back At “Bulletproof” Star Trek: First Contact On 30th Anniversary
+
+Movies, Star Trek, Star Trek: First Contact
+
+Mon, 23 Nov 2026 00:21:46 GMT
+
+https://screenrant.com/star-trek-first-contact-bulletproof-jonathan-frakes-30th-anniversary/
+
+Star Trek: First Contact turns 30 on November 22, 2026. Director Jonathan Frakes looks back at the Star Trek: The Next Generation cast's best movie.
+---------
+
+# 5 Best New Netflix Series To Binge-Watch This Week (November 23–27, 2026)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Mon, 23 Nov 2026 00:15:18 GMT
+
+https://screenrant.com/best-new-netflix-shows-to-watch-week-november-23-2026/
+
+Watch The Hunting Wives, The Trials of Karen Read, The Body, Fool Night, and Always on Call on Netflix this Thanksgiving week, November 23–27, 2026.
+---------
+
+# DC Unveils Blue and Gray Supergirl Costume For New Appearance
+
+Comics, Supergirl
+
+Mon, 23 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/new-supergirl-costume-blue-kara/
+
+DC pushes the boundary of what it means to be 'Supergirl.'
+---------
+
+# The Most Underrated Non-Discworld Terry Pratchett Series
+
+Books, Discworld
+
+Mon, 23 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/underrated-non-discworld-terry-pratchett-the-long-earth/
+
+You may think you know Terry Pratchett's works, but one fantastic and underrated series steps beyond the Discworld to universes unknown.
+---------
+
+# Game Of Thrones Is Rewriting The Show’s Ending In 2027's War For Westeros
+
+Gaming, Game of Thrones, Game of Thrones: War for Westeros
+
+Mon, 23 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/game-of-thrones-war-for-westeros-finale-rewritten-2027/
+
+It's no secret that the ending to the Game of Thrones TV show left a lot to be desired, but you're about to get the chance to rewrite it for yourself.
+---------
+
+# Josh Hutcherson's Controversial Sunrise On The Reaping Cameo Officially Addressed By Hunger Games Star
+
+Movies, The Hunger Games: Sunrise on the Reaping, The Hunger Games
+
+Sun, 22 Nov 2026 23:56:31 GMT
+
+https://screenrant.com/the-hunger-games-sunrise-reaping-josh-hutcherson-cameo-controversy/
+
+The Hunger Games: Sunrise on the Reaping brought back fan-favorites to mixed reactions, and Josh Hutcherson addressed how the divisive cameo.
+---------
+
+# Doctor Doom Gets a Disney Makeover Ahead of Avengers: Doomsday
+
+Movies, Avengers: Doomsday
+
+Sun, 22 Nov 2026 23:55:28 GMT
+
+https://screenrant.com/avengers-doomsday-doctor-doom-stitch-disney-crossover/
+
+Avengers: Doomsday's iconic villain Doctor Doom gets the most adorable Disney makeover ahead of the highly anticipated movie's release.
+---------
+
+# Stranger Things' Noah Schnapp Reveals Failed Hunger Games Audition: 'They Picked Right'
+
+Movies, The Hunger Games: Sunrise on the Reaping
+
+Mon, 23 Nov 2026 00:55:59 GMT
+
+https://www.cbr.com/noah-schnapp-haymitch-hunger-games-sunrise-on-the-reaping/
+
+Noah Schnapp reveals how he would have looked as Haymitch while admitting that the studio was right to turn him down.
+---------
+
+# 10 Weakest Transformers Titans, Ranked
+
+Anime, Transformers, Innovation
+
+Mon, 23 Nov 2026 00:45:11 GMT
+
+https://www.cbr.com/weakest-transformers-titans-ranked/
+
+Each Titan Class Transformers giant carries a documented battlefield disadvantage that reduces the proof of their dominance.
+---------
+
+# Pokémon Brings Back Red & Green With 2 New 30th Anniversary Releases
+
+Games, Pokemon
+
+Mon, 23 Nov 2026 00:35:11 GMT
+
+https://www.cbr.com/pokemon-new-30th-anniversary-releases-red-and-green-fender/
+
+Pokémon is celebrating its 30th anniversary with a new collaboration in honor of the original Red & Green.
+---------
+
+# Netflix's New 8-Part Drama Becomes an Instant Streaming Hit in Just 1 Day
+
+TV, The Altruists, Netflix
+
+Mon, 23 Nov 2026 00:30:12 GMT
+
+https://www.cbr.com/the-altruists-drama-netflix-success-november-2026/
+
+Netflix's new biographical limited series The Altruists has risen up the charts in several countries since its launch on Nov. 19.
+---------
+
+# 8 Strongest Races in The Lord of the Rings, Ranked
+
+Movies, The Lord of the Rings, Fantasy
+
+Mon, 23 Nov 2026 00:30:12 GMT
+
+https://www.cbr.com/lord-of-the-rings-strongest-fantasy-races-list/
+
+From Elves to Orcs, the land of Middle-earth abounded with unique fantasy races, but which were the most powerful of all?
+---------
+
+# 5 Most Unwatchable Space Opera Anime
+
+Anime, Mobile Suit Gundam SEED Destiny, D.I.C.E., Sci-Fi, Innovation
+
+Mon, 23 Nov 2026 00:15:11 GMT
+
+https://www.cbr.com/most-unwatchable-space-opera-anime/
+
+There's nothing more exhilarating than a good space opera anime, but these five series unfortunately failed to capture the same momentum as others.
+---------
+
+# Taylor Sheridan's 4-Season Crime Thriller Scores Half a Billion Views on Streaming
+
+TV, Tulsa King, Paramount Plus
+
+Mon, 23 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/taylor-sheridan-tulsa-king-nielsen-charts-november-2026/
+
+One of Taylor Sheridan's best crime thrillers is making major waves on the Nielsen charts as Season 4 continues to build up to an explosive finale.
+---------
+
+# 10 Greatest Movies of the 1980s, According to Letterboxd
+
+Movies, Drama, The Empire Strikes Back, Innovation
+
+Mon, 23 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/greatest-80s-movies-letterboxd-list/
+
+The 1980s were a spectacular era for movies, and these 10 masterpieces are the very best of the decade according to Letterboxd users.
+---------
+
+# Netflix's 30-Episode Drama Hit Scores Half a Billion Views on Streaming in 3 Weeks
+
+TV, Nobody Wants This, Netflix
+
+Sun, 22 Nov 2026 23:30:11 GMT
+
+https://www.cbr.com/netflix-nobody-wants-this-nielsen-november-2026/
+
+On the heels of the Season 3 release, Netflix's hit drama Nobody Wants This has crossed a half billion views on streaming.
+---------
+
+# 6 Open-World RPGs With Virtually Perfect Exploration
+
+Games, RPG, The Witcher 3: Wild Hunt, Elden Ring, Video Games
+
+Sun, 22 Nov 2026 23:15:11 GMT
+
+https://www.cbr.com/open-world-rpgs-perfect-exploration/
+
+Most open-world games are only as good as the exploration the world offers, because without satisfying and rewarding exploration, there's no point.
+---------
+
+# Prime Video’s Eerie 2-Part Sci-Fi Series Is Perfect From Start to Finish
+
+TV Features, Life on Mars, Sci-Fi, Prime Video, The Twilight Zone
+
+Mon, 23 Nov 2026 00:48:12 GMT
+
+https://collider.com/life-on-mars-sci-fi-tv-show/
+
+Life on Mars is a haunting 2006 series that blends time travel and cultural memory, trapping a detective in a past that’s more nightmare than history.
+---------
+
+# ‘Street Fighter’ Officially Removed From Over 3,000 Theaters as Digital Release Nears
+
+Movie News, Street Fighter, Box Office, Noah Centineo, Andrew Koji
+
+Mon, 23 Nov 2026 00:45:12 GMT
+
+https://collider.com/street-fighter-removed-from-3000-theaters-box-office-digital-debut/
+
+Paramount's new Street Fighter movie has now lost more than 3,000 theaters, as it prepares for a new life on the PVOD market. Find out more.
+---------
+
+# HBO Officially Makes Severus Snape the New Harry Potter
+
+TV News, Harry Potter, Harry Potter and the Sorcerer's Stone, Paapa Essiedu
+
+Mon, 23 Nov 2026 00:30:12 GMT
+
+https://collider.com/hbo-harry-potter-severus-snape-forehead-scar-new-posters/
+
+HBO's Harry Potter reboot reveals a possible scar on Paapa Essiedu's Severus Snape, sparking theories about its mysterious origin.
+---------
+
+# 10 Crime Thriller Shows Where Every Episode Is a 10/10
+
+TV, Thriller, Crime, Breaking Bad, Hannibal
+
+Mon, 23 Nov 2026 00:21:12 GMT
+
+https://collider.com/crime-thriller-shows-every-episode-perfect/
+
+From the AMC masterpiece Breaking Bad to psychological horror series Hannibal, every episode of these crime thriller shows is genuinely perfect.
+---------
+
+# Forget 'Euphoria,' Drake's Apple TV Sci-Fi Thriller Sets Premiere Date
+
+TV News, Drake, Neuromancer, Apple TV, Sci-Fi
+
+Mon, 23 Nov 2026 00:15:12 GMT
+
+https://collider.com/neuromancer-drake-ep-apple-tv-release-date/
+
+Following Euphoria's conclusion earlier this year, Drake's next TV show is coming to Apple TV. Get more details here.
+---------
+
+# Guy Ritchie’s Sherlock Holmes Crime Series Officially Won’t Return in 2026
+
+TV News, Young Sherlock, Prime Video, Guy Ritchie, Sherlock Holmes
+
+Mon, 23 Nov 2026 00:00:12 GMT
+
+https://collider.com/guy-ritchie-young-sherlock-season-2-release-window-2027/
+
+Guy Ritchie's binge-worthy British crime saga is officially not returning for its second season in 2026. Find out more details here.
+---------
+
+# A24's Viral Breakout Hit Officially Faces a Major Theatrical Exit Ahead of Home Release
+
+Movie News, You Can See Everything, Nathan Fielder, Box Office, A24
+
+Sun, 22 Nov 2026 23:46:12 GMT
+
+https://collider.com/you-can-see-everything-a24-elizabeth-holmes-documentary-removed-from-2000-theaters-box-office-digital-debut/
+
+A24's epic Best Picture contender, You Can See Everything, is set for a digital debut after being removed from 2,000 theaters. Find out more.
+---------
+
+# ‘Doctor Who’ Star Officially Eyes Major Role in Next James Bond Era
+
+Movie News, James Bond, Michelle Gomez, Doctor Who, Amazon
+
+Sun, 22 Nov 2026 23:30:12 GMT
+
+https://collider.com/james-bond-m-role-michelle-gomez/
+
+A Doctor Who star expresses interest in playing M in the upcoming James Bond film starring Robert Pattinson.
+---------
+
+# Warner Bros.' Latest Box Office Flop Officially Removed From Over 700 Theaters
+
+Movie News, The Cat in the Hat, Box Office, Dr. Seuss, Bill Hader
+
+Sun, 22 Nov 2026 23:15:12 GMT
+
+https://collider.com/cat-in-the-hat-removed-from-700-theaters-box-office/
+
+The new animated Dr. Seuss adaptation, The Cat in the Hat, has been removed from more than 700 theaters after a so-so box-office run.
+---------
+
+# 7 Masterpiece Fantasy Book Series, Ranked
+
+Books and Comics, Fantasy, The Lord of the Rings, Discworld, Harry Potter
+
+Sun, 22 Nov 2026 23:03:12 GMT
+
+https://collider.com/fantasy-book-series-masterpieces-ranked/
+
+From Harry Potter to Discworld, these fantasy sagas built worlds readers never forget, with magic, adventure, and unforgettable characters.
+---------
+
+# 'The Odyssey's VFX Team Reveals The Scene That Surprisingly Used All Practical Effects
+
+Exclusives, The Odyssey, Adventure, Action, Fantasy, Drama, Romance, War, Thriller, Mystery, Horror
+
+Mon, 23 Nov 2026 00:58:01 GMT
+
+https://movieweb.com/the-odyssey-practical-effects/
+
+Audiences may be shocked to find out which moment in 'The Odyssey' was captured completely on IMAX cameras with no VFX.
+---------
+
+# Paramount's 4-Part 'Lost' Meets 'Hannibal' Thriller Is One of the Biggest Shows in the World
+
+TV News, Yellowjackets, Paramount Plus, Hot on Streaming, Hannibal, Lost, Thriller
+
+Mon, 23 Nov 2026 00:30:16 GMT
+
+https://movieweb.com/yellowjackets-stream-paramount-november-2026/
+
+The final season is here, and it's bigger than ever.
+---------
+
+# Jason Momoa's Forgotten 24-Episode Sci-Fi Action Epic Fights Back to Become a Global Streaming Hit
+
+TV News, See, Apple TV, Jason Momoa, Sci-Fi, Action, Hot on Streaming
+
+Sun, 22 Nov 2026 23:30:16 GMT
+
+https://movieweb.com/see-apple-tv-november-2026/
+
+Jason Momoa's early Apple TV project is quietly drawing attention again years after its original run ended.
+---------
+
+# Don't Make This Mistake That Ruined My First 15 Hours Of Grand Theft Auto VI
+
+Features, Grand Theft Auto 6, Crime, Action, Thriller
+
+Sun, 22 Nov 2026 23:00:16 GMT
+
+https://movieweb.com/gta-6-chapter-1-mistake/
+
+This key gaming tip will help you avoid painful losses in the opening chapter.
+---------
+
+# Netflix’s New 106-Minute Thriller Is a Global Hit With 162 Million Views on Streaming
+
+Movie News, Crime, Netflix, Movies
+
+Sun, 22 Nov 2026 22:34:32 GMT
+
+https://movieweb.com/collision-course-nielsen-ratings/
+
+This Spanish-language crime drama hasn't gotten a lot of press, but audiences have embraced it.
+---------
+
+# Taylor Sheridan's 5-Part Western Sensation Makes a Streaming Comeback After Latest Sequel
+
+TV News, Yellowstone, Paramount Plus, Hot on Streaming, Western, Taylor Sheridan
+
+Sun, 22 Nov 2026 22:30:16 GMT
+
+https://movieweb.com/yelowstone-stream-paramount-november-2026/
+
+'Tulsa King' has a new competitor in a different Taylor Sheridan series.
+---------
+
+# New Sylvester Stallone Movie Officially Takes Over 2,448 Theaters After Rare Perfect Audience Score
+
+Movie News, Biography, Sylvester Stallone, Box Office Milestones, I Play Rocky
+
+Sun, 22 Nov 2026 22:21:40 GMT
+
+https://movieweb.com/i-play-rocky-box-office-update/
+
+With strong early grosses and glowing audience scores, the Stallone movie is starting to look like a real theatrical underdog win.
+---------
+
+# ‘The Rings of Power’ Answers a 25-Year-Old Lord of the Rings Movie Question
+
+Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Sun, 22 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/rings-of-power-elros-movie-change/
+
+'The Rings of Power' explores the inherent magic of the Elves in a way that Peter Jackson's 'Lord of the Rings' and 'Hobbit' trilogies never did.
+---------
+
+# Val Kilmer's Forgotten 3-Part Western Sequel Is Officially Being Axed From Streaming
+
+TV News, Comanche Moon, Coming/Leaving Streaming, Western, Val Kilmer, Lonesome Dove
+
+Sun, 22 Nov 2026 21:30:16 GMT
+
+https://movieweb.com/comanche-moon-leaving-streaming-roku-november-2026/
+
+'Tombstone' is Val Kilmer's most popular western, but it's his underrated western series that's being removed from streaming.
+---------
+
+# Sydney Sweeney's New R-Rated Supernatural Reboot Rewrites the Rules of a 206-Year-Old Thriller
+
+Features, Sydney Sweeney, Thriller, Sleepy Hollow
+
+Sun, 22 Nov 2026 21:30:16 GMT
+
+https://movieweb.com/sydney-sweeney-gothic-reboot-sleepy-hollow/
+
+Sydney Sweeney reboots a Johnny Depp classic.
+---------
+
 # Hulk's Dark New Avengers Team Is Here, All Members and Codenames Confirmed
 
 Comics, Hulk, The Avengers
