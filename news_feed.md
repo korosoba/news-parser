@@ -1,3 +1,366 @@
+# All 15 Episodes Of Netflix's 10/10 Time Travel Series Are Perfect From Start To Finish
+
+Classic TV, Masked Recs
+
+Mon, 23 Nov 2026 07:30:18 GMT
+
+https://screenrant.com/russian-doll-perfect-time-travel-show/
+
+Netflix is the streaming home of a 15-episode time travel show that has absolutely no dull episodes and promises to only get better as it progresses.
+---------
+
+# Prime Video's Highly Anticipated Sci-Fi Series Reboots One Of The Greatest Movies Of All Time
+
+Streaming TV, Masked Recs
+
+Mon, 23 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/robocop-amazon-prime-video-sci-fi-movie-reboot/
+
+An upcoming Prime sci-fi series is attempting to tap into a mix of biting satire, brutal violence, and cyborg tragedy that made one 1987 film iconic.
+---------
+
+# Steam Makes 6 New Games 100% Free To Keep Forever (November 23)
+
+Gaming, Steam
+
+Mon, 23 Nov 2026 07:00:18 GMT
+
+https://screenrant.com/steam-6-new-free-games-november-23-2026/
+
+Discover 6 new free games on Steam, available for download without any catch.
+---------
+
+# HBO's 9-Part Thriller Masterpiece Has Earned Its Status As A Modern Classic
+
+Classic TV, Masked Recs
+
+Mon, 23 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/watchmen-hbo-earned-modern-classic-status/
+
+Superhero TV shows used to be synonymous with campy action and morally straightforward storytelling, but then HBO changed the game in 2019.
+---------
+
+# Assassin's Creed: Echoes Of The Past Officially Releasing December 2026
+
+Gaming, Assassin's Creed
+
+Mon, 23 Nov 2026 06:00:18 GMT
+
+https://screenrant.com/assassins-creed-echoes-of-the-past-december-2026-release-date/
+
+Experience the Assassin's Creed live show in Montreal and France, featuring original storytelling and acrobatics.
+---------
+
+# House Of The Dragon Officially Returns In The Realm's Delight
+
+Gaming, House of the Dragon
+
+Mon, 23 Nov 2026 05:31:18 GMT
+
+https://screenrant.com/house-of-the-dragon-dragonfire-realms-delight/
+
+Discover how to unlock Rhaenyra in Game of Thrones: Dragonfire and enhance your gameplay with powerful dragon strategies.
+---------
+
+# Hogwarts Legacy 2 Official Release Update Issued By Warner Bros
+
+Gaming, Hogwarts Legacy
+
+Mon, 23 Nov 2026 05:01:18 GMT
+
+https://screenrant.com/hogwarts-legacy-2-release-update-warner-bros-official/
+
+Get the latest updates on Hogwarts Legacy 2's release and development from Warner Bros.
+---------
+
+# 5 Greatest YA Movie Franchises Of All Time, Ranked
+
+Movies, The Hunger Games, Harry Potter, Twilight, The Chronicles of Narnia, How to Train Your Dragon
+
+Mon, 23 Nov 2026 04:57:17 GMT
+
+https://screenrant.com/best-young-adult-movie-franchises-all-time-ranked/
+
+In honor of the latest Hunger Games movie release with Sunrise on the Reaping, let's rank the top five greatest YA movie franchises of all time.
+---------
+
+# Crunchyroll Has A New #1 Anime, And It Blows One Piece Out Of The Water
+
+Anime, Crunchyroll
+
+Mon, 23 Nov 2026 04:57:02 GMT
+
+https://screenrant.com/frieren-beyond-journeys-end-crunchyroll-new-biggest-anime/
+
+One beloved recent anime has overtaken One Piece according to Crunchyroll, and it builds on the shōnen juggernaut's greatest strength.
+---------
+
+# All 62 Episodes Of Prime Video's Sci-Fi Masterpiece Are Perfect From Start To Finish
+
+Streaming TV, Masked Recs
+
+Mon, 23 Nov 2026 04:45:18 GMT
+
+https://screenrant.com/prime-video-the-expanse-sci-fi-masterpiece-binge-watch/
+
+The Expanse is Prime Video's acclaimed 62-episode sci-fi series with 6 seasons of interplanetary warfare, political intrigue, and epic storytelling.
+---------
+
+# Channing Tatum's 'Devastating' New Drama Hailed by Critics as '1 of the Absolute Best Films of 2026'
+
+Movies, Josephine, Rotten Tomatoes
+
+Mon, 23 Nov 2026 04:56:56 GMT
+
+https://www.cbr.com/josephine-rotten-tomatoes-score/
+
+Despite its sensitive subject matter, another candidate for the best movie of 2026 has emerged.
+---------
+
+# Star Trek Officially Confirms Captain Kirk's Perfect Last Words
+
+Comics, Star Trek
+
+Mon, 23 Nov 2026 04:56:33 GMT
+
+https://www.cbr.com/star-trek-officially-captain-kirk-final-words/
+
+In the latest Star Trek series set far after the events of Star Trek: Generations, Captain James T. Kirk returned, only to be given a new farewell
+---------
+
+# 7 Anime Arcs Where the Hero Dies
+
+Anime
+
+Mon, 23 Nov 2026 04:45:12 GMT
+
+https://www.cbr.com/anime-arcs-where-the-hero-dies-list/
+
+Some anime, like Attack on Titan, don't let their hero survive to the end.
+---------
+
+# Clayface Sets Streaming Release Date After Surpassing Supergirl's Disastrous Box Office Run
+
+Movies, Clayface, DCU
+
+Mon, 23 Nov 2026 04:34:44 GMT
+
+https://www.cbr.com/clayface-digital-release-date/
+
+Clayface is coming home after defeating Supergirl at the box office.
+---------
+
+# Crunchyroll Officially Cuts Premium Subscription Price to $3.99 for Black Friday
+
+Anime, Crunchyroll
+
+Mon, 23 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/crunchyroll-black-friday-premium-subscription-3-99/
+
+Crunchyroll is celebrating Black Friday by slashing its premium anime streaming subscription price to just $3.99 a month for a limited time.
+---------
+
+# 10 Comic Strips That Are (Almost) As Good As Calvin and Hobbes
+
+Comics, Calvin and Hobbes
+
+Mon, 23 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/comic-strips-that-are-almost-as-good-as-calvin-and-hobbes/
+
+Calvin and Hobbes is a beloved comic strip, but there are some other major comic strips that are almost as good as Bill Watterson's work.
+---------
+
+# HBO's 7-Year-Old Miniseries Is the Last Time Comic Book TV Took a Real Risk
+
+TV, Watchmen, HBO Max, superheroes
+
+Mon, 23 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/hbo-watchmen-risk-taking-comic-book-adaptation/
+
+HBO's Watchmen was the perfect sequel to the iconic comic book story and showcased one of the few times the medium dared to break the mold.
+---------
+
+# 10 RPGs With Dialogue Systems That Are 10/10 Masterpieces
+
+Games, RPG, Mass Effect, Fallout
+
+Mon, 23 Nov 2026 04:15:11 GMT
+
+https://www.cbr.com/rpgs-perfect-dialogue-systems-list/
+
+RPGs with dialogue systems open up unlimited potential to alter the story entirely, and these masterpieces did it better than any other title.
+---------
+
+# Sonic the Hedgehog Brings Back Shadow & Super Shadow in 2 $369 Releases Available Now
+
+Games, Sonic the Hedgehog
+
+Mon, 23 Nov 2026 03:55:11 GMT
+
+https://www.cbr.com/sonic-the-hedgehog-super-shadow-new-premium-release/
+
+One of the most iconic Sonic the Hedgehog characters is back in two stunning new designs that will be right at home in any collection.
+---------
+
+# Mahershala Ali Admits Winning 2 Oscars 'Doesn't Really Mean Anything' in Hollywood
+
+Movies, The Oscars, Oscars
+
+Mon, 23 Nov 2026 03:52:48 GMT
+
+https://www.cbr.com/mahershala-ali-on-winning-oscars/
+
+Two-time Oscar winner Mahershala Ali shares his honest thoughts on what it means to win an Academy Award.
+---------
+
+# Keanu Reeves' 121-Minute Dark Fantasy Is As Close to Perfect As Superhero Movies Get
+
+Movie Features, Constantine, Keanu Reeves, Francis Lawrence, Rachel Weisz
+
+Mon, 23 Nov 2026 05:31:12 GMT
+
+https://collider.com/constantine-2005-movie-keanu-reeves-streaming-hbo-max-november-2026/
+
+The cult-favorite DC Comics movie Constantine, starring Keanu Reeves in the titular role, is one of the most exciting, stylish superhero movies ever.
+---------
+
+# Tom Hanks’ Heart-Breaking Drama Is Still His Greatest Movie 33 Years Later
+
+Movie Features, Tom Hanks, Philadelphia, Denzel Washington, Oscar
+
+Mon, 23 Nov 2026 05:14:12 GMT
+
+https://collider.com/tom-hanks-philadelphia-streaming-prime-video-november-2026/
+
+Tom Hanks had already established himself as a comedy star, but Philadelphia, now streaming on Prime Video, showed his dramatic depth and range.
+---------
+
+# Netflix’s Brutal 6-Part Western Beats 'Yellowstone' at Its Own Game
+
+TV Features, American Primeval, Taylor Kitsch, Netflix, Western
+
+Mon, 23 Nov 2026 04:59:12 GMT
+
+https://collider.com/american-primeval-netflix-brutal-western-beats-yellowstone/
+
+Netflix's brutal Western miniseries American Primeval surpasses even Yellowstone's grit in just 6 episodes.
+---------
+
+# The 10 Best Open Endings in Film History, Ranked
+
+Movie, Inception, 2001: A Space Odyssey, Eternal Sunshine of the Spotless Mind, Blade Runner
+
+Mon, 23 Nov 2026 04:49:12 GMT
+
+https://collider.com/best-open-endings-film-history/
+
+From Inception to American Psycho, these open endings are brilliant.
+---------
+
+# 8 Thrillers That Become Masterpieces in the Last 30 Minutes
+
+Movie, Thriller, Gone Girl, Se7en, The Prestige
+
+Mon, 23 Nov 2026 04:49:12 GMT
+
+https://collider.com/thriller-movies-become-masterpieces-last-30-minutes/
+
+Thrillers like Gone Girl, Mulholland Drive, and The Usual Suspects feature electrifying endings that cement their place as masterpieces of cinema.
+---------
+
+# 7 Fantasy Books To Read if You Love 'Percy Jackson & the Olympians'
+
+Books and Comics, Percy Jackson & the Olympians, Fantasy, Harry Potter, The Odyssey
+
+Mon, 23 Nov 2026 04:22:12 GMT
+
+https://collider.com/fantasy-books-like-percy-jackson/
+
+From Homer’s classic epic The Odyssey to the Harry Potter series, these fantasy books are perfect for fans of Percy Jackson & the Olympians.
+---------
+
+# Forget Taylor Sheridan, This is the Master of the Modern Western
+
+Movie Features, Bone Tomahawk, Frontier Crucible, S. Craig Zahler, Kurt Russell
+
+Mon, 23 Nov 2026 04:20:12 GMT
+
+https://collider.com/taylor-sheridan-s-craig-zahler-western-bone-tomahawk-streaming-free-tubi-november-2026/
+
+One of the best Western filmmakers today isn't the star writer/director who dominates Paramount+, it's S. Craig Zahler, creator of Bone Tomahawk.
+---------
+
+# Prime Video’s 5-Season Fantasy Series Doesn’t Have a Single Bad Season
+
+TV Features, The Magicians, SyFy, Fantasy, Prime Video
+
+Mon, 23 Nov 2026 03:18:12 GMT
+
+https://collider.com/the-magicians-fantasy-series-no-bad-seasons-ever/
+
+The Magicians stands out as one of the best fantasy TV series adaptations, balancing source material with fresh storytelling and memorable characters.
+---------
+
+# Josh Holloway Steals the 'Tracker' Show From Colter Shaw | Review
+
+TV Reviews, Tracker, Justin Hartley, Josh Holloway, CBS
+
+Mon, 23 Nov 2026 03:00:22 GMT
+
+https://collider.com/tracker-season-4-episode-7-recap-review-josh-holloway/
+
+Colter Shaw partners with bounty hunter Luke Kelso, played by Josh Holloway,  to face intense challenges in Tracker's latest episode.
+---------
+
+# Forget ‘Twilight,’ Netflix’s 6-Season Series Is Leaving Streaming
+
+TV, Teen Wolf, Twilight, Robert Pattinson, Vampire
+
+Mon, 23 Nov 2026 02:24:12 GMT
+
+https://collider.com/twilight-replacement-teen-wolf-netflix-streaming/
+
+Teen Wolf is leaving Netflix, giving Twilight fans one last chance to binge the hit werewolf show before it leaves streaming.
+---------
+
+# 8 'Hunger Games' Stories That Still Need to Happen After 'Sunrise on the Reaping'
+
+Movie Lists, Sci-Fi, The Hunger Games, The Hunger Games: Sunrise on the Reaping
+
+Mon, 23 Nov 2026 03:00:26 GMT
+
+https://movieweb.com/hunger-games-movies-want-next/
+
+The Hunger Games might be over, but Panem's story is far from finished. And yes, Finnick Odair still deserves his own movie.
+---------
+
+# All 10 Episodes of a Masterpiece Fantasy Miniseries Can Be Binged in One Night
+
+Features, Over the Garden Wall, Fantasy
+
+Mon, 23 Nov 2026 02:00:33 GMT
+
+https://movieweb.com/over-garden-wall-streaming-recommendation/
+
+Despite its short run, 'Over the Garden Wall' accomplishes more than many other fantasy series do with much more time to work with.
+---------
+
+# ‘Sunrise on the Reaping’ Won’t Fully Make Sense Without Understanding a Classic Edgar Allan Poe Poem
+
+Features, The Hunger Games: Sunrise on the Reaping, Fantasy, Action, Thriller
+
+Mon, 23 Nov 2026 01:00:16 GMT
+
+https://movieweb.com/sunrise-on-the-reaping-raven-poem/
+
+Suzanne Collins built a layered story with references to a classic poem.
+---------
+
 # Blair Waldorf's Return Hopes In Gossip Girl Franchise Officially Addressed By Leighton Meester
 
 TV, Gossip Girl, Leighton Meester
