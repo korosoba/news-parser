@@ -1,3 +1,443 @@
+# Dungeon Crawler Carl Fans Shouldn't Miss This Free 100-Hour Steam RPG
+
+Gaming, Dungeon Crawler Carl
+
+Tue, 24 Nov 2026 05:01:18 GMT
+
+https://screenrant.com/dungeon-crawler-carl-realm-mad-god-free-steam-game/
+
+Discover the free video game that's perfect for Dungeon Crawler Carl fans seeking hours of fun!
+---------
+
+# Tom Hardy’s R-Rated Historical Thriller Fills The Void After MobLand Season 2
+
+Classic TV, Masked Recs
+
+Tue, 24 Nov 2026 04:45:18 GMT
+
+https://screenrant.com/tom-hardy-taboo-mobland-season-2-void/
+
+Now that MobLand season 2 has concluded its run, fans of gritty crime thrillers have the perfect opportunity to watch another epic Tom Hardy series.
+---------
+
+# Apple TV’s R-Rated True Crime Masterpiece Feels Like A Documentary
+
+Classic TV, Masked Recs
+
+Tue, 24 Nov 2026 04:15:18 GMT
+
+https://screenrant.com/apple-tv-black-bird-true-crime-masterpiece-documentary/
+
+Apple TV is the streaming home of a hard-hitting true crime masterpiece that is so immersive and bleak that it almost comes off as a documentary.
+---------
+
+# Star Trek: The Next Generation Era Officially Returning December 2026
+
+Gaming, Star Trek Online, Star Trek: Resurgence
+
+Tue, 24 Nov 2026 04:00:18 GMT
+
+https://screenrant.com/star-trek-next-generation-rediscovered-event-december-2026/
+
+Join Star Trek's Winter Wonderland from Dec 10, 2026, featuring special missions and iconic ships!
+---------
+
+# 8 Great TV Shows Everyone Said Were 'Unfilmable'
+
+Classic TV
+
+Tue, 24 Nov 2026 03:45:18 GMT
+
+https://screenrant.com/tv-shows-said-unfilmable/
+
+Even in this high-tech age, there are stories that seem impossible to bring to the screen. However, with the right creative minds, magic happens.
+---------
+
+# All 3 Versions Of Coriolanus Snow In The Hunger Games Movies, Ranked
+
+Movies, The Hunger Games, The Hunger Games: Sunrise on the Reaping
+
+Tue, 24 Nov 2026 03:30:18 GMT
+
+https://screenrant.com/hunger-games-movies-president-snow-actors-ranked/
+
+The Hunger Games franchise now features three eras of President Coriolanus Snow played by three different actors (but which one lands on top?)
+---------
+
+# Only Murders In The Building Season 7’s Major Change Confirmed By Creators & Stars
+
+TV, Only Murders in the Building, Only Murders in the Building - Season 6
+
+Tue, 24 Nov 2026 03:17:54 GMT
+
+https://screenrant.com/only-murders-in-the-building-season-7-new-york-city-return-hoffman-martin-short-confirmed/
+
+Ahead of Hulu's Only Murders in the Building season 6, the show's creators and stars have already confirmed a major change for season 7.
+---------
+
+# 7 Reasons Sunrise On The Reaping Became One Of 2026's Biggest Box Office Successes
+
+Movies, The Hunger Games: Sunrise on the Reaping
+
+Tue, 24 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/mckenna-grace-hunger-games-sunrise-on-the-reaping-box-office-explained/
+
+Mckenna Grace's latest project, The Hunger Games: Sunrise on the Reaping, is clearly a smash hit—here's why it ultimately performed so well.
+---------
+
+# Why Focker-in-Law Is The Perfect Follow-Up To Wicked For Ariana Grande
+
+Movies, Focker-In-Law
+
+Tue, 24 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/ariana-grande-focker-in-law-perfect-wicked-follow-up/
+
+Ariana Grande’s comic timing made Glinda a standout in Wicked. Now Focker-in-Law gives her a chance to go toe-to-toe with Ben Stiller without a song.
+---------
+
+# Jonathan Nolan's Longest-Running Sci-Fi Shows Both Share The Same Weakness
+
+Classic TV, Person of Interest, Westworld
+
+Tue, 24 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/jonathan-nolan-person-of-interest-westworld-ending-problem/
+
+Jonathan Nolan has been the creative force behind 2 epic long-running sci-fi shows and both of them have interestingly suffered from the same issues.
+---------
+
+# All 6 GTA 6 Endings, Ranked
+
+Games, Grand Theft Auto, Grand Theft Auto 6, Video Games, RPG
+
+Tue, 24 Nov 2026 04:45:12 GMT
+
+https://www.cbr.com/every-gta-6-ending-ranked/
+
+Six Grand Theft Auto 6 endings have been discovered, so far, and achieving them all comes down to how you play the game.
+---------
+
+# 10 Harry Potter Movie Moments HBO Can't Adapt for the Reboot
+
+TV, Harry Potter, HBO Max
+
+Tue, 24 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/hbo-harry-potter-unadaptable-movie-moments-list/
+
+HBO’s anticipated Harry Potter reboot has a promising cast and future, but it just can't replicate some iconic film moments.
+---------
+
+# 10 Funniest Calvin and Hobbes Comics Without Hobbes
+
+Comics, Calvin and Hobbes
+
+Tue, 24 Nov 2026 04:30:11 GMT
+
+https://www.cbr.com/best-calvin-and-hobbes-comics-without-hobbes/
+
+At times in Calvin and Hobbes, the lovable tiger is oddly missing. Within these strange scenarios are many hilarious comics where Calvin rides solo.
+---------
+
+# There Aren't Many 10/10 Anime Series, But These 10 Anime Are a Must-Watch
+
+Anime, Fullmetal Alchemist Brotherhood
+
+Tue, 24 Nov 2026 04:15:11 GMT
+
+https://www.cbr.com/best-must-watch-anime-series-flawless-start-to-finish-list/
+
+Anime like Fullmetal Alchemist: Brotherhood are true masterpieces that few series can compete with.
+---------
+
+# Legendary 52-Year-Old Space Opera Brings Back 51 Classic Episodes in Major New Release
+
+Anime, Space Battleship Yamato, Star Blazers, namco bandai, merchandise
+
+Tue, 24 Nov 2026 04:10:12 GMT
+
+https://www.cbr.com/space-battleship-yamato-ii-iii-first-blu-ray-release/
+
+Two of the greatest anime space opera films of all time are finally getting their very first Blu-ray release after more than four decades.
+---------
+
+# John Travolta's 90-Minute Crime Thriller Is 1 of the World's Most-Watched Movies 2 Years Later
+
+Movies, Cash Out, Prime Video, Thriller
+
+Tue, 24 Nov 2026 04:00:11 GMT
+
+https://www.cbr.com/john-travolta-cash-out-prime-video-success-november-2026/
+
+This John Travolta thriller is a streaming hit, despite negative reviews.
+---------
+
+# 10 JRPGs That Are 10/10, No Notes
+
+Games, JRPG
+
+Tue, 24 Nov 2026 04:00:11 GMT
+
+https://www.cbr.com/best-jrpgs-flawless-start-to-finish-list/
+
+JRPGs like Final Fantasy 10 are absolute perfection from beginning to end.
+---------
+
+# 10 Dark Anime Perfectly Hidden Behind Cute Animation
+
+Anime, Puella Magi Madoka Magica, Higurashi: When They Cry, Made in Abyss, Innovation
+
+Tue, 24 Nov 2026 03:45:12 GMT
+
+https://www.cbr.com/dark-anime-hidden-behind-cute-animation/
+
+Some of anime's darkest and most depraved titles are hiding behind fun and friendly visuals that mask their true nature!
+---------
+
+# 10 Greatest Sega Arcade Games of All Time, Ranked
+
+Games, Video Games, sega
+
+Tue, 24 Nov 2026 03:30:11 GMT
+
+https://www.cbr.com/all-time-greatest-sega-arcade-games-ranked/
+
+Classic SEGA games like Virtua Fighter ruled the arcades, but it's not the only one worth celebrating.
+---------
+
+# 2 R-Rated Comic Book Action Movies Confirm New Streaming Home Next Month
+
+Movies, Kingsman: The Secret Service, Kingsman: The Golden Circle
+
+Tue, 24 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/kingsman-secret-service-golden-circle-streaming-hulu-dec-2026/
+
+Two blockbuster movies based on an action-packed comic series are making their way to a new streaming home this December.
+---------
+
+# 8 Most Confusing Sci-Fi Books of All Time, Ranked
+
+Books and Comics, Science Fiction, Sci-Fi, 3 Body Problem, The Peripheral
+
+Tue, 24 Nov 2026 04:55:12 GMT
+
+https://collider.com/most-confusing-sci-fi-books-all-time-ranked/
+
+As brilliant as sci-fi books like The Three-Body Problem and Diaspora are, these science fiction stories are also incredibly confusing to comprehend.
+---------
+
+# The 13 Best Christmas Movies of the Last 5 Years, Ranked
+
+Movie, Christmas Movies, The Holdovers, Terrifier 3, Red One
+
+Tue, 24 Nov 2026 04:11:12 GMT
+
+https://collider.com/christmas-movies-past-5-years-ranked/
+
+From Single All the Way to The Holdovers, these are the absolute best Christmas movies from the past 5 years.
+---------
+
+# Netflix’s New Cinderella Movie Is Officially Taking Over the World
+
+Movie News, Steps, Cinderella, Netflix, Fantasy
+
+Tue, 24 Nov 2026 04:00:12 GMT
+
+https://collider.com/netflix-steps-cinderella-movie-number-2-global-streaming-hit/
+
+Steps, Netflix’s animated Cinderella retelling starring Ali Wong and Amanda Seyfried, hits No. 2 on the worldwide daily movie chart.
+---------
+
+# Patrick Stewart’s Most Infamous Flop Officially Returns to Netflix
+
+Movie News, The Emoji Movie, Netflix, Animation, Patrick Stewart
+
+Tue, 24 Nov 2026 03:30:12 GMT
+
+https://collider.com/the-emoji-movie-patrick-stewart-netflix-december-2026/
+
+The Emoji Movie, starring Patrick Stewart, James Corden, and Anna Faris, officially returns to streaming in December.
+---------
+
+# Matt Damon’s 144-Minute Sci-Fi Survival Masterpiece Officially Arrives on Hulu
+
+Movie News, Matt Damon, The Martian, The Odyssey, Ridley Scott
+
+Tue, 24 Nov 2026 03:16:12 GMT
+
+https://collider.com/the-martian-matt-damon-hulu-december-2026/
+
+Ridley Scott’s 91%-rated sci-fi hit The Martian, starring Matt Damon, officially arrives on Hulu next month.
+---------
+
+# ‘The Odyssey’ Officially Steals ’Spider-Man: Brand New Day’s Top Spot on Global Streaming
+
+Movie News, Matt Damon, Tom Holland, The Odyssey, Spider-Man: Brand New Day
+
+Tue, 24 Nov 2026 03:01:12 GMT
+
+https://collider.com/the-odyssey-christopher-nolan-spider-man-prime-video-digital-charts/
+
+Matt Damon’s The Odyssey tops Prime Video’s digital store chart, beating Spider-Man: Brand New Day after its November 17 digital debut.
+---------
+
+# Amazon Prime Officially Crowns Dwayne Johnson’s Christmas Movie King of Streaming
+
+Movie News, Dwayne Johnson, Red One, Chris Evans, Christmas Movies
+
+Tue, 24 Nov 2026 02:45:12 GMT
+
+https://collider.com/red-one-dwayne-johnson-prime-video-christmas-top-5-2026/
+
+Red One, starring Dwayne Johnson and Chris Evans, reaches No. 5 on Prime Video’s U.S. movie chart despite its 29% Rotten Tomatoes score.
+---------
+
+# Nicolas Cage’s Bloody 93-Minute Vampire Movie Officially Hits Netflix Next Month
+
+Movie News, Nicolas Cage, Renfield, Nicholas Hoult, Horror
+
+Tue, 24 Nov 2026 02:30:12 GMT
+
+https://collider.com/renfield-nicolas-cage-netflix-december-2026/
+
+Renfield, starring Nicolas Cage as Dracula and Nicholas Hoult as his servant, hits Netflix next month after earning nearly $27 million worldwide.
+---------
+
+# ‘Peaky Blinders’ Creator’s 10/10 WWII Series Officially Returns in 2027
+
+TV News, SAS: Rogue Heroes, Steven Knight, BBC, War
+
+Tue, 24 Nov 2026 02:15:12 GMT
+
+https://collider.com/sas-rogue-heroes-season-3-2027-release-first-look-images/
+
+Steven Knight’s 100%-rated WWII series SAS: Rogue Heroes returns in 2027, with Jack O’Connell back in the BBC and MGM+ drama.
+---------
+
+# 3 Elite Prime Video Series to Binge This Week (Nov 23-27)
+
+TV, Prime Video, Daisy Jones & The Six, Friday Night Lights, Young Sherlock
+
+Tue, 24 Nov 2026 02:11:12 GMT
+
+https://collider.com/prime-video-shows-binge-week-november-23-2026/
+
+Young Sherlock, Friday Night Lights, and Daisy Jones & The Six make up our list of the best Prime Video shows to binge the week of November 23.
+---------
+
+# 72 Years Later, Aragorn's Single Most Important 'Lord of the Rings' Line Is Still Unbeaten in Fantasy
+
+Features, The Lord of the Rings, The Lord of the Rings: The Two Towers, Fantasy
+
+Tue, 24 Nov 2026 03:00:26 GMT
+
+https://movieweb.com/lord-of-the-rings-aragorn-lead-quote/
+
+Perhaps the most inspiring quote from Aragorn, the eventual King of Gondor, never made it into Peter Jackson's trilogy of acclaimed movies.
+---------
+
+# 10 Most-Watched Netflix Movies of All Time, Ranked
+
+Movie Lists, Netflix, Thriller, Animation
+
+Tue, 24 Nov 2026 02:00:16 GMT
+
+https://movieweb.com/netflix-biggest-movies-ranked/
+
+Netflix's most-watched movies include everything from star-studded heist comedies to animated musical adventures.
+---------
+
+# 9 Ways 'GTA 6' Actually Got Worse After 13 Years
+
+Movie Lists, Grand Theft Auto 6, Action, video games
+
+Tue, 24 Nov 2026 01:00:16 GMT
+
+https://movieweb.com/gta-6-biggest-problems/
+
+The ratings are gold, but not everything glitters when the game prioritizes realism over player experience and escapism.
+---------
+
+# HBO Max's New 8-Part Series Is Officially the Biggest Show on Streaming
+
+TV News, War, HBO Max, Hot on Streaming
+
+Tue, 24 Nov 2026 00:30:16 GMT
+
+https://movieweb.com/war-stream-hbo-max-november-2026/
+
+Audiences cannot get enough of HBO Max's scandalous new series.
+---------
+
+# Leonardo DiCaprio's Long-Awaited Action Thriller Sequel Officially Takes Its Biggest Production Step
+
+Movie News, Michael Mann, Heat 2, Adam Driver, Leonardo DiCaprio, Crime
+
+Mon, 23 Nov 2026 23:25:39 GMT
+
+https://movieweb.com/heat-2-adam-driver-locations/
+
+People have been anticipating this sequel for over 30 years.
+---------
+
+# New 'Jaw-Dropping' Sci-Fi Thriller Exits 1,139 Theaters Just Weeks After Historic Debut
+
+Movie News, Godzilla Minus Zero, Sci-Fi, Box Office Milestones
+
+Mon, 23 Nov 2026 23:13:17 GMT
+
+https://movieweb.com/godzilla-minus-zero-box-office-loss/
+
+Losing premium screens and more than a thousand theaters would hurt almost any movie, especially one that leaned so heavily on IMAX demand.
+---------
+
+# Netflix’s New 7-Part Western Masterpiece Makes ‘Yellowstone’ Feel Small
+
+Features, East of Eden, Yellowstone, Western
+
+Mon, 23 Nov 2026 23:01:27 GMT
+
+https://movieweb.com/east-of-eden-yellowstone-comparison/
+
+Netflix's new seven-episode Western series spans three generations and tells a bigger, more complete story than Taylor Sheridan's 'Yellowstone.'
+---------
+
+# 'John Wick' Star Officially Takes on Iconic Role in Long-Awaited Action Fantasy Adaptation
+
+Movie News, Naruto, Hiroyuki Sanada, Anime, Naruto - Live Action, Charles Melton, Action
+
+Mon, 23 Nov 2026 22:49:15 GMT
+
+https://movieweb.com/naruto-hiroyuki-sanada-cast/
+
+The Emmy-award winning actor will play a key role in the long-awaited adaptation of 'Naruto.'
+---------
+
+# Charlie Hunnam’s Upcoming Prime Video Crime Thriller Will Make ‘Sons of Anarchy’ Look Small
+
+Features, Thriller, Criminal, Charlie Hunnam, Sons of Anarchy
+
+Mon, 23 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/criminal-sons-of-anarchy-comparison/
+
+Charlie Hunnam is known for playing Jax Teller on 'Sons of Anarchy,' and he stars in a Prime Video crime thriller based on a comic book series.
+---------
+
+# 'The Body' Star Sara Boustany Confirms Elise Had a Crush on Grace
+
+Exclusives, The Body, Netflix, Drama
+
+Mon, 23 Nov 2026 21:58:58 GMT
+
+https://movieweb.com/the-body-elise-grace-crush/
+
+We talk to 'The Body' stars Sara Boustany and Sofia Wylie about their characters.
+---------
+
 # Steam Drops 5 New Free Games To Cure Your GTA 6 FOMO (November 23)
 
 Gaming, Steam
