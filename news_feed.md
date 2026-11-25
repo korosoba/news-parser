@@ -1,3 +1,432 @@
+# All 8 Episodes Of HBO's Psychological Thriller Masterpiece Are Perfect From Start To Finish
+
+TV, Masked Recs
+
+Wed, 25 Nov 2026 00:29:18 GMT
+
+https://screenrant.com/sharp-objects-episodes-perfect-from-start-to-finish/
+
+A claustrophobic southern gothic mystery that favors mounting dread and character depth over cheap shocks, HBO's psychological thriller has no skips.
+---------
+
+# 15 Best TV Shows Like Netflix's The Empress
+
+Streaming TV, The Empress
+
+Wed, 25 Nov 2026 00:00:19 GMT
+
+https://screenrant.com/netflix-the-empress-best-similar-tv-shows/
+
+Fans of The Empress can satisfy their need for more historical dramas with TV shows like Bridgerton and Call the Midwife.
+---------
+
+# One Piece's 10 Best Luffy Quotes Ever, Ranked
+
+Lists, One Piece
+
+Wed, 25 Nov 2026 00:00:19 GMT
+
+https://screenrant.com/one-piece-luffy-best-quotes/
+
+Throughout his journey to become the King of the Pirates, Luffy has undergone many trials where he has given fans some of the most memorable quotes.
+---------
+
+# Steam Officially Makes 8/10 RPG Completely Free For A Very Limited Time
+
+Gaming, Steam, Indie Games
+
+Wed, 25 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/steam-free-rpg-chess-souls-limited-time/
+
+If you're looking for a solid free game on Steam, you might want to check out this free promotion, which is available for a limited time.
+---------
+
+# 100 Episodes Of DC's Detective Noir Series Changed Batman Forever
+
+Classic TV, Masked Recs
+
+Wed, 25 Nov 2026 00:00:18 GMT
+
+https://screenrant.com/gotham-dc-series-changed-batman/
+
+There's been dozens of Batman TV shows over the years, but few reinvented the mythos from the ground up like this five season noir cop show.
+---------
+
+# Avengers: Doomsday Shatters All-Time Disney Record In Just 24 Hours
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Tue, 24 Nov 2026 23:56:21 GMT
+
+https://screenrant.com/avengers-doomsday-most-watched-disney-trailer-all-time-record/
+
+Before coming to theaters on December 18, the MCU's Avengers: Doomsday has already shattered an all-time Disney record in just 24 hours.
+---------
+
+# Josh Hutcherson's Upcoming Sci-Fi Series Makes Even The Hunger Games Look Small
+
+Streaming TV, Masked Recs
+
+Tue, 24 Nov 2026 23:46:18 GMT
+
+https://screenrant.com/mister-miracle-josh-hutcherson-dc-series-lore-hunger-games/
+
+Josh Hutcherson's new sci-fi series will come to make even his iconic The Hunger Games dystopian franchise look small for one major reason.
+---------
+
+# Steve Rogers & Thor Confront Doctor Doom In New Avengers: Doomsday Footage
+
+Movies, Avengers: Doomsday, The Avengers, Marvel Cinematic Universe
+
+Tue, 24 Nov 2026 23:39:16 GMT
+
+https://screenrant.com/avengers-doomsday-international-trailer/
+
+Marvel has released a new surprise Avengers: Doomsday trailer, and it features Steve Rogers and Thor confronting Doctor Doom in his throne room.
+---------
+
+# All 106 Episodes Of Justin Hartley's 10/10 Drama Are Perfect From Start To Finish
+
+TV, Masked Recs
+
+Tue, 24 Nov 2026 23:31:18 GMT
+
+https://screenrant.com/this-is-us-justin-hartley-drama-perfect-from-start-to-finish/
+
+Justin Hartley anchors a layered family epic that reshaped TV storytelling, using non linear leaps to turn family life into compulsive drama.
+---------
+
+# Star-Lord's New Codename Confirmed By Marvel
+
+Comics, Star-Lord
+
+Tue, 24 Nov 2026 23:31:18 GMT
+
+https://screenrant.com/star-lord-peter-quill-new-codename-kingkiller/
+
+Will he return to the Guardians of the Galaxy?
+---------
+
+# Amy Poehler's Parks & Rec Follow-Up Is Already Streaming's No. 1 Show After Just 1 Day
+
+TV, Dig, Peacock, Comedy
+
+Wed, 25 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/dig-peacock-streaming-success-november-2026/
+
+Amy Poehler's Parks & Rec replacement is becoming a streaming hit on Peacock.
+---------
+
+# 12 Years Later, the Greatest Thanksgiving Episode in Sitcom History Is Still 100% Untouchable
+
+TV, Bob's Burgers, Sitcoms
+
+Wed, 25 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/bobs-burgers-best-thanksgiving-episode-dawn-of-the-peck/
+
+There are many Thanksgiving sitcom specials, but one episode above all remains the greatest and still untouchable.
+---------
+
+# 8 Cyberpunk Movies Better Than Blade Runner
+
+Movies, Blade Runner, Sci-Fi
+
+Wed, 25 Nov 2026 00:00:12 GMT
+
+https://www.cbr.com/best-cyberpunk-movies-better-than-blade-runner-list/
+
+Blade Runner is often credited as the true birthplace of the cyberpunk genre, but it walked so these incredible movies could run.
+---------
+
+# Avengers: Doomsday Risks Missing Out on 7 Oscar Categories to Avoid Spoilers
+
+Movies, Avengers: Doomsday, Marvel, Avengers
+
+Tue, 24 Nov 2026 23:53:36 GMT
+
+https://www.cbr.com/avengers-doomsday-missing-out-on-oscar-golden-globes-bafta-categories/
+
+Avengers: Doomsday could be ineligible for some major awards.
+---------
+
+# Star Wars Star Worked 2.5 Years Without Pay on Rejected Spinoff
+
+Movies, Star Wars, Disney
+
+Tue, 24 Nov 2026 23:47:30 GMT
+
+https://www.cbr.com/star-wars-adam-driver-worked-without-pay-hunt-for-ben-solo/
+
+Adam Driver and the rest of the team were assured that the movie would get made, only to have Disney reject the idea 2.5 years later.
+---------
+
+# Robert De Niro's Return to Beloved Franchise After 16 Years Debuts With Brutal RT Score
+
+Movies, Focker-In-Law, Comedy
+
+Tue, 24 Nov 2026 23:41:16 GMT
+
+https://www.cbr.com/focker-in-law-rotten-tomatoes-score/
+
+Critics are not liking the new Focker family saga.
+---------
+
+# My Hero Academia Unleashes Its Next Major Battle With February 6 Release Date
+
+Anime, My Hero Academia, My Hero Ultra Rumble
+
+Tue, 24 Nov 2026 23:35:12 GMT
+
+https://www.cbr.com/my-hero-academia-ultra-rumble-second-trailer-release-date/
+
+My Hero Academia fans just caught a glimpse of all the action to come in the next highly anticipated release, and it's coming this winter.
+---------
+
+# The Godfather Part II Has the Coldest Quote in Gangster Movie History
+
+Movies, The Godfather Part II
+
+Tue, 24 Nov 2026 23:30:12 GMT
+
+https://www.cbr.com/the-godfather-part-ii-coldest-quote-gangster-movies/
+
+One of the coldest lines in The Godfather Part II inverts an iconic phrase from the first movie, all while foreshadowing Michael Corleone's fate.
+---------
+
+# 10 Anime Rivals Who Surpassed the Hero
+
+Anime, Naruto, Dragon Ball Z, Innovation
+
+Tue, 24 Nov 2026 23:15:12 GMT
+
+https://www.cbr.com/anime-rivals-who-surpassed-the-hero/
+
+An anime usually has its main protagonist that arrives to save the day, but these rivals managed to surpass the hero of the story through sheer grit.
+---------
+
+# Sonic the Hedgehog Officially Drops 5 New Plush Releases Coming December 4
+
+Games, Sonic the Hedgehog
+
+Tue, 24 Nov 2026 23:05:12 GMT
+
+https://www.cbr.com/sonic-the-hedgehog-officially-drops-5-new-plush-releases-coming-december-4/
+
+Sonic the Hedgehog is back with everyone's favorite speedster and his friends through this fun, plush collaborative effort.
+---------
+
+# Alan Ritchson’s Reacher Franchise Officially Refuses to Back Down on Prime Video
+
+Movie News, The Man with the Bag, Alan Ritchson, Reacher, Neagley
+
+Wed, 25 Nov 2026 00:45:12 GMT
+
+https://collider.com/alan-ritchson-reacher-neagley-streaming-success-prime-video-november-2026/
+
+Reacher and Neagley are both among Prime Video's most-watched shows ahead of the release of Alan Ritchson's The Man with the Bag.
+---------
+
+# Ava DuVernay’s 4-Part Netflix Miniseries Is a Devastating Masterpiece
+
+TV Features, When They See Us, Netflix, Ava DuVernay, TV Miniseries
+
+Wed, 25 Nov 2026 00:37:12 GMT
+
+https://collider.com/ava-duvernay-masterpiece-when-they-see-us-netflix-series-exonerated-five-true-story/
+
+Ava DuVernay’s four-part Netflix miniseries When They See Us follows the wrongful convictions and eventual exoneration of five New York City teens.
+---------
+
+# 'Landman's Billy Bob Thornton Officially Leaves Taylor Sheridan Behind for New Historical Series
+
+TV News, Landman, Billy Bob Thornton, Taylor Sheridan, Paramount Plus
+
+Wed, 25 Nov 2026 00:31:12 GMT
+
+https://collider.com/billy-bob-thornton-the-mayflower-release-fox-nation-november-2026/
+
+Landman star Billy Bob Thornton is hosting a new three-part historical documentary series, The Mayflower, which is available to stream now.
+---------
+
+# 6 Psychological Thrillers From the 2000s That Are 10/10 Masterpieces
+
+Movie, The Chaser, Orphan, The Butterfly Effect, One Hour Photo
+
+Wed, 25 Nov 2026 00:21:12 GMT
+
+https://collider.com/psychological-thrillers-2000s-perfect-masterpieces/
+
+Orphan, Hard Candy, and One Hour Photo are among the best psychological thriller masterpieces of the 2000s.
+---------
+
+# 7 Years Later, HBO’s Sci-Fi Thriller Series Doesn't Have a Single Bad Episode
+
+TV Features, Years and Years, Emma Thompson, Russell T. Davies, HBO
+
+Wed, 25 Nov 2026 00:19:12 GMT
+
+https://collider.com/hbos-years-and-years-sc-fi-thriller-seven-years-later/
+
+'Years and Years,' created by Russell T. Davies, follows the Lyons family as they traverse political, economic, and technological strife.
+---------
+
+# 9 Years Later, Netflix's 3-Season Sci-Fi Masterpiece Is Drawing 64 Million Viewing Hours
+
+TV Features, Dark, Netflix, Sci-Fi, Thriller
+
+Wed, 25 Nov 2026 00:18:12 GMT
+
+https://collider.com/dark-netflix-viewing-hours-sci-fi-masterpiece/
+
+Netflix's 3-season sci-fi masterpiece Dark continues to captivate audiences 9 years after it first premiered.
+---------
+
+# Ariana Grande’s ‘Meet the Parents’ Sequel Is Officially One of the Franchise’s Worst Ever Movies
+
+Movie News, Ariana Grande, Robert De Niro, Ben Stiller, Focker-In-Law
+
+Wed, 25 Nov 2026 00:15:12 GMT
+
+https://collider.com/ariana-grande-focker-in-law-rotten-tomatoes-score/
+
+Ariana Grande and Ben Stiller's Focker-in-Law has debuted with one of the lowest Rotten Tomatoes scores in the franchise.
+---------
+
+# Top 7 Book Prequels That Made Us Rethink the Original
+
+Books and Comics, The Hunger Games: Sunrise on the Reaping, Wicked, Narnia: The Magician's Nephew, House of the Dragon
+
+Wed, 25 Nov 2026 00:15:12 GMT
+
+https://collider.com/best-book-prequels/
+
+The books that changed how we view the characters created by Jane Eyre, Suzanne Collins, C.S. Lewis or G.R.R Martin.
+---------
+
+# Disney+ Is Officially Introducing a Major New Feature for 'Avengers: Doomsday'
+
+Movie News, Avengers: Doomsday, Disney+, MCU
+
+Wed, 25 Nov 2026 00:00:12 GMT
+
+https://collider.com/disney-plus-avengers-doomsday-movie-ticketing-new-feature/
+
+Disney+ has officially introduced a new movie ticketing feature, allowing subscribers to purchase tickets for Avengers: Doomsday through Fandango.
+---------
+
+# 30 Years Later, Danny DeVito’s Beloved Fantasy Classic Gets a New Streaming Home
+
+Movie News, Matilda, HBO Max, Danny Devito, Fantasy
+
+Tue, 24 Nov 2026 23:46:12 GMT
+
+https://collider.com/danny-devito-matilda-streaming-hbo-max-december-2026/
+
+A beloved Roald Dahl fantasy movie heads to HBO Max in December, just in time for the highly anticipated Harry Potter reboot.
+---------
+
+# Jenna Ortega's "Nasty" New Psychological Thriller Causes Battle Between Studios Over Title
+
+Movie News, Jenna Ortega, Jennifer Aniston, Olivia Wilde, Thriller
+
+Wed, 25 Nov 2026 00:52:11 GMT
+
+https://movieweb.com/nasty-naughty-titles-warner-bros-universal/
+
+What happens when two movies have a similar title?
+---------
+
+# With 3 Weeks to Go, Avengers: Doomsday Breaks New Record Following Trailer Debut
+
+Movie News, Avengers: Doomsday, Action, Adventure, Drama, Superhero
+
+Tue, 24 Nov 2026 23:53:23 GMT
+
+https://movieweb.com/avengers-doomsday-final-trailer-record/
+
+'Avengers: Doomsday' has its eye on becoming the biggest movie of the year, especially after its newest trailer was released.
+---------
+
+# Forget John Wick, Amazon's New Near-Perfect Assassin Action Thriller Sets Streaming Date
+
+Movie News, Your Mother Your Mother Your Mother, Prime Video, John Wick, Action, Thriller, Drama, Adventure
+
+Tue, 24 Nov 2026 23:00:54 GMT
+
+https://movieweb.com/your-mother-your-mother-your-mother-mgm-date/
+
+Amazon is back with a thrilling new movie, which will be available to stream soon after hitting big in theaters over the last couple of months.
+---------
+
+# Johnny Depp's Gothic Fantasy Officially Toppled by New Sylvester Stallone Movie at the Box Office
+
+Movie News, Ebenezer, I Play Rocky, Box Office Milestones, Johnny Depp, Sylvester Stallone, Fantasy, Biography
+
+Tue, 24 Nov 2026 23:00:17 GMT
+
+https://movieweb.com/ebenezer-i-play-rocky-november-2026/
+
+Last weekend’s box office delivered a classic "David-vs.-Goliath" upset.
+---------
+
+# Taylor Sheridan's 4-Part Crime Thriller Sensation Is Officially a 400-Day Streaming Smash Hit
+
+TV News, Taylor Sheridan, Tulsa King, Crime, Thriller, Paramount Plus, Hot on Streaming
+
+Tue, 24 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/tulsa-king-taylor-sheridan-stream-paramount-november-2026/
+
+The 'Yellowstone' creator continues to dominate streaming ahead of the next chapter in the Sheridan-Verse.
+---------
+
+# 39 Years Later, Sam’s Greatest ‘Cheers’ Quote Is Still Unbeaten
+
+Features, Cheers, Comedy, Great Line
+
+Tue, 24 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/cheers-sam-famous-quote/
+
+Ted Danson's 'Cheers' character Sam Malone, who owns the Boston-based bar, says several memorable quotes throughout the 1980s sitcom's run.
+---------
+
+# 20 Years Later, Disney Is Officially Reviving Its Underrated Fantasy Movie in New Streaming Series
+
+TV News, Aquamarine, Emma Roberts
+
+Tue, 24 Nov 2026 21:45:56 GMT
+
+https://movieweb.com/aquamarine-series-disney/
+
+A core classic from the 2000s is coming back to screens.
+---------
+
+# First Look at the Character Marvel’s Been Hiding From 'Avengers: Doomsday' Finally Revealed
+
+Movie News, Avengers: Doomsday, Superhero, Kelsey Grammer
+
+Tue, 24 Nov 2026 21:39:10 GMT
+
+https://movieweb.com/avengers-doomsday-beast-image/
+
+Over 30 characters are assembling for Avengers: Doomsday, including one fan-favorite nobody expected.
+---------
+
+# 10 Greatest Netflix Shows That Became Divisive After Their Release
+
+TV Lists, Netflix, House of Cards, The Crown, Black Mirror, The Witcher
+
+Tue, 24 Nov 2026 21:30:17 GMT
+
+https://movieweb.com/netflix-shows-controversy/
+
+Though initially popular, these shows have sparked controversy, either for issues happening on-screen or behind the scenes.
+---------
+
 # “We Are Just Having Fun Here,” - The Creator of Terrifier Tells Us All About His Latest Collab
 
 Gaming, Terrifier, Triple-A Games
