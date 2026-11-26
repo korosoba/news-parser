@@ -1,3 +1,344 @@
+# 5 Masterpiece Fantasy Movies That Are Better Than Every Harry Potter Film
+
+Movies, Fantasy, Harry Potter
+
+Thu, 26 Nov 2026 11:20:18 GMT
+
+https://screenrant.com/fantasy-movies-better-than-harry-potter/
+
+Harry Potter helped define modern fantasy cinema, but these five extraordinary movies arguably surpass every installment in the beloved franchise.
+---------
+
+# Legend Of Zelda: Ocarina Of Time Remake Official Post-Launch Update Available Now
+
+Gaming, The Legend of Zelda: Ocarina of Time, Nintendo, The Legend of Zelda
+
+Thu, 26 Nov 2026 11:14:43 GMT
+
+https://screenrant.com/legend-of-zelda-ocarina-remake-november-2026-update/
+
+The Legend of Zelda: Ocarina of Time's remake has gotten its first official post-launch update, and it is available for all right now.
+---------
+
+# The Legend Of Zelda: Twilight Princess Officially Returns In The Master Collection
+
+Gaming, The Legend of Zelda, The Legend of Zelda: Twilight Princess
+
+Thu, 26 Nov 2026 11:11:46 GMT
+
+https://screenrant.com/legend-of-zelda-master-collection-twilight-princess-return/
+
+The Legend Of Zelda's older games are coming back in all sorts of ways, and a new collection celebrates every one of them.
+---------
+
+# GTA 6's Most Exciting DLC Possibility Is Hiding In Plain Sight
+
+Gaming, Grand Theft Auto 6
+
+Thu, 26 Nov 2026 11:03:45 GMT
+
+https://screenrant.com/gta-6-dlc-vice-city-airport/
+
+Grand Theft Auto 6 has only been out for a week, but as players explore Leonida, they'll see there's a huge opportunity for future DLC.
+---------
+
+# Red Dead Redemption 2 Thanksgiving Freebies Officially Available Now
+
+Gaming, Rockstar Games, Red Dead Redemption 2, Red Dead Online
+
+Thu, 26 Nov 2026 11:01:19 GMT
+
+https://screenrant.com/red-dead-redemption-2-thanksgiving-online-free-downloads/
+
+Thanksgiving gifts RDR2. November login and role milestones unlock outfit pieces this month, rewarding dedicated traders with rare cosmetics and cash.
+---------
+
+# Paramount Killed A Star Trek Worf Spinoff After Picard That Was Already Written
+
+TV, Star Trek
+
+Thu, 26 Nov 2026 11:00:19 GMT
+
+https://screenrant.com/star-trek-worf-spinoff-canceled-michael-dorn/
+
+Michael Dorn reveals that there was a Star Trek: Worf spinoff already in development after Picard that was a victim of Skydance buying Paramount.
+---------
+
+# Gorgeous New PlayStation Console Officially Unveiled
+
+Gaming, Grand Theft Auto 6, PlayStation 5
+
+Thu, 26 Nov 2026 10:44:12 GMT
+
+https://screenrant.com/playstation-new-limited-edition-gta-6-ps5-console/
+
+A new custom PlayStation has suddenly appeared, but players out there sadly won't be able to just buy it for themselves.
+---------
+
+# Dungeon Crawler Carl's Official Return Met With Mixed Reviews
+
+Gaming, Dungeon Crawler Carl, PC
+
+Thu, 26 Nov 2026 10:42:49 GMT
+
+https://screenrant.com/dungeon-crawler-carl-unstoppable-mixed-reviews/
+
+Dungeon Crawler Carl's most recent major release hasn't been entirely the sensation fans thought it would be, with many left disappointed.
+---------
+
+# Pokémon Legends Next Release Officially Confirmed
+
+Gaming, Pokemon, Pokemon Legends Z-A, Nintendo
+
+Thu, 26 Nov 2026 10:33:46 GMT
+
+https://screenrant.com/pokemon-legends-december-2026-new-mega-merch/
+
+The next Pokémon Legends project has finally been confirmed, and fans won't have long to wait until it arrives.
+---------
+
+# Dennis Quaid's New Netflix Movie That Scored 264M Minutes Viewed In 1 Week Is A Great Watch Right Now
+
+Movies, Masked Recs
+
+Thu, 26 Nov 2026 10:29:01 GMT
+
+https://screenrant.com/dennis-quaid-a-dogs-perfect-christmas-netflix-streaming-recommendation/
+
+Dennis Quaid has a new Netflix movie that has become a major streaming hit, and this is the perfect time to check out the recent release.
+---------
+
+# 10 Hilarious Far Side Comics That Are Basically Memes
+
+Comics, The Far Side
+
+Thu, 26 Nov 2026 11:00:12 GMT
+
+https://www.cbr.com/funniest-far-side-comics-that-are-basically-memes/
+
+The Far Side has created hundreds of entertaining comics, ranging from more serious takes to ones easily mistaken for memes.
+---------
+
+# The 5-Part HBO Masterpiece That Set Up Tulsa King 12 Years Before Taylor Sheridan
+
+TV, Tulsa King, Boardwalk Empire, HBO Max
+
+Thu, 26 Nov 2026 11:00:12 GMT
+
+https://www.cbr.com/tulsa-king-boardwalk-empire-influence/
+
+Taylor Sheridan is credited with Tulsa King's success, but the show's best moments are actually thanks to a shared talent with HBO's Boardwalk Empire.
+---------
+
+# Ryan Reynolds' The Adam Project Is the Modern Back to the Future
+
+Movies, The Adam Project, Netflix, ryan reynolds
+
+Thu, 26 Nov 2026 11:00:12 GMT
+
+https://www.cbr.com/netflix-adam-project-modern-day-back-to-the-future/
+
+Four years ago, Ryan Reynolds and Shawn Levy teamed up to deliver a modern-day equivalent to Back to the Future and one of sci-fi's best new movies.
+---------
+
+# Superheroes Steal Other Heroes' Origins
+
+Comics, Marvel Comics, CSBG, The Line It Is Drawn
+
+Thu, 26 Nov 2026 04:57:51 GMT
+
+https://www.cbr.com/superheroes-steal-other-heroes-origins/
+
+In a brand-new Line it is Drawn, our artists drew your suggestions for superheroes taking over other heroes' origins
+---------
+
+# The 'Most Original and Weirdest Horror Film of the Decade' Gets Free Streaming Home
+
+Movies, Horror, Tubi, Stopmotion
+
+Thu, 26 Nov 2026 04:53:39 GMT
+
+https://www.cbr.com/stopmotion-horror-streaming-tubi-december-2026/
+
+One of the most bizarre horror films you'll ever see gets a free streaming home.
+---------
+
+# Henry Cavill's Highlander Reboot Will Be A Better Role Than James Bond
+
+Movies, Highlander, Fantasy, James Bond, Innovation
+
+Thu, 26 Nov 2026 04:45:12 GMT
+
+https://www.cbr.com/henry-cavill-highlander-reboot-james-bond-role-comparison/
+
+Fans might have wanted Henry Cavill as 007, but this '80s fantasy reboot is a far better fit for the iconic actor.
+---------
+
+# 10 Unplayable PS1 Games That Were Once Considered Masterpieces
+
+Games, PlayStation (Original), Video Games
+
+Thu, 26 Nov 2026 04:45:12 GMT
+
+https://www.cbr.com/unplayable-ps1-games-that-once-considered-masterpieces/
+
+It's a wonder how gamers could've stood PS1 games like Gran Turismo and Crash Bandicoot back in the day.
+---------
+
+# John Lithgow's New HBO Fantasy Show Is Already Bigger Than Game of Thrones in Every Way
+
+TV, Harry Potter, Game Of Thrones, HBO Max, Fantasy
+
+Thu, 26 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/hbo-harry-potter-bigger-fantasy-than-game-of-thrones/
+
+John Lithgow's upcoming HBO Max series is about to overtake Game of Thrones as the biggest television fantasy franchise.
+---------
+
+# 10 Calvin and Hobbes Comics That Say A Lot About Society
+
+Comics, Calvin and Hobbes
+
+Thu, 26 Nov 2026 04:30:12 GMT
+
+https://www.cbr.com/calvin-and-hobbes-comics-societal-commentary/
+
+Calvin and Hobbes was always an extremely philosophical comic strip, and many releases revealed a lot about wider societal expectations and flaws.
+---------
+
+# Only 3 JJK Characters Can Defeat Satoru Gojo
+
+Anime, Jujutsu Kaisen
+
+Thu, 26 Nov 2026 04:15:11 GMT
+
+https://www.cbr.com/jjk-characters-who-can-defeat-gojo-list/
+
+JJK's Satoru Gojo is legendary, but there are three characters powerful enough to defeat him.
+---------
+
+# The 15 Best '90s Christmas Movies, Ranked
+
+Movie, Christmas Movies, 90s, Little Women, Home Alone
+
+Thu, 26 Nov 2026 11:36:12 GMT
+
+https://collider.com/best-christmas-movies-1990s-ranked/
+
+The Santa Clause, Home Alone, Little Women, The Muppet Christmas Carol, and more make up our list of the best Christmas movies of the 1990s.
+---------
+
+# Rebecca Ferguson’s ‘Alien’ Replacement Officially Says Goodbye to Streaming in 3 Days
+
+Movie News, Life, Ryan Reynolds, Rebecca Ferguson, Jake Gyllenhaal
+
+Thu, 26 Nov 2026 11:30:12 GMT
+
+https://collider.com/rebecca-ferguson-life-leaving-hulu-november-2026/
+
+Jake Gyllenhaal, Ryan Reynolds, and Rebecca Ferguson’s $101 million sci-fi horror movie Life is leaving Hulu this November.
+---------
+
+# 8 HBO Miniseries That Are Bangers From Start to Finish
+
+TV, HBO, TV Miniseries, Chernobyl, The Night Of
+
+Thu, 26 Nov 2026 11:17:12 GMT
+
+https://collider.com/best-hbo-miniseries-bangers/
+
+Eight complete stories prove HBO knows when to stop, with Olive Kitteridge and Mare of Easttown among its finest achievements.
+---------
+
+# Clint Eastwood’s WWII Drama 'Flags of Our Fathers' Is a Start-to-Finish Masterpiece
+
+Movie Features, Clint Eastwood, War, Flags of Our Fathers, Saving Private Ryan
+
+Thu, 26 Nov 2026 11:17:12 GMT
+
+https://collider.com/clint-eastwood-flags-of-our-fathers-ww2-streaming-free-pluto-tv-november-2026/
+
+In his 2006 World War II drama Flags of Our Fathers, now streaming free on Pluto TV, Clint Eastwood examined our myths about the battle at Iwo Jima.
+---------
+
+# Nicolas Cage’s ‘The Silence of the Lambs’ Replacement Officially Hits Netflix in 2 Weeks
+
+Movie News, Longlegs, Nic Cage, Nicolas Cage, Maika Monroe
+
+Thu, 26 Nov 2026 11:00:12 GMT
+
+https://collider.com/longlegs-nicolas-cage-leaving-hulu-netflix-december-2026/
+
+Nicolas Cage and Maika Monroe’s Longlegs moves from Hulu to Netflix in December, one day after another Cage horror movie joins the service.
+---------
+
+# HBO’s Harry Potter Officially Goes LEGO in First Images
+
+Collectibles, Harry Potter, HBO, Lego
+
+Thu, 26 Nov 2026 10:30:12 GMT
+
+https://collider.com/hbo-harry-potter-lego-set-images/
+
+The new LEGO sets for HBO's Harry Potter series have been revealed, with one seemingly taking inspiration from Hogwarts Legacy.
+---------
+
+# Forget Bosch, Titus Welliver’s Neo-Noir Crime Thriller Is Still His Best Performance 17 Years Later
+
+Movie, Titus Welliver, Gone Baby Gone, Ben Affleck, Casey Affleck
+
+Thu, 26 Nov 2026 10:04:12 GMT
+
+https://collider.com/titus-welliver-bosch-replacement-gone-baby-gone/
+
+Titus Welliver plays a grieving uncle in Gone, Baby, Gone, who hires private investigators to search for his four-year-old niece.
+---------
+
+# ‘Georgie and Mandy’s First Marriage’ Season 3 Officially Recruits a Disney Legend
+
+TV News, Georgie & Mandy's First Marriage, Young Sheldon, CBS, The Big Bang Theory
+
+Thu, 26 Nov 2026 10:00:12 GMT
+
+https://collider.com/georgie-and-mandys-first-marriage-season-3-episode-9-first-look-john-ratzenberger-guest-star/
+
+Young Sheldon's fan-favorite spin-off reveals a Disney legend as a WWII vet in an upcoming episode airing next month.
+---------
+
+# ‘The Hunting Wives’ Season 2 Is Even More Complicated and Just as Addictive | Review
+
+TV Features, The Hunting Wives, Malin Akerman, Brittany Snow, Netflix
+
+Thu, 26 Nov 2026 08:01:12 GMT
+
+https://collider.com/the-hunting-wives-season-2-review-netflix-brittany-snow-malin-akerman/
+
+The Hunting Wives returns just in time to become your guilty pleasure holiday binge, with Season 2 delivering even more twists and betrayal.
+---------
+
+# Jason Statham's 98-Minute "John Wick Meets Taken" Action Thriller Is Being Cut From Streaming Next Week
+
+Movie News, Jason Statham, Mechanic: Resurrection, Action, Thriller, John Wick, Taken, Tubi, Coming/Leaving Streaming
+
+Thu, 26 Nov 2026 11:30:16 GMT
+
+https://movieweb.com/jason-statham-mechanic-resurrection-leaving-streaming-november-2026/
+
+You can currently watch The Stath unleash vengeance for free. But not for much longer.
+---------
+
+# Forget ‘Lioness,’ the Best Spy Thriller Only Has 13 Episodes and Is a Perfect Weekend Binge
+
+Features, Rubicon, Lioness, Thriller
+
+Thu, 26 Nov 2026 11:00:17 GMT
+
+https://movieweb.com/rubicon-lioness-comparison/
+
+Lioness Season 4 won't come out until later in 2027 or 2028. Thankfully, there is a shorter and equally great spy thriller.
+---------
+
 # God Of War Officially Casts A Major Female Lead — She Deserves Her Own Spin-Off
 
 Streaming TV, God of War
