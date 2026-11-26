@@ -1,3 +1,421 @@
+# God Of War Officially Casts A Major Female Lead — She Deserves Her Own Spin-Off
+
+Streaming TV, God of War
+
+Thu, 26 Nov 2026 02:30:18 GMT
+
+https://screenrant.com/god-of-war-faye-deborah-ann-woll-casting/
+
+Prime Video’s live-action God of War has officially cast one major female lead, and it is hard not to see how she already deserves her own spin-off.
+---------
+
+# A24's New Movie Has One Of The Year’s Best Rotten Tomatoes Audience Scores
+
+Movies, Club Kid
+
+Thu, 26 Nov 2026 02:01:37 GMT
+
+https://screenrant.com/club-kid-rotten-tomatoes-audience-score/
+
+A24's Club Kid opened in limited theaters earlier this month, and it's quickly received one of the best audience scores on Rotten Tomatoes.
+---------
+
+# Dune: Part Three Fan Theory Suggests Chani Is Actually Scytale
+
+Movies, Dune: Part Three, Zendaya
+
+Thu, 26 Nov 2026 02:01:18 GMT
+
+https://screenrant.com/dune-part-three-fan-theory-chani-scytale-shapeshifter/
+
+A darkly fascinating theory suggests Dune: Part Three will feature a unique deviation from the books regarding Zendaya's Chani and her true nature.
+---------
+
+# Star Wars' Darth Vader Replacement Didn't Have To Be A Sith To Be A Badass
+
+Streaming TV, Star Wars
+
+Thu, 26 Nov 2026 02:01:18 GMT
+
+https://screenrant.com/star-wars-maul-darth-vader-replacement-not-a-sith/
+
+Star Wars' best Darth Vader replacement didn't need to be a Sith to be a badass. In fact, leaving the Sith behind made him a much better villain.
+---------
+
+# Percy Jackson's 21-Year-Old Ares Mystery Answered By Star
+
+TV, Percy Jackson & the Olympians, Percy Jackson & The Olympians
+
+Thu, 26 Nov 2026 01:33:27 GMT
+
+https://screenrant.com/percy-jackson-clarisse-mother-mystery-dior-goodjohn-response/
+
+EXCLUSIVE: 21 years after Rick Riordan's first Percy Jackson book was published, one of the Disney+ show's stars answers an unsolved Ares mystery.
+---------
+
+# Nathan Fillion’s The Rookie Spinoff Officially Hits Major Filming Milestone Ahead Of January Release
+
+TV, The Rookie: North, The Rookie: North - Season 1
+
+Thu, 26 Nov 2026 01:13:14 GMT
+
+https://screenrant.com/the-rookie-north-nathan-fillion-production-milestone/
+
+Nathan Fillion’s hit ABC drama The Rookie is getting a spinoff this fall, and the new series just reached a celebratory milestone on the set.
+---------
+
+# Reacher's Prime Video Replacement Is 2026's Best Thriller Series
+
+Streaming TV, Masked Recs
+
+Thu, 26 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/neagley-best-2026-action-thriller-series-reacher/
+
+Reacher has spent years as Prime Video's flagship action TV series, but it has now been surpassed by an even better show, which is the best of 2026.
+---------
+
+# Superman Debuts Fiery New Power No Other Kryptonian Has
+
+Comics, DC, Superman
+
+Thu, 26 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/superman-new-power-fire-sunlight/
+
+Superman has had an impressive collection of powers for decades, and now a new one has been added to the lineup that's fiery and destructive.
+---------
+
+# 10 Best Netflix Anime That Absolutely Deliver On the Hype
+
+Anime, Netflix, Fullmetal Alchemist, Cyberpunk: Edgerunners
+
+Thu, 26 Nov 2026 02:25:12 GMT
+
+https://www.cbr.com/netflix-best-anime-absolutely-deliver-on-the-hype/
+
+Some of the most hyped up anime on Netflix more than live up to the reputations they've built.
+---------
+
+# Star Wars: The Age Difference Between Anakin And Padmé, Explained
+
+Movies, Star Wars
+
+Thu, 26 Nov 2026 02:00:12 GMT
+
+https://www.cbr.com/star-wars-anakin-padme-age-difference/
+
+The Star Wars prequels saw Anakin Skywalker break the Jedi Code by secretly marrying Padmé Amidala, but how much of an age gap was there between them?
+---------
+
+# Taylor Sheridan's Hit Yellowstone Spinoff Dethroned on Paramount+ by 29-Year-Old Animated Comedy
+
+TV, Marshals, South Park, Paramount Plus
+
+Thu, 26 Nov 2026 02:00:11 GMT
+
+https://www.cbr.com/marshals-south-park-success-paramount-plus-november-2026/
+
+As Season 2 of Marshals continues, the hit Yellowstone spinoff has been replaced in the top spot on streaming by South Park.
+---------
+
+# The Hunger Games Already Has the Perfect Story for Its First TV Series
+
+TV, The Hunger Games
+
+Thu, 26 Nov 2026 02:00:11 GMT
+
+https://www.cbr.com/hunger-games-tv-series-first-quarter-quell/
+
+After Sunrise on the Reaping, speculation is mounting about the future of the Hunger Games franchise, and one untold story is perfect for TV.
+---------
+
+# 5 2026 Anime Series Already Considered Masterpieces
+
+Anime, My Daemon
+
+Thu, 26 Nov 2026 01:45:12 GMT
+
+https://www.cbr.com/2026-anime-series-must-watch-masterpieces-list/
+
+2026 is almost over, but the best anime of the year, like Daemons of the Shadow Realm, have already proven to be masterpieces.
+---------
+
+# 5 Forgotten Turn-Based RPGs That Deserve Another Look
+
+Games
+
+Thu, 26 Nov 2026 01:30:11 GMT
+
+https://www.cbr.com/forgotten-turn-based-rpgs-list/
+
+Turn-based RPGs like Radiant Historia have been completely overlooked even though they're 9/10 games.
+---------
+
+# 10 Greatest Dark Academia Fantasy Books of All Time, Ranked
+
+Books, Fantasy
+
+Thu, 26 Nov 2026 01:30:11 GMT
+
+https://www.cbr.com/best-dark-academia-fantasy-books-ranked-list/
+
+The best dark academia fantasy books merge the genre's moody atmosphere, gothic aesthetic and secret societies with magic, monsters & arcane mysteries
+---------
+
+# Demon Slayer Studio's New Anime Movie Drives Fantasy Classic to Record-Breaking Success
+
+Anime, Type-Moon, Steam
+
+Thu, 26 Nov 2026 01:25:12 GMT
+
+https://www.cbr.com/ufotable-witch-on-the-holy-night-success/
+
+A three-year old Steam title experiences a sudden resurgence of popularity thanks to the overwhelming success of Studio Ufotable's latest anime film.
+---------
+
+# 7 Best Spy x Family Manga Covers, Ranked
+
+Anime, Spy X Family, Spy x Family, Manga
+
+Thu, 26 Nov 2026 01:15:12 GMT
+
+https://www.cbr.com/spy-x-family-best-manga-covers-ranked/
+
+Tatsuya Endo's Spy x Family is a modern shonen masterpiece that's created some stunning works of art across its manga's various covers.
+---------
+
+# Lord of the Rings Loses Streaming Crown to Prime Video's New 107-Minute Christmas Movie
+
+Movies, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Prime Video
+
+Thu, 26 Nov 2026 01:00:12 GMT
+
+https://www.cbr.com/clashing-through-the-snow-rings-of-power-success-prime-video-streaming/
+
+The Lord of the Rings is no longer the lord of streaming.
+---------
+
+# Forget ‘Sharp Objects,’ Peacock’s Gripping Crime Thriller Is a Masterpiece From Start to Finish
+
+TV Features, Sharp Objects, The Good Daughter, Rose Byrne, Peacock
+
+Thu, 26 Nov 2026 02:31:12 GMT
+
+https://collider.com/peacock-crime-thriller-series-the-good-daughter/
+
+On November 12, Peacock premiered The Good Daughter, a gripping thriller starring Rose Byrne and Meghann Fahy.
+---------
+
+# Disney's 'The Mandalorian' Officially Returns Today
+
+Movie News, The Mandalorian, LEGO Star Wars: The Mandalorian, The Mandalorian and Grogu
+
+Thu, 26 Nov 2026 02:30:12 GMT
+
+https://collider.com/star-wars-the-mandalorian-and-grogu-pop-up-storybook-release-november-2026/
+
+Star Wars fans can officially return to the world of The Mandalorian today with a new release celebrating Din Djarin and Grogu's adventures.
+---------
+
+# The 5 Best Games Snubbed for the 2026 Game of the Year
+
+Gaming, Video Game, Gears of War, Grand Theft Auto 6, 007 First Light
+
+Thu, 26 Nov 2026 02:03:12 GMT
+
+https://collider.com/best-video-games-snubbed-game-awards-2026/
+
+Although acclaimed by critics and fans, games like Big Walk and Fire Emblem: Fortune’s Weave were snubbed for the big prize at the 2026 Game Awards.
+---------
+
+# The Ultimate Studio Ghibli LEGO Set Officially Gets a Second Chance
+
+Movie News, Studio Ghibli, Spirited Away, Lego, Howl's Moving Castle
+
+Thu, 26 Nov 2026 02:01:12 GMT
+
+https://collider.com/studio-ghibli-lego-ideas-set-return/
+
+A 4,200-piece Studio Ghibli LEGO Ideas project has officially reached 10,000 supporters for a second time following its previous rejection.
+---------
+
+# David Fincher Officially Reveals Why Netflix Cancelled ‘Mindhunter’
+
+TV News, Mindhunter, David Fincher, Netflix, Crime
+
+Thu, 26 Nov 2026 01:31:12 GMT
+
+https://collider.com/netflix-mindhunter-season-3-cancellation-reason-david-fincher/
+
+David Fincher has revealed that Netflix wanted Mindhunter to become a more action-oriented crime thriller before the director walked away.
+---------
+
+# 10 Video Games To Play Before Kicking the Bucket
+
+Gaming, Video Game, Grand Theft Auto 6, Mass Effect, The Legend of Zelda
+
+Thu, 26 Nov 2026 01:31:12 GMT
+
+https://collider.com/games-play-before-kicking-the-bucket/
+
+Proper classics like The Legend of Zelda: Ocarina of Time and recent gems like GTA 6 are among the video games you simply must play before you die.
+---------
+
+# Guy Ritchie and Tom Hardy’s Hit Crime Series Officially Casts Its First New Character
+
+TV News, MobLand, Guy Ritchie, Tom Hardy, Crime
+
+Thu, 26 Nov 2026 01:15:12 GMT
+
+https://collider.com/guy-ritchie-mobland-season-3-cast-gregg-sulkin/
+
+Gregg Sulkin has joined Tom Hardy, Pierce Brosnan, and Helen Mirren in the third season of Paramount+'s hit crime thriller MobLand.
+---------
+
+# 8 Apple TV Mystery Shows Where Every Episode Is a Masterpiece
+
+TV, Apple TV, Mystery, Slow Horses, Severance
+
+Thu, 26 Nov 2026 01:06:12 GMT
+
+https://collider.com/apple-tv-mystery-shows-every-episode-masterpiece/
+
+From the spy thriller Slow Horses to the Chris Evans miniseries Defending Jacob, every episode of these Apple TV mystery shows is a masterpiece.
+---------
+
+# Netflix’s ‘Euphoria’ Replacement Is Officially the Streamer’s No. 1 New Series
+
+TV News, The Body, Horror, Netflix, Euphoria
+
+Thu, 26 Nov 2026 01:01:12 GMT
+
+https://collider.com/netflix-the-body-streaming-success-november-2026/
+
+Netflix's word-of-mouth sensation, The Body, continues to build buzz as it tops the 15 million views mark in two weeks. Find out more here.
+---------
+
+# Netflix's Haunting 6-Episode Period Mystery Is a Binge You Can Finish in an Afternoon
+
+TV Features, Alias Grace, Netflix, Margaret Atwood
+
+Thu, 26 Nov 2026 00:53:12 GMT
+
+https://collider.com/netflix-best-thriller-series-alias-grace-mystery-binge/
+
+Based on the novel by Margaret Atwood, Alias Grace is a chilling mystery mini-series that has only gotten better with time.
+---------
+
+# Netflix’s 3-Part Fantasy Comic Adaptation Delivers a Masterclass in World-Building
+
+Features, Locke & Key, Fantasy, Netflix
+
+Thu, 26 Nov 2026 02:00:16 GMT
+
+https://movieweb.com/locke-and-key-world-building/
+
+'Locke & Key' understands how the setting and lore of a fantasy series can elevate the story as a whole, providing a masterclass in world-building.
+---------
+
+# Marvel Studios Officially Addresses Major Villain Casting After 'Avengers: Doomsday'
+
+Movie News, Ghost Rider, Ryan Gosling, Shawn Levy, Marvel Cinematic Universe
+
+Thu, 26 Nov 2026 00:11:00 GMT
+
+https://movieweb.com/marvel-studios-addresses-ghost-rider-villain/
+
+'Heated Rivalry' star is officially in talks to star alongside Ryan Gosling's Ghost Rider.
+---------
+
+# Macy's Thanksgiving Day Parade Has Officially Been Postponed
+
+TV News, Reality, Macy's Thanksgiving Day Parade
+
+Wed, 25 Nov 2026 22:36:03 GMT
+
+https://movieweb.com/macys-thanksgiving-day-parade-postponed/
+
+The Thanksgiving Day Parade in New York City is now facing an unprecedented delay.
+---------
+
+# Bob Odenkirk's 91-Minute 'John Wick' Substitute Action Thriller Is One of the Biggest Movies in the World
+
+Movie News, Normal, Bob Odenkirk, Action, Thriller, Hot on Streaming
+
+Wed, 25 Nov 2026 22:31:17 GMT
+
+https://movieweb.com/normal-bob-odenkirk-stream-hbo-november-2026/
+
+Odenkirk's successful action run proves he's one hero we should be keeping an eye on.
+---------
+
+# Netflix Officially Confirms Fate of Will Ferrell's 'The Hawk' After 1 Season
+
+TV Shows, The Hawk, Will Ferrell, Comedy, Netflix
+
+Wed, 25 Nov 2026 22:19:12 GMT
+
+https://movieweb.com/the-hawk-canceled-netflix/
+
+The Ferrell-led golf comedy debuted back in July, but we finally know whether we'll see more from it in the years to come.
+---------
+
+# 20 Biggest Questions After 'Rings of Power' Season 3, Explained
+
+Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Wed, 25 Nov 2026 22:00:16 GMT
+
+https://movieweb.com/rings-of-power-season-3-questions/
+
+The end of season 3 of 'The Lord of the Rings: The Rings of Power' featured one of the most important moments of the Second Age.
+---------
+
+# Ridley Scott Shared 'Blade Runner's Original Replicant Plans With 2099 Showrunner
+
+Exclusives, Blade Runner 2099, Michelle Yeoh, Hunter Schafer, Action, Sci-Fi, Prime Video
+
+Wed, 25 Nov 2026 21:54:57 GMT
+
+https://movieweb.com/blade-runner-original-replicant-plans/
+
+The showrunner of the new series explains the connective tissue to the original 'Blade Runner' film.
+---------
+
+# Brandon Sanderson Offers 'Mistborn' Movie Update as Fantasy Epic Enters New Phase
+
+Movie News, Mistborn, Brandon Sanderson, Fantasy
+
+Wed, 25 Nov 2026 21:06:19 GMT
+
+https://movieweb.com/mistborn-movie-second-draft/
+
+Vin's story is making its way to the big screen.
+---------
+
+# Forget ‘Reacher,’ Netflix’s Hit Action Thriller Delivers a Performance Alan Ritchson Can’t Compete With
+
+Features, Black Doves, Reacher, Action, Netflix, Alan Ritchson
+
+Wed, 25 Nov 2026 21:01:17 GMT
+
+https://movieweb.com/black-doves-reacher-comparison/
+
+'Reacher,' the Prime Video action thriller starring Alan Ritchson, has four great seasons, but one Netflix series has a better main character.
+---------
+
+# Netflix's New 110-Minute Jared Padalecki Hit Is Officially Crowned the #1 Movie in the World
+
+Movie News, Guarding Stars, Hot on Streaming, Jared Padalecki, Christmas, Romance, Netflix
+
+Wed, 25 Nov 2026 21:01:17 GMT
+
+https://movieweb.com/guarding-stars-streaming-netflix-november-2026/
+
+Netflix's newest holiday hit has wasted no time making its presence felt on streaming.
+---------
+
 # The Gentlemen Season 3 Update Will Change The Show Forever
 
 Streaming TV, The Gentlemen
