@@ -1,3 +1,443 @@
+# 8 Sitcom Characters Ruined By A Single Episode
+
+Classic TV, Sitcoms
+
+Fri, 27 Nov 2026 21:30:19 GMT
+
+https://screenrant.com/sitcom-characters-ruined-by-single-episode/
+
+From Principal Skinner to Miranda Hobbes to the Fonz, some iconic sitcom characters have had their reputation ruined by a single episode.
+---------
+
+# The Pitt Is Officially Keeping Its Best Streak Alive
+
+Streaming TV, The Pitt
+
+Fri, 27 Nov 2026 21:15:18 GMT
+
+https://screenrant.com/the-pitt-season-3-return-january-2027-release/
+
+The Pitt returns to HBO Max in January 2027, continuing its early release tradition despite some changes for the cast and story.
+---------
+
+# 10 Best Movies That Unexpectedly Switch Main Characters, Including Psycho & Alien
+
+Movies
+
+Fri, 27 Nov 2026 21:00:19 GMT
+
+https://screenrant.com/best-movies-that-switch-main-characters-ranked/
+
+Some movies pull off a brilliant narrative trick, making audiences invest in one character before revealing who the real protagonist is.
+---------
+
+# After 64 Years, DC Totally Reimagines Classic Villain
+
+Comics, DC, The Flash
+
+Fri, 27 Nov 2026 21:00:19 GMT
+
+https://screenrant.com/flash-abra-kadabra-villain-redesign/
+
+A DC supervillain who's been wreaking havoc for over six decades has been reimagined, and this spells bad news for an iconic Justice Leaguer.
+---------
+
+# 3 Best New Netflix Series To Binge-Watch This Weekend (November 27–29, 2026)
+
+Streaming TV, Netflix, What to Watch on Netflix
+
+Fri, 27 Nov 2026 21:00:19 GMT
+
+https://screenrant.com/best-new-netflix-shows-to-binge-weekend-november-27-2026/
+
+The Hunting Wives Season 2, The Trials of Karen Read, and Always on Call are the 3 best new Netflix shows to binge this weekend, November 27–29, 2026.
+---------
+
+# Yellowjackets: Where You Know Jeff's New Love Interest Vivienne From
+
+Streaming TV, Yellowjackets
+
+Fri, 27 Nov 2026 21:00:19 GMT
+
+https://screenrant.com/yellowjackets-season-4-jeff-love-interest-emily-bett-rickards/
+
+Jeff and Shauna's problems are finally coming to a head in Yellowjackets, and audiences might recognize the actress playing Jeff's new love interest.
+---------
+
+# The Rings Of Power Season 3 Officially Sets Another New LOTR Record For Prime Video As Ending Divides Fans
+
+TV, The Lord of the Rings: The Rings of Power, The Lord of the Rings: The Rings of Power - Season 3, The Lord of the Rings, Prime Video
+
+Fri, 27 Nov 2026 20:57:51 GMT
+
+https://screenrant.com/lotr-rings-of-power-season-3-prime-video-nielsen-record/
+
+The Rings of Power season 3 just bid farewell, but its record-setting run continues as new Nielsen numbers reveal just how the show's performed.
+---------
+
+# All 2 DC TV Shows & Movies Releasing On HBO Max In December 2026
+
+Streaming TV, DC Universe, HBO Max
+
+Fri, 27 Nov 2026 20:45:19 GMT
+
+https://screenrant.com/dc-shows-release-hbo-max-december-2026/
+
+HBO Max will become the home of a new DC movie and the latest season of a hit superhero series in December, making up for no DCU releases.
+---------
+
+# 8 Live-Action Transformers Designs That Are 10/10 Perfect
+
+Movies, Transformers
+
+Fri, 27 Nov 2026 20:34:49 GMT
+
+https://screenrant.com/best-transformers-movie-autobots-decepticons-designed-ranked/
+
+The live-action Transformers movies have some of the coolest robot designs of all time, from Autobots to Decepticons (but which one's the best?)
+---------
+
+# Heat Meets Ocean's 11 In Apple TV's New Thriller Series Releasing Through Christmas
+
+Streaming TV, Masked Recs
+
+Fri, 27 Nov 2026 20:30:18 GMT
+
+https://screenrant.com/12-12-12-apple-tv-new-heist-series/
+
+Apple TV has a new heist thriller series, 12 12 12, and it's a little like Ocean's Eleven and Heat, and it is airing all the way through Christmas.
+---------
+
+# Legendary 60-Year-Old Kaiju Franchise Finally Brings 2 Classic Movies to Netflix
+
+Anime, Godzilla, Netflix, Ultraman
+
+Fri, 27 Nov 2026 21:41:12 GMT
+
+https://www.cbr.com/ultraman-classic-kaiju-movies-netflix-release/
+
+The legendary giant monster series Ultraman is celebrating its 60th anniversary with the global Netflix debut of two classic films this December.
+---------
+
+# CBS' Canceled 138-Episode Sitcom Confirms New Streaming Home 9 Years Later
+
+TV, 2 Broke Girls, CBS, Netflix
+
+Fri, 27 Nov 2026 21:30:12 GMT
+
+https://www.cbr.com/2-broke-girls-sitcom-netflix-december-2026/
+
+Nearly a decade after its finale, beloved CBS sitcom 2 Broke Girls finally has a new streaming home.
+---------
+
+# 7 80s Sci-Fi Movies That Can Be Called Masterpieces
+
+Movies, Sci-Fi
+
+Fri, 27 Nov 2026 21:30:12 GMT
+
+https://www.cbr.com/best-perfect-80s-sci-fi-movies-list/
+
+The 1980s produced some of the greatest sci-fi movies in history
+---------
+
+# How to Fast Travel in GTA 6
+
+Games, Grand Theft Auto, Video Games, open world, RPG
+
+Fri, 27 Nov 2026 21:15:12 GMT
+
+https://www.cbr.com/how-to-fast-travel-gta-6/
+
+Leondia in Grand Theft Auto VI is one of the largest maps of all time, and with these tricks, players can easily fast-travel anywhere they like.
+---------
+
+# Denis Villeneuve Says Calling Dune 3 "Dune Messiah" Would Be "Dishonest"
+
+Movies, Dune: Part Three, Denis Villeneuve
+
+Fri, 27 Nov 2026 21:04:22 GMT
+
+https://www.cbr.com/denis-villeneuve-calling-dune-3-messiah-dishonest/
+
+Dune: Part Three writer-director Denis Villeneuve explains why calling the upcoming film a "Dune Messiah" adaptation would be anything but accurate.
+---------
+
+# 8 Ways 1987's Masters of the Universe Outdoes Prime Video's 2026 Reboot
+
+Movies, Masters of the Universe
+
+Fri, 27 Nov 2026 21:00:12 GMT
+
+https://www.cbr.com/1987-masters-of-the-universe-better-than-2026-reboot-list/
+
+Nearly 40 years later, there are several aspects of 1987's Masters of the Universe that longtime He-Man fans may prefer over the 2026 reboot.
+---------
+
+# Kit Harington Reinvents a Dickens Icon in MGM+'s 4-Part Period Drama
+
+TV, Kit Harington, MGM+, A Tale Of Two Cities
+
+Fri, 27 Nov 2026 21:00:12 GMT
+
+https://www.cbr.com/mgm-a-tale-of-two-cities-kit-harington-reinvents-icon/
+
+Kit Harington's modern take on Sydney Carton in MGM+'s adaptation of A Tale of Two Cities redefines the classic character for a new generation.
+---------
+
+# Alien Inspires a Terrifying Midnight Spider-Man Variant Cover
+
+Comics, Spider-Man, Alien
+
+Fri, 27 Nov 2026 21:00:12 GMT
+
+https://www.cbr.com/marvel-midnight-spider-man-4-alien-homage-variant-cover/
+
+In Marvel's Midnight Universe, everyone can hear you scream...
+---------
+
+# William Shatner Has the Perfect Response to John Carpenter Calling Him an 'A—Hole'
+
+Movies, william shatner, John Carpenter
+
+Fri, 27 Nov 2026 20:40:54 GMT
+
+https://www.cbr.com/william-shatner-response-john-carpenter/
+
+William Shatner officially responds after Halloween director John Carpenter had some harsh words to say about the Star Trek icon.
+---------
+
+# Tim Allen's Home Improvement Follow-Up Is Finally Heading to Netflix
+
+TV, Shifting Gears, Home Improvement, ABC, Netflix
+
+Fri, 27 Nov 2026 20:31:53 GMT
+
+https://www.cbr.com/tim-allen-shifting-gears-netflix-december-2026/
+
+Ahead of the Season 3 premiere of Shifting Gears, Tim Allen's Home Improvement follow-up will be dropping on Netflix in early December.
+---------
+
+# ‘Godzilla Minus Zero’ Has Officially Disappeared From Over 1,000 Theaters
+
+Movie News, Godzilla Minus One, Godzilla Minus Zero, Box Office, Godzilla
+
+Fri, 27 Nov 2026 21:20:12 GMT
+
+https://collider.com/godzilla-minus-zero-removed-from-1000-theaters-box-office/
+
+The blockbuster film Godzilla Minus Zero has surrendered hundreds of theaters to new releases this Thanksgiving. Find out more.
+---------
+
+# HBO's Forgotten 7-Part Thriller Takes Less Than 4 Hours to Binge
+
+TV Features, HBO, Run, Domhnall Gleeson, Merritt Wever
+
+Fri, 27 Nov 2026 21:08:22 GMT
+
+https://collider.com/hbo-best-thriller-series-run-domhnall-gleeson-merritt-wever/
+
+Domhnall Gleeson and Merritt Wever star as former college sweethearts who reunite for an affair that goes awry in HBO’s short-lived thriller, Run.
+---------
+
+# Marvel’s Biggest Director Is Officially Ready to Adapt ‘House of M’ After ‘Avengers: Doomsday’
+
+Movie News, Avengers: Doomsday, Russo Brothers, Joe Russo, Anthony Russo
+
+Fri, 27 Nov 2026 21:02:15 GMT
+
+https://collider.com/avengers-doomsday-joe-russo-house-of-m-movie/
+
+Avengers: Doomsday director Joe Russo discusses a potential House of M movie and how the X-Men could make the Marvel story possible.
+---------
+
+# TV’s Best ‘Yellowstone’ Replacement Is Officially a No. 1 Free Streaming Hit
+
+TV News, Anna Pigeon, USA Network, Taylor Sheridan, Yellowstone
+
+Fri, 27 Nov 2026 21:00:12 GMT
+
+https://collider.com/yellowstone-replacement-anna-pigeon-streaming-success-vudu-november-2026/
+
+Yellowstone's perfect replacement show is taking over the world on the free streaming platform, Vudu.
+---------
+
+# Batman’s Greatest Trilogy Is Officially 90% Off
+
+Gaming News, Batman: Arkham Asylum, Batman: Arkham City, Batman: Arkham Knight, Video Game
+
+Fri, 27 Nov 2026 20:31:12 GMT
+
+https://collider.com/batman-arkham-trilogy-playstation-black-friday-sale-2026/
+
+Rocksteady’s Batman: Arkham Collection is officially available for $5.99 as part of PlayStation’s Black Friday sale through November 30.
+---------
+
+# Forget The Lord of the Rings, These 4 Books Do Epic Fantasy Much Better
+
+Books and Comics, Books, The Lord of the Rings, Game Of Thrones, Brandon Sanderson
+
+Fri, 27 Nov 2026 20:29:12 GMT
+
+https://collider.com/best-books-epic-fantasy-better-than-lord-of-the-rings/
+
+Although The Lord of the Rings is a masterpiece, books like The Crippled God and Words of Radiance execute epic fantasy even better than Tolkien.
+---------
+
+# Warner Bros. Latest Misfire Officially Removed From Over 1,000 Theaters
+
+Movie News, Warner Bros., The Cat in the Hat, Bill Hader, Dr. Seuss
+
+Fri, 27 Nov 2026 20:15:13 GMT
+
+https://collider.com/cat-in-the-hat-removed-from-1000-theaters-box-office/
+
+The new Warner Bros. animated offering, The Cat in the Hat, is poised to fall short of its break-even point at the box office. Find out more.
+---------
+
+# The 10 Greatest Rock Albums of the '60s, Ranked
+
+Music Features, The Beatles, Led Zeppelin, Bob Dylan, The Rolling Stones
+
+Fri, 27 Nov 2026 20:12:12 GMT
+
+https://collider.com/best-1960s-rock-albums/
+
+The best rock albums of the 1960s, including the work of The Beatles, The Rolling Stones, Led Zeppelin, The Who, Bob Dylan, The Doors, Jimi Hendrix
+---------
+
+# 5 Near-Perfect Netflix Series With Less Than 20 Episodes
+
+TV, Netflix, Black Doves, Mindhunter, Midnight Mass
+
+Fri, 27 Nov 2026 20:08:12 GMT
+
+https://collider.com/netflix-shows-near-perfect-shorter-than-20-episodes/
+
+Dive into near-perfect Netflix shows you can binge-watch with fewer than 20 episodes, from Black Doves to Midnight Mass.
+---------
+
+# The Hunger Games Movies Are Officially Being Eliminated From Free Streaming
+
+Movie News, Jennifer Lawrence, The Hunger Games, The Hunger Games: Sunrise on the Reaping, Francis Lawrence
+
+Fri, 27 Nov 2026 20:00:12 GMT
+
+https://collider.com/hunger-games-franchise-leaving-tubi-november-2026/
+
+Catch The Hunger Games films before they exit free streaming after November 30. Read on for more details.
+---------
+
+# 'Criminal Minds' Icon Returns in New Albert Einstein CBS Series Trailer
+
+TV News, Einstein, Criminal Minds, Drama, Mystery, Comedy
+
+Fri, 27 Nov 2026 21:40:53 GMT
+
+https://movieweb.com/einstein-trailer/
+
+One of the biggest names in 'Criminal Minds' is now leading a new project tied to the genius Albert Einstein, highlighted in a new trailer.
+---------
+
+# Netflix’s 7-Part Gothic Thriller Is a Masterclass in Mystery Storytelling
+
+Features, Midnight Mass, Netflix, Thriller, Mike Flanagan
+
+Fri, 27 Nov 2026 21:00:17 GMT
+
+https://movieweb.com/midnight-mass-streaming-recommendation/
+
+Netflix's Gothic thriller series is an impressive feat with a talented cast, and it tells a satisfying mystery story in just seven episodes.
+---------
+
+# Tom Hardy & Tom Hardy's 132-Minute Crime Thriller Is Officially Making a Comeback on Streaming
+
+Movie News, Legend, Paramount Plus, Coming/Leaving Streaming, Tom Hardy, Crime, Thriller
+
+Fri, 27 Nov 2026 21:00:17 GMT
+
+https://movieweb.com/legend-tom-hardy-stream-paramount-november-2026/
+
+Yep. You read that right. Two Tom Hardys for the price of one.
+---------
+
+# Netflix's (Very) R-Rated Thriller Hit Officially Confirms Season 3 With a Major Reset
+
+TV News, The Hunting Wives, Thriller, Netflix
+
+Fri, 27 Nov 2026 20:46:29 GMT
+
+https://movieweb.com/the-hunting-wives-season-3-update/
+
+Netflix’s twisty thriller is already looking ahead.
+---------
+
+# Tom Cruise's 145-Minute Adaptation of 70-Year-Old Cyberpunk Classic Sets New Streaming Release
+
+Movie News, Tom Cruise, Minority Report, Sci-Fi, Thriller, Coming/Leaving Streaming
+
+Fri, 27 Nov 2026 20:00:16 GMT
+
+https://movieweb.com/minority-report-tom-cruise-starz-stream-december-2026/
+
+Roger Ebert called it one of the best movies of the 2000s.
+---------
+
+# What's Coming to Netflix in December 2026? Everything Arriving Next Month
+
+Features, Netflix, Streaming
+
+Fri, 27 Nov 2026 20:00:16 GMT
+
+https://movieweb.com/netflix-new-arrivals-december-2026/
+
+Discover the latest additions to Netflix in December 2026, including original series premieres and a variety of movies across various genres.
+---------
+
+# 'Blade Runner 2099' Showrunner Wants to Explore a Major Franchise Mystery in Future Spin-Offs
+
+Exclusives, Blade Runner, Blade Runner 2099, Prime Video, Sci-Fi
+
+Fri, 27 Nov 2026 19:30:17 GMT
+
+https://movieweb.com/blade-runner-future-spinoffs/
+
+Although it's been around for over 40 years, there are still many unexplored corners of the 'Blade Runner' universe.
+---------
+
+# Steve Rogers Soars With New Superpower in 'Avengers: Doomsday' Teaser
+
+Movie News, Avengers: Doomsday, Chris Evans, Action, Adventure, Superhero, Fantasy, Drama
+
+Fri, 27 Nov 2026 19:12:01 GMT
+
+https://movieweb.com/avengers-doomsday-steve-flight-teaser/
+
+After 15 years in the MCU, Chris Evans' Steve Rogers still has new tricks up his star-spangled sleeve for the next 'Avengers' movie.
+---------
+
+# 10 Netflix Sci-Fi Series That Can Be Called Masterpieces
+
+TV Lists, Sci-Fi, Netflix
+
+Fri, 27 Nov 2026 19:00:17 GMT
+
+https://movieweb.com/netflix-sci-fi-series-masterpieces/
+
+Some shows make you question the future, while others make you question the past. These Netflix sci-fi picks do both.
+---------
+
+# What's Coming to Prime Video in December 2026? Everything Arriving Next Month
+
+Features, Prime Video, Streaming
+
+Fri, 27 Nov 2026 19:00:17 GMT
+
+https://movieweb.com/prime-video-new-arrivals-december-2026/
+
+Discover the latest additions to Prime Video in December 2026, including original series premieres and a variety of movies across various genres.
+---------
+
 # Ridley Scott's Legendary 10/10 Sci-Fi Movie Is Officially Being Cut From Netflix
 
 Movies, Alien, Ridley Scott
