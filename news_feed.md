@@ -1,3 +1,443 @@
+# Sunrise On The Reaping Is The First Real Hunger Games Movie In 13 Years
+
+Movies, The Hunger Games: Sunrise on the Reaping, The Hunger Games
+
+Fri, 27 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/sunrise-on-the-reaping-real-hunger-games-arena-movie/
+
+In many ways, Sunrise on the Reaping serves as the first "real" Hunger Games movie in over a decade, a major return to form for the franchise.
+---------
+
+# DC Unveils New All Female Justice League, All Members And Powers Explained
+
+DC Comics, Justice League
+
+Fri, 27 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/all-female-justice-league-members-powers-unveiled/
+
+DC's new all-female Justice League team is composed of multiple powerful icons, from classic heroines of the Golden Age to recent additions.
+---------
+
+# Apple TV’s Remake Of Robert De Niro Thriller Hits Surprise Streaming High In New 2026 Chart
+
+TV, Cape Fear, Apple TV
+
+Fri, 27 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/cape-fear-apple-tv-remake-streaming-chart-success-2026/
+
+From executive producers Martin Scorsese and Steven Spielberg, a TV remake of De Niro's hit thriller earns a spot on Apple TV’s new streaming chart.
+---------
+
+# Netflix's 8-Episode Lovecraft Series Is Dark Fantasy Done Right
+
+Classic TV, Masked Recs
+
+Fri, 27 Nov 2026 02:45:18 GMT
+
+https://screenrant.com/guillermo-del-toro-cabinet-of-curiosities-dark-fantasy-done-right/
+
+Netflix's 8-episode TV show, inspired by H.P. Lovecraft, is one of the most chilling and unsettling dark fantasy series on the streaming platform.
+---------
+
+# Dragon Ball's New Anime Just Rewrote The Franchise's Entire Power Hierarchy
+
+Anime, Dragon Ball Super: Beerus
+
+Fri, 27 Nov 2026 02:00:18 GMT
+
+https://screenrant.com/dragon-ball-super-beerus-power-level-change/
+
+Dragon Ball's triumphant anime return appears to clear out one glaring powerscaling issue in a recent episode.
+---------
+
+# Jared Padalecki Netflix Movie Based On Best-Selling Novel Debuts With 50.6 Million Minutes Viewed
+
+Movies, Guarding Stars
+
+Fri, 27 Nov 2026 02:00:18 GMT
+
+https://screenrant.com/jared-padalecki-guarding-stars-netflix-minutes-viewed/
+
+This holiday season has a hit romantic comedy, as Netflix's adaptation of an enemies-to-lovers story makes an impressive streaming debut.
+---------
+
+# 8 Fantasy Movies That Defined Childhood For 2000s Kids, Including Harry Potter & Lord Of The Rings
+
+Movies, The Lord of the Rings: The Fellowship of the Ring, Spirited Away, The Chronicles of Narnia: The Lion, the Witch and the Wardrobe, Pirates of the Caribbean: The Curse of the Black Pearl, Harry Potter and the Prisoner of Azkaban, Charlie and the Chocolate Factory, Stardust, Shrek
+
+Fri, 27 Nov 2026 02:00:18 GMT
+
+https://screenrant.com/best-fantasy-movies-2000s-kids-grew-up-with/
+
+The 2000s were incredible for the fantasy genre, with such impressive movies that they made some younger audiences become long-term fans.
+---------
+
+# The Expanse Season 7 Isn't Happening, But Prime Video Has Found The Next Best Thing
+
+Streaming TV, The Expanse
+
+Fri, 27 Nov 2026 01:30:18 GMT
+
+https://screenrant.com/the-captive-war-prime-video-expanse-replacement/
+
+Prime Video isn't continuing The Expanse, despite fan campaigns, but the streamer has already found the natural sci-fi successor.
+---------
+
+# 9 Best Animated Witch Movies, Ranked
+
+Movies, Animation
+
+Fri, 27 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/best-animated-witch-movies-ranked/
+
+Studio Ghibli classics, modern Disney romps, and bizarre cult favorites, these animated witch movies feature the very best magic and mischief.
+---------
+
+# Netflix’s 2-Season R-Rated Fantasy Series Is A Masterclass In Worldbuilding
+
+Anime, Netflix, Masked Recs
+
+Fri, 27 Nov 2026 01:00:18 GMT
+
+https://screenrant.com/netflix-masterpiece-fantasy-storytelling-dorohedoro/
+
+This underrated Netflix series is a dark fantasy with the most unconventional and twisted magic worlds and is a masterpiece that fans shouldn't miss.
+---------
+
+# 10 Hardest Classic Racing Games of All Time, Ranked
+
+Games, Video Games, sega
+
+Fri, 27 Nov 2026 03:15:12 GMT
+
+https://www.cbr.com/hardest-classic-racing-games-all-time/
+
+Racers like Daytona USA offered quite a challenge by in and out of the arcade.
+---------
+
+# John Carpenter Gave Norman Reedus a 56-Minute Horror That Makes The Walking Dead Look Tame
+
+Movies, Horror, Masters of Horror, John Carpenter
+
+Fri, 27 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/maters-of-horror-john-carpenter-cigarette-burns-best-norman-reedus-horror/
+
+Audiences might know Norman Reedus best as Daryl Dixon, but he gave horror fans a chilling performance three years before The Walking Dead.
+---------
+
+# 6 Movies to Watch If You Loved The Hunger Games: Sunrise on the Reaping
+
+Movies, The Hunger Games: Sunrise on the Reaping, The Long Walk, Rogue One: A Star Wars Story
+
+Fri, 27 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/hunger-games-sunrise-on-the-reaping-movie-recommendations-list/
+
+With no future Hunger Games movies in the works, fans might want to dive into some other dystopias after Sunrise on the Reaping.
+---------
+
+# 1 of Hollywood's Most Iconic Action Franchises Is Bringing All 9 Movies to HBO Max
+
+Movies, Rocky, HBO Max, Creed
+
+Fri, 27 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/rocky-creed-hbo-max-december-2026/
+
+One of the biggest franchises ever will have a new streaming home very soon.
+---------
+
+# 10 Anime Detectives Smarter Than Conan Edogawa
+
+Anime, Danganronpa: The Animation, Death Note, Innovation, Case Closed
+
+Fri, 27 Nov 2026 02:45:12 GMT
+
+https://www.cbr.com/anime-detectives-smarter-than-conan-edogawa-case-closed/
+
+Conan Edogawa may be one of anime's greatest detectives, but these 10 problem-solvers have proved they can handle any job better than Conan can.
+---------
+
+# 10 Gen 1 Pokémon That Are Still Competitive 30 Years Later
+
+Games, Pokemon, Video Games, Pokémon
+
+Fri, 27 Nov 2026 02:30:11 GMT
+
+https://www.cbr.com/gen-1-pokemon-still-competitive-30-years-later/
+
+The Pokémon franchise is 30 years old, and a handful of the Gen 1 roster is still competitively viable, even after three decades.
+---------
+
+# 10 Most Unwatchable Movie Trilogies in Movie History, Ranked
+
+Movies, Star Wars, The Hobbit, The Hangover
+
+Fri, 27 Nov 2026 02:30:11 GMT
+
+https://www.cbr.com/unwatchable-movie-trilogies-list/
+
+Sometimes one movie leads to an entire trilogy, but, as Divergent and Tron proved, that doesn't mean any of the three films are easy to watch.
+---------
+
+# A Fan-Favorite Supernatural Drama Is Bringing All 7 Seasons to Hulu in December
+
+TV, Good Witch, Hallmark Channel, Hulu
+
+Fri, 27 Nov 2026 02:30:11 GMT
+
+https://www.cbr.com/good-witch-hulu-december-2026/
+
+Hulu has unveiled its lineup for December 2026, and it includes the addition of the Hallmark supernatural drama Good Witch.
+---------
+
+# Prime Video Just Reversed Blade Runner’s 44-Year-Old Replicant Test
+
+TV, Blade Runner 2099, Blade Runner, Prime Video
+
+Fri, 27 Nov 2026 02:00:12 GMT
+
+https://www.cbr.com/prime-video-blade-runner-2099-reversed-replicant-test/
+
+The latest installment in the Blade Runner franchise is turning the story of Ridley Scott's original 1982 movie completely on its head.
+---------
+
+# 7 Strongest Anime Swords Wielded by Villains, Ranked
+
+Anime, Naruto, Innovation
+
+Fri, 27 Nov 2026 02:00:12 GMT
+
+https://www.cbr.com/strongest-anime-villain-swords-ranked/
+
+A powerful weapon in the hands of an enemy heavily shapes outcomes of the darkest battles.
+---------
+
+# Netflix's Near-Perfect 8-Episode Sci-Fi Series Is a Weekend Binge Worth Revisiting
+
+TV Features, The Boroughs, Netflix, Sci-Fi, Alfred Molina
+
+Fri, 27 Nov 2026 02:36:12 GMT
+
+https://collider.com/the-boroughs-netflix-sci-fi-weekend-binge/
+
+Netflix's The Boroughs is a unique sci-fi mystery series — and it's a weekend binge that's still worth revisiting.
+---------
+
+# 7 Western Movies We Actually Want to See a Remake Of
+
+Movie, Western, Stagecoach, The Man Who Shot Liberty Valance, The Treasure of the Sierra Madre
+
+Fri, 27 Nov 2026 02:24:12 GMT
+
+https://collider.com/western-movies-want-remake/
+
+The Man Who Shot Liberty Valance, Tombstone, Stagecoach, and more make up our list of Western movies we actually want to see a remake of.
+---------
+
+# Netflix’s New ‘Squid Game’ Replacement Officially Premieres in 1 Month
+
+TV News, Quiztopia, Netflix, Thriller, Alice in Borderland
+
+Fri, 27 Nov 2026 02:00:12 GMT
+
+https://collider.com/takuyi-yamada-quiztopia-release-date-netflix-december-2026/
+
+Quiztopia, Netflix's new Japanese dystopian thriller starring Takayuki Yamada, will premiere next month. Here's what we know about the adaptation.
+---------
+
+# 'Outlander's 2-Part Spin-Off Officially Returns for Season Finale in 1 Day
+
+TV News, Outlander: Blood of My Blood, Outlander, STARZ, Starz
+
+Fri, 27 Nov 2026 01:30:12 GMT
+
+https://collider.com/outlander-blood-of-my-blood-season-2-finale-release-date-november-2026/
+
+Outlander: Blood of My Blood Season 2 ends with an intense tenth episode tomorrow on Starz, wrapping up on a major cliffhanger.
+---------
+
+# 'Star Trek: Deep Space Nine’s Greatest Quote Still Hasn't Been Beaten
+
+TV Features, Star Trek, Star Trek: Deep Space Nine, Sci-Fi, Gene Roddenberry
+
+Fri, 27 Nov 2026 01:13:12 GMT
+
+https://collider.com/star-trek-deep-space-nine-greatest-quote-a-man-alone/
+
+Odo's iconic quote from Star Trek: Deep Space Nine leaves its impact across the series with all of its moral complexities.
+---------
+
+# The 10 Worst Oscars Decisions of All Time, Ranked
+
+Movie, Academy Awards, Crash, How Green Was My Valley, The King's Speech
+
+Fri, 27 Nov 2026 01:11:12 GMT
+
+https://collider.com/worst-oscars-decisions-all-time-ranked/
+
+From shocking campaigns to vote splitting, some of the worst Academy Award decisions rattled cinema history.
+---------
+
+# Apple TV’s 2-Part Detective Series Officially Returns in 2026
+
+TV News, Bad Monkey, Vince Vaughn, John Malkovich, Natalie Martinez
+
+Fri, 27 Nov 2026 01:01:12 GMT
+
+https://collider.com/apple-tv-bad-monkey-season-2-release-date-december-2026/
+
+Vince Vaughn is back in Season 2 of Bad Monkey, and it's coming soon. Read on for more.
+---------
+
+# New ‘Star Trek: Voyager’ Release Will Officially Bring Back a Notorious Storyline
+
+Gaming News, Star Trek: Voyager, Video Game, Star Trek, Science Fiction
+
+Fri, 27 Nov 2026 00:45:12 GMT
+
+https://collider.com/star-trek-voyager-across-the-unknown-year-of-hell/
+
+One of Star Trek: Voyager's best episodes is now a DLC pack for the Across the Unknown video game. Read on for more.
+---------
+
+# 7 Sci-Fi Books That Are Better Than 'Neuromancer'
+
+Books and Comics, Neuromancer, Science Fiction, Blade Runner, Altered Carbon
+
+Fri, 27 Nov 2026 00:39:12 GMT
+
+https://collider.com/sci-fi-books-better-than-neuromancer/
+
+As good as William Gibson's Neuromancer is, we'd argue that sci-fi books like Do Androids Dream of Electric Sheep? and Snow Crash are better.
+---------
+
+# Netflix’s New Jane Austen Adaptation Officially Debuts in 1 Week
+
+TV News, Pride and Prejudice, Netflix
+
+Fri, 27 Nov 2026 00:30:12 GMT
+
+https://collider.com/netflix-pride-and-prejudice-release-date-december-2026/
+
+Netflix's six-episode Pride and Prejudice series, an adaptation of Jane Austen's iconic novel, premieres in only one week.
+---------
+
+# Star Trek: All 11 Captains of the USS Enterprise, Ranked by How Competent They Are
+
+TV Lists, Star Trek, Sci-Fi
+
+Fri, 27 Nov 2026 02:00:16 GMT
+
+https://movieweb.com/star-trek-enterprise-captains/
+
+Remember, competency isn't the same as popularity. Some Star Trek icons shine in other areas.
+---------
+
+# 7 Biggest Questions After 'Blade Runner 2099's Ending, Explained
+
+TV Lists, Blade Runner 2099, Blade Runner, Sci-Fi
+
+Fri, 27 Nov 2026 02:00:16 GMT
+
+https://movieweb.com/blade-runner-2099-ending-questions-explained/
+
+Amazon's new sci-fi sequel leaves some tantalizing loose ends, and some have clearer resolutions than others.
+---------
+
+# ‘The Rings of Power’ Finally Explains a Major 'Lord of the Rings' Retcon After 23 Episodes
+
+Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Fri, 27 Nov 2026 01:00:16 GMT
+
+https://movieweb.com/rings-of-power-durin-retcon/
+
+'The Rings of Power' has gone more in depth into the history of the Dwarven realm of Khazad-Dûm, and explained a major departure from Tolkien's lore.
+---------
+
+# Mark Ruffalo's 2027 Disney Movie Releases New Teaser
+
+Movie News, Gatto, Mark Ruffalo, Disney, Animation, Comedy, Adventure, Family, Crime
+
+Fri, 27 Nov 2026 00:35:41 GMT
+
+https://movieweb.com/gatto-teaser/
+
+Mark Ruffalo is working with Disney in a new capacity outside of his continuing tenure in the MCU.
+---------
+
+# Ridley Scott’s New 8-Part Sequel to a Cyberpunk Action Masterpiece Is Already Taking Over Streaming
+
+TV News, Blade Runner 2099, Prime Video, Hot on Streaming, Ridley Scott, Sci-Fi, Blade Runner
+
+Fri, 27 Nov 2026 00:30:16 GMT
+
+https://movieweb.com/blade-runner-2099-stream-prime-november-2026/
+
+The wait is finally over; the greatest cyberpunk franchise is back.
+---------
+
+# Chris Pratt's New 106-Minute Action Adventure Shoots to No. 1 on Global Streaming in Just 1 Day
+
+Movie News, Way of the Warrior Kid, Chris Pratt, Action, Adventure, Hot on Streaming
+
+Thu, 26 Nov 2026 23:30:17 GMT
+
+https://movieweb.com/way-of-the-warrior-kid-chris-pratt-stream-apple-november-2026/
+
+Despite a divided reception by critics, Pratt's new project has found an audience.
+---------
+
+# ‘John Wick’ Director’s New Action Thriller Officially Leaves 700+ Theaters After Box Office Flop
+
+Movie News, How to Rob a Bank, Action, Box Office Milestones
+
+Thu, 26 Nov 2026 23:05:39 GMT
+
+https://movieweb.com/how-to-rob-a-bank-theater-exit/
+
+A steep theater-count drop underscores just how quickly the movie’s theatrical momentum has faded.
+---------
+
+# Amazon's 123-Minute Action Epic Makes a Comeback on Streaming – And the Timing Is Perfect
+
+Movie News, Red One, Hot on Streaming, Action, Prime Video
+
+Thu, 26 Nov 2026 22:00:16 GMT
+
+https://movieweb.com/red-one-streaming-prime-video-november-2026/
+
+One of Amazon's biggest streaming movies ever has resurfaced to once again become a hit this holiday season.
+---------
+
+# Prime Video's Ambitious Hard Sci-Fi Masterpiece Deserves a Revival 4 Years After Its Death SentencePrime Video's Ambitious Hard Sci-Fi Masterpiece Deserves a Revival 4 Years After Its Death Sentence
+
+Features, Sci-Fi, The Expanse, Prime Video
+
+Thu, 26 Nov 2026 22:00:16 GMT
+
+https://movieweb.com/the-expanse-prime-video-deserves-revival/
+
+Despite being revived once, Amazon Prime Video should consider bringing the incredible hard sci-fi TV show 'The Expanse' back yet again.
+---------
+
+# 'The Mosquito Bowl' Star Ray Nicholson Explains the Meaning Behind the Real-Life Football Game
+
+Movies, The Mosquito Bowl, War, Peter Berg
+
+Thu, 26 Nov 2026 22:00:16 GMT
+
+https://movieweb.com/mosquito-bowl-football-game-meaning/
+
+Netflix's new war movie is about more than war itself.
+---------
+
 # Why There's No New Eternally Yours Tonight (Nov 26) & When Episode 8 Releases
 
 Network TV, Eternally Yours
