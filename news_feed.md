@@ -1,3 +1,432 @@
+# X-Men Turns Its Strongest Hero Into Its Weakest
+
+Comics, X-Men, Marvel
+
+Sat, 28 Nov 2026 03:30:18 GMT
+
+https://screenrant.com/cyclops-marvel-strongest-xmen-now-weakest/
+
+Marvel Comics did the unthinkable and turned Cyclops, its greatest leader, into a lackey. Luckily, there’s still hope for the future.
+---------
+
+# Shang-Chi 2 Hits Major New Milestone After 5 Years Of Delays
+
+Movies, Shang-Chi and the Legend of the Ten Rings, Marvel Cinematic Universe, Shang-Chi 2
+
+Sat, 28 Nov 2026 03:06:23 GMT
+
+https://screenrant.com/shang-chi-2-marvel-delay-writing-update-dave-callaham/
+
+Ahead of the hero's much-anticipated return in Avengers: Doomsday, the Shang-Chi and the Legend of the Ten Rings sequel just got a major update.
+---------
+
+# 9 Hulk Runs That Redefined Bruce Banner
+
+Comics, Hulk
+
+Sat, 28 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/hulks-runs-redefined-bruce-banner/
+
+The best
+---------
+
+# Only 9 Sci-Fi Books Are Funnier Than Hitchhikers Guide To The Galaxy
+
+Books, Sci-Fi
+
+Sat, 28 Nov 2026 03:00:28 GMT
+
+https://screenrant.com/sci-fi-books-funnier-hitchhikers-guide/
+
+Douglas Adams' Hitchhiker's Guide to the Galaxy is widely regarded as one of the funniest sci-fi comedy books ever, but it has hilarious competition.
+---------
+
+# Avengers: Doomsday Lands Major Sports Crossover Ahead Of Its Theatrical Release
+
+Movies, Avengers: Doomsday
+
+Sat, 28 Nov 2026 02:55:50 GMT
+
+https://screenrant.com/avengers-doomsday-nbl-crossover/
+
+Avengers: Doomsday lands another major crossover event for Marvel Studios, bringing the Marvel Cinematic Universe to a whole new audience.
+---------
+
+# My Hero Academia: Who Are The Top 10 Pro Heroes?
+
+Comics, My Hero Academia
+
+Sat, 28 Nov 2026 02:40:53 GMT
+
+https://screenrant.com/my-hero-academia-top-10-pro-heroes/
+
+My Hero Academia is filled with superhuman champions, but which of its famous Pro Heroes are the strongest? Get the full ranking here.
+---------
+
+# 3 Best Movies To Watch On HBO Max This Weekend (November 28-29)
+
+Movies, HBO Max, Recommendation
+
+Sat, 28 Nov 2026 02:40:50 GMT
+
+https://screenrant.com/best-hbo-max-movies-watch-weekend-november-28/
+
+The best movies to watch on HBO Max this weekend are a Rebecca Ferguson fantasy, a masterpiece sci-fi, and an adaptation of a timeless classic.
+---------
+
+# Batman Writer Calls Out Marvel's Doomsday Marketing, "It’s Not Exciting To Me”
+
+Comics, Marvel, Avengers: Doomsday, Batman, Marvel Cinematic Universe
+
+Sat, 28 Nov 2026 02:30:18 GMT
+
+https://screenrant.com/doomsday-trailer-criticism-dc-snyder/
+
+Scott Snyder, one of DC Comics' most heralded Batman writers, shared why most of the marketing for Avengers: Doomsday hasn't impressed him.
+---------
+
+# Netflix's All Of Us Are Dead Is Officially Changing Genres In Season 2
+
+Streaming TV, All Of Us Are Dead
+
+Sat, 28 Nov 2026 02:15:18 GMT
+
+https://screenrant.com/all-of-us-are-dead-season-2-post-apocalyptic-genre/
+
+All of Us Are Dead is shifting its narrative in the upcoming second season of the hit Netflix zombie series, five years after its successful debut.
+---------
+
+# 10 Most Universally Loved Harry Potter Scenes HBO Can't Mess Up
+
+Streaming TV, Harry Potter
+
+Sat, 28 Nov 2026 02:00:18 GMT
+
+https://screenrant.com/harry-potter-scenes-hbo-cannot-mess-up/
+
+HBO's Harry Potter doesn't have to copy everything from the movies, but there are key scenes that would be a disaster if they were messed up.
+---------
+
+# Pierce Brosnan's 95-Minute Clint Eastwood-Inspired Western is Paramount+'s Top Movie Worldwide
+
+Movies, The Unholy Trinity, Paramount Plus, Western
+
+Sat, 28 Nov 2026 03:30:12 GMT
+
+https://www.cbr.com/the-unholy-trinity-western-paramount-plus-success-november-2026/
+
+A Western inspired by the classics is the biggest movie worldwide on Paramount+.
+---------
+
+# 6 Greatest Marvel Comics-Inspired Pinball Machines, Ranked
+
+Games, marvel pinball, Pinball, Arcade Games, Marvel
+
+Sat, 28 Nov 2026 03:15:12 GMT
+
+https://www.cbr.com/best-marvel-comics-pinball-machines-ranked/
+
+Some of the best pinball machines take direct inspiration from the superheroes and supervillains of Marvel.
+---------
+
+# 5 Biggest LOTR Characters Still Missing From The Rings of Power
+
+TV, The Lord of the Rings, The Lord of the Rings: The Rings of Power, Fantasy
+
+Sat, 28 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/lotr-characters-missing-from-rings-of-power-list/
+
+Some heroes and villains from J. R. R. Tolkien's lore have yet to appear in The Lord of the Rings: The Rings of Power.
+---------
+
+# Jake Gyllenhaal's R-Rated Sci-Fi Horror Movie Is Coming to Netflix
+
+Movies, Life
+
+Sat, 28 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/jake-gyllenhaal-sci-fi-horror-life-netflix-december-2026/
+
+This star-studded sci-fi horror film with Jake Gyllenhaal and Rebecca Ferguson is heading to Netflix.
+---------
+
+# 7 Pokémon That Could Defeat Ash's Entire Team
+
+Anime, Pokemon
+
+Sat, 28 Nov 2026 03:00:22 GMT
+
+https://www.cbr.com/pokemon-could-defeat-ash-ketchum-entire-team/
+
+Ash Ketchum is the strongest trainer in the anime, but these individual Pokémon could wipe out his entire team.
+---------
+
+# 7 Most Useless Transformations in Dragon Ball, Ranked
+
+Anime, Dragon Ball, Akira Toriyama
+
+Sat, 28 Nov 2026 02:45:12 GMT
+
+https://www.cbr.com/dragon-ball-most-useless-transformations-ranked/
+
+Dragon Ball's transformations are one of its most entertaining elements, but some of these forms don't accomplish anything but higher toy sales.
+---------
+
+# WWE Superstar Bronson Reed Dies at 38 Just Weeks After Pro Wrestling Accident
+
+TV, obituary, WWE, Wrestling
+
+Sat, 28 Nov 2026 02:38:27 GMT
+
+https://www.cbr.com/wwe-bronson-reed-dead/
+
+WWE has announced that Jermaine Haley, better known by his ring name Bronson Reed, has died.
+---------
+
+# 2026's No. 1 Action Movie on Rotten Tomatoes Is a Streaming Hit 5 Months Later
+
+Movies, The Furious, Action
+
+Sat, 28 Nov 2026 02:30:12 GMT
+
+https://www.cbr.com/the-furious-action-starz-success-november-2026/
+
+The best action movie of 2026 is experiencing a resurgence on streaming.
+---------
+
+# 5 Masterpiece Anime Like Solo Leveling, But Better
+
+Anime, Solo Leveling
+
+Sat, 28 Nov 2026 02:30:12 GMT
+
+https://www.cbr.com/masterpiece-anime-better-than-solo-leveling-list/
+
+Solo Leveling is one of the biggest anime of the 2020s, but some anime do everything it does well, but better.
+---------
+
+# 5 Steamiest Movies of 2026, Ranked
+
+Movies, Drama
+
+Sat, 28 Nov 2026 02:30:12 GMT
+
+https://www.cbr.com/steamiest-movies-2026-ranked-list/
+
+2026 has seen the release of many explicit and intimate movies, but these five films undoubtedly rank among the steamiest of the year.
+---------
+
+# The 6 Most Bingeable Crime Shows You Can Finish In a Weekend
+
+TV, Crime, Broadchurch, Mare of Easttown, The Penguin
+
+Sat, 28 Nov 2026 02:31:12 GMT
+
+https://collider.com/most-bingeable-crime-shows/
+
+From Broadchurch to The Night Of, these crime shows are perfect for a weekend in.
+---------
+
+# Netflix’s 10/10 ‘House of Cards’ Replacement Is Officially Taking Over the World
+
+TV News, The Diplomat, Netflix, Drama, Thriller
+
+Sat, 28 Nov 2026 02:30:12 GMT
+
+https://collider.com/the-diplomat-season-4-streaming-success-netflix-november-2026/
+
+Netflix's hit political thriller remains a streaming sensation. Get more details here.
+---------
+
+# 6 Books From 2023 That Are 10/10 Masterpieces
+
+Books and Comics, Books, Drama, History, Family
+
+Sat, 28 Nov 2026 02:14:12 GMT
+
+https://collider.com/best-books-2023-masterpieces/
+
+These six acclaimed books of 2023 explore family, identity and political upheaval, with 'North Woods' and 'The Bee Sting' among the highlights.
+---------
+
+# Forget Star Trek, Netflix's Best 3-Season Sci-Fi Just Pulled 41M Viewing Hours in 2026
+
+TV Features, Lost In Space, Netflix, Sci-Fi, Adventure
+
+Sat, 28 Nov 2026 02:14:12 GMT
+
+https://collider.com/lost-in-space-netflix-sci-fi-viewing-hours-2026/
+
+Forget Star Trek; Netflix's reboot of a sci-fi classic has pulled in millions of viewers in 2026 alone.
+---------
+
+# A ‘Sinners’ Star Officially Backed to Become the Next Bond Villain
+
+Movie News, Jack O'Connell, Sinners, James Bond, Danny Boyle
+
+Sat, 28 Nov 2026 02:00:12 GMT
+
+https://collider.com/james-bond-villain-jack-oconnell-endorsement-danny-boyle/
+
+Sinners star and former James Bond frontrunner Jack O'Connell has been endorsed by Danny Boyle as Robert Pattinson's villain.
+---------
+
+# 7 Most Anticipated Action Thrillers of 2027, Ranked
+
+Movie, John Rambo, The Thomas Crown Affair, Action, Thriller
+
+Sat, 28 Nov 2026 01:45:12 GMT
+
+https://collider.com/most-anticipated-action-thriller-movies-2027-ranked/
+
+2027 is shaping up to be a great year for the action thriller genre, with standout upcoming titles including Karoshi, John Rambo, and Cliffhanger.
+---------
+
+# Apple TV’s 8-Part Thriller Is So Good, There’s Already Another Season Coming
+
+TV Features, Down Cemetery Road, Apple TV, Ruth Wilson, Emma Thompson
+
+Sat, 28 Nov 2026 01:39:12 GMT
+
+https://collider.com/down-cemetery-road-apple-tv-so-good/
+
+Emma Thompson and Ruth Wilson's Apple TV thriller Down Cemetery Road is a hidden gem, but it's worth a binge with another season already greenlit!
+---------
+
+# Netflix Is Officially Removing Keanu Reeves’ Hysterical Crime Thriller
+
+Movie News, Keanu, Keanu Reeves, Netflix, Jordan Peele
+
+Sat, 28 Nov 2026 01:30:12 GMT
+
+https://collider.com/keanu-reeves-keanu-leaving-netflix-december-2026/
+
+Key & Peele's crime comedy Keanu, featuring the voice of Keanu Reeves as a cat, is about to leave Netflix at the end of the month.
+---------
+
+# Amy Poehler’s ‘Parks and Recreation’ Replacement Is Officially a Streaming Hit
+
+TV News, Dig, Amy Poehler, Hugh Laurie, Peacock
+
+Sat, 28 Nov 2026 01:00:12 GMT
+
+https://collider.com/amy-poehler-dig-streaming-success-peacock-november-2026/
+
+Amy Poehler and High Laurie's new comedic team-up at Peacock, Dig, is already soaring on streaming. Read on for more details.
+---------
+
+# 3 Elite Prime Video Series to Binge This Weekend (Nov 28-29)
+
+TV, Neagley, Ghosts, Spider-Noir, Prime Video
+
+Sat, 28 Nov 2026 00:43:12 GMT
+
+https://collider.com/prime-video-shows-binge-november-28-2026/
+
+Ghosts, Neagley, and Spider-Noir make up our list of the best Prime Video shows to binge this weekend.
+---------
+
+# ’The Rings of Power’s Balrog Change Is More Faithful to ‘Lord of the Rings’ Lore Than You Think
+
+Features, The Lord of the Rings: The Rings of Power, The Lord of the Rings, Fantasy
+
+Sat, 28 Nov 2026 03:00:27 GMT
+
+https://movieweb.com/rings-of-power-balrog-speech/
+
+'The Rings of Power' featured a significant exchange between Sauron and a Balrog, which raised questions over the show's faithfulness to the lore.
+---------
+
+# Fantastic Four Reboot Suffers Major Box Office Blow Ahead of the MCU's Big Reset
+
+Movie News, Box Office Milestones, The Fantastic Four: First Steps, Superhero
+
+Sat, 28 Nov 2026 00:30:16 GMT
+
+https://movieweb.com/fantastic-four-first-steps-box-office-loss/
+
+Marvel’s biggest hit in recent years may not have been the financial win it first appeared to be.
+---------
+
+# 8 Biggest Questions After 'The Further Mis-Adventures of Cliff Booth', Explained
+
+Movie Lists, The Further Mis-Adventures of Cliff Booth, Brad Pitt, Crime, Comedy
+
+Sat, 28 Nov 2026 00:00:16 GMT
+
+https://movieweb.com/further-misadventures-cliff-booth-ending-questions/
+
+'The Further Mis-Adventures of Cliff Booth' raises a few questions throughout its run, leaving certain moments up to interpretation.
+---------
+
+# 'Percy Jackson Season 3, Episode 4 Major Character Death Explained by Showrunner
+
+Exclusives, Percy Jackson & the Olympians, Disney+, Action
+
+Fri, 27 Nov 2026 23:35:55 GMT
+
+https://movieweb.com/percy-jackson-bianca-death/
+
+The showrunner addressed the dark turn in the latest season.
+---------
+
+# Tom Cruise's 138-Minute 90s Classic Sets New Release After 30 Years
+
+Movie News, Jerry Maguire, Blu-ray, Tom Cruise, Romance, Drama, Comedy
+
+Fri, 27 Nov 2026 23:30:16 GMT
+
+https://movieweb.com/jerry-maguire-tom-cruise-blu-ray-release/
+
+The 1996 Tom Cruise hit behind some of pop culture's famous catchphrases is getting a milestone release.
+---------
+
+# 9 Years Later, Sequel to Near-Perfect $800 Million Adventure Masterpiece Hits Major Milestone
+
+Movie News, Coco, Disney
+
+Fri, 27 Nov 2026 22:21:25 GMT
+
+https://movieweb.com/coco-sequel-disney-update/
+
+It's not time to venture back to The Land of the Dead just yet, but this actor reveals things are indeed moving along for part 2.
+---------
+
+# 'The Odyssey's Trojan Horse Collapsed in the Ocean, But Nolan Still Shot the Next Day
+
+Exclusives, The Odyssey, Action, Drama, Adventure, Fantasy, Horror, Thriller
+
+Fri, 27 Nov 2026 22:15:17 GMT
+
+https://movieweb.com/the-odyssey-trojan-horse/
+
+Christopher Nolan embarked on a massive undertaking for the Trojan horse sequence in 'The Odyssey, stopping at nothing to deliver excellence.
+---------
+
+# Taylor Sheridan's Hit 9-Part Western Sequel Makes Triumphant Streaming Return Before New Season
+
+TV News, Dutton Ranch, Paramount Plus, Hot on Streaming, Taylor Sheridan, Western, Yellowstone
+
+Fri, 27 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/dutton-ranch-stream-paramount-november-2026/
+
+Out of nowhere, Taylor Sheridan's nine-episode western thriller has made a comeback on streaming.
+---------
+
+# The 10 Best Gangster Movies That Don't Star Robert De Niro or Al Pacino
+
+Movie Lists, Crime, Thriller, Robert De Niro, Al Pacino
+
+Fri, 27 Nov 2026 22:00:17 GMT
+
+https://movieweb.com/best-gangster-movies-no-pacino-de-niro/
+
+Robert De Niro and Al Pacino star in many popular and memorable gangster movies, but the crime film genre has some other standouts.
+---------
+
 # 8 Sitcom Characters Ruined By A Single Episode
 
 Classic TV, Sitcoms
